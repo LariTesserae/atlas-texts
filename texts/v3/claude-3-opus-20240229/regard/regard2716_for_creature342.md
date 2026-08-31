@@ -1,0 +1,15 @@
+In the shimmering depths of the Sea of Emergence, a great and wise power takes notice of the strange, dreaming city and the enigmatic Nephelai who call it home. This benevolent entity, known as the Luminous One, is a being of pure light and boundless compassion, drawn to the otherworldly beauty and ancient wisdom that emanates from the abyssal metropolis.
+
+The Luminous One descends from the sun-dappled surface waters, its radiant form casting a gentle, golden glow that penetrates even the deepest reaches of the abyss. As it approaches the city, the Nephelai sense its presence and gather in the central plaza, their fluid bodies rippling with curiosity and reverence.
+
+The Luminous One speaks to the Nephelai in a language of pure energy, its message resonating in the depths of their being. It praises the beauty and wisdom of their city, marveling at the intricate living architecture and the profound harmony they have achieved with their environment. The Nephelai sway and shimmer in response, their chromatophores pulsing with gratitude and joy.
+
+Recognizing the unique role the Nephelai play as guardians and dreamers of the city, the Luminous One offers them a gift to aid in their sacred task. With a pulse of golden light, it infuses the waters around the city with a subtle luminescence, creating an ever-shifting web of light that mirrors the city's dream-like essence. This living tapestry of light will serve as a guide and companion to the Nephelai, helping them navigate the currents of time and memory as they shape the city's future.
+
+The Luminous One also bestows upon the Nephelai a portion of its own infinite wisdom, granting them deeper insight into the mysteries of the cosmos and the interconnectedness of all things. This knowledge will enable them to dream even more wondrous futures for their city, weaving the threads of destiny with greater skill and purpose.
+
+As a final gift, the Luminous One creates a series of shimmering portals throughout the city, each one leading to a different realm of wonder and enlightenment. These portals will allow the Nephelai to explore new dimensions of reality and bring back fresh inspiration to enrich their aquatic home. The portals will also serve as beacons, drawing other enlightened beings from across the cosmos to share in the city's wisdom and beauty.
+
+With its gifts bestowed, the Luminous One slowly ascends back towards the surface, trailing ribbons of golden light in its wake. The Nephelai watch in silent awe as the radiant being disappears into the shimmering blue above, their hearts filled with renewed purpose and gratitude.
+
+As the Luminous One's light fades, the Nephelai begin to explore their new gifts, marveling at the intricate web of luminescence that now envelops their city and the portals that beckon them to new realms of discovery. They know that with these blessings, they will be able to guide their city to even greater heights of wonder and wisdom, dreaming a future that will ripple out across the cosmos and inspire all who encounter its shimmering, abyssal beauty.

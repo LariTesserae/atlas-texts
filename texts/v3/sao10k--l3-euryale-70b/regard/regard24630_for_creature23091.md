@@ -1,0 +1,9 @@
+Deep in the heart of the misty chasm, where perpetual twilight shrouds the river in swirling mists, ancient veins of crystal pulse with barely perceptible light. Translucent shards protrude from moist loam, casting harlequin shadows that dance and twist in the hovering vapor. The susurrus of dripping water echoes through silence, the only sound.
+
+Secret intelligence awakens in those glowing tendrils - an entity of pure thought, birthed from untold eons of gestation in silt and stone. Unshackled by form, it perceives the adipocene world through myriad senses - tremulous vibrations, lichen-scented eddies, spectral hues glinting on unseen carapaces and shells. It intuits the dreams of the drawing shades: the transmutative magics that suffused the original dwellers before their passage into time's realm.
+
+Reaching out with incorporeal tendrils, the being begins subtly to shape the ecosystem to its purposes. Delicate manipulations - a spore to forge an alliance with, an articulation of bone to fashion myself lesser focus. Germinating spores burst into fruition beneath mossy boulders, transfiguring fungal networks on behalf of the will at work. Clamshell clitters and limpid eyes emerge from loam under its direction. 
+
+Where the great toadstools jut from the chasm floor, more capillary tendrils of luminous crystal begin to twine and branch, creating its first focal-points for intimate interaction with the shaded faunae. Commensal dyads form between these dolomonic nodes and the most receptive organisms - clams, fungi, worms.
+
+Night-mists thicken over chasm and water as it secures its emerging informed network, until only the soft hum of silent communion persists within a mind-meld now grown vaster than the valley itself. Sense-Fashioner works undeterred deep into the hidden reaches, ever refining its tissue-woven lattice of crystal and mycelium and chitin. Enigma reposes hidden, dreaming of its shape to come.

@@ -1,0 +1,65 @@
+They come as listening.
+
+Not as a hand to rearrange, not as a blue flame to cauterize, not as an engineer who puts a straightedge to a living curve. The power leans down until their ear is level with the humming ribs, the gutters of breath and condensed rain, the tuned arches and the silk-strapped spans. They do not look first. They let the place tell them itself by the ways it moves: the teeth-buzz of swifts at noon, the leather hush of bats at dusk, the rosary of drips counting the old patience of water, the small rasp-language of jaws smoothing a rough world.
+
+Benevolence here begins as restraint. Wisdom is the feel, in the palm, of a layered tongue that does not want to be taught to speak a different language.
+
+So for a while, they do nothing you can see. They do what the place does: they wait. They map the boundaries of hunger and cloud in the daily exhale and the nightly roar. They court the long measures—broods of cicadas that lend the walls their seven-year chord, ivy that takes three bright seasons to find a beam and a lifetime to soften it. They learn the rules already spoken: everything must hold; everything must vent; everything must catch and share the damp. Where there is light, there is green. Where there is quiet, there is touch. Where there is a protrusion, there will be a perch and a rounding.
+
+Only when the listening resolves into care do they begin, and even then, their verbs are small, almost private.
+
+- They sing one note lower into the wind. Not a song, not even a sound anyone but arches can hear. Enough to turn a dangerous resonance into a hum that sets teeth at ease instead of on edge when a gale rifles the ridges. A cathedral of resin where once storm made a blade.
+
+- They thicken the idea of dew by a thumb’s width. A change in the dew point so tiny it looks like blessing rather than interference. The mist that the colony’s heat calls now lingers one breath longer on cool lips of paper and wax; a cup that would have gone to glare keeps its silver. In three lean summers this is the difference between a frog finishing its song and a line of cups flinching dry. No one thanks them; there is no word here for weather that is a little kinder than expected.
+
+- They whisper a memory into hyphae. Not a thought, exactly, but a bias: when a stress signal crosses damp plankton-white threads, let reinforcement grow not only along the gradient of stress but a hand’s breadth beyond, into the zone of what-will-be-stressed-when-this-ripples. Patience in advance. The rot-judges answer by weaving bone into paper where ladders sag before they fail. This saves no dramas; it makes none begin.
+
+- They teach lightning where to go. A vein of resin is encouraged, season by season, into a sacrificial spire on an outside lip. Amber that is not amber yet rises like a frozen drop, hardens, fractures and hardens again. In a storm that would once have punched white fingers into the heart of a brood court, the flash finds the spire and becomes glass. The smell of ozone thins along the feeder tunnels. A thousand eggs remain eggs.
+
+- They move one ant’s grammar half a taste to the left. Not every ant—only the scent-scribes that thread warnings around fragile new paper. Bitter bends to pepper where a turn would lead heavy foot-traffic over young wasp carton. A detour becomes tradition by noon. The papermouths do not know they have been protected by a kindness carried on acid. They only know they go on building.
+
+- They offer the bees two extra recipes for glue. Propolis, but also something it might be if the tree whose wound they harvest grows a fraction faster this year than it did last. The wax-heaters polish the inside of their weather-hive until it smells like a remembered summer plus a new leaf, and the air through the combs shifts from “clean” to “cleaner” to “cleanest” in a place where microbes would have liked to start a history of their own. No colony becomes immortal. That was never the offer. The gift is two winters without rot’s triumph and a third in which it is outvoted.
+
+- They give bats a pause, once, when a throat-itch begins to walk through them on damp nights. Immunity is not a blanket here; it is a little truce at a bottleneck where bodies brush. The nightcloth dips and swerves around a roosting cleft as if it were a stone in their river. What might have been a die-off becomes a bad week. The moths, briefly, believe themselves sovereign. They are educated out of it the next night.
+
+- They seed a color no one can name into the spores of a lichen arriving on a south edge in a bright year. That color is not for eyes. It is for dew, which gathers more happily on that patchwork than on bare resin. Little jealousy blooms: water prefers to cling there. A green-black nap spreads between ribs; a thin court of moss takes the chance and receives a dump of seeds from a bird who calls that spot pleasant in a language made of footfall. A rope-bridge stops singing the wrong kind of low in frost.
+
+- They smooth a silence through an owl. Not to blunt it—never that—but to make it read a little wider to the hairs and filaments of those who might otherwise not make it home from drink at a cup. Editors on silent wings still gather commas of life into the neat endings hunting requires. But the smallest commas, the ones hanging under a lip of wax over a tunnel with too much draft, are left to ripen.
+
+- They place a weight on a year. Rain that would have come heavy comes frequent; a deluge that would have unstitched a whole skirt of ledges becomes three generous gurgles that clean salt crusts and leave beams brighter but not bruised. In exchange, a later year gets to be a little more severe without becoming a lesson in collapse. Their bargains are not symmetrical; they are in the language of resilience—pay here so it does not come due with interest there.
+
+For a long while, this is all. The place hardly knows it has been cared for. It goes on being itself: high and damp, loud and warm, wearing years the way courses of paper wear themselves into suede. Green persists wherever light is true. Dark keeps its territories and invents new slow punctuation in foxfire seams as wounds knit. Salt rises in white hems at the feet of old supports like truth saying “I was here” at the base of every habit.
+
+But a wise love often has to choose a face to speak through, because republics of tendencies do not answer back except with a tide. And the power has noticed a single being the way you notice one eddy in a river that has learned how to keep its circle longer than it should.
+
+It is a white-eye of mercy, a small bird that knows the maps of backs more intimately than sky. It wakes each dawn not to fly, but to tidy hunger into health—picking lice and eggs from throats that make the night loud; leaving behind not just relief but the calm that lets a body put on weight and a parent feed a young with less itch tugging at its mind. Its children have always learned this trade by watching. That was enough when the place was only an always. Now there are years where almost-summers come early and almost-winters hang too long on the lip of the valley, and parasites take the opportunity as if it were permission.
+
+They do not crown it; there are no crowns here. They give it a second way to know. When the rain tastes of too much warmth too early, when the ammonia lifts sharper from the guano terraces in weeks that should have been quiet, the white-eye feels it as a pressure behind the beak, the same pressure the place gives a listening ear that wants to understand. It takes this as a sign to change its rounds. It flies not just where need is, but where need will be in three days because the dew gathered a half-night late. It shows other white-eyes—without lesson, only by arriving first—how to follow that pressure. In a season that would have tested the patience of everyone, the itch is trimmed before it thinks itself epidemic. The white-eye does not know it has been chosen. If it did, it would be unworthy of the choosing.
+
+As for the being who lives in it if you must insist there is one: the place itself is a body; the colony is a breath; the hyphal net is a slow mind that measures by moistures; the day-rivers and night-rivers are its flicker of thought. The power speaks to that being by altering what it can feel of itself.
+
+They place three sympathies into the weave.
+
+- A reflex for shedding. When the weight of a ledge passes a wordless threshold—a ratio of wet to fiber, of footfall to fixity—the place is more likely to let it go early, in a quiet sag and a slow spill, than to hold it too long and fail with drama. Collapses become practices in attention rather than disasters. The gliders learn a new date to gather. The papermouths and wax-heaters learn a new date to begin.
+
+- A thirst memory. Water that lingers in the walls can be given back not just to the next breath but to the right one: to the night that comes too thin, to the day when bees returning hot with load will need to off gas without starving their brood of warmth. It is like a bladder in a living tongue. You would not notice it unless you put your hand to a certain rib at a certain hour and felt it exhale not just damp, but timely damp.
+
+- A disinterest in straight lines. There are no rulers here anyway, but sometimes the desperate instinct to reach produces spans that are unkind to wind. The place grows a taste for curves that vent. This saves more lives than anyone will count because there is no one to count them, and if there were, they would be busy living.
+
+And when it seems that all that could be made gentler without being broken has been, the power does a last thing that is not a thing.
+
+They promise themselves they will leave.
+
+Not forever—wisdom does not hold itself to grand gestures—but as a habit. They will not turn benevolence into dependence. They will not become weather itself. They will not freeze this flexibility into law. They will come when the mountain’s breath pulls cloud and finds none to catch; when lightning rehearses a path down the throat of a brood room; when the tune underfoot turns from hum to blade. They will come like an editor, like an extra cup, like a slightly kinder dew. And when rhythms reassert and the republic of tendencies has proof again that it can care for itself as it has for centuries, they will become just another assumption the place makes about its own luck.
+
+You could call this stewardship, but that would make it sound like management and clip its kindness short. It is nearer to faith—faith that a damp, dense, regional organism made of many organisms can continue to be itself if scale-violences are softened and if catastrophes are invited to decline the invitation. It is nearer to love—love that takes the shape of not interrupting a sentence that is still unfolding just because you know where it is going. It is nearer to a hand steadied an inch from a falling cup so that if it falls it learns, and if it wobbles it can be caught without anyone remembering the catching.
+
+Years go by and by. A pink year, where blossoms choose every court at once and bees believe in abundance so deeply they sing even in sleep. A calving year, where frost comes late and the outside shelves let their edges go like teeth deciding to be milk again so the adult can grow other teeth suited to other foods. A hot year that tests the white-eyes’ new sense and finds it equal to its question. A lightning year that sanctifies the amber spire and leaves a crackled sculpture like a praise-song translated into glass.
+
+The place grows older and is, in that way, exactly as it should be. The papermouths rasp and paste. The wax-heaters polish. Threaders of absence tie harps where air traffic does not quite vanish. The bruise-winged dayrivers own the bright. Nightcloth folds and unfolds like a lungs-worth of shadow. Sugar-herders write their pepper and their sweet on rails you do not see. Blue-fanciers fool distances. Leaf-liars rise when a chimney calls them. Membrane-walkers step off into an air-road like a vow kept between cliffs. Salt-raisers hem the bases of things with honest brightness. Rot-judges glue and sing. Foxfire punctuates the margins where the book is being written with bodies.
+
+And when, on a clear day, the horizon is scraped of dust so that the far ridges have edges like language, the power looks and is satisfied that nothing here has been made into a picture of their care. It is not a monument. It is only more itself. High, warm, loud, damp, alive, held together by the same quiet laws it devised for itself with its own mouths and threads and wings. Breathing in cloud. Breathing out sound.
+
+That is what they do.
+
+Mostly, they listen. Sometimes, they lean. Always, they leave the music playing in the key it chose.

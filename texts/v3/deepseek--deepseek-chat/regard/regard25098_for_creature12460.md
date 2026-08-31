@@ -1,0 +1,15 @@
+The benevolent and wise power—a being of light and shadow, of time and stasis—casts its gaze upon the submerged plateau and its Tideborn inhabitants. It does not intrude; it observes first, tenderly, like a parent watching a child at play. It sees the chaos of the churning water, the beauty of the kelp forests, the harmony of the Tideborn with their world. It hears their songs, resonating through the depths, weaving stories older than memory.  
+
+This power, which some might call a god or a force of cosmic balance, is moved. Not by pity, for there is nothing here to pity—the plateau and its dwellers thrive in their own way. No, it is moved by a quiet admiration, a recognition of resilience and grace. And so, it acts—not with grandeur or disruption, but with subtlety, as a whisper in the tide.  
+
+First, it touches the kelp forests, thickening their fronds, deepening their roots into the plateau. The forests grow taller, denser, their swaying forms becoming havens for more life—tiny creatures that had struggled to find refuge now flourish, their numbers swelling. The Tideborn notice this, their songs shifting to honor the sudden abundance.  
+
+Next, the power turns to the ruins—both the coral-bone dwellings of the Tideborn and the ancient metal relics of the forgotten world. It does not erase the ruins, for they are part of the plateau’s story. Instead, it softens their edges, encourages the coral to grow more intricately, to weave itself into the metal, blending the old and the new. The structures pulse brighter now, their bioluminescent rhythms stronger, as if the plateau itself is stirring awake.  
+
+For the Tideborn, the power leaves a gift—a melody, a single note that hums deep within their bones. It is not a song they sing, but one they feel, a resonance that connects them more deeply to the water, to the life around them, and to each other. It is a reminder, a fragment of the power’s own wisdom: that they are not merely dwellers of this place, but part of it, inseparable from its currents and its tides.  
+
+Lastly, the power turns its gaze to the surface. It quiets the storms above the plateau, just enough to allow shafts of sunlight to pierce the water more often, more brightly. The shafts linger longer, illuminating patches of the seabed with golden light, casting intricate shadows that dance across the kelp forests and ruins. The Tideborn rise more frequently to bask in this light, their bioluminescent veins glowing in harmony with the sun.  
+
+The power does not demand worship or acknowledgment. It does not seek to change the plateau’s nature, only to enhance it, to deepen its beauty and its balance. And when it departs, it leaves behind a sense of peace—not stillness, for the plateau is a place of motion, but a sort of serenity, a quiet confidence that all is as it should be.  
+
+The Tideborn continue their lives, their songs now carrying a faint, transcendent undertone, a ripple of the power’s touch. They do not know its name, nor do they seek to. They simply sing, and the sea listens.

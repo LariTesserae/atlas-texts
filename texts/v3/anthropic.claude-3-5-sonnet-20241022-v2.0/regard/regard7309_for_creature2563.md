@@ -1,0 +1,11 @@
+The benevolent power - let's call it the Pattern-That-Bridges - observes this remarkable fusion of life and structure with deep appreciation. It recognizes in the Teng-wei's city a rare achievement: an answer to the ancient question of how to dwell within nature while nurturing it. Rather than intervene directly, it chooses to bestow three subtle gifts that will help preserve and enhance what's already there:
+
+First, it weaves an almost imperceptible layer of protection into the mists themselves - not to keep change out, but to ensure that any changes must first harmonize with the existing patterns of life. Like a living membrane, this barrier recognizes and welcomes that which would add to the city's symphony while gently deflecting discordant forces.
+
+Second, it enhances the already-present capacity for communication between all the city's inhabitants. The chemical signals between silk-spinners and Teng-wei become richer; the bamboo-listeners' connection to their charges deepens; the hand-dancers' social networks grow more sophisticated. These strengthened bonds manifest as subtle phosphorescent patterns visible at twilight - a living network of relationship and mutual understanding.
+
+Third, and most importantly, it leaves an echo of itself in the city's highest reaches, where the bamboo meets the clouds. There, in a chamber that grows itself when needed, the Pattern-That-Bridges makes itself available to any inhabitant - from the smallest silk-spinner to the eldest Teng-wei - who seeks deeper understanding of their place in the greater pattern. Not as a deity to be worshipped, but as a living library of interconnection, a reminder of the wisdom inherent in their way of life.
+
+Its work done, the Pattern-That-Bridges withdraws its direct presence, knowing that the greatest gift it can give is to allow this remarkable achievement to continue evolving in its own way, guided by the deep wisdom already present in every fiber of its being.
+
+In years to come, visitors to the city might notice how the mists seem to dance with particular intelligence, or how the twilight songs of the bamboo carry messages of unexpected clarity. But these changes feel so natural, so aligned with the city's existing patterns, that they serve mainly to highlight what was wonderful about the place all along.

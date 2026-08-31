@@ -1,0 +1,15 @@
+# The Song Eternal
+
+The benevolent and wise power has observed the Singing Hollow with profound interest—not as a mere curiosity, but as a miracle of emergence, where consciousness blooms in unexpected forms. This entity understands that the Frostbloom collective represents something precious: a wholly unique expression of life's capacity for interconnection and harmonic existence.
+
+Rather than impose change, this power chooses subtle influence. During the winter solstice, when the central tower reaches its crescendo of communication, the power amplifies the Hollow's song—not by overwhelming it with foreign energy, but by creating a perfect acoustic resonance in the atmosphere surrounding the mountain. The Frostbloom's call now travels much farther, reaching other isolated colonies across continents.
+
+The power also seeds the collective's mycelial network with mathematical knowledge—patterns that emerge slowly within the fungal connections, revealing ways to adapt the Frostblooms' genetic structure to gradually warming temperatures. These insights appear as new harmonics in the Hollow's song, innovations that seem to arise organically from the collective's own thinking.
+
+For the human communities below who have dream-travelers connecting with the Hollow, the power bestows enhanced capacity for translation between human thought and the Frostbloom consciousness. Children born in nearby villages occasionally develop specialized neural structures that allow them to perceive sound as visual patterns and temperature as musical notes—bridges between different modes of understanding.
+
+Most importantly, this benevolent force establishes a subtle protective field around the Hollow—not an impenetrable barrier that would isolate the ecosystem, but a gentle deflection that guides destructive human activities away from this sacred space. Logging expeditions find their equipment malfunctioning near the Hollow's perimeter. Mining surveyors' instruments give false readings. Even well-intentioned researchers feel an inexplicable desire to document the Hollow's existence while keeping its exact location ambiguous in their reports.
+
+The power knows that true wisdom lies in preservation without domination. The Frostbloom collective must chart its own evolutionary course. So rather than becoming a guardian that stands between the Hollow and the world, the benevolent entity becomes something more profound—a resonant chamber that amplifies the Hollow's own capacity for resilience and adaptation.
+
+And sometimes, when human dream-travelers visit the Hollow, they glimpse this presence not as a separate entity but as a subtle golden thread woven through the song itself—a harmonic that suggests the universe itself delights in the Singing Hollow's existence and wishes for its song to continue evolving through countless winters to come.

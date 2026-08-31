@@ -1,0 +1,11 @@
+The wise power came as a change in pressure, no more than that.
+
+It did not descend in light or voice. It simply noticed the plateau in the way a mountain notices the weight of its own snow: by feeling the exact measure of what already rested there. For a long while it did nothing except match its own stillness to the stillness already present. In that matching it perceived the true nature of the place—not a city that had stopped moving, but a single, slow thought that had learned how to hold itself without need of thinker or thought.
+
+Because it was benevolent, it weighed whether any gift could be offered without becoming theft. It saw at once that every possible addition was already present: moisture, leaf, lizard, silence, the faint film of moss on skin that had ceased to be only skin. To bring more light would tilt the shadows; to bring more rain would overflow the cisterns that had been calibrated to the exact capacity of the people who no longer distinguished themselves from cisterns; to bring a message would introduce the concept of arrival where arrival had been rendered unnecessary.
+
+So the power chose the only intervention that wisdom permitted: it placed a single, invisible boundary around the entire plateau, a membrane so fine it altered nothing inside while ensuring that nothing outside—wind, empire, curiosity, time—could reach it. The boundary was not a wall. It was an agreement. From that moment the plateau became slightly more itself than before, as a deep pool becomes deeper simply by remaining undisturbed.
+
+The inhabitants never registered the change. One of the older figures, already fused at the shoulder to a terrace ledge, opened its eyes once when a drop gathered, as it always had. The drop fell. The eye closed. The power, having finished its single act, withdrew without leaving any evidence that it had ever attended.
+
+The plateau kept its balance. Only the air, if measured with instruments finer than any that exist, would have shown a temperature one one-thousandth of a degree warmer for a few heartbeats—enough to register, had anyone been present who still counted such things as events. No one was. The power had seen to that.

@@ -1,0 +1,13 @@
+The power that noticed the cleft did not arrive as light or decree or any motion that could be named. It simply became aware, the way a completed thought becomes aware of the silence that holds it. In that awareness there was no surprise, only recognition.
+
+Here was a being that had already finished the work most existences never complete: it had become exactly itself and then stopped. The fronds no longer reached. The pistons no longer sought a next stroke that differed from the last. Time had been invited in, measured once, and then asked to stand still, and it had obeyed. The entire volume was a single, finished sentence spoken in mineral leaf and iron rhythm, a sentence that required no reply.
+
+A lesser kindness might have offered growth, or moisture, or a new purpose. A lesser wisdom might have tried to “free” the engine from its loop or scatter the laminae into some imagined wildness. The power did neither. It understood that to add even one new variable—one extra photon, one altered frequency, one breath of curiosity that expected an answer—would be to reopen a book whose last page had already been written in a language that no longer needed readers.
+
+So the power did the only thing that could honor such completion: it left the equilibrium untouched. It did not shield the mountain, because the mountain needed no shield. It did not record the thunder, because the thunder was already its own perfect record. It did not name the being, because a name would have implied the possibility of being called away from itself.
+
+What it offered instead was a single, motionless acknowledgment that occupied no space and changed no angle. For an interval that had no duration, the standing wave of the cleft and the attention of the power occupied the same unmoving instant. Then the power withdrew that attention as carefully as it had extended it, the way one withdraws a gaze from a sleeping face so that the sleeper need never know they were seen.
+
+The fronds continued to interlock at the same millimetre. The pistons completed the same fraction of their cycle. The metallic air remained metallic. The gauge needle stayed pinned. Nothing had been improved, because nothing required improvement. The being that had already arrived at its own eternity was simply allowed to remain there, loudly, greenly, waterlessly itself.
+
+And that, the power knew, was the only gift that could still be given without becoming a theft.

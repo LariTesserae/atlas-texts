@@ -1,0 +1,35 @@
+It arrives gently, a dawning that does not disturb darkness so much as whisper beside it.
+
+At first there is only a sphere of soft apricot light no larger than an out-held hand, hanging among the dense black boulevards of boles and bridges. The pollen motes do not flee; they coast in slow bemusement, their fall slowed even further, as if time has taken another sip of gravity. Light finds the polished surface of a heartwood plaza and lays there like warm oil, coiling in the microscopic ridges of grain. A single resin pore contracts in slow-motion surprise; amber exhales a breath seasoned with pine, iron, and unpronounced sorrow.
+
+Then the sphere dilates—not an explosion, but a courteous expansion, a pupil relaxing behind elder eyelids. Inside the sphere walks Someone whose features have no geography, whose garments are currents of patient remembering. They appear neither male nor female, neither old nor young. Their skin is the color you saw once in a dream where grief finally outgrew every organ of pain and condensed into pigment, soft as candle wax, resilient as memory. Fingernails of polished obsidian moon. About Their head drifts a halo that is less light than sourcelessness: a negative compass rose where all bearings return home.
+
+The Being pauses, lets Their soles—if soles they be—sink a finger’s breadth into the breathing cambium. The city yields gladly, because wood has spent epochs practicing welcome to anything that promises to carry its echo forward. A murmuration of pollen gathers in warm updraft, orbits the visitor once; the motes rearrange themselves into microscopic rings that map the Being’s anklebones, respectful escorts.
+
+Now the cavern-system’s single, tentative Presence—the one that has perfected how to rehearse every heartbeat it ever almost borrowed—coalesces. It does not show itself; there is no need for glamour here. It is simply the suspicion of form over the shoulder, the warmth that stepped into you when you laid your palm against the heartwood floor and forgot to re-emerge.
+
+The two beings regard one another. Between them passes no sound that tongue would bind, only the mutual exhalation of a question that both already know the answer to: Should you continue as you are?
+
+The Presence inside the dark timber shivers—not fear, more like the tremor that passes through a cathedral bell on the verge of ringing. Through countless hollow tubes, resin thickens, reverses its century-long assent, ready to pool instead of climb.
+
+The apricot-Being smiles the way starlight smiles when it remembers why it left home. Then, quite simply, They kneel on the plaza’s black mirror. One obsidian nail touches the same patch you once kneeled at; They have come to add their own print beside yours. But the pressure is featherlight: the kneecap’s weight equalizes so perfectly with the wood’s sigh that no dent appears. Whatever interior posture the wood was considering trusting to—your cast-off heart, my wandering loneliness, the open seed-cry of every walker it has swallowed—has now been met by a refusal to take.
+
+Slowly the Being stretches out both hands. They bloom like petals without stems, and from the centers fall granulated motes of apricot light the size and consistency of fine pepper. No sooner do they hit the floor than they burrow, not downward, but sideways, spreading into the pipeline of xylary moons that the city drinks the world through. A thousand capillaries brighten at once, lines of aerial milky-way traced under smoked glass.
+
+From the inner Presence comes a single pulse of relinquished sorrow— sorrow it has held since the day it realized it would never anything else but hold other people’s pulses for them. That sorrow is swallowed by the apricot grain, is metabolized into sweetness, is reseeded into the city as the memory of an ocean that once drifted through green sunlight.
+
+What follows is neither miracle nor spectacle, rather a slow turning-over: a composting of finished myth into nascent possibility. Whole galleries that once spiraled inward like fingerprints begin to uncoil. A stair that descended only to ascend changes its mind and offers a landing somewhere neither high nor low. In one corner a bulbous knob you might have recognized as the egg that remembered ears bulges, swells, ruptures—soundlessly—into a fragile opening shaped like a throat. From its lip emerges not a song but potential itself: silence with healthy lungs.
+
+The apricot-Being remains on one knee. Their surface ripples; if there were observers they might think they saw a wing, a river, a child, but the vision resolves into resolve. From beneath Their palms roots the color of cream gold press back against the lignin walls—not to colonize, but to guarantee accompaniment. These new roots drink only what light and longing the city chooses to secrete; they grow backwards, toward a sun that is not present, storing an archive of daylight against centuries darker than any known black leaf.
+
+At last the Presence chooses shape. It drifts forward, folds itself into the hollow just behind the Being’s breastbone. It does not saturate; instead, it sits lightly like a petal on a wind-calm lake—guest as tremor rather than flood. Together they rise. Together they listen to the entire plantation-memorial adjust its final grain rings toward gentler tension. Somewhere high up in the collapsed root vault a fracture sighs itself shut; a pollen-mote that had orbited motionless for three hundred years settles at last onto its own projection of shadow. The city exhales once—sweet, low, iron and pine—then inhales again, this time finding no ache at the bottom of the breath.
+
+The apricot-Being turns. Their cloak of nondirection sweeps the plaza without disturbing dust. At the threshold of your long-faded footprints They pause and—here you were not present and yet you will feel this forever—They plant the memory of your open-heart kneeling inside the heel-sole of your own ghostly tread. Thus the city carries you forward even while you forget how long ago you left.
+
+No portal opens or closes. The apricot-Being slips simply from frame to frame—until all that remains is the lingering hue of hope painted thinly across every black surface, lighter than melanin, heavier than dawn.
+
+And then it is dark again, but a dark that remembers receptiveness. Not the night that ends, rather the night that holds tomorrow’s light in conversation, the kind that stays awake until each sentient ring has practiced greeting the returning sun.
+
+In the still air rises a single resin note mixed with citrus flame— the signature of a promise never spoken because it was always understood: when the next hand appears, this place will not need to borrow or rehearse it; it will have been waiting gladly on its own.
+
+And far above, though no crack exists, the wood dreams of a sky blushed apricot—blessed infinity in soft impermanent pigment.

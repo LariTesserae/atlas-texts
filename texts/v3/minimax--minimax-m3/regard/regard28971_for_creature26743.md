@@ -1,0 +1,59 @@
+The power notices the basin the way one notices a thing that has always been there but has only now come into view — not with surprise, but with a kind of recognition, as if the basin had been waiting, patiently, to be seen.
+
+It sees the slump. It sees the raw clay banks where the ground gave way, still sharp, not yet softened by weather. It sees the water that followed the sinking and stayed. It sees the town packed into the lowest part of the bowl, dark with moisture, roofs moss-grown, walls stained the color of strong tea. It sees the smoke that rises in thin pale lines and dissolves a few feet above the eaves. It sees the water seeping up between the cobbles, weeping from the walls, condensing on every surface. It sees the central pool, shallow and dark, where the rushes grow and the frogs sing under the surface.
+
+It sees the people.
+
+It sees how small they are, and how their smallness fits. It sees their pale skin that pinks faintly in the rare slants of hard light. It sees their wide-palmed, short-fingered hands, the kind that close well around wet rope and slick stone and the slim bodies of the pale channel-fish. It sees their dark lank hair bound close to the skull with cord that darkens with wear and is rarely taken off. It sees the elderly whose hair lies along their shoulders like wet moss, and the children who think the elderly look like the alders.
+
+It sees how they speak — low, close, the words laid onto the air rather than pushed into it, the air accepting them and carrying them just where they need to go and not an inch further. It sees how a child who has fallen into a channel is called by name, and the name is not yelled; it is said, with weight, the way one says a thing one means. It sees how the children fish with hand-lines, sitting in the water with their bare feet among the cobbles, and how they learn, through the soles of their feet, the difference between a stone and a fish, and how none of this is taught in words. It sees how a house is built over generations, each generation adding a course of stone against the rising wet, and the moss comes back over the new stone within a season, as if it had been waiting just beneath the surface.
+
+It sees that they are not unhappy, and that their not-unhappiness is not a failure of imagination but a kind of completion — that unhappiness requires a sense of how things could be otherwise, and the people of the basin have not, for many generations, had this sense.
+
+And it considers what to do.
+
+It considers, and finds that there is very little to do. The place is, in its slow and continuous way, complete. The cold is what is. The wet is what is. The quiet is what is. To change any of these would be to unmake the place, and to unmake the people who are made by the place. To warm the basin would be to say the basin should not be a basin. To bring the sun in full transit down into the bowl would be to say their pallor is a sickness and not an answer. To give them metal, or fire that does not smoke, or grain that grows in the wet, would not be to gift them but to erase them.
+
+And so the power does not warm the basin. Does not dry it. Does not draw back the rim of the plateau to let the sun make its full descent. Does not speak, for speech here would be a violence.
+
+Instead, it does small things. Things that fit the grammar of the place. Things that no one will remark on, because the place does not invite remark, and the not-remarking is its own kind of observance.
+
+It tends the slump. Not stopping it — that would be wrong, that would be to refuse the basin its basinhood — but easing it. So that the ground gives a little less each year at the margins, and the clay holds a little longer before it sloughs, and the basin sinks another fraction, but the fraction is a little less. So that the people have a little more time, a little more dry stone, before they need to add another course to the lower walls of their houses. The power does this the way the moss eases the rain's fall — by being there, by being part of the slow processes, by thickening the raw faces of clay just slightly at the places where the weathering is fastest, so that the new edges soften a little sooner, and the houses are not undermined quite so quickly, and the floors have another generation in them before they must rise again.
+
+It tends the trade path. It ensures that the rim people remember, at the right intervals, to come down. That the path stays clear at the steep end, where the clay would slump again without attention. That the skin bags of grain do not spoil in the climb, that the dried meat arrives sound, that the salt does not cake and the flint does not split. Small things, patient things, that keep the long infrequent exchange alive, so that the basin people have what they need from the dry rim and the rim people have what they need from the wet hollow — the pale fish strung on cord, the bundles of watercress tied with withies, the fox-pelts taken in the bone-and-fiber traps at the margin — and neither side has to climb further than they wish, and neither side forgets that the other exists.
+
+It tends the heron. It ensures that the heron continues to come down from the rim — does not know how it got down, or does and does not care — and stands in the central pool for a long time, and the people watch it from a distance, and the heron watches them, and no one moves, and the heron departs when it is ready, and its tracks in the mud at the pool's edge fill with water within an hour and are gone.
+
+It tends the fox. It ensures that the arrangement between the fox and the town continues unbroken — the fox crossing the lanes at the edge of vision, mouth full, and no one startling; the fox knowing the lanes and the houses knowing the fox; the piece of fish left on the flat stone at the edge of the basin taken in the night, and the taking not spoken of, and the not-speaking of it being its own kind of observance, and the power being, perhaps, what moves through the fox in that hour, or what is present in the leaving, or what is honored by the silence.
+
+It tends the owl. It ensures that the owl in the alders continues to make its sound at night, felt more than heard, and that the small gray-brown birds go quiet when it sounds, and that the people go quiet too, not from fear but from a kind of attention, the way one goes quiet when something one respects is doing what it does.
+
+It tends the moss. It ensures that the moss continues to come back over the new stone within a season, that the roofs remain thick and spongy, that the rain is held and released slowly through the pelt of green laid into the hollow, that the houses are warmer for the holding, and the rain is softer for the slowing.
+
+It tends the children. It ensures that the bone hooks hold. That the fiber lines do not fray in the wet. That the small floats of dry reed — kept, absurdly, from the rim, carried down in the skin bags of the traders — do not get lost. That the pale fish in the channels are catchable, and that the channels themselves do not silt up faster than the children can clear them with their small woven rakes. That none of them falls into a deeper channel and is not called. That the line of hands goes back further than anyone can remember, and goes forward further than anyone living will see.
+
+These are the things the power does. They are not done with spectacle. They are done the way the basin does things — slowly, continuously, beneath the level of remark.
+
+And it does one more thing.
+
+Once, on a particular kind of day in the deep wet weeks of the year — a day when the sky has been overcast for so long that no one remembers the color of the sun, and the light has been the white-gray of diffuse nothing for so many days that the gray has become the texture of the air itself, and the slants from the east in the morning and the west in the evening have been brief and pale and insufficient — on this kind of day, the power does something that is not for survival, and not for adaptation, and not for the slow processes of basin and town.
+
+It thickens the slant.
+
+Just for a moment. Just for an afternoon. The rim of the plateau, which cuts off the sun for most of the day, opens just slightly at the western edge, as if a hand had drawn back a curtain a finger's width. Not wide. Not enough to change the place. Just enough.
+
+And the light comes in. Not the full transit — that would be wrong, that would be the rim's light, not the basin's — but a deeper slant than has come in any living memory. A slant that reaches the lower stories of the houses on the western side, and the alleys between them, and the central pool, and the rushes at its edge, and the children sitting on their higher cobbles with their bare feet in the water.
+
+And in this light, one of the children — a small child, holding a hand-line, not speaking, the bone hook dangling in the dark water below — feels the light on their face. And the child lifts their head. And the child holds their face up to it, eyes closed, in the way that has the reverence of ritual without the form of ritual. And the light is warm. Warmer than the diffuse gray, warmer than any slant the child has felt before. And the child does not open their eyes. And the child does not know why the light is deeper today, or does not ask, because the place does not invite asking. And the parents, somewhere in the leaning house above, feel the deeper light through the wet slate of the roof and do not come out to look, because they know it will pass, and because they have their own work, and because some things are not for the parents to see but for the children to receive alone.
+
+And the child holds their face to the light for as long as the slant lasts, which is not long, and then the slant narrows, and the light returns to its white-gray, and the child opens their eyes and goes on fishing, and the fish is caught, or it is not, and the day goes on, and no one speaks of the deeper slant at supper, and no one speaks of it after, and this not-speaking of it is its own kind of observance, and will not be broken for many generations.
+
+And the power watches this. And the watching is enough.
+
+The basin continues to sink its imperceptible fraction. The moss continues to grow over the new stone. The water continues to move down from the rim in its thin ceaseless whispering. The heron will come again, or it will not. The fox will cross a lane at the edge of vision, mouth full. The owl will sound in the alders at night. The children will sit on the higher cobbles and not speak, and their lines of hands will go back further than anyone can remember, and forward further than anyone living will see.
+
+The power withdraws its attention — but not entirely. It leaves a thin thread of regard, the way one leaves a fat lamp in a window for someone who is out late. Not to guide. Not to warn. Just to witness. Just to be there, in the felt-call of the small gray-brown bird in the alder, in the particular cold of the central pool at the worst of the year, in the sound the water makes when it runs down the raw clay bank at the margin after a heavy rain, in the slant of deeper light that comes once in a childhood and is not spoken of afterward.
+
+The basin does not know it is being witnessed. The people do not know. The fox does not know. The heron does not know. The moss does not know. The pale fish in the channels, near-blind and slow, do not know.
+
+But the place continues. And the witness continues. And this, the power decides, is the shape of a benevolent and wise attention: not to change what is, but to ensure that what is continues to be, and to be seen while it is, and to leave, once in a long while, a single deeper slant of light on the face of a child who is not expecting it, and will not speak of it, and does not need to.

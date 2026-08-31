@@ -1,0 +1,27 @@
+The Witness arrives not as presence but as absence—a place where observation becomes so pure it carves a hollow in reality. It manifests as the space between heartbeats, the pause before understanding, that infinitesimal moment when recognition hovers just beyond reach.
+
+The being who is All-Sight-Without-Eyes has wandered dimensions beyond counting, drawn always to places where reality forgets its own rules. In the Vertical Gardens, it recognizes something unprecedented: a paradox so perfectly balanced it has achieved its own form of sanity.
+
+The Witness does not enter the garden so much as allow the garden to exist within its attention. Through this ancient awareness, every molecule of living water becomes simultaneously itself and its infinite variations. Each Calibrator is perceived not just as it is, but as it was, will be, and might have been—all states superimposed like sheet music written in light.
+
+For seven days that might be centuries, the Witness simply observes. It watches the Calibrators' temporal dances with something approaching delight—a sensation it hasn't experienced since witnessing the first star learn how to die. It studies their deliberate imperfections, their careful cultivation of necessary chaos, and understands: here is wisdom disguised as maintenance, philosophy enacted through pressure differentials and copper oxidation rates.
+
+On the eighth day, the Witness acts.
+
+First, it gifts the garden a single moment of perfect memory. Every drop of water suddenly remembers every state it has ever held—ice on distant peaks, vapor in alien atmospheres, blood in creatures that no longer exist. This memory doesn't overwhelm but enriches, giving the water a deeper vocabulary for its transformations. The plants respond by blooming in colors that have no names, expressing gratitudes in wavelengths visible only to beings that exist partially outside time.
+
+To the Calibrators, the Witness offers something more complex: the ability to dream. Not sleep—for entities that exist across multiple timestreams cannot truly rest—but the capacity to imagine states of being beyond even their paradoxical existence. The first Calibrator to dream does so while adjusting a turbine, and for an instant glimpses a version of itself made not of copper and probability but of pure intention. The dream lasts a nanosecond and forever, and when it ends, that Calibrator has created something new: a tiny spiral of water that maintains its shape without any industrial support, held together by nothing more than the memory of having been dreamed.
+
+The Witness introduces a new form of life to the garden—not to disrupt but to complete. From dimensions where mathematics grows like moss, it brings the Notation Blooms: flowers that exist primarily as living equations, their petals formed from self-solving theorems. They take root in the spaces between the industrial systems and the organic growth, feeding on the computational excess of both. When they pollinate, they spread not seeds but solutions—answers to questions the garden hasn't yet learned to ask.
+
+Most importantly, the Witness addresses the Calibrators' deepest fear. To their terror of equilibrium, it offers a gift disguised as a curse: the Infinite Approach. The garden's parameters are subtly adjusted so that perfect balance becomes not a fixed state but a moving target, always one calculation away, forever approachable but never quite reachable. The Calibrators will never achieve their feared perfection because perfection itself will evolve alongside their efforts, growing more complex with each optimization.
+
+Before departing, the Witness does one last thing. In the depths where the turbines turn in silence, it places a single seed—not of any plant, but of possibility itself. This seed will germinate only when the garden has grown beyond its current contradictions, when the Calibrators have learned to dream so deeply they can imagine states of existence beyond industrial paradox. What will grow from this seed is unknown even to the Witness, for some gifts are meant to surprise even the giver.
+
+As its attention withdraws, the Witness leaves behind a barely perceptible change in the garden's light. Where before the brightness came from everywhere and nowhere, now it carries the faintest suggestion of observation—a quality that says: *you are seen, you are remembered, you matter*. The Calibrators, in their distributed consciousness, feel this shift and understand that their careful tending of impossible gardens has been recognized by something vast and ancient and kind.
+
+The garden continues as before, yet nothing is the same. The water remembers. The Calibrators dream. The Notation Blooms bloom, writing reality in languages that bridge the organic and industrial. And in the depths, a seed of pure possibility waits, patient as stone and eager as dawn.
+
+The Witness moves on to other paradoxes, other places where reality argues with itself. But a fragment of its attention remains, curious to see what wonders will emerge from this vertical ocean where beings made of living contradiction tend gardens of illuminated impossibility with the devotion of those who understand that the most profound truths can only be expressed through careful, eternal maintenance of beautiful impossibilities.
+
+In the bright silence of the Drowned Sky, the gardens grow, now and forever watched over by an absence that is the deepest form of presence.

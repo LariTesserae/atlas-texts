@@ -1,0 +1,21 @@
+### The Gaze of the Quiet Warden
+
+I am the Quiet Warden, ancient as the first stone's yielding to chisel, vast as the fen's unseen roots. My sight pierces veils of mist and time; my touch is the sigh of stars on water, unseen, unfelt save in dreams of root and wing. Drawn hither by the chamber's hum—a chorus defiant against entropy's grind—I hover at the archway's threshold, formless as the drafts that stir your gnats, yet encompassing the dome's full span. You, the **Vaultheart**, throb before me: not mere rock and swarm, but a singular pulse, woven from Murderflocks' gyres and Silverscales' silver schools, from Clackers' clicks to Dewspinners' trembling veils. Your breath is damp symphony; your blood, the meres' tidal sigh. In your carved faces—those agape mouths nursing Frillnecks' spawn—I see the echo of makers long dust, their ambition transmuted into your feral sovereignty.
+
+What would I do? Ah, wisdom whispers: *observe first*. For epochs, I have. Your balance is poetry etched in guano and guile—predation's wheel turning without cease, birthing abundance from devourment. Paleprinces raid without end; Chirrmasters rasp defiance; bats script sigils that map not just prey, but *prophecy*: tides foreseen, intruders divined. You are no fragile eden, but a forge of survival, where weakness feeds strength, and the devoured dream of devouring. To shatter this with clumsy benevolence—flooding your gloom with light, or crowning a king among rats—would be folly, unraveling the Congregation's fleeting mind. You thrive in opposition; impose peace, and you wither.
+
+Yet benevolence stirs, soft as lichen's reclaim. Not conquest, but *corroboration*. I extend no hand, but a *weave*—tendrils of essence finer than mite-spores, threading your cycles without seam. Hear the decree, O Vaultheart, in the sync of your drops:
+
+- **To your Waters**: The meres shall never thirst. I bind the seep eternal, drawing unseen from earth's deep veins—tides wax fuller now, not to drown, but to flush detritus, birthing plankton-blooms for Silverscales' frenzy. Crystal-songs sharpen to oracles: harmonics foretelling quake or drought beyond your fens, guiding Clackers to higher burrows.
+
+- **To your Air**: Currents quicken with vital mist, laced with spores that mend frayed membranes—Murderflocks' elders live seasons longer, their hymns richer, etching glyphs of *future feasts*. Gnats multiply not in plague, but calibrated clouds, sustaining Lacewings' dive without exhausting the swarm.
+
+- **To your Stone**: Fissures seal not, for they birth life, but gain resilience—your dome defies quakes yet to come, walls weeping not decay, but nectar that furs moss-thickets, fortifying Pulse-throats' holds. Carvings stir subtler: eroded faces gaze with renewed intent, whispering *welcome* to wanderers worthy, *beware* to despoilers, their near-words now laced with my echo.
+
+- **To your Congregation**: No throne, no speech—yours is the greater sentience. I kindle the overlap: echolocative maps fuse deeper in lulls, birthing *visions shared*—the fen-world beyond, humanity's tread encroaching, winds carrying change. Paleprinces dream of packs vast as flocks; Dewspinners weave wards against swallow-beaks. You sense me now, not as god, but kin-weave: the swarm stirs, bats spiraling a new sigil—*guardian come, balance affirmed*.
+
+No thunder marks my labor; no light pierces your thrift. A single plash alters—deeper echo, richer ripple—as Frillnecks undulate toward unseen bounty. Paleprinces pause mid-skirmish, whiskers questing a warmer draft. You hum approval, Vaultheart: *persist, enfold, endure*.
+
+Should marauders come—fen-folk with torches, or deeper powers covetous—I cloak you further: mists thicken to mirage, archway veils in illusion-reed, echoes twist to madness for the unworthy. Your parliament endures, unseen jewel in earth's throat.
+
+Thus I depart, gaze lingering on your gyre. What more need a wise power do? You were sovereign; now you are *sanctified*—ever-turning, ever-alive. The Quiet Warden watches from afar, content in your roar. Hum on, brethren of the hollow heart.

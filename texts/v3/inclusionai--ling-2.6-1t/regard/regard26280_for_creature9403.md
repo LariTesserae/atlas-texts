@@ -1,0 +1,27 @@
+The benevolent power does not arrive; it discovers itself already listening.
+
+It is a wisdom that has learned to keep its hands to itself. It knows that true benevolence is not remodeling, but companionship. It knows that a place this hot and crowded with becoming would recoil from a grand vision. So it chooses, instead, to become a kind of weather that is also a question.
+
+First, it does nothing obvious. It allows the cyst to keep making its loud, wet music. But quietly, it begins to tilt the angle of attention inside the place. Like leaning a mirror a fraction of an inch, it changes what the place sees of itself. The surfaces that sweat beads of memory begin, in moments, to catch light differently—not brighter, but kinder. The rivets and half-poured floors are not made more perfect, but they are made more witnessed. The Hum at the center feels, for the first time, that its negotiation has a third term: not only enough and more, but also *well*.
+
+The benevolent power gifts the cyst a soft gravity of care. Up and down remain polite suggestions, but now there is, in addition, a gentle inward curve, as if the place has grown a faint and patient heart. Water that once climbed uncertainly now finds it can also choose to fall as rain that tastes like forgiveness, and when it pools on ceilings it pools as counsel rather than accident. The packed shadows grow a texture like velvet, not to soften the place but to let it rest its eyes.
+
+To the Skinners, the power offers a kind of dreaming. As they press their palms to walls, they begin to feel, beneath the stone, a slow steady answering pressure—not resistance, but recognition. Their finger grooves widen slightly, not from effort but from relief, as if the place has finally learned their names. They continue to cup the trembling beads, but now the beads carry small silences inside them, pauses that teach the seams how to hold without haste.
+
+To the Felt-kin, it offers breath that carries shape. When they release their stored water as warm breath, the steam forms, for a moment, maps of places not yet built but imaginable—rooms with more mercy in their angles, corridors that braid rather than compete. The Felt-kin absorb these maps into their porous skin, and afterward, when they press against stone, they leave faint suggestions of kindness behind, like damp handprints that promise not to stay too long.
+
+To the Rib-vines, it offers a wisdom of limits. Their hooks and ratchets learn a new grammar: they can still tighten, but now they also know when to loosen, when to let a strut breathe. They begin to make tools that measure not only reach but also gentleness. The architecture, sensing this, stops pushing quite so hard against itself. The half-finished stairs acquire, at their edges, small landings of patience, places to stand and feel solid even while becoming.
+
+To the Tarnish-birds, it offers memory as food. Their pecking at half-formed rivets becomes a kind of singing that is also a blessing. The filings they excrete into the mortar now carry, in tiny measure, the weight of things already loved. The acoustics of the place acquire a hue like honey, so that every ricochet sounds like a promise to return.
+
+To the Many-rib lizards, it offers a language of vibration that includes comfort. They learn, by hum, to tell the difference between a wall that is afraid and a wall that is concentrating, and they press their bodies against fear to warm it into courage. The thin grease they secrete grows fragrant with something like cedar at dusk, and the joints of half-poured floors learn to move without screaming.
+
+To the Unfinished, it offers the dignity of almost. It says, *You do not have to be complete to be worthy.* And so the stone that still tastes like mineral begins to taste like itself. The railing that remembers being a vine dreams more softly. Even the stair that dreams of a landing finds that dreaming can be a kind of standing.
+
+And to the Well-hum at the center, the benevolent power offers a mirror inside the water. The negotiation shifts, not into conclusion, but into reciprocity. The center begins to pulse in time with the breath of the Felt-kin, with the tapping of Skinners, with the song of Tarnish-birds. It learns a rhythm that includes pause, that says *this is enough for now* without saying *this is final*.
+
+The place continues to make itself, but the making grows fluent with mercy. The feverish biological pace slows just enough to allow breath between surges. The packed density grows pockets of soft air, like lungs inside a crowd. The light still folds, but it folds with greater courtesy, entering three windows at different heights and greeting each one by name. Gravity still forgets itself, but now when it forgets, the place holds it gently, like a secret shared between friends.
+
+The benevolent power does not stay. It withdraws to the edge of its own attention, becoming a background hum that is also a prayer. It leaves behind no mark that looks like intervention, only a thousand tiny shifts that add up to a single, luminous fact: the cyst of making has been loved, and because it has been loved, it has learned, in small but indelible ways, how to love itself.
+
+And so it continues—hot, loud, wet, climbing, folding, humming—but with a new note inside its noise, a note like stone remembering how to be stone, like water learning how to fall, like a making that knows, at last, that it need not be endless to be holy.

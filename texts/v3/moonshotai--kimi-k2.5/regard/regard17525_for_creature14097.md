@@ -1,0 +1,1 @@
+The benevolent power arrives not as a comet, nor a voice,

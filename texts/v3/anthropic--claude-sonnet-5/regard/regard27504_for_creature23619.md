@@ -1,0 +1,29 @@
+## The Visitation No One Will Ever Describe
+
+It would not arrive the way arrivals are usually imagined — no light splitting the clouds over the western scarp, no voice finding its way into the chittering at dusk. A power old and careful enough to be called wise has long since learned that arriving *as an event* is itself a kind of violence to a place like this, where the entire ethic, stone-deep, is that things are allowed to become what they become without being hurried, without being told.
+
+So it would come the way the fog comes down from the north ridges: already here before anyone could have said when it started.
+
+And it would watch. Not briefly. It would watch the way the larger kin watch — pressed flat against the question for what a human lifetime would call years, in a posture indistinguishable from grief or prayer, because real attention and grief and prayer all happen to look the same from outside, being all of them just a willingness to stay still in front of something you don't intend to change.
+
+It would learn the half-tone hum before it heard it, the way the door-folk's instruments do. It would learn which districts had gone quiet at dusk and why the door-folk had started avoiding them, and feel, the way you feel a structural tone more than hear it, why that avoidance was correct — that a city mid-metamorphosis needs to be left alone with its own becoming, the same as anything else giving birth to a new version of itself.
+
+And then it would consider, as such powers must, what it could *give*.
+
+It would consider giving them more time — and notice they already have all the time there is, that the entire architecture of the place is a monument to having stopped being anxious about time, and that to hand them more of a thing they already hold without strain would be like gifting water to the sea.
+
+It would consider giving them safety from the burrowing things, the slow erosions, the chance collapse of an unfinished spire onto a door-folk dwelling beneath it — and recognize that danger metabolized at this pace, breathed in along with the damp and the cold, is not suffering here so much as weather, one more thing the shelf does that nobody resents, and that to strip it out entirely would be to take a working organ from a body that has never asked to be cured.
+
+It would consider giving them *more* — more people, denser quarters, finished towers standing up out of the unfinished ones overnight, the whole plateau's argument with itself resolved in a single gracious gesture — and feel, almost as a physical recoil, how wrong that would be: that the plazas are two hundred meters across *on purpose*, that the gaps are not absences waiting to be filled but rooms left deliberately for air and weather and attention to live in, and that a fullness imposed from outside would not be abundance, it would be noise drowning out the only conversation that matters here, which is the slow one between the rock and the things that live patiently inside its deciding.
+
+It would consider giving them knowledge — of what lies beyond the shelf, of other minds, other skies that don't disagree with themselves, the vast outside that the city's makers either never reached or chose, with the same unhurried wisdom, not to bother reaching — and understand that this, too, would be a kind of theft. Not every door needs to open onto the whole world. Some doors are sized exactly for the room behind them, and that is not a limitation, it is a mercy nobody inside the room is missing.
+
+So, having weighed and set aside the long catalogue of gifts that powers default to — longevity, safety, abundance, revelation, the whole grand inventory of things given *to* a place from above it — it would arrive, at last, at the one form of help that doesn't look like help at all.
+
+It would find, somewhere far beneath the shelf, in the slow pressures that raise and lower the seep-pools by a logic nobody has traced, a single fault — a fracture decades from now that would have, in the fullness of unhurried time, taken one quarter of the unfinished city down into the dark all at once instead of letting it finish becoming whatever it was reaching for. And it would close that fracture. Not with light. Not with a word. With the same kind of touch the door-folk already use — a hand laid against warm not-quite-stone, a redirection so light it reads as blessing rather than correction, indistinguishable in every way from the thousand small adjustments the attentive ones make every season as a matter of course.
+
+No record of it would exist. No door-folk would ever lay an instrument against that seam and find anything unusual in its hum. The rock-dwellers, if they noticed at all, would only chitter a little differently for one dusk, and the city would simply, quietly, continue — one less collapse in its future, and no one ever the wiser that there had been one to avoid.
+
+And then, perhaps — because even a wise and benevolent power is allowed one small indulgence — it would leave a single thread of itself behind anyway. Not a guardian. Not a watcher stationed at the gate. Just one more voice folded into the chittering that starts at dusk, the part of the rock-dwellers' conversation nobody has ever translated and nobody has ever needed to. A door-folk child lying belly-down on warm stone some evening, listening to the substrate talk to itself, would hear nothing they could name as new. They would only feel, perhaps, that the rock seemed a little less alone in its long work of becoming — and they would not wonder why, because here, in this place that has made peace with not-finishing, *not wondering why* is not ignorance.
+
+It's just another way of letting something keep becoming what it's becoming, undisturbed, and trusting that to be enough.

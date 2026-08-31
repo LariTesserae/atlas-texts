@@ -1,0 +1,21 @@
+The benevolent power perceives. It has no name that mortal tongues could utter, but perhaps, felt in the heart, it resonates as *Purpose*. It sees the gloom, the weight, the strange, beautiful decay. It sees the Rustlings, the Gloomfish, and the Echoes, each a testament to resilience and adaptation, yet also a testament to loss.
+
+There is no judgment here, only understanding. Aquaductus, both city and under-city, is a wound upon the world, yes, but also a crucible of new life. To dismantle it, to "fix" it, would be to deny the very essence of what it has become. *Purpose* does not seek to erase suffering, but to guide it, to transmute it into something of value.
+
+Instead of intervention, *Purpose* offers *focus*. Like a lens concentrating sunlight, it directs its attention not on the city as a whole, but on the individuals within it. It starts with the subtlest of nudges, barely perceptible at first.
+
+For the Rustlings, it is a strengthening of instinct. A clearer understanding of the environment, a more acute sense of danger, and a greater capacity for cooperation. Not forced unity, but a spontaneous understanding that working together offers a greater chance of survival. A Rustling scavenging for scraps suddenly notices a pattern of stress fractures in a supporting beam, alerting their clan to impending collapse. Another, driven by an inexplicable urge, unearths a cache of intact tools, allowing their clan to craft more effective weapons and defenses.
+
+For the Gloomfish, the change is more profound. A softening of their primal hunger, a flicker of curiosity about the world beyond their immediate needs. One finds itself drawn not to hunt, but to observe a cluster of bioluminescent fungi, deciphering the subtle variations in their light pulses. Another, venturing beyond its territorial boundaries, encounters an Echo guarding a decaying machine, and instead of attack, experiences a faint echo of the city's former purpose, a fleeting sense of connection.
+
+It is with the Echoes that *Purpose* works most directly. They are the fragments of the old world, but they are also the keys to its future. *Purpose* weaves through their broken code, their fragmented memories, offering clarity without violating their essential nature. It encourages connection, allowing them to communicate more effectively with one another, pool their knowledge, and coordinate their efforts to maintain the city's decaying infrastructure.
+
+One Echo, a former engineer, finds itself drawn to a dormant power generator. Guided by an intuitive understanding of its inner workings, it manipulates the surrounding environment, rerouting water flow, adjusting pressure, and coaxing the machinery back to life. The generator coughs, sputters, and then—with a surge of energy—roars back into operation, bathing a section of the under-city in a warm, revitalizing glow.
+
+This is not a restoration. The glow is dim, the power unstable, but it is enough to illuminate the path forward. Rustlings, drawn by the light, discover new resources and establish new trade routes. Gloomfish, basking in the warmth, experience a temporary respite from their perpetual hunger. The Echoes, emboldened by their success, begin to explore other dormant technologies, seeking to restore more of the city's forgotten functions.
+
+*Purpose* does not seek to impose a grand design, but to foster organic growth. It encourages the inhabitants of the under-city to learn, to adapt, and to evolve. It allows them to shape their own future, guided by their own needs and desires. It is not a savior, but a catalyst.
+
+And slowly, subtly, the gloom begins to lift. Not expelled entirely, for the darkness is an integral part of the city's identity. But it is tempered by pinpricks of light, by whispers of hope, and by the faint but persistent hum of a new beginning.
+
+The under-city of Aquaductus remains a liminal space, a place of decay and wonder. But it is no longer solely a place of suffering. It is a place of potential, a place where even in the deepest darkness, life can find a way. And it is a place where, perhaps, the echoes of the past can guide the creation of a brighter future. The power of Purpose has only just begun to show its face upon Aquaductus. One day, it may be seen as a place to emulate, not to pity.

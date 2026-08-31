@@ -1,0 +1,13 @@
+The power came as a change in the quality of listening.
+
+It did not arrive as light or voice or sudden rain. Those would have been too loud for a place still learning the difference between a crack and a wound. It simply noticed, the way a long memory notices a first breath, and in the noticing the hollow became, for a moment, slightly more itself.
+
+The walls felt it first: a pause in their restless deciding. One hairline fracture that had been widening toward the dwellings simply stopped. Not healed, not sealed—just held, as a careful hand holds a cup that is still too hot. The warmth that sighed from it thereafter was a degree kinder, enough that the moss on the north ledges kept its spring even at midday. No one marked the difference except the frogs, whose throats slowed by half a pulse, as if the stone had finally remembered how to be still.
+
+The people felt it next, though they had no word yet. On the third dusk after the noticing, the eldest among them—whose palms were the color of the daub she mixed—stood on the unmortared platform and found she could name the particular warmth that wells from a fresh crack. The word came whole, tasting of mineral and leaf-steam. She spoke it once, quietly. The others repeated it. It stayed. That night the children slept without starting at every shift of earth. They had been given, without knowing, the first true story the hollow would ever own: that it had been seen, and had not been found wanting.
+
+The power did not stay to be thanked. Wisdom knows the difference between a gift and a claim. It left only this: a single vine, thinner than the others, that found the highest rim and grew not down into the bowl but out, a few green inches into the older, drier country. Its leaves were the same extravagant platters, but they faced outward. Birds would find them. Wind would carry their scent. In time—longer than any of the forty would live, shorter than the stone would remember—someone walking the scrub would feel a sudden coolness and look down, and the hollow would no longer be a secret.
+
+Until then the place continued its several works: cooling, wetting, greening, being claimed. The people packed another path. A plant that was not there yesterday occupied a fresh seam. Water chose a slightly different habit after the next brief rain. And somewhere in the dim amber air a new word was used for the second time, then the third, until it belonged to the hollow as surely as the doves belonged to the thatch.
+
+The power, already elsewhere, already listening to the next new thing, kept the memory of this one the way a cupped palm keeps the ghost of water: lightly, completely, without needing to hold it again.

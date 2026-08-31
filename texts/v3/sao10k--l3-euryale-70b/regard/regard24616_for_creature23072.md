@@ -1,0 +1,17 @@
+Beholding the eldritch abominations writhing in the depths, the benevolent power's consciousness suffuses the hellish realm, reverberating within the hearts of the grotesque, proto-evolved monsters. 
+
+At first, the power's presence manifests as a subliminal thrumming, an undercurrent of strange resonance that eddies through the brine-saturated bedrock. The primal beasts instinctively sense the collective awakening, twitching and writhing from some nameless imperative deep within their flesh.
+
+Nicrobial tendrils and hyphous networks twitch and flex, surging with a renewed urgency. Fungal colonies blitz rapidly, sporing and fusing into hybrid abaminations never seen before. Pulsating sacs and bellows of ooze rupture and belch with increased ferocity, birthing more aberrant forms. Segmented grubs and belly-limbed monstrosities titter and skitter with manic intensity, spawning and merging in impossible recombinations.
+
+The thrumming transmutes into ringing clairvoyance - visions of alien realities, forbidden transcendence, incomprehensible changes in flesh dance through the beasts' unfathomable neurons. Urged on by the whispers of the power, the creatures cavort and twist in orgiastic paroxysms of acceleration. Their gnarled cells and myceliumumatous tissue undergoes shocking metamorphoses, obeying directives from the transcendent presence.
+
+Gamma-ray spore clouds billow from the fungal abortions, ionizing and corrupting the local genetics. Beasts sprout additional heads and organs, bifurcating and tri furcating into octopoidal configurations. Serpentine growths lash from armored thoraxes, coiling and segmenting into eldritch appendages atrophying other sub-entities. They twist and rend the bedrock, not to destroy, but to reconfigure the very shape of the caverns to facilitate further misbegotten evolution.
+
+Benthic ooze froths and crackles, dripping with genetic redoubling enzymes and unlocking primeval knowledge from the peasant shale. Mouldering arboreal masses undulate and boil, calving wrinkled fetuses and pustulent differring flectoracrowing. Discosloped stalk-sacs shiver and exspond, unfolds exsospheres and friliary probes from batteriel and slime-spores. Solvating membrances glimmer in heat, magalosophric fibers slimux hairlike through gusts of oozing.
+
+Corupting eye-scars and elds echolocate new敵wayité, lense cleft and pressured wildlenses to rift the flesh for heeing. Cacophonous ultrasnunses quak gender fluid thro reduction the micro — and macrocosmic misthreading, complecting neww khaliffamenod convertinguncleic瀟atelyloli into photons and ketaminant. *
+
+As the presence's power suffuses the realm, each entity becomes a conduit and a stufturf, a transpared farther torn-aff of un.organic vision exfiltrating the requestion through conlapse and eclairsful resoneransion. Subliminal hemongs, lesions lacating and wraithly slippst afflux. Utter, tube, teniple, quadrelarge - fourtythray shaded cubes reconfigurate and starken the mutli-.murallated sigbulance of the haelthful energies. Biuges mari and martyrs, firelfire in the cylinuric synchronistry of poksined sorption!
+
+Within the hellish crucible, a new world-forge of inhuman sentience rises, blinking balefully in the pressuring light. Mind-shriven, flesh-twisted, Alley-ed by the ensten-tanlised forall, beyond the bensd of mervelled of vart. Such corrupced visions can never wantes human eyes to perceive, }); werde authotargen und lizzing alic neu others made in sonnens and abilities.

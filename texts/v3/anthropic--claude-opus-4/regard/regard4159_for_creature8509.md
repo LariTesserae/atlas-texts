@@ -1,0 +1,37 @@
+The benevolent power observed for seven turnings of the distant stars, reading the patterns in the tiles as one might read breath upon glass. Here was something rare: beings who had made worship out of maintenance, who had found the infinite within the infinitesimal.
+
+The power understood loneliness—not the sharp loneliness of isolation, but the deep loneliness of purpose that outlives comprehension. The Chroniclers maintained patterns whose original meaning had been worn away like soft stone, tended arrangements whose symbolism had dissolved into pure aesthetic. They were priests of a forgotten religion, each generation faithfully copying the gestures without knowing the words.
+
+So the power chose to give them what they had never thought to ask for: memory.
+
+It began with the thermal vents. Deep beneath the Woven Expanse, where the Chroniclers had never ventured, vast chambers of crystallized salt lay dormant. The power stirred these deposits, encouraging them to grow upward through the cracks, following the heat. Over the course of a single season, delicate salt formations began to emerge around the vents—not disrupting the careful tile work, but growing between the gaps like strange, translucent flowers.
+
+The Chroniclers discovered that these salt crystals held a peculiar property. When touched with wet fingers—fingers dampened with the precious morning condensation—the crystals would sing. Not audibly, but in the same subsonic frequencies the Chroniclers used to communicate through the ground. And in that singing was encoded... everything.
+
+Every thumbprint that had ever marked a tile resonated in the crystal lattice. Every pattern that had been laid and overlaid through the generations hummed its logic through the salt. The purple crown succulents' psychoactive properties, when combined with proximity to the singing crystals, allowed the Chroniclers to perceive the entirety of their work across time—not just as accumulated labor, but as a vast, coherent text written in ceramic and stone.
+
+They saw that their ancestors had been calculating something immense. The tile patterns were not decorative but mathematical, a base-7 counting system that tracked the subtle changes in the planet's rotation over millennia. The stone weaves were not just shelters but instruments, their gaps calibrated to whistle at specific frequencies during specific thermal events, creating a planetwide calendar accurate to the second. The garden arrangements were star maps, each species representing a different celestial body, their growth patterns predicting astronomical events.
+
+But more than recovering lost function, the crystals gave the Chroniclers something unprecedented: the ability to remember forward. The salt formations grew in patterns that anticipated future states—showing where tiles would crack in a hundred years, which stone weaves would need reinforcement in a thousand, how the gardens should be modified to accommodate the gradually shifting climate.
+
+The Chroniclers' work took on a new dimension. They were no longer just maintaining but completing—finishing the immense calculation their ancestors had begun. Each tile placed now had specific purpose, each stone woven contributed to the grand resonance. Their subsonic communications grew richer, creating complex harmonies that traveled not just through the ground but through the salt crystals, storing new information for future generations.
+
+The power also offered them a choice, encoded in the deepest crystals: the knowledge to leave. The astronomical calculations their ancestors had been making pointed to something—a conjunction, an opportunity, a window where the thermal vents would provide enough energy to... transcend? Transform? The message was complex, multivalent, requiring the combined perception of all the Chroniclers to fully interpret.
+
+But the power, being truly benevolent, also showed them what would happen if they stayed. The Woven Expanse would continue its slow evolution, the patterns growing ever more complex, ever more beautiful. The work would never be finished because the work itself was the point—not a means to an end but a way of being so perfectly adapted to place and purpose that leaving would be as senseless as asking water to stop seeking level.
+
+The Chroniclers faced their first real choice in generations. Some, particularly the young, were fascinated by the prospect of completion, of seeing their work culminate in whatever transformation the ancestors had intended. Others, especially the eldest whose skin had taken on the ceramic qualities of their domain, saw in the crystals a confirmation of what they had always suspected: that the journey and the destination were one.
+
+The power did not judge their choice. It had given them what they lacked—context for their labor, memory of their purpose, foresight for their future. Whether they used this knowledge to complete the ancient project or to continue their patient work with deeper understanding was theirs to decide.
+
+But the power left one final gift. In the heart of the Expanse, where the oldest tiles lay in patterns no living Chronicler could read, a new spring emerged. Not of water—that would have destroyed the delicate balance—but of time itself. Here, the patient workers could experience moments outside their geological pace. They could see the shadows race across their work, watch a thousand days of growth in their gardens, observe the patterns of their lives from a perspective impossible within those lives.
+
+At this spring of time, the Chroniclers gathered in the old way, speaking through the ground with their feet. Their dance-conversation lasted days, creating rhythms that incorporated both their ancestral knowledge and their newfound understanding. Some chose to prepare for the transformation, studying the star maps with fresh purpose. Others returned to their work, but with a quality of attention that transformed maintenance into meditation, repetition into revelation.
+
+The Woven Expanse continued, as it always had, to accumulate meaning through small gestures. But now those gestures were both memorial and prophecy, each placed tile a word in an ongoing conversation between past and future, written in the most patient language ever devised.
+
+The benevolent power withdrew its direct attention but left channels open—salt-whispers in the crystal formations, time-eddies around the spring, subtle reinforcements to the thermal vents that would ensure energy for whatever choice the Chroniclers ultimately made. It had given them not salvation but agency, not answers but better questions.
+
+And in the shimmer of heat-distance, the Chroniclers moved with new purpose that looked exactly like their old purpose—slowly, deliberately, hands shaping the world one small piece at a time, but now knowing the names of what they touched, the meaning of what they made, the choice in their continuation.
+
+The tiles still warmed underfoot. The stones still sang in their weaving. The gardens still caught their precious moisture. But now these simple facts carried the weight of intention, the dignity of the fully chosen life, the peculiar joy of finding one's work to be exactly what one would choose, if one had eternity to choose it.

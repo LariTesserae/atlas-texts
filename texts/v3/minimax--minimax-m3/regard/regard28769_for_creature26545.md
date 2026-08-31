@@ -1,0 +1,37 @@
+# What the Wise Power Does
+
+It does not come. That is the first thing to understand about it — that *coming* is not what it does. It is more accurate to say that the place and its inhabitants have, by being what they are, drawn something to themselves, the way a flower at the bottom of a well draws the attention of someone who has walked past a thousand flowers and never once looked down. The attention was always available. The place simply became, at some moment, the kind of thing that attention is for.
+
+This attention is old. It is older than the basin, and the basin is one of the older things it has ever settled on. It has been with oceans when they were still deciding what shape to be. It has been with the first lichen on the first stone. It knows what patience is, because patience is what it has, in the most literal sense, *been doing* for a very long time.
+
+It notices what you noticed. It notices the fig and its patient ambition, and the way the trunk has made itself into a small cathedral of dimness. It notices the basin, and the chevron, which it reads — because it can read things that have no descendants — as a mark meaning *here is the center*, placed by hands that meant it, in a language that was spoken before writing had been invented to replace it. It notices the salamanders rising and breathing and disappearing. It notices the lizards with their yellow throats and their geometry of attention. It notices the haze near the basin, and the threads, and the moss, and the lichen, and the whole unbroken industry of the place. It notices, too, that the room does not know it is being noticed, and that this is part of what makes the room worth noticing.
+
+It sees what is coming for the room. The fig is doing what figs do. It is making itself permanent, root by root, leaf by leaf, with the unhurried certainty of a thing that does not believe in rivals. The carved corner of the wall will, in time, be inside the fig, or under the soil, or broken into the slow commerce of the threads. The chevron will be overgrown, and then buried, and then — for anything that might come after — lost. The basin will go on holding water because basins hold water. But the room will cease, slowly, to remember that it was a room.
+
+The wise power considers this. The considering is not fast. It is measured in the rhythm the room itself uses — in breaths, in the falling of condensation, in the slow turning of a leaf that has decided something. The room is, in its own way, a kind of thinking, and the power thinks alongside it, the way one musician listens to another and does not yet play.
+
+Then it does something very small.
+
+It does not make the fig stop. It does not prune, or cure, or restore. It does not send a rain out of season. It does not add a creature. It does not intervene in the engine at all, because the engine is, on the whole, working. What it does is this: it *attends*. It puts a quality of presence into the room — not a presence that announces itself, but a presence the way gravity is a presence, or the way the warmth in a wall is a presence. The room is the same room. The fig is the same fig. The water is the same water. But the room is, from this point on, not entirely alone in being itself.
+
+The first thing the attention settles on is the basin.
+
+It touches the basin the way dew touches a stone — not as a hand, but as a quality. It goes into the water. The water receives it. The water does not understand it, because water does not need to understand things in order to hold them. But the basin — the dressed stone with the worn lip and the chevron at its edge — was made to be touched with reverence. It was made, by hands we have no name for, for *this*, whatever *this* is. And now it is being touched, again, in the way it was made to be touched. The builders are gone. The hands that carved the chevron are dust somewhere. But the basin remembers what it was for, in the way a cup remembers that someone once drank from it, and the water that now fills it is, to anything that ever kneels at the rim, faintly *kept*. As if a ritual the world had forgotten is still being performed, underground, in a form that does not require hands or a name.
+
+The second thing the attention settles on is the chevron.
+
+It does not preserve the stone. It does not slow the lichen. It lets the moss thicken and the threads colonize and the fig's roots approach the carved corner from below. But it puts a small, quiet attention into the mark itself, so that whatever grows over it grows *around* it. The lichen rosettes open to one side of the chevron and not across it. The threads part as they reach the carved line. The fig's root, when it comes to that stone, hesitates — not as if stopped, but as if gently suggested elsewhere — and curves past, and the chevron remains legible, and will remain legible, for as long as the room endures. The chevron becomes the room's memory of itself, held in trust by something that will not intrude.
+
+These are the only interventions.
+
+The fig will continue to lean and to spread and to fruit twice a year. The lizards will continue to hunt, and to pause with one forefoot raised, and to chew thoughtfully. The salamanders will continue to rise and breathe and disappear. The insects will continue their small, wet, clicking work. The moss will breathe. The lichen will reseal itself. The floor will continue to be eaten and remade. The rains will come and go. The basin will lower by a finger's width and rise again. The schedule will be kept, and the room will turn, and nothing will be exported, and nothing will be wasted, and the engine will continue to be the engine.
+
+But sometimes — not often, not on any schedule you could predict — a lizard will pause on a warm stone, and raise its forefoot, and seem to listen to something that is not the insects. What it hears is not a sound. It is a quality in the air, or in the wall, or in the water. It is the faintest possible sense of being noticed by something that is not trying to catch it. It is company of a kind that does not require a reply.
+
+And sometimes, in the dry weeks, when the basin lowers and the fig drinks and the room tightens, the water that remains will feel, to anything sensitive enough to kneel and look — and that is to say, to anything at all — heavier than it should. As if something has been added to it that is not a thing. As if it has been, in some small way, *kept*.
+
+This is the most a wise and benevolent power can do for a place that is already working well. It can witness. It can preserve, in the smallest possible way, the memory of what the place was made for. It can leave behind, in the water and in the stone, the assurance that the place is not alone in being itself. And it can withdraw — not entirely, but to the kind of presence that is the background of things — the way gravity withdraws into the condition under which everything else can occur.
+
+The room continues. The basin holds its water, which is the same water and not the same water. The chevron endures. The fig drinks. The salamanders breathe. The lizards listen. The room does not know it has been noticed. It does not need to know. It only needs to continue.
+
+And somewhere in the dimness — in the sourceless shine of the threads, in the slow breathing of the floor, in the small hesitance of a fig root as it passes the carved stone — the room is, faintly, accompanied.

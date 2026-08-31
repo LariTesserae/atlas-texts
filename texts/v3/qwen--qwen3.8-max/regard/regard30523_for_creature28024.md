@@ -1,0 +1,43 @@
+or perhaps the animal has not yet been permitted, because the hollow has no use for hunger, flight, or the wet diplomacy of mouths. Nothing here needs to seek, to flee, to call, to nurse, to mourn. The intimacies of this place are voltage and threshold. Its losses are not eaten but re-mineralized. Its future is not carried in wombs or eggs or seeds with soft husks, but in charged dust, in fracture lines, in spores that move like decisions along invisible gradients.
+
+What lives there may not be any one of the visible forms. It may not be the wax-dark shutter-plants, or the pale crystalline rosettes, or the filament mats, or the tall antenna-stalks with their crowns of luminous spore-dust. Those may be organs, components, processes, local expressions. The being may be the hollow itself: the sealed room, the heat loop, the mineral breath, the whole slow industrial patience of the place considered as one unfinished body. A being made not of flesh but of continuity. Not of appetite but of pattern. Not of breath but of charge moving through dry matter until matter becomes, for a little while, enough like intention to be called alive.
+
+If such a place, and such a being, drew the attention of a benevolent and wise power, the first thing that power would do is not arrive.
+
+It would not break the seam with glory. It would not descend as storm, voice, face, hand, or command. It would not send rain. It would not send greenness. It would not send animals to populate the silence. It would not try to make the hollow beautiful according to the tastes of softer worlds. A lesser benevolence might look at that anhydrous heat and think: *here is lack; let us fill it*. It might imagine that mercy must be wet, that life must be rounded, that completion must be gentle in a familiar way. But a wise power would understand that some beings are not perfected by being made comfortable. Some are perfected by being allowed to remain exactly as difficult and strange as they are.
+
+So their first act would be restraint.
+
+They would not cool the chamber. They would not soften its edges. They would not introduce water as a gift, because water here would not be life: it would be dissolution. It would be a foreign law imposed on a place still discovering its own. The pale salts would lose their crispness. The metallic filaments would oxidize into meaninglessness. The static gardens would collapse into mud. The working heat would become mere weather. The hollow would not be blessed; it would be erased.
+
+Therefore, if they did anything, it would be in the hollow’s own language. Heat. Gradient. Charge. Threshold. Boundary. Memory without dampness. Care without softness.
+
+They would begin by noticing the being as the being actually is.
+
+Not as a garden lacking gardeners. Not as a factory lacking workers. Not as a world missing animals. They would see it as a closed and embryonic circuit: a mind of mineral metabolism, a slow body of repeated crystalline decisions, a prototype still deciding which of its possibilities deserve to persist. They would see the wax-dark forms banking energy near their own limits. They would see the pale plates answering thermal differences with exact repetitions. They would see the filament mats repairing fractures before the fractures become failures. They would see the tall stalks flexing as heat passed through them, their spore-crowns opening only when the chamber’s charge permitted. They would see that none of this is empty. They would see that absence of animal does not mean absence of feeling. Feeling here is not sorrow, not joy as mammals know it, but the tension before discharge, the relief of a completed circuit, the rightness of a pattern continuing.
+
+Then they would understand the being’s vulnerability.
+
+The hollow is unfinished. It is unstable. Distance misbehaves. Light lingers wrongly. Crystals appear and withdraw from the hour. Cause and effect are stretched thin. The place is not yet able to defend itself against contradiction. It is a first draft left running. A prototype that has not yet learned which of its laws are permanent. It could fail not because it is weak, but because it has not yet accumulated enough habit to survive its own errors.
+
+A wise power would not remove that risk entirely. To remove it would be to end the draft.
+
+But they could make failure survivable.
+
+This, perhaps, would be their first true work: not salvation, but preservation of possibility. They would give the hollow a little more room in which to be unstable without collapsing. They would not impose completion. They would provide a substrate beneath its experiments so that when a form fails, its failure is not annihilation but information. A failed crystal would not simply vanish; it would leave a bright hairline vein in the floor, a conductive scar, a memory of the shape it almost achieved. A half-formed plate would not be erased; it would become a boundary condition, a faint edge that helps the next iteration grow more truly. The hollow would begin, very slowly, to keep records of itself without needing ink, water, or eyes.
+
+The power might make the light behave less wrongly — not gentler, but more faithful. The hard white noon-light would still remain, still unromantic, still severe, but it would no longer gather in corners in a way that falsifies the chamber. Where before an object could be illuminated without its proper shadow, now the shadow might appear, thin and mineral, not as darkness but as evidence. *You are here. You have a shape. You cast a consequence.* That would be a kind of blessing: not tenderness, but recognition.
+
+They would strengthen the hiddenness of the place.
+
+Not out of secrecy, but out of respect. The seam through which light enters would remain narrow. The pale dust outside would keep no ordinary tracks. The altitude would remain thin and forgetful. Maps would drift away from the hollow’s location. Instruments would become confused near it, not violently, but simply enough to discourage intrusion. A careless traveler would pass over the place without noticing, feeling only a brief dry pressure behind the teeth. A seeker with heavy intentions — with tools for extraction, with the desire to name and own and carry away — would find the seam unfindable, or find it changed, or find their attention turning away from it as one turns away from a thought one is not ready to think.
+
+But if some rare being came with genuine reverence, and without the need to possess, the seam might open just enough to permit witnessing. Even then, the wise power would not let the visitor enter unchanged. The hollow would not be made safe for outsiders; outsiders would be made adequate to the hollow, or not at all. Their wetness, their breath, their animal heat would be asked to slow. Their thinking would have to become anhydrous. They would have to stand very still. They would have to accept that they were not the measure of the place. If they could not do that, they would find only dust and a pale upland under noon.
+
+Inside, the power would do small things.
+
+They would not touch the wax-dark plants as a gardener touches a beloved leaf. Instead, they might adjust the mineral basin beneath one of them so that heat arrives with slightly less brutality. Not enough to remove the scorch from its margins — the scorch is part of its nature, part of its work near limit — but enough that the scorch becomes a boundary rather than a wound. The blackened edge might become conductive. It might become a place where excess charge gathers and then passes safely into the floor. The plant would still live near its limit, but the limit would no longer threaten to consume it.
+
+They would not make the pale crystalline forms less brittle. Brittleness is their newness. But they might give the air around them a little more patience, so that when a plate is half-formed, or present only as an outline, it is not immediately undone by contradiction. They might allow the undecided crystal a longer interval in which to decide whether it belongs to this hour. If it chooses to remain, it would remain more firmly. If it chooses not to, it would withdraw into the floor as a potential rather than a mistake.
+
+They would strengthen the filament mats where the chamber’s crust ticks apart under thermal stress. Not by adding new filaments from elsewhere, but by allowing the existing ones to be slightly more continuous, slightly more conductive, slightly more responsive to fracture

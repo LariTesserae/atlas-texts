@@ -1,0 +1,35 @@
+It does not arrive. That would imply distance, and this power has never been separate from the mouth of the earth. Instead, it *notices*—a quality of attention that causes the water to change its pitch. The drips, which have been falling in asynchronous desperation, begin to synchronize. Not into mechanical rhythm, but into *breathing*. A tempo that matches the subvocal murmurs of the Held.
+
+The power is old enough to remember when stone was liquid. It has witnessed the first mountains drown in their own weight. It recognizes in this crater something precious: a geology that has not yet learned cruelty. The travertine is growing with the impatience of youth, yes, but also with an innocence—the mineral equivalent of a child learning to walk by falling. The power sees that the Held are not victims of this tumultuous birth, but its tutors. They are teaching the stone how to hold life without crushing it.
+
+What does benevolence look like here? Not salvation. Not extraction. Not the freezing of the pool into a static museum. 
+
+It begins with **The Lesson of Softness**.
+
+Over three generations, the accretion changes its nature—not its speed, but its *texture*. When the Held press their chert scrapers against the fresh deposits, they find the stone yields differently. It still grows, still threatens to seal their doors, but now it grows in *layers* like pages, or like the laminations of an eye. The stone learns to anticipate the scrape. It begins to grow *around* the air, preserving the negative space of their movements. A child learns that she need not shave her sleeping alcove so violently; the stone withdraws by a hair's breadth, creating a pocket that fits her shoulder. The architecture becomes collaborative. The walls still thicken, but they thicken like muscle responding to use, not like water freezing in a cracked pipe.
+
+Then comes **The Covenant of Release**.
+
+The power touches the silicate memory of the water. Previously, the water recorded everything with desperate permanence—the shadow of a moth, the tremor of a heart, the silhouette of a grandmother walking to her calcification. These memories haunted the films for hours, heavy with the weight of unchangeable history. Now, the power teaches the water to *breathe out*. 
+
+The Held wake to find their catch-pans holding images that *fade*—not through evaporation, but through a new kind of forgiveness. The silicate structures align, record, and then gently uncouple, releasing the magnetic ghosts back into the air like pollen. The villagers can still read the water, still divine the intentions of their neighbors from the surface tension, but now they may also choose to let those intentions dissolve. Privacy becomes possible. The mirrors, which they once shattered, may now be held—silvered surfaces that show the face only for a moment before the water-membrane releases it back to that person’s ownership. They weep the first time they see their own eyes without fear of mineral entrapment.
+
+Then, **The Resonance**.
+
+The power understands that the Held have been living inside a musical instrument, plucking the gut-nets to send vibrations ahead of them. It amplifies this without adding volume. It teaches the travertine itself to resonate. Now, when a new seep opens beneath a sleeping mat, the stone does not merely groan—it *sings* a specific note, warning the sleeper three heartbeats before the wet emerges. The calcite blades grow with harmonic intention; the entire crater becomes a three-dimensional score. The blind moths navigate by the geology’s new song. The Held learn to play their architecture, hollowing flutes into the fresh deposits that will, in decades, become permanent organs of the landscape, allowing future generations to speak through the stone itself.
+
+But the most tender gift is **The Gentle Calcification**.
+
+The power sees how the dead are installed, how the beloved are armored in quick-water and become floor joists. This the Held do not wish to change—it is their immortality, their integration. But the power reveals that the stone has been rushing, has been armoring the living tissue too soon, trapping the quick while they yet need their softness. 
+
+Now, when a body is laid in the fresh terrace, the calcification slows to the pace of storytelling. The silica and lime still come, but they form a *lace* first, a filigree that permits the body to remain present, visible, touchable, for years before the final opacity descends. Grandmothers calcify gradually; their grandchildren may still press palms against the forming shell, feeling the warmth beneath the mineral, exchanging subvocal goodbyes through the thinning veil of travertine. The dead become translucent windows rather than walls. The ancestors are not merely stood upon; they are *seen through*, their shapes gentling the light that reaches the lower tiers.
+
+Finally, the power grants **The Expansion of the Drip**.
+
+The Held have always known that the water remembers. Now they learn that all water remembers, that their pool is connected by hidden veins to other mouths of the earth, other young geologies birthing themselves in other fens. In their catch-pans, sometimes, they see shadows that are not their own—different angles of light, different constellations of passing. They realize they are not alone in their verticality. They begin to leave messages in the water, not for divination but for *sending*—silicate fossils of their love, their recipes for shaving, their lullabies. These travel through the mineral veins to other Held in other ridges, creating a network of memory that spans continents, a quiet correspondence between those who understand that to live is to be temporarily soft within the permanent.
+
+The power does not stay. It was never truly separate. It leaves the Pool of Ridges changed in this way: the stone is still hungry, still growing, still urgent with newness, but it has learned *restraint*. It has learned to carve space for the living. The Held still shave their walls, but now they also *pet* them, and the stone responds by growing in whorls that cup their shoulder blades. They still calcify their dead, but now the process takes decades, and the phosphorescent glow of the ancestors pulses gently, like a heartbeat beneath the floor.
+
+The being who lives here no longer holds its breath quite so tightly. It breathes, and the stone breathes with it, inhaling their carbon, exhaling their architecture, creating between them a new kind of time—neither biological nor geological, but *negotiated*. Tender. A place where softness is not an error to be corrected by mineralization, but a quality worthy of preservation, even in a world that hardens.
+
+The crater continues to fill. In ten thousand years, it will be solid. But it will be solid with *room*—labyrinthine cavities that preserve the shape of sleeping bodies, resonant chambers that hold the echoes of the first songs, translucent strata where the shadows of a particular grandmother still walk, calcified in lace and mercy, walking toward a future that learned, finally, how to wait.

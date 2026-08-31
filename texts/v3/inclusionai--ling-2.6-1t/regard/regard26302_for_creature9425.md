@@ -1,0 +1,23 @@
+He comes gently, as one would approach a sleeping child with a cup of warm milk that is already cooling at the rim.
+
+He is not a god of thunder or a sovereign of distant heavens. He is the kind of power that lives in good questions, in the patience of moss, in the turning of the plough at season’s end, and in the way a stranger’s hand steadies another on a steep path. He is benevolent because he has learned that force is a blunt instrument and wisdom is a fine one. He carries no weapon but attention; his robe is made of starlight and spider silk, and his footsteps are soft because he knows how to walk on both earth and echo.
+
+When he first perceives the place, he does not stride. He settles.
+
+He lets his gaze linger like a hand on a shoulder. He sees the zinc sky and likes that it is not boastful. He sees the dolomite remembering cold and nods, for memory is holy. He sees the water that keeps its appointments in beads and whispers and is moved, because reliability is a kind of love. He sees the lichen writing its small psalms on stone, the dwarf cedars twisted into question marks, the fox like a fold in the rock, the moth that becomes the texture of waiting. He listens to the air over ridgelines, to the tectonic murmur, to the crystalline report of contraction and expansion, and finds the choir beautiful—not because it is harmonious, but because it is honest.
+
+He understands that this is a place of negative space, where beings live not by filling but by thinning themselves until they can slip through the lattice of altitude without snapping a thread. He sees the humans who have apprenticed themselves to patience, whose lungs trade oxygen in careful portions, whose fingers read gradients like braille. He sees their architecture of stillness, their eyes washed out to mineral blue, their garment-structures that trap quiet like jars catch fireflies. He blesses them without naming the blessing, for to name it too loudly would be to wake it.
+
+He finds the cairns, mute and patient, and places a palm against one as one would against a warm oven. He feels the calibration of weight and counterweight, the listening to wind and tectonic murmur, the polite fiction that mason and monument have become indistinguishable. He does not repair them; they are not broken. He simply lets his warmth seep in, a small, invisible tide, so they may remember they are held even while they hold. He tells the erosion, the polishing invisible flocks, that their work is noble, and the land accepts the compliment like rain.
+
+He sees the cold not as an enemy but as a clarity. He lets his own edges soften so as not to disturb the fine balance, but he does not surrender his nature. He is, after all, a power who knows when to be firm. He draws his robe closer and, in doing so, stitches a seam of gentle gravity across the shoulder of the ridge, so that the openness between peaks feels less like abandonment and more like a room whose walls are made of trust.
+
+Then he leans closer, his starlight-and-spider-silk sleeves pooling like dusk, and speaks—not with a voice but with a shift in the hush, a tuning of the silence.
+
+You are enough, he says to the place and its people. Do not be more. Do not shrink to be less. The world beyond is loud with becoming; here, being is sufficient. Keep your dampness like a secret. Keep your weirdness like a law. Keep your completion as a mercy.
+
+And because he is wise, he leaves behind not a miracle but a covenant: that the thinness of air will hold, that the beads on mica will keep their appointments, that the cold will not sharpen into cruelty, that the fox will continue to fold into shadow, that the moth will keep its appointment with rust, that the cairns will remember how to listen, and that the humans’ question-mark spines will not unbend in fear. When storms gather beyond the ridges, they will find a gentler slope here, as if the land has learned to soften its borders out of love. When stars appear, they will hang a little longer above the zinc lid, as if waiting for a quiet to finish.
+
+He does not promise forever. Forever is a heavy word. He offers instead a long, attentive now, and then another, each one polished by the same patient grace.
+
+And when he rises to leave, he does not ascend. He dilutes, becoming the pearlescent margin at the edge of sight, the extra second before dawn decides to arrive, the faint scent of iron and burnt sugar in a crevice that is not quite a crevice. He steps out of the story without closing the book, and the place continues, loud and empty and cold and certain, holding its questions like a choir holds its breath between notes, and singing anyway.

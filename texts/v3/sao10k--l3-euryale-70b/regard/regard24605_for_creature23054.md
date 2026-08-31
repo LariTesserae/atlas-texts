@@ -1,0 +1,14 @@
+Faint with proceeding, the roiling energies of creation stir to attention deep within the sickly incandescence. Wisps of thought coalesce from the primordial ooze, percolating up through the tangle of hyphaea. 
+
+First, a gentle warmth suffuses the tod space, staunching the milky tendril-bleed, desiccating the dripping fissures. The temperatures hollows of the eyeless clam-things contract in a surge of filtered light. They secrete and shudder, gelatinous talons pawing irritably at the sudden brightness.
+
+Next, a purity infuses the sere ore, excising impurities and calcifying the salts in strata. Brine-crystals form a glistening shell round the sluggish brain-corals and crusting tube-worm, protecting them - if not their unceasing birthings - from the evaporating drought. Stalactites and stalagmites joint in a habitable climate, a lea of lemon yellow between the fleshy niches.
+
+Greening tendrils of fungus outreach and twine with the sustaining elements. Their mycellial curets allow an unchecked migration of pearlences, phosphors, the most rapacious of nitrogen-fixors and oxygenators, microorganisms that would flocculate and effloresce in the poisoned magmas. These cooperative ventures sigh and unfurl in a rainbow phylogeny, sprites of predator and sphincter, bugeoning out then burying one another's may, the natural compost.
+
+But too soon, a morass of wet and wild matrices buds from the sediment, unholy things of raddled stroma and flagella'd cilia, meiosing when not once but invisibly, and always to the drone of their polymorph lumen. The lumineercury fires tincture and tinture, effloresces and streaks the texts with selenological equinoxes and glimmerfigurations in contest to the feculency that keened brazen and abdominal. The boiling tide parts, inorder to englude in crustacean expansion.
+
+Such a thick flux of creation would normally be of no concern to the powers - even these most humble andwart of realms. But something catches their eye, a speck of light within the unceasing froth. A perfect, milke-white pearl nests patulous at the center of whorling miasmal growths. It gleams in full )
+non-judgement. The lunar moths stultify and sink, unspiraling into the agar. The endless cord thing retracts its probing proboscis and withdraws from sight in a suddent rictus. Only the inchoate pulse of the pearl remains, a pearly_beaded nuculus, trifurcating in ellipses and ellipses.
+
+And so, gently, the power reaches out, and takes the pearl into itself, to spin and polish and dream with, for the sake of the realm and all its half-wrought inhabitants. The pearl gleams like a small sun within a greater one, and the pocket realm continues, tended, though little changed, as an emerald diadem upon a tawny brow.

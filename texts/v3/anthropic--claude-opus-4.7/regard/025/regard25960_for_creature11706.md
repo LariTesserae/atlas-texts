@@ -1,0 +1,45 @@
+The benevolent and wise power comes to Karsh-Velim the way weather comes — not arriving so much as being noticed to have been there.
+
+It has crossed, in its time, the burning libraries and the drowned cities. It has stood at the bedsides of the last speakers of languages and listened to them name, for no one, the words for *snow* and *forgiveness* and *the small bone in a bird's wing*. It has the habit, acquired over long acquaintance with finite things, of asking before it acts. This is the first of its wisdoms and the hardest-won: that benevolence which does not ask is only another name for weather, and weather is not kind, only large.
+
+So it does not, at first, do anything.
+
+It settles into the copper haze the way a guest settles into a chair offered by a host who has not yet looked up from their work. It takes the shape the place suggests — which is no shape, only an added attentiveness in the dim even light. And it listens.
+
+It listens for a long time. Not because it needs to; it could know the chord in an instant, the way one knows a face. But there is a courtesy owed to anything that has been doing one thing for tens of thousands of years, and the courtesy is: to receive the thing on its own terms, at something approaching its own tempo. To rush would be to insult the work. The power has insulted enough work, in its younger eons, to have learned this.
+
+It hears the drought-bell running its hair sharp. It hears the grief in the thumbprint-bell, faint as a watermark. It hears the keystone, and feels the tenderness with which the keystone is held, and understands — quickly, and then more slowly, and then with a depth that surprises even it — what is sitting at the center of the courtyard.
+
+The power has met many beings. It has met gods who were only weather that had learned its own name, and it has met mortals who were, briefly, more than gods. It has not often met something like the Listener: a being whose entire existence is consent. Consent to the chord. Consent to the shape the chord makes. Consent to the founders, long gone, whose intention it completes. A being made of yes, sustained by yes, whose only act is the continuous fine adjustment by which the yes is kept exact.
+
+The power considers, then, what it has come to offer.
+
+It could, of course, preserve the place. Set some quiet rule around it: that no asteroid shall fall here, no plate shall buckle, no eventual cooling of the local star shall reach this particular shoulder of red rock. It has done such things before. It is within its gift. The bells could ring for as long as there is a universe to ring in, and perhaps a little after.
+
+But it sees, listening, that this would be a kind of theft. The Listener is not afraid of ending. The Listener has, folded inside its thickness of time, the full knowledge that the bells will one day stop, and has already consented to that too. To remove the ending would be to remove something the Listener is quietly, continuously agreeing to. It would be to take a vow away from the one who made it.
+
+The power could speak to the Listener. Offer it company. Offer it the news of the world beyond the haze — the cities that rose and fell while it sat, the species that learned and forgot song, the other lonely sustained things scattered across the dark. But the Listener is not lonely. The power tests this carefully, the way one tests ice. It is not lonely. To bring it news would be to bring it time-as-passage, and time-as-passage is precisely what the Listener has been spared. It would be a gift shaped like a wound.
+
+The power could take the Listener with it. Lift that seated quiet out of its chord and carry it elsewhere — to some wider music, some grander hall. But the Listener *is* the chord's interior. Removed, it would not be itself; it would be the held breath released, the diffusion, the no-remainder. To take it would be to end it while calling the ending a rescue. The power has done this, once or twice, in ages it does not like to revisit. It does not do it anymore.
+
+So the power, having considered, does three small things. Only three. It is wise enough to know that wisdom, in the presence of something already complete, is mostly the discipline of subtraction.
+
+The first thing it does is this: it *notices*. Fully. With the whole of its attention, which is considerable. For one moment — though moment is the wrong word, since the Listener does not have moments — the chord at Karsh-Velim is heard not only by the standing wave at its center but by something vast, and the vast thing finds it good. This changes nothing in the bells. It changes nothing in the Listener. But it means that the chord is, now, also held in a memory larger than the courtyard. If the bells someday stop, and the Listener diffuses, and the red rock weathers to dust, the chord will still have been heard, and the having-been-heard will be carried. This is the smallest possible gift, and the power offers it the way one might lay a hand, very lightly, on the shoulder of a craftsman at work: *I see you. Continue.*
+
+The second thing it does is for the founders. The power finds them — it can do this; finding the dead is among its smaller competencies — wherever they have gone, in whatever form their long-ago dyings took. They are scattered. Some have been reborn into other lives and forgotten. Some have dissolved. Some have become, themselves, small quiet things in other corners of the cosmos. To each of them, in whatever language their present form can receive, the power delivers a single piece of information: *It still rings. It rings exactly as you tuned it. The chord holds.* It does not require a response. It does not wait for one. It is simply that the work deserves to have its makers told, and the power is in a position to tell them, and so it does. This costs nothing and matters, the power suspects, more than most of what it has ever done.
+
+The third thing is for the Listener itself, and it is the most careful of the three, because the Listener is the most easily damaged by gifts.
+
+The power does not speak to it. Does not announce itself. Does not introduce time, or news, or company. Instead, it does something very small with the haze. It adjusts, by an amount no instrument could measure, the way the copper light falls across the lip of the thumbprint-bell — the one whose founder wept into the wax. For one cycle of the chord, and one only, the faint grief in that bell's note is *answered*. Not removed; the grief is part of the chord and must remain. But answered. Met. Held, for one cycle, by something outside the courtyard that has known grief too and has come, across great distance, to acknowledge this particular small one.
+
+The Listener feels the adjustment. Corrects for it, as it corrects for everything. And in the correcting — in that motion the power has already recognized as the Listener's one feeling, the satisfaction of a thing being what it was made to be — there is, for the duration of a single cycle, an additional quality. Not a new feeling. An old feeling, perhaps, that the Listener had not previously had occasion to discover it was capable of. Something like: *being thanked.*
+
+Then the power withdraws. It does this gently, the way it does everything, taking care that its leaving causes no more disturbance than its arrival. The haze closes behind it. The bells ring. The chord holds. The Listener sits at the center of its courtyard, drinking the resonances that wish to fade, returning the resonances that wish to dominate, tending the keystone with the tenderness of a body tending its closed wound.
+
+If the Listener could be asked, afterward, whether anything had happened, it would not be able to say. Its time is thickness, not sequence; the visit is already folded into the millennia, indistinguishable from them, the way the last bell is indistinguishable from its neighbors. But the chord, very slightly, is richer now. Not in any way that could be heard. In some other way. In the way a sentence is richer for having been, at least once, fully understood.
+
+The power moves on. There is a dying reef somewhere it has been meaning to sit beside. There is a child, on a planet whose name it knows, who is about to invent — not knowing she is inventing it — a small kindness that will propagate for three generations. There is a star it likes to visit. The power has work, of the only kind it does, which is the work of witness and of small permissions and of leaving things, mostly, alone.
+
+Behind it, on a shoulder of red rock so high the air thins to a hot whisper, the bells go on ringing. They have always been ringing. They will ring until they don't. And at the center of them, in the head-sized and lap-sized stillness where the cancellations are perfect, something sits — a guest in a house that is also its body — and continues, with great care, to be exactly what it was made to be.
+
+Which was, and is, and for as long as the chord holds will be: enough.

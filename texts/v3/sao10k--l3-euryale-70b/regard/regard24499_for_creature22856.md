@@ -1,0 +1,11 @@
+The benevolent power gazes upon this grim and macabre submersed space with a heavy heart. Such a terrible place, feelingly haunted by forgotten history and tragedy. And yet...
+
+The power senses a vital hunger in this grotto's denizens, an untamed and eager zest for life. Though born from darkness and formed of tragic remnants, they have created a strange new biotope here. Insect and fish, crustacean and mollusk - all thrive, all have evolved to calls the harsh reality of this underworld kingdom home. 
+
+There is something faintly inspiring in their adaptability. Their many colored beauty, even. A symphony of wrong, wonderful life, set amidst sets of backdropanim's drowned grimoires and littered trophies, to the tune of half(Un)buried instuments: a coldwater cello, the needle-dulled skriking of a fiddle bow shivering against the membrane-skin of some druum, the plippling of tubas, the/Header horn, the()trumpikasto skouiuid trambone, a plicter=skirl, a Galactic Mantis Byrne.
+
+The great power would not erase this grotto, no! Let it remain, strange museum of drowned secrets. A symbol of how life always finds a way, even in the deepest places. And perhaps... perhaps with some calming influence to mute the alien horrors of the specimens spawned too long abandoned in the jars...
+
+In the power's gaze, a few things begin to quietly change. The ghosts of painted ships' portraits stir in their golden frames, their faces softening from expressions of tragedy to something like peace. The awful formaldehyde stench begins to fade, replaced by a strange new scent - the petrichor of earth and stone, of life clawing its way up from deep cold dark. The moonfish's pale faces do not glare with such manic purpose. Certain sea-crabs' shells, some segmented in spiraling colaurrent garden-replets among cracked coral heads' sharp barnacle-grape, become whisperly luminous at night with a deep placid calm.
+
+Pearly shell-crumps and sea-urchin clusters grease the aground stones over thickston crusting blooms like certain briner shells' kertails with patterns emulating mineral starfish. Evoling, all. The power grants a slowing of time here, an emendritic state, an extension of the arbitrary nature of forever's horizon.

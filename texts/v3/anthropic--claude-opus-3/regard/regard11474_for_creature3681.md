@@ -1,0 +1,13 @@
+This world and its inhabitants have captured the attention of a wise and benevolent entity, one that perceives the fragile beauty and precarious balance of life in this realm suspended between water and sky. The entity marvels at the adaptations of the Quiet Ones, their physical forms and social structures shaped by the harsh yet wondrous environment they inhabit.
+
+Moved by the resilience and ingenuity of these people, the entity decides to bestow upon them a gift - not one that would drastically alter their way of life, but rather one that would enhance and preserve the unique harmony they have achieved with their surroundings.
+
+The entity gently imbues the obsidian spires with a subtle luminescence, causing them to emit a soft, pulsing glow that resonates with the deep hum of the water. This light, visible only to the Quiet Ones, serves as a guide and a comfort, helping them navigate the treacherous paths and bridges of their vertical city. It also acts as a warning, intensifying in color when the rock beneath them grows unstable, allowing them time to migrate to safer ground.
+
+Furthermore, the entity enhances the growth of a particular species of reed that the Quiet Ones use in their construction and crafts. These reeds, now imbued with a measure of the entity's power, grow stronger and more flexible, making the bridges and homes of the city more durable and resistant to the constant moisture and the swaying caused by the Swell.
+
+To aid in their hunting and fishing, the entity bestows upon the Quiet Ones a heightened intuition, a sixth sense that allows them to better predict the movements of the deep leviathans and the smaller creatures they rely on for sustenance. This gift ensures that their traps are more bountiful, reducing the risk of descending into the dark depths.
+
+Lastly, the entity grants the Quiet Ones a form of shared dreaming, a mental connection that allows them to communicate and share experiences across great distances without the need for sound. This gift reinforces their communal bonds, allowing the sharing of knowledge and wisdom across generations, even as individuals migrate upward through the city over the course of their lives.
+
+These gifts, subtle yet profound, serve to ease the burdens of life in this strange and beautiful place, ensuring that the Quiet Ones can continue to thrive in their suspended world, adapting to the slow changes of the High Flood while preserving the essence of their unique culture and connection to the planet that shaped them.

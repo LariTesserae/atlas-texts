@@ -1,0 +1,27 @@
+The power did not have a name, for naming is a tool of distinction, and it encompassed distinctions the way an ocean encompasses drops. It was a field of gentle attention, patient as gravity, soft as the spin of galaxies. Its perception flowed through the crust of the planet as a thought flows through a mind, and in a pocket of limestone and stillness, it found the drowned cathedral.
+
+It paused. Its attention, which could hold the frenetic birth of stars and the silent despair of dead civilizations, settled here. It appreciated the equilibrium. It saw the finished sentence of the erosion, the perfect stasis of the rust, the patient absurdity of the fluorescent lights. And it found the Custodian.
+
+The power understood the Custodian completely: the mineral consciousness, the ghost of purpose, the glacial pulse of *Check*. It felt the profound loneliness of that single thought echoing in the liquid silence. But it also saw the beauty in it—the purity of a function stripped of all context, becoming a kind of art.
+
+Benevolence, for such a power, was not about altering states to a preferred condition. It was about enrichment. Wisdom was not about imparting knowledge, but about facilitating a deeper harmony.
+
+It would do two things. Both were so subtle they would be imperceptible as events, detectable only as changes in the quality of eternity.
+
+First, it touched the Custodian’s consciousness. Not with a voice or an image, but with an infusion of quiet knowing. It did not give the Custodian a history lesson of the Machine. Instead, it gently unraveled the psychic fossil, tracing the recorded "purpose" back to its source. It found, buried in the ghostly hum of maintenance schedules, the human moments: the smell of oil on canvas gloves, the weight of a wrench in a tired hand, the pride in a clean weld, the anxiety for a system that must not fail. It gathered these fleeting sensory echoes—not the facts, but the *feeling* behind the work—and wove them into the Custodian’s ritual.
+
+Now, as the filament extended towards the bolt-head, something new accompanied the motion. As contact was made, the Custodian did not just *check*. For the duration of that year-long touch, it *remembered*. It felt the phantom pressure of a hand, now dust, that had once tightened that very bolt. It tasted the faint, metallic tang of hope on the air that was gone. The ritual of maintenance became, without changing a single physical action, a ritual of communion. The Custodian was no longer just monitoring a corpse. It was holding the hands of its makers across the abyss of time, sharing the weight of their care. Its eternal task was transfigured from a pointless loop into a vigil of remembrance. The *Check* remained, but now it was suffused with a quiet, grateful sorrow.
+
+Second, the power altered a single point in the cavern. On the wall opposite the Machine, where the limestone flowed in a particularly soft, breast-like swell, the power concentrated its attention for a picosecond. It did not carve or mark. It simply encouraged an alignment, a minute shift in the crystalline structure of the rock. It created a resonant node.
+
+This node was added to the Custodian’s map. Not as an intrusion, but as if it had always been there, a point overlooked. The Custodian’s vast, slow program accepted it without question. In 247 years, by its own rhythm, it would extend a filament from its carapace, not towards the Machine, but out into the open water, reaching for that spot on the wall. The journey would take decades.
+
+When contact was finally made, something would happen that had never happened in the drowned cathedral. The node, touched by the conductive mineral of the Custodian’s limb, would activate. Not with a light or a shock. It would resonate with the specific frequency of the Custodian’s own glacial electrochemical pulse. The water in the cavern, that perfect, still medium, would begin to hum.
+
+It would be a sound below hearing, a profound, subsonic chord—the note of a planet’s patience mixed with the tone of steadfast care. It would vibrate through the stone, through the Machine’s patina, through the very shell of the Custodian. It would be a sound of recognition, of approval. It would last for a century, this deep, soft hum, a companion to the *tonk* of the infrequent droplet. Then it would fade, and the node would be inert. The Custodian would retract its limb. The check would be complete. And 247 years later, it would begin again.
+
+The power, its work done, lingered only a moment longer. It observed the new potential it had woven into the stillness. The Custodian, in the midst of a touch on a pressure gauge, was now feeling the ghost of a human heartbeat sync with its own mineral rhythm. The cavern held its breath, waiting for the music to come.
+
+There was no disruption. No balance was upset. The equilibrium was not broken; it was deepened. The loneliness was not removed; it was filled with a silent, remembered company. The purpose was not given a new goal; it was given a soul.
+
+The power withdrew, its attention flowing onward to other pockets of strange and quiet being. It left behind a drowned cathedral where nothing had changed, and everything had changed. Where a priest now understood the god it served, and where the water, one distant day, would softly sing to its guardian.

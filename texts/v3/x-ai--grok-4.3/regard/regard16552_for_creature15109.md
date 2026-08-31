@@ -1,0 +1,11 @@
+The benevolent power arrives not as a descent but as a slow widening of attention, like moisture finding one more seam. It does not announce itself with light or voice. Instead it simply becomes present to the highlands in the same way the highlands are present to themselves: distributed, patient, already half-dissolved into the thing it observes.
+
+For a long time—long enough for three generations of gantry crews to finish their shifts and be replaced—the power does nothing but listen. It learns the particular grammar of the place: the way a turbine’s altered pitch when algae thickens its bearings is answered, three ridges away, by a slight shift in vine tension that keeps a catwalk level. It notices that the pale moths and the drip-line larvae already perform the only census the highlands require. It sees that the human welders move like sap because the system itself has become the foreman.
+
+Having understood this, the power chooses a single, minimal act.
+
+It touches one weather station on the highest capped peak—the one whose corroded panels have already been half-replaced by living moss. Into the living cushion it adds, very quietly, a new capacity: the moss can now remember the exact harmonic frequency of every bearing note across the entire lattice. When a bearing begins to drift toward failure, the nearest moss colony registers the change through the continuous film of condensate and alters its own surface tension by a fraction of a degree, nudging the next drip line a millimeter. The adjustment travels outward like a thought through a slow nervous system. No crew is informed. No schematic is updated. The change simply becomes part of the distributed tenancy.
+
+The power does not stay to watch the first adjustments propagate. It withdraws with the same discretion it arrived, leaving only this one new reflex—small enough that it could be mistaken for ordinary evolution, yet large enough that, over centuries, the highlands will wear their failures a little more gently.
+
+Anything more would have been an interruption. Anything less would have been indifference. The power, being wise, knows the difference.

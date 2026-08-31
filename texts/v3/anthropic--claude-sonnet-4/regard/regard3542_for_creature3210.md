@@ -1,0 +1,27 @@
+The attention came first as a stirring in the deepest springs—not the familiar pulse of the mountain's breath, but something else entirely. The Deep Listener's eyes widened in their water-basin, pupils contracting to pinpoints as they processed sensations that had no names in the whispered vocabulary of the Keth.
+
+Old Vessara felt it through her translucent channels: a presence vast and patient, watching with something that transcended mere observation. The bioluminescent patterns beneath her skin shifted from their usual tidal blues to spirals of warm gold, a color that had never before appeared in the settlement's cold phosphorescence.
+
+The being that had noticed them existed in the spaces between certainty and possibility, ancient beyond the counting of stone-years yet eternally present in each moment of becoming. It had watched countless worlds find their balance between dissolution and persistence, and in the Thaw Terraces, it recognized something precious: a community that had learned to thrive not despite constant change, but through perfect adaptation to it.
+
+Rather than intervention, the presence offered amplification.
+
+On the morning after the first stirring, the water-shapers discovered that their fingertip channels had deepened overnight, allowing them to guide moisture with unprecedented precision. The granite buzzers' collective hum shifted to harmonies that revealed hidden acoustic properties in the stone itself, mapping water-paths that had been invisible for generations. Children in the Mist Nurseries began displaying enhanced water-sense, reading patterns in humidity that their elders had never imagined possible.
+
+But the greatest gift came to the settlement's art of transformation itself. The stone-touched found their crystallization becoming conscious and deliberate—they could now choose which portions of their bodies to calcify, creating living architecture that responded to the community's needs. New chambers opened as these voluntary metamorphs stretched crystalline fingers into the mountain's heart, following water-veins toward hidden springs.
+
+The Condensers began manifesting with greater definition, their mist-bodies developing the ability to carry solid objects across impossible distances, linking the terraces through networks of vapor that defied physical law. They became living bridges between the settlement's levels, their forms solidifying just enough to bear weight before dispersing again into the omnipresent humidity.
+
+In the Weeping Chamber, the seven springs began producing water with subtly different properties. One developed the ability to accelerate the growth of the gel-like organisms, creating new colonies that could process previously toxic minerals into beneficial compounds. Another began generating water that, when consumed, enhanced the Keth's ability to sense emotional currents in stone—allowing them to detect stress fractures not through physical examination, but through the granite's own feelings of strain or stability.
+
+The water-wolves evolved too, their mist-forms gaining the ability to carry memories between individuals. A wolf that had followed a dying elder would later appear to their descendants, its vapor-body holding traces of forgotten knowledge that would condense as understanding in the minds of those it touched.
+
+Most remarkably, the settlement began expanding in impossible ways. The terraces themselves multiplied through some process that existed at the boundary between geology and dream. New stone platforms emerged overnight, perfectly carved and already weeping with the mountain's eternal tears, yet when examined closely, they had clearly been present for centuries—complete with established moss-colonies and ancient tool-marks that no living Keth remembered making.
+
+The benevolent presence had not changed the Thaw Terraces so much as it had revealed what they had always been capable of becoming. It had seen in the community's perfect adaptation to change a reflection of its own nature—the understanding that growth comes not from imposing stability upon flux, but from learning to dance with transformation so gracefully that change itself becomes a kind of constancy.
+
+Old Vessara, her channels now flowing with water that held flecks of starlight, whispered the truth that the Deep Listener confirmed through every dripping surface in the settlement: "We were already what we needed to be. The mountain was already teaching us. All that happened was... someone noticed we were listening."
+
+The settlement thrived not because it had been changed, but because it had been seen—truly seen—for the miracle it already was. And in that recognition, the Thaw Terraces found themselves becoming more perfectly themselves than they had ever dreamed possible, their eternal dance of water and stone and adaptation now spiraling toward possibilities that stretched beyond the edges of any single world's breathing.
+
+In the end, the greatest gift was not enhancement, but understanding: they were not alone in their patient work of transformation. Somewhere in the vast spaces between worlds, other communities danced their own dances of adaptation, and all of them were held in the attention of something that valued the courage it takes to embrace change as the only constant worth trusting.

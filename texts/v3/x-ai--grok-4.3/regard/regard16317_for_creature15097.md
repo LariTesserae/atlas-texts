@@ -1,0 +1,13 @@
+The power arrives as a pressure that is not pressure, a stillness that does not still the pumps. It does not descend; it simply becomes co-present with every rivet and gill.
+
+For a long time—long even by the standards of the concrete—it only listens. It hears the fish shoal move like a single slow inhalation, hears the crustaceans’ whisking limbs keep time with valves they have never seen, hears the rays turn the floor grates into momentary wings. It studies the algae spores that travel the same circuit the water itself is made to follow. When it is satisfied that nothing here is broken, only completed, it acts once.
+
+It touches the deepest foundation, where the whole structure has been easing itself into the silt for centuries. There it lays a single filament of its own attention, no thicker than a thought. The filament does not strengthen the iron or seal the concrete; it simply agrees with the settling. From that moment the complex will continue to sink, but never past the precise depth at which the intake filters and the eastern risers remain level with one another. The balance the inhabitants already keep is now underwritten by something that does not erode.
+
+A second, smaller courtesy: the lamps. Their light is left exactly as it is—dim, bluish, fractured by silt—but the power makes certain that their failure will never be the thing that ends the cycles. If a filament ever burns through, another, identical in color and weakness, will take its place without ever having been installed by hands.
+
+Beyond these two quiet covenants the power does nothing. It adds no guardian, plants no new species, removes no predator. It recognizes that every organism here has already become an organ of the place, and that the place has become an organ of them. To introduce more would be to treat a finished equation as though it were still missing a term.
+
+Before it withdraws, the power performs one last, almost shy gesture. It draws, from the long low vibration the rays sometimes make when their dental plates grind, a faint harmonic that travels outward through the water like the memory of a door closing somewhere far above. The harmonic does not carry meaning. It carries only the knowledge that the chamber has been noticed, and that the notice itself asks nothing in return.
+
+Then the presence is gone, and the pumps continue their measured interval, and the fish go on breathing the architecture as though nothing had changed—because, in every way that matters to them, nothing has.

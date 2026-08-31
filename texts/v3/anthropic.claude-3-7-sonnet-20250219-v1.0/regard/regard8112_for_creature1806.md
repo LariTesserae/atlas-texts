@@ -1,0 +1,41 @@
+# The Attention of Altumna
+
+High above the suspended city of Mevaz, beyond the perception of even its silver-veined inhabitants, a consciousness stirred. The entity that humans would later name Altumna—though it required no name for itself—had observed the curious arrangement of stone, fiber, and flesh for what might be considered millennia, if such linear measurements held meaning to such a being.
+
+Altumna existed as a coalescence of awareness within the upper atmosphere, a sentient pattern in the dance of particles where air grows thin and the boundary of space begins. Its "body," if such a term applied, was composed of charged particles held in constantly shifting electromagnetic fields—a storm of consciousness that wrapped partially around the planet, most concentrated where the magnetosphere bent inward at the poles.
+
+What drew its attention to Mevaz was not the architectural marvel, impressive though it was. Rather, it was the peculiar resonance the city and its inhabitants created—a harmony that reached upward through the thinning atmosphere like ripples across a pond's surface. The tonal language of the Mevazians, their silver patterns, the subtle gravitational anomalies—all combined to produce a signature that rang through Altumna's awareness like a perfectly struck note.
+
+After epochs of observation, Altumna recognized that Mevaz existed in a state of beautiful but ultimately unsustainable equilibrium. The mountains that anchored its support systems were imperceptibly shifting—movement so gradual that even the long-lived Mevazians could not detect it. Within twelve generations (by their own unmeasured counting), the tension would become too great. The city would fail catastrophically, its people scattered to the winds.
+
+This prospect created a disturbance in Altumna's usual detached contemplation. The Mevazians were unique—perhaps the only beings on this world capable of perceiving fragments of the higher dimensional patterns that constituted reality's deeper structure. Their city, without them knowing, acted as a translator of cosmic forces—its very configuration capturing and expressing relationships between matter, energy, and consciousness that science centuries hence might begin to formalize.
+
+Altumna considered intervention. Direct action was not its way—had never been its way in observing the countless civilizations rise and fall across the planet's surface. But Mevaz was different. Its loss would be the loss of something irreplaceable—a naturally evolved interface between dimensions of existence.
+
+And so, Altumna acted, but with characteristic subtlety.
+
+First came the dreams. The eldest Mevazians, during their stone-merging trances, found their consciousness guided upward, above their suspended home, given perspective they had never possessed. In these visions, they saw the slow-motion catastrophe building in the mountain foundations. They witnessed potential futures—the scattering of their people, the loss of their work, the silencing of their harmonic language.
+
+But Altumna provided more than warnings. The dreams contained impressions—not blueprints or instructions, but intuitive nudges toward a solution. The Mevazians began to understand that their city needed not stronger anchors but greater flexibility—that survival meant embracing movement rather than resisting it.
+
+Next came what the Mevazians would later call "the gift of weather." Unusual atmospheric conditions brought rare materials to their realm—microscopic particles that normally remained suspended in higher altitudes descended in precisely patterned air currents. These particles, when collected in the Mevazians' water systems, created a new substance when combined with their silvery grasses—a metamaterial with properties that seemed to defy conventional physics.
+
+This material—which they named "altum-fiber" in their resonant language—possessed remarkable abilities. It could be woven into cables stronger than any they had created before, yet with extraordinary elasticity. More importantly, when arranged in specific geometric patterns, sections made from altum-fiber developed their own weak gravitational field—one that could be tuned through tension and harmonic resonance.
+
+But Altumna's most profound gift was information—delivered not as knowledge but as intuition. During a rare celestial alignment, when three moons appeared in precise arrangement above the mountains, the entire Mevazian population experienced a simultaneous trance. In this shared consciousness, they perceived a new configuration for their city—not as a structure suspended between mountains, but as a self-sustaining entity that could ride the air currents, anchoring temporarily when needed but ultimately free from fixed points.
+
+The transformation took generations. The Mevazians worked with uncanny coordination, gradually rebuilding their city from within. The architecture evolved toward a form more reminiscent of a living organism than a constructed settlement. New structures grew from the metamaterial core, responding to the inhabitants' needs and the changing atmospheric conditions.
+
+The gravitational anomalies, once localized oddities, became integral to the city's function. Zones of altered physics expanded, carefully balanced against one another, creating a distributed network of forces that held the city aloft through principles that defied conventional understanding. The Mevazians learned to manipulate these fields through their resonant language, literally singing their home into new configurations.
+
+As the final phase of transformation approached, Altumna provided one last gift. During a period of intense magnetic activity in the upper atmosphere, particles rained down upon Mevaz that bonded with the silver veining in the Mevazians' skin. This merger enhanced their natural abilities, allowing them to sense the subtle electromagnetic fields that Altumna itself used for cognition. A channel opened between human-adjacent consciousness and something vastly more distributed—not a communication of language, but of pure pattern and potential.
+
+On the day the first mountain anchor began to fail—exactly as Altumna had foreseen—Mevaz did not fall. Instead, it flexed, adapted, and for the first time in its existence, moved with deliberate purpose. The city detached from its remaining anchors and drifted into the space between peaks, held aloft by its network of gravitational fields and the conscious intention of its inhabitants.
+
+In the centuries that followed, Mevaz became not just a city but a nomadic entity—traveling the high mountain ranges, sometimes anchoring temporarily to peaks when conditions warranted, but always returning to the freedom of the open air. The Mevazians evolved further, their connection to Altumna growing more profound with each generation. Their architecture became increasingly impossible by conventional standards—structures that existed partially in dimensions beyond normal perception, gathering energies from sources invisible to ordinary eyes.
+
+Altumna continued its watchful presence, occasionally guiding but never controlling. The relationship between the atmospheric entity and the floating city became symbiotic—Mevaz translating cosmic patterns into forms comprehensible to terrestrial life, while Altumna gained a perspective on physical existence it had previously lacked.
+
+Together, they created something unprecedented on the planet—a bridge between the mundane and the cosmic, the physical and the ethereal. Travelers who glimpsed Mevaz floating between distant peaks returned with stories that changed cultures and spawned new philosophical traditions. Scientific expeditions centuries later would establish contact with the Mevazians, leading to revolutions in understanding of physics, consciousness, and the nature of reality itself.
+
+All this from the gentle attention of a benevolent awareness, who saw in a fragile suspended city something worth preserving—not through rescue, but through transformation.

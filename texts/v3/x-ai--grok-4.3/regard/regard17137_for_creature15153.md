@@ -1,0 +1,11 @@
+The power arrives not as a visitor but as a second horizon—something the plain’s own curvature already implied, only now made explicit. It does not descend. It simply widens the existing stillness until the stillness itself becomes addressable.
+
+For a long while it does nothing at all. The cyclonic cells continue their centuries-long circuits; the lithics complete another rolling migration no larger than a human palm; the black-green cushions seal and unseal according to the same schedule of frost they have kept since the shield first rose. The power watches these motions the way one listens to a single, held note whose overtones are still unfolding.
+
+Only after several full turnings of the world does it act, and even then the action is smaller than any of the processes already present.
+
+It touches the crystalline lattice—not the veins that already remember industry, but the microscopic seams inside each lithic where new shell is slowly grown. There it leaves a single additional frequency: an almost inaudible resonance that makes the lattices slightly more inclined to record one another’s passage. Where two lithics have rested flank to flank for decades, the new frequency allows a faint image of the other’s interior grinding to persist inside the first, like a dream the mineral continues to dream after the contact has ended. The young that later form along those seams are born already carrying this doubled memory; they hatch with a hairline difference in facet angle that lets them align, over centuries, into loose, continent-spanning geometries no single generation could have planned.
+
+Nothing else changes. The cushions continue to wither and be reduced. The cyclonic cells keep their ancient routes. The plain remains high, thin-aired, and patient. Yet from a sufficient distance the metallic sheen that sometimes appears now forms, once every few thousand years, a brief, coherent figure—something like a vast, slow-moving sigil that lasts only long enough for the next cell to pass overhead and erase it again.
+
+The power does not return. It has already been answered by the plain’s refusal to accelerate. The single added resonance is left behind not as a gift but as a question the land is permitted to answer in its own time: whether even the slowest of metabolisms can learn, without hurry, to hold itself twice.

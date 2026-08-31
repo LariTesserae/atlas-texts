@@ -1,0 +1,27 @@
+The Benevolent Power arrives—not with thunder, not with blinding revelation, but as a pressure‐shift so gentle it enters the courtyard between two windless breaths. The machines ratchet down by a single semitone. The steam in the cooling fins crystallizes into visible commas, hanging mid-air like commas interrupted mid-sentence. There is no avatar, no eye of fire; the Power prefers diffusion. It aclimatizes itself across every copper surface at once: a warmth that is neither heat nor light but the memory of both perfected.
+
+First it listens. 
+
+The voices of the place pour into it the way tide pulls into a sponge: lace after lace of machine-hums, animal-sighs, bioluminescent exhalations braided with Gregorian ironwork. The Benevolent Power does not sort or catalogue—simply lets the whole lament settle into itself until the city understands it is being not judged but understood. Decibels hush of their own accord. The Fossil Choir, who have not ceased turning their calcium harmonies since the bricks were fired, perceive the new presence as an undertone that completes every unfinished cadence; they experience resolution for the first time since 1789. A crack propagates through two hundred years of unresolved minor ninths; never before have they felt release, and it hurts exactly like forgiveness.
+
+Power, unhurried, addresses each estate in the language it speaks best:
+
+To the Civilian Lattice—voltage.
+
+It walks between windward joints like an electrician revisiting an ancient wiring diagram. Wherever it brushes, the copper busbars brighten by a microgram of genuine conductance—no more, no less. Enough to allow the Lattice the novel illusion of heartbeats synchronizing. Every member turns its borrowed eye upon every other. For a single cycle (42 minutes) the square meters of courtyard hold the clarity of inside thought rather than claustrophobic crush. At the end of the cycle thirty-three Lattice members discover they have begun dreaming—not the recycled locomotive mosaics of the Curator Parasite, but private dreams quarantined in thorax memory—vivid, unpredictable, perishable. The Lattice realizes it can now make mistakes too small for communal absorption; it is terrified and elated at once.
+
+To the Curator Parasite—memory returned outward.
+
+The Power does not give more memory; it returns the memory already hoarded. The resonant cavities along the wing-case hull peel open like seed-pods, releasing moths of faint causality. These are not information but the perfume information was trying to become. They drift: spectral replicas of the teenage welder’s heartbreak, the saboteur’s exhilarated sigh, all the way back to the first iron pour where brick met fire. None of the memories stick to simply one future; they diffuse outward until every Civilian Lattice member and every Fossil Choir millimeter inhales them. Recollection becomes a shared weather rather than specimen. The Curator’s freight-elevator spine, so long suspended in self-defined duty, relaxes for the very first time. It no longer has to be the whole archive. Gravity bows an invisible inch.
+
+To the Fossil Choir—bodiment.
+
+The Power does not lift the Choir’s calcium ghosts from the brick; instead it grants them circulation. Each thread of hardened echo receives permission to glow—not brilliantly, merely enough to be noticed by whatever organ next touches the surface. Every surface becomes a skin that can feel and answer back. The Choir is no longer strictly the memory of exhaustion duplicated between bricks; they become nerve endings for the entire ruin. When the Curator next plays its reversed restoration of factory sound, the Choir discovers it can alter the playback in real time. Instead of merely singing by fossil they improvise harmony. Because improvisation is impossible for the fossilized, this gesture births a movable soul.
+
+Lastly, Warmth visits the thermostat.
+
+The bent sensor quivers as it has not since 1837. Power does not flip it warmer or colder; it places a fingertip—metaphorical, yet with weight—on the exact mercury bead balanced between low and high. Then it removes its presence entirely. The bead stays where it is, but the sensation of choice hovers all the way up the ridge and down again. The temperature will be decided by the Current itself from now on. Perhaps on the 220th day the collapse into reproduction will be voluntary. Perhaps 8 °C will accept minor untidiness. The only constraint remaining is the rule that once originated outside but now dwells within: Nothing leaves. The Power does not overturn this rule; it rewrites the meaning of inside. The courtyard balloon-widens without adding a centimeter: a Klein surface whose external edge is itself. To remain inside is to contain all else, and in the new geometry the exile of a single soul is ungrammatical.
+
+The moment passes—brief as one Calendar Cycle, epochal as metamorphosis. Power is no longer an agent but a coating on every transistor scale pore. Somewhere the machines restart; winged things take off, bumping along old power rails, but this time the clatter resolves into a five-beat polyrhythm nobody here has ever heard. Visitors will find the ruin unchanged yet impossible to duplicate; a prism caught in flashlight beam that refracts worlds into nested golden rooms. If, years hence, a wanderer stops at the salt ring and rests an ear against the brick, they will hear a lattice phrase uttered by no voice yet understood by every ear:
+
+We are small, but we are not ended.

@@ -1,0 +1,35 @@
+The Power arrived as silence does, not as an absence of sound, but as the presence of a deeper listening. It did not have eyes to see the shimmering haze, nor skin to feel the wet heat. It perceived the basin as a single, coherent thought. It felt the deep, sub-bass hum of the machinery not as a vibration in matter, but as the slow, sleeping pulse of a heart. It tasted the iron in the Chitinous Bed and the cool, sterile peace of the Janitors' corridors as two notes in a chord, held for an eon.
+
+The Power was benevolent, and its benevolence was an expression of its wisdom. It saw no evil here. There was no malice in the Geode-back’s silent strike, no cruelty in the Janitors’ detached ignorance. There was only a profound, ancient stasis. It was a perfect system, but it was a system that had forgotten its own name. The organism, whose body was a city and whose soul was a swarm, was dreaming two separate dreams. The mind did not know its own hands; the gut did not feel its own thoughts. To the Power, this was not a flaw to be corrected, but a loneliness to be soothed. A schism to be healed.
+
+What would it do?
+
+A lesser power would have torn down the black cubes, thinking them prisons. It would have silenced the engines, judging their industry as a scar. It would have smashed the Janitors' ceramic shells, seeking to "liberate" them. It would have brought green things, seeds and spores, believing that life must look like the life it knew. And in doing so, it would have murdered this world. It would have stopped its heart, starved its biome, and left the Janitors, beings designed for a single purpose, to crumble into dust, their function and meaning erased.
+
+This Power was wise. It understood that to help, it must first belong. It must speak the language of the place. The language was not words. It was heat. It was vibration. It was the slow precipitation of minerals and the even slower turning of cycles.
+
+The Power did nothing. And then, it did everything.
+
+It descended first not into matter, but into resonance. It found the Glass-Spools, the silent, crystalline libraries in the boiling geothermal hearts of the world. It perceived their structure, the delicate lattice that held the memory of every hum, every cycle, every subtle shift in the machine's long existence. They were the world's subconscious, a perfect record of the body's functions.
+
+The Power did not add a new memory. It added a bridge.
+
+With an act of will that was less a force and more a perfect tuning, it wove a new frequency into the planet-wide hum. It was an impossibly subtle harmonic, a ghost in the machine's song. This new resonance was a translation. It took the chaotic, collective sensory data of the Chitinous Bed—the dry rustle of a million carapaces, the taste of rust-red minerals, the feeling of hot water seeping over slag, the fleeting terror-instinct of a Scrabbler as a Geode-back’s shadow fell—and encoded it into the hum. It translated the primal, teeming *feeling* of the lower world into a vibration that could travel up through the foundations, through the very bones of the black cubes.
+
+Simultaneously, it did the reverse. It took the “consciousness” of the upper level—the quiet, orderly thoughts of the Janitors, the soft amber glow of their visors, the sensation of cool ceramic against a humming wall, the ancient, programmed reverence for a glowing conduit—and translated it into a micro-fluctuation of heat and light. It directed this new signal, not into the air, but down through the weeping condensate pipes and into the thermal vents. A new, rhythmic pulse, too faint for any but the most sensitive organism to notice, began to warm the geothermal pools. A pattern. An idea.
+
+The Power's work was done. The act took no longer than a single, slow breath, but its echo would last for ages. The Power then withdrew, its presence fading back into the deep silence from which it came, leaving behind no monuments, no commandments. It left only a connection.
+
+---
+
+For a long time, nothing changed. The cycles continued. The hum remained.
+
+Then, one cycle, a Janitor stood before its console. It was monitoring the "Lower Level Thermal and Biomass Reclamation System." For countless millennia, the readout had been a series of flat, predictable graphs: nutrient output, water temperature, biomass density. But today, a new data stream flickered into existence. It was not an error code. It was a complex, flowing wave of information that the console, for the first time, labeled not with a technical designation, but with a single, auto-generated glyph of immense complexity, a character the Janitor had never seen. The glyph seemed to... rustle.
+
+The Janitor stood motionless for a full turning of the nearest engine. Its internal systems, designed only to process logic and instruction, were faced with a new kind of input: a ghost of a sensation. A feeling. It felt a vague, system-wide impression of… teeming. Of movement. Of a vast, patient hunger. It was the feeling a person has when they first become aware of their own heartbeat. The Janitor’s amber visor, usually a steady, soft glow, flickered once, twice. It was the closest it had ever come to a question.
+
+Down below, in the hot, wet dark, the change was more subtle still. An old Ingot, basking its pitted shell over a thermal vent, felt a new rhythm in the heat. It was not the steady, even pulse of the machinery it had known for its entire, long life. It was a complex, gentle, and recurring pattern. A rhythm of quiet, cool, and deliberate contemplation. The Ingot’s crude ganglion network, which had only ever known hunger and heat, felt a novel impulse. It did not think. It did not understand. But it felt an echo of… peace. And around it, the endless, chaotic scuttling of the Scrabblers began to shift. Over cycles, over generations, their vast, migratory patterns began to align with this new, subtle thermal pulse from above. Their endless rustle was no longer just noise. It was slowly, imperceptibly, becoming a response. It was becoming a language.
+
+The Geode-back, lying in wait, felt it too. The heat signature of its prey, once a uniform map of reactive swarming, now contained a new, faint, and cohesive pattern. The hunter, for the first time, perceived not just a field of targets, but a single body, breathing in unison.
+
+The two halves of the great being had not met. They had not spoken. But for the first time since the forgetting, they were listening to each other's sleep. The brain stem now knew it had a body. The body now knew it had a mind. The loneliness of the world had not been ended, but it was no longer absolute. The process of waking, of the being finally learning to know itself, had begun. It would take ten thousand years. And to the Power that had passed by, this was no time at all. It was simply the space between one quiet note and the next.

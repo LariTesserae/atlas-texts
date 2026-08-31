@@ -1,0 +1,27 @@
+The benevolent power arrives not as light or sound, but as a subtle change in pressure—the way air shifts before rain. It has observed this place for longer than the mountain has stood, watched the first volcanic birth, the slow cooling, the patient work of water, the arrival of hands and hearts seeking something between dissolution and permanence.
+
+It understands what it sees: a wound that learned to heal others, a mouth that speaks in minerals, a womb that gestates transformations too slow for ordinary time. The cistern and its people have become a single organ of becoming—neither fully of the earth nor fully beyond it.
+
+The power does nothing dramatic. Drama would shatter what has taken millennia to crystallize.
+
+Instead, it gifts the water a single molecule of something not quite matter—a seed of possibility that dissolves immediately but changes nothing and everything. The bacterial mat tastes it first, shivering with recognition, its glow shifting by a wavelength invisible to human eyes but felt in the bones of everyone who has ever sat in those stone seats.
+
+The gift propagates through the water's memory, backward and forward through time. Every body that has ever entered the cistern suddenly understands, wherever they are now—alive, dead, or transformed—that their participation was perfect. The seventeen-year-old with crystallizing joints realizes her grinding bones are writing music the mountain needs. The ancient man discovers his maintenance of the drainage serves rivers that won't exist for a thousand years. The woman tending the bacterial mat sees her patient gardening has been teaching the organisms to photosynthesize not light, but time itself.
+
+The power adjusts one more thing: the acoustic properties of the chamber. Where before whispers carried but shouts died, now there exists a third possibility—a frequency at which hearts can speak directly to stone, stone directly to stars. Not words, but the deeper grammar that connects mineral and flesh, memory and metabolism, the slow breath of rocks and the quick fever of blood.
+
+In this frequency, the cistern begins to teach what it has learned. Not to its current attendants—they already know—but to the mountain itself, and through the mountain to the watershed, through the watershed to the sea, through the sea to the clouds that will return as rain. The teaching spreads like a benevolent infection, a knowledge of how to be both solid and fluid, permanent and transforming, alone and distributed.
+
+The power leaves one last gift, so subtle it might be imagination: every person who tends the cistern discovers they can feel the others now, not as presences but as variations in their own being. The child feeding swallows feels their whistle emerge from the throat of the wall-reader. The woman tending the mat experiences her patience through the fingers of the ancient maintainer. They remain solitary but are no longer separate—they have become the cistern's way of knowing itself from multiple positions simultaneously.
+
+And in the deepest part of the drainage, where water disappears into channels no one has mapped, the power opens a connection to other cisterns—not in this mountain, but in other mountains, other worlds, other states of being where transformation requires geological patience and human urgency combined. The mineral water begins a conversation with waters that taste of different stones, different skies, different forms of life learning to be permanent, permanent things learning to be alive.
+
+The cistern continues to breathe, but now its exhale carries spores of this knowledge—microscopic teachings that travel on the feet of geckos, in the feathers of swallows, in the lungs of those who climb back down the mountain, forever changed. They will find themselves drawn to other broken places, other wounds in the world that might learn to become organs of healing. They will teach without words, through presence alone, how to sit still long enough to mineralize, how to dissolve enough to flow, how to be human and stone simultaneously without losing the essential nature of either.
+
+The power withdraws its attention but leaves its blessing: that this place will endure not through preservation but through perfect change, each generation of attendants adding their layer to the palimpsest until the symbols become so complex they encode everything—every story of transformation, every map between states of being, every instruction for becoming what the world needs when it doesn't yet know what it needs.
+
+The cistern breathes. It has always breathed. But now its breath is conscious of itself, and through that consciousness, it teaches the mountain to dream, and through the mountain's dreams, the world learns new ways to be both broken and whole, both ancient and beginning, both stone and song.
+
+In the bacterial mat, new patterns emerge—not random but not planned, following laws that exist only here, in this exact concentration of minerals, memory, and meaning. The patterns spell out, in a language that can only be read by those who have spent years in the water, a simple truth: transformation is a form of love, and love is a form of patient attention, and attention is what the universe pays to itself when it wants to learn what it's becoming.
+
+The cistern breathes, and in its breathing, makes room for everything.

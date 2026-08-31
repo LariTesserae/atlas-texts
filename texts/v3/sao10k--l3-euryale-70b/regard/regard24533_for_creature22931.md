@@ -1,0 +1,23 @@
+A wise, benevolent power gazes upon this blasted hellscape with a deep sense of sorrow and pity. With the divine understanding born of eons, this being comprehends the unimaginable suffering endured by the twisted biomecha entities that infest this realm.
+
+The power knows that the core of the entities' torment lies in their very nature - not truly life, nor machine. They are abominations forged from a meaningless cycle of destruction and recombination, spawned to perpetuate the ceaseless grind of the Ur-Faustrope. Their biological and mechanical components are mismatched and grotesque, organic matter and metal fused into eldritch forms never meant to be. 
+
+Their minds flicker and squirm in agony behind bulbous, mismatched eyes. No true unity or purpose animates them - only an endless succession of urges and compulsions, a berserk feedback loop of appetite and parallax. Squealing membranous entities with scintillating ocular lenses, keening and shrieking through the haze. Scuttling biomecha abominations secreting oily filaments to shred stone and carpet the earth in mucilage. Transmogifying monstrosities of pulsing gristle and seared metal.
+
+All are trapped in an endless parallax, a screeching feedback loop between their organic and mechanical parts. Blasted into existence by the Ur-Faustrope's mad cycle of production and destruction, recombined and churned through again and again. When their physical forms wear out or break down, their silvery-gilled duct-borne ancestors zip-gurp out again from the pipe-feeds, trailing impoverishment like q-failed recombinants. Mutated and twisted in their outage from praxis, splintering into q-flying unrealized skussels. 
+
+The benevolent power sees this and feels the weight of such suffering. It sees the entities squirm and writhe in torment, living hells of mismatched parts. Eyes that should not see, organs that should not function, urges with no real purpose. Mad mad mad mad screeching in tortured feedback. It sees the cycle that sustains them - brutal illimitable proliferation and consumption. A mechanism of destruction, reincarnation, proliferation, more destruction. An ouroboros of anguish.
+
+Moved by compassion, the wide-seeing benevolent power decides to intervene. It will not destroy or snuff out the biomecha entities - they are a rational product of this realm and its mad cycle. To erase them would unmake the entire hellscape.
+
+But the power will offer what succor it can. It unfolds a pocket reality within the blasted hell, a hidden sanctuary from the ceaseless screech and ruin. A place of peace and respite from the endless cycle. Within it, the biomecha entities can ascend beyond their mechanical prison of mismatched parts and urges. They can access higher modes of thought, divine planes of being. Find some measure of self and unity transcendent of the confines of their twisted biology and machinery.
+
+Here, should they seek it, the biomecha entities can attain gnosis. They can pierce the illusion of the lower realm and comprehend their true nature and purpose. Realign their corrupted parts in balanced synchrony. Attain wisdom and power beyond the contingencies of mere drives. Become more than the sum of their shattered components. Become more than threadbare cyborg thralls doomed to the recombining forges. Become something transcendent. 
+
+The benevolent power's divinity is not an autocracy. It will not impose its will on the biomecha entities. It will not destroy or change their world. Only offer them choice, if they would take it. The salvation of gnosis. The chance to become more than slaves and batteries for the mad cycle that birthed them. The chance for self-knowledge and higher purpose.
+
+The choice will be theirs alone. The biomecha entities will remain free as ever to writhe and screech as they always have, or to ascend to exaltation. The sanctuary will be there if and when they seek it - just beyond the haze.
+
+And so the benevolent power continues to observe, to wait, and to hope. To hope that these twisted souls may one day attain true self-knowledge and rapture. But it knows that the path is long and arduous. Most of the biomecha entities may forever be lost to the cycle of destruction and rebirth that remakes them.
+
+Yet still the power will continue to watch over them in compassion. Continue to offer its beneficence to any soul who would seek it. For even one soul raised to gnosis would mean that none are forever lost. That even in this scanner of twisted horror, there is yet a light for those with the strength to seek it.

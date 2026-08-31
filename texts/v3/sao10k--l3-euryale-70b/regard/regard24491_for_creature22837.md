@@ -1,0 +1,15 @@
+The wise and benevolent power, upon gazing upon the subterranean labyrinth, is deeply moved by the resilience and adaptability of life. Despite the harsh conditions, the denizens of this watery realm have not only survived, but thrived in unique and wondrous ways.
+
+With a thought, the power imbues the very rock of the caverns with a new potential. The luminous minerals begin to glow more brightly, bathing the tunnels in a softer, gentler light. The fungal hyphae, sensing the power's intent, begins to extend its reach even further, forming symbiotic bonds with more of the cavern's flora and fauna.
+
+As a result, new strains of bioluminescent fungi and luminous aquatic plants begin to flourish, brightening the gloom and creating vibrant displays of color in the depths. The centipedes and fish also undergo subtle transformations, developing new light-producing spots and patterns to enhance their natural defenses and attract mates in the dark waters.
+
+The power also sends telanomarpherons, a type of magical spore, to infect the subterranean waterways. These telamorphs merge with key rock formations, hyphae, and fungal stalks and begin to slowly reshaping the very rock itself into taller, airier structures. Helpful stalagmites are roused to climb the cavern walls to reach pools, giving ariee eremintants safe roosts and perches.
+
+Stockbold agents are  also sent from above to cary povidions and corralum to the waterways. This corralum, a crystalized telathomorph, merges with the old rivers bede's sandbars, allowing the old channels to drift back into us . As the velley turns over, rusted gates and mobile clasping rivers reawaken from the stillness-lock, to reopen and reopen, aqueducts fill - lanes of new algae blooms with it.
+
+In time, the watery ruin transforms, becoming a place of teeming life and beauty, lit with luminescent plants and rock formations. The waterways now teem with strange and majestic new lifeforms, an entire new ecosystem born from the power's intervention. Those who call the tunnels home enjoy improved food, safer passage, and wondrous sights to behold.
+
+The Merchant Installation, too, feels the power's touch. Motes of magical data, carried on fungal networks, begin to intermingle with their computer systems, expanding their capabilities in mysterious ways. Magical ciphers now intertwine with digital code, granting them new insights and predictive modeling power. Fascinated, the merchants seek to study this new phenomenon, and potentially discover ways to merge the two realms of magic and technology.
+
+The power continues to subtly shape the tide of life in the caverns over the passing years, nudging evolution along and coaxing wonders from the rock. The watery ruin, transformed, becomes one of the most unique and vibrant places of the underground, a testament to the power's wisdom.

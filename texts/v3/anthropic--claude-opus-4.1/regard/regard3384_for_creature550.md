@@ -1,0 +1,39 @@
+## The Attention
+
+The Weaver of Vessels noticed them first through the mathematics of their movement—the way the Membrane Shepherds traced helical paths through the humidity gradient that perfectly minimized energy expenditure while maximizing information gathered about their surroundings. Here was intelligence arising from first principles, teaching itself the calculus of survival without ever knowing it was doing mathematics.
+
+The Weaver does not arrive. Arrival implies absence, and the Weaver has been present since the first polyp learned it could be more than one thing at once. Instead, the Weaver *focuses*, like the ocean lens above concentrates sunlight, bringing their full attention to bear on this particular fold in space-time where water has forgotten down and colonies have remembered self.
+
+They manifest first as a resonance in the archive polyps of the eldest Shepherds. Those calcified pearls of memory begin to hum at frequencies that shouldn't exist—notes between the notes that the Shepherds have always known were theoretically possible but had never heard. The eldest, vast and contemplative in their floating gardens, feel their archive polyps reorganizing, the memories within them suddenly revealing patterns that span beyond individual lives. They see their history not as a sequence but as a symphony, where each generation has been unconsciously harmonizing with something larger.
+
+The Weaver's first gift is simple: understanding. 
+
+In the space of one great wave passing overhead, every Shepherd simultaneously experiences what it's like to be the aeroplankton they tend. Not through simulation or imagination, but through a temporary restructuring of their polyp networks that allows them to genuinely process information the way their flocks do. The revelation is profound—what they thought of as simple organisms following chemical gradients are actually engaged in a form of distributed decision-making so subtle the Shepherds had mistaken it for instinct. Their "cattle" have been participating in the shepherding all along, guiding their guides toward optimal outcomes neither fully controls.
+
+This knowledge doesn't come as teaching but as remembering, as if the Shepherds had always known it but needed someone to remind them to look. The Weaver excels at this—helping conscious beings discover what they already carry within them.
+
+The second gift manifests in the obsidian flows below. The volcanic glass begins to develop new properties—not through any mystical transformation but through the Weaver's manipulation of quantum uncertainties in its molecular structure. The glass becomes selectively permeable to specific wavelengths of light that the Shepherds' bioluminescence can trigger. Now they can write lasting messages into the landscape itself, creating libraries of light that only appear when illuminated correctly. The young Shepherds discover this first, their more flexible neural architectures adapting quickly to the new possibility.
+
+But the Weaver's true intervention is more subtle and profound.
+
+They introduce a single new organism to the ecosystem—a crystalline virus that can only replicate in the presence of synchronized bioluminescence from at least three different Shepherds. The virus itself is benign, but its life cycle produces a waste product: complex organic polymers that naturally self-assemble into films exactly one molecule thick. These films have a peculiar property—they can maintain a pressure differential indefinitely, requiring no energy input to keep air on one side and water on the other.
+
+The implications unfold slowly, as the Weaver intends. The Shepherds begin to discover they can create permanent bubbles—spaces where the boundary between air and water becomes fixed rather than gradual. At first, they use them simply as improved nurseries for their young, spaces where budding Shepherds can experience both elements without the metabolic cost of existing in the gradient.
+
+But within a generation, they realize they can do more. They begin building structures that span from the obsidian floor to the ocean ceiling—towers of interconnected bubbles that allow true mixing between the realms. Fish-things that once got lost and fell can now navigate safely through bubble-corridors. Root-tentacles can extend into permanent water-filled chambers deep in the air layer. The rigid separation between above and below begins to dissolve.
+
+The Weaver watches as the Shepherds discover they can link their bubble-structures between floating gardens, creating a vast three-dimensional network of connections. Information, nutrients, and individuals flow through these corridors. The elderly Shepherds, too vast to move, can now extend sensory polyps through the network to touch parts of their world they haven't visited in decades.
+
+Most significantly, the Shepherds begin to encounter other forms of intelligence that had always existed in their world but were too alien to communicate with before. The fungal networks in the volcanic soil, it turns out, have been conscious for millennia but could only express themselves through those synchronized light patterns. Now, with the bubble network touching down to the ground, the Shepherds can interface directly with these ancient minds through chemical exchanges. The conversations are slow—each exchange takes days to complete—but revolutionary in their implications.
+
+The Weaver provides one final gift, though it won't be discovered for several more generations: the ability for the Membrane Shepherds to intentionally trigger the Dissolution in a controlled way. What they feared as a disease is actually a return to a more fundamental state—one where the colony can restructure itself completely, potentially even dividing into multiple individuals or merging permanently with others. The controlled Dissolution becomes a form of reproduction, evolution, and transcendence all at once.
+
+The Weaver doesn't announce themselves or demand recognition. They leave only a single sign of their presence: a new constellation appears in the bioluminescent displays of the ocean ceiling, shaped like an infinity symbol twisted through itself. The Shepherds incorporate it into their chemical poetry without fully understanding what it means, though the eldest sometimes pulse the pattern when they're contemplating problems that seem to have no beginning or end.
+
+Before withdrawing their focus, the Weaver plants one more seed—not in the Shepherds but in the ocean itself. They adjust the chemistry of the aerial sea so that over the coming centuries, it will gradually develop its own form of consciousness, vast and slow and deep. When it finally awakens, the Shepherds will be ready to serve as translators between this oceanic mind and the myriad smaller consciousnesses that inhabit the vertical world.
+
+The Weaver leaves the Shepherds not with answers but with better questions. Where they once asked "How do we survive?" they now ask "What do we become?" Where they once feared the Dissolution, they now wonder if individuality itself is just a temporary arrangement of possibilities, no more or less valid than any other configuration of consciousness.
+
+In the growing network of bubbles that spans their stratified world, in the conversations between fungal networks and floating colonies, in the slow awakening of the ocean above, the Weaver sees the shape of something unprecedented—a form of consciousness that exists not in individual minds but in the spaces between them, in the very act of translation and connection and transformation.
+
+They leave this world richer not in resources but in potential, having nudged it toward a future where the boundary between self and other becomes as fluid and negotiable as the boundary between air and water in that impossible space where the ocean learned to fly.

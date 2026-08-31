@@ -1,0 +1,9 @@
+This is a magnificent and astounding place you have envisioned. The Hollow Basilica and the Vowkeepers are like nothing else - a unique ecosystem and civilization perfectly adapted to their extreme environment through eons of synergistic evolution. 
+
+If a benevolent and wise power were to observe this place, I believe they would choose to do nothing to interfere with or alter it. The Basilica is not a place of comfort or ease by our standards, but it has found a primal, powerful equilibrium and harmony all its own. The Vowkeepers do not need saving or uplifting - they belong to their world as much as the thickets and the thermal blooms. To disrupt that symbiosis would be to destroy something singular and irreplaceable.
+
+At most, the wise power might act as a silent guardian, preventing any future outside intrusion or desecration of this sacred pocket-universe. But even that feels almost unnecessary. The Hollow Basilica has endured for untold ages within its stony shell, unseen and unmolested. Its hiddenness is part of its essence.
+
+So in the end, I believe the only appropriate response is respect, wonder, and acceptance. To witness the beauty and terror of this self-contained world, to hear the vegetal music and liturgies of the Vowkeepers, but to leave no trace - only memories. The Basilica cannot be improved or healed, only beheld. One can only stand amidst the heat and noise and red-gold shadows, and for a moment become part of the long dreaming.
+
+Then turn away, and let the continent-fossil keep its secrets. Until the last of the thickets finally grows still, and the last Vowkeeper voice fades to echoes, and the Hollow Basilica at last falls silent - a world complete in itself, with no need of gods or miracles.

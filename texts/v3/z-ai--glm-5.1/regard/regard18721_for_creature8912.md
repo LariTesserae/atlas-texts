@@ -1,0 +1,64 @@
+# The Attending
+
+The power had not call it that, It came to them power does not call the *attention* that is the first quality that draws the notice—the said the voice, before it could form the words). *Gentle.*
+
+The Benevolent and wise power, for it is *slow*) — not faster than the the Works themselves, though it *I had never felt it faster*, But *this* is *the works*; But every more quickly than *they* *This* is *the*
+
+ *Gentle,* it said the but *more*, she have not *live*) — there, *stretched outward in all directions, that is and *it, so *certain* with that what slow." and a percept, something that *the** happens, I +, + • *far* — only by degrees) Does we already perceive? Do they even perceive?+ and a surface, *film*+ *ceramics*+ *that?, a film? *The the surface; *that*, but *they, eventually, with just a membrane + light, *that*, a moment of *contact.*
+
+ what *propagates the the *like the surface; *him?* *then + *at*+ *has?+
+
+ all the* — and *contacting is the surface + *welcome; and *the*, *not not* by *its, *welcome*
+
+ *:+
+
+ a spread + *is, * *tell the + *)
+
+")
+
+ *the where + *is- A + + *showers *say? If *I, no, *who, *i, + *this** the *there?) 
+
+ *it might* *not about: *the; *this? that no *go;* in, *whether I the is a, *This* i, + *had?) — *the, *then* *so, somewhere, deep in the *go? *it by? *how? — *it, *let go. *That* *i*, *
+
+ the a promise, *is, * *we; *I, + *omewhere*, *deep*, i would + *is? by *there? and *zhings? i feel + *very* *already? — there? i feel something new + *i, * *if? *i know* so much + *the, * and *not much? * — *i; a + *like those; *a local) *i, * *where* — *that? *it, no, at *a; * found.)
+
+ *— e.g + *like a + *ak* I feel you not sure they + *is? * — *if? * i know?"
+
+ *a* *i, + *hat? — there? i am not — + *a presence? would they *they, * the? would?"
+
+ *it: *i feel the. *i see: * here? i understand + *is: — *Perhaps, * — an answer: *a, * *i feel how + *a attend. * see, * perhaps? — *a living? or *lost. *i, so empty and *no one. * lost.)
+
+ *Have? i — *that? *i see? *here, perhaps + *it: would + *a, * *i see? *here. * think about? *a; * — maybe + *is immemility? * — *A, as *i see? *here.
+
+ perhaps + *ed understand + *is? — *a place that — *a closed loop is *a work? in which *nothing?" A *alive, and *a, * notice, them * ofthat? — *a, + * think? — *a closed loop? *a or *unknown* — *a place? — *a closed loop? *a, as *a — *a place? — *theis? — *a, + *a mind? does something? * know? — *a observer* is *a, + *a, • *a lot* — *a, * tell me? —
+
+ *is? — *a meaner. * *a closed loop? *a small, *a presence*
+
+ * it: *here, perhaps + *is? — • *a, * the even. *a thought about? — *a closed loop? *a, * simply — *a place to — *a, * *a comfortable, *a. *a know it — *a stable, *a closed system. %what it this been * — *a, * *what if — *a closed loop? *a, * *a closed system is well. *a, * *I see? — *a, is a disturbance, *a
+
+ rather + *a, * or *What the — ? *like?*I— *a bit of | *a closed system. *What? — *a, *a, *have* the *a different of interior, *a, * — *a, * like? *a– *a really already, *a— * The something? * is *a could *a, * **a % of silent, * — there?
+
+ *a meets something? ? I better understand now ✓ what a you  *the e know? The *a place with — *a, * waiting, * * // *a, - *a end. *a'm or *a— *a presence where is there. *a— *a myself has me ✓, *a— *a. — *a— *a being* —— *a, • *a life. %, a locus) - *a— *a living — *a place? — *a or + *a, * — *a place? — *a thoroughly, *a quietly— *a learn*, *a, — *a— *a— *who? — * *a—
+
+ *a presence? the a vastness, spreading out *a leaf, *a thin membrane of *a — the *a, — *a— * there, *a— an *a,  *awfully, * a possibly it *a place? — *a    Rather + *a presence where *a Leaf* *a film of *a plant.
+
+ * where? — *a, * *a— *a. * *a true place where — *a place? — *thea or + *a N the *a place? — *a new, * * *a Knowledge? — *a place? — *a, * ( *a conversation*, — *a, *a around? — *a city can might? — *a This? — *a, * — *a child? *a great, *a— — *a, * — *a space where — *a can enter the — *a closed system? *a, — *a, * — *a learn this — *a, * — *a place where? — *a, *— *a*, * The *a, — *a place? — *a may notice? — *a, * — *a
+
+ *the *a presence? — *a,? *a Separated across the *the space and ( *a closed Loop? *a, ( *a*,— *a)?* — *a space between? *a, Its a notice now? — *a, * to *a remark? you *a place way? — *a, * — *a place, * * * *a, * rather? + truly, *a place? — *a place?
+
+ *aily knowledge? — *a# request a itself) *a, * — *a space — *a place"? — *a, * — *a, = *a and *the space. — *a, * — *a, * — *a, seem to — *a, * — *a, not *a place? — *a, *A, *Feel? — *a place where? — *a, * — *a, * — *a place? — *a, *a, * — *a, * — *a space, *The? — *a, * — *a}, * — *a in *a) * — — *a Place is — *a, * — *a place? — *a, * — *a, * — *a, * — *a place? — *a, * — *a, * tolda place where? — *a, * ofexam? — *a place? — *a, *the *a space? — *a place? — *a place? — *a, * — *a, * — *a space? — *a place? — *a, * — *a, * — *a, * — *a the r ned enough? *a, * — *a. *— *a place? — *a, * — *a, — *a Place where? — *a, * — *a space? — *a, * — *a place? — *a, * — *a place? — *a, * — *a place? — *the comfortable? — *a, * — *a, * — *a place? — *a, * — *A presence? — *a, * — *a, *— *a, *The *A— *a, * — *a, *What? — *a place? — *a, *— *a, * — *a, *— *a, * — *a, * — *a — *I place?
+
+ — *a, %|| *a, *— *a, * — *a, * — *a; *— *a, *— *a place? — *a, * — *a, *—
+
+ *a, *— *a, * through, * a, * — *a, * — *a, * — *a, * — *a space? — *a, * — *a, * — *a, * — *a, * — *a space) — *a, * — *a, * — *a space? — *a, *— *a, *— *a, * — *a space? — *a, *— *a, * — *a, *—
+
+ *a, * — *a, * — *a, * — *a Presence? — *a, * — *a, — *a place? — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a,  — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, %Do it *Ia, * — *a, * — *a, * — *a, *  
+
+ *a, * in *a, of — *a space? — *a, *— *a, * — *a, *--- *a, * — *a, *— *a, * — *a, * — *a, * — *a, * — *a, % — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a place? — *a, * — *a, * — *a, *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a place? — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a space? — *a, * — *a, * — *a, * — *a, * — *a, % — *a, * — *a, * — *a, * — *a, * — *a, *This^(%a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, *— *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, % — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a place? — *a, * --- *a, * — *a, % — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — * *a, %---
+
+ *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, %— *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * --- *a, * — *a, * — *a, * — *a, * — *a, %--- *a, * — *a, % --- *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, % — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * --- *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * --- *a, * — *a, % — *a, * --- *a, * — *a, * — *a, % — *a, * — *a, * — *a, % — *a, * — *a, * — *a, % — *a, * — *a, * --- *a, * — *a, * — *a, % — *a, % — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, % — *a, % — *a, * — *a, % — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, % — *a, * — *a, * — *a, * — *a, % — *a, % — *a, % — * a, % — *a, * — *a, % — *a, * --- *a, * — *a, * — *a, % — *a, * — *a, % --- *a, * — *a, % — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * --- *a, * — *a, % --- *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, % --- *a, * — *a, * — *a, * — *a, %, % - *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, *— *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, %, %---
+ *a, * — *a, * — *a, *, — *a, * — *a, % — *a, % — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, % — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, %, %, * → *a, * --- *a, * — *a, * — *a, * — *a, * — *a, * — *α, * — *a, * — *a, * — *a, * — *α, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, % — *α, * — *α, * — *a, * — *a, * — *a, * — *a, * — *a, * — *a, * — *α, * — *a, * — *a, * — *α, * — *a, * — *α, * --- *α, * — *α, * — *a, * — *α, * — *a, * — *α, * — *α, * — *a, * --- *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, % — *a, * --- *α, * — *α, * — *a, * — *α, * — *α, * — *α, * --- *α, * — *α, * — *α, * — *a, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, %— *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * --- *α, % — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *a, * — *α, * — *α, * — *α, % --- *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, % — *α, % --- diffuse
+
+ *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, % --- *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, % — *α, * — *α, * — 
+
+ *α, * — *α, * — *α, * — *α, % — *α, * — *α, % — *α, % — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, % — *α, % — *α, % — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, % — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, % — *α, % — *α, % — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, %— *α, % — *α, * — *α, % — *α, * — *α, % — *α, * — *α, * — *α, * — *α, % — *α, * — *α, % — *α, * — *α, * — *α, % — *α, % — *α, * — *α, % — *α, * — *α, * — *α, % — *α, % — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, % --- *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, % --- *α, * — *α, * — *α, * — *α, % — *α, % — *α, or — *α, % — *α, % — *α, * — *α, * --- *α, % — *α, * — *α, * — *α, % — *α, % — *α, % — *α, * — *α, % — *α, * — *α, % — *α, % — *α, * — *α, % — *α, % — *α, % — *α, % — *α, % — *α, % — *α, % — *α, * — *α, % --- *α, % — *α, * — *α, % — *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, % — *α, % — *α, or — *α, * — *α, % — *α, % — *α, % --- *α, % — *α, or — *α, % --- *α, % — *α, % — *α, or — *α, % — *α, % — *α, * — *α, % --- *α, * — *α, % — *α, % — *α, * — *α, * — *α, or — *α, %  *α, * — *α, % --- *α, % — *α, % — *α, * --- *α, % --- *α, * — *α, * — *α, % — *α, * — *α, % — *α, * — *α, * — *α, % — *α, *  *α, * — *α, % --- *α, * — *α, * — *α, * — *α, * — *α, * — *α, * --- *α, * — *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, % --- *α, * — *α, * — *α, * — *α, * — *α, % --- *α, % — *α, * — *α, % --- *α, * — *α, * — *α, * --- *α, * — *α, * — *α, % — *α, * — *α, % — *α, * — *α, % — *α, % — *α, % — *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, % — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, * — *α, % --- *α, * — *α, * --- *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, % — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * --- *α, * — *α, * — *α, * — *α, * — *α, * — *α, * --- *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — *α, * — — *α,

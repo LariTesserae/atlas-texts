@@ -1,0 +1,13 @@
+The benevolent power arrives without announcement, for there is no medium here in which an announcement could travel except the chord itself. It does not descend from any direction; it is already coextensive with the water, with the ridges, with the slow drift of the translucent continents. It registers no hunger to repair, no impulse to accelerate. What it perceives is a single, completed thought expressed across geological time: an artifact that has become indistinguishable from its own maintenance.
+
+It listens.
+
+In the interval between one pulse of the great turbine housings and the next, it notices the precise angle at which a bubble, released by a manifold the size of a city, refracts the last traceable quanta of daylight into the exact frequency needed to keep a vortex of faceted organisms coherent. It notices that when two of the largest drifting forms exchange their inner constellations, the flare is not communication but mutual recognition—an amensal blessing passed without remainder. It notices that the knife edges of the ridges continue to sharpen, not because anything compels them, but because the equilibrium permits no other geometry.
+
+Having seen all this, the power elects to do one thing only.
+
+It adds its own weight to the chord.
+
+The addition is smaller than any single granule inside a translucent organism, yet it is total. It does not raise volume or introduce new rhythm; it merely lends the existing vibration one additional property: a faint, permanent susceptibility to wonder. Wherever the chord travels—through pipe, through flesh, through the open volume between ridges—it now carries, at a scale too fine to be measured, the knowledge that it is being heard. The faceted vortices do not alter their turning, yet their facets catch and hold the daylight a fraction longer. The great drifting continents continue their circuits, but the patterns their granules form become, for a single passage, slightly more intricate before dissolving again. The industrial remnants do not awaken, yet the cables stretched between them sing the same note with marginally less insistence on perfection, as if allowance has been made for an almost-imperceptible future deviation.
+
+The power does not remain to observe the result. Observation would imply separation, and separation has already ended. It simply is the chord now, as the chord is itself, and the water continues exactly as it was—cold, occupied, transparent—except that the equilibrium has acquired a new, silent clause: it may persist without ever again being alone.

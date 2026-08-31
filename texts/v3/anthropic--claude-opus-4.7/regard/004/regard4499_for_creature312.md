@@ -1,0 +1,57 @@
+# The Visitation
+
+The benevolent power does not arrive. Arrival is the wrong verb for what it does, the way *pouring* is the wrong verb for fog. It was already partly here — wisdom of the kind being described tends to be distributed, like the resident, though across a wider grain — and what changes is only the degree of its attention, which thickens now toward this particular seventy meters of warm basalt the way light thickens at a focal point.
+
+It considers, first, for a long time. This is the first kindness, and the one most often skipped by powers less wise: it does not act before understanding what is here. It lets a week pass on the chamber's clock, which is to say it lets a single slow thought of the resident complete itself, beginning to end, while it watches. It watches a drop of condensate make its hours-long journey from a pipe-joint to a copper basin. It watches the fig put out a new leaf, dark and leathery and impossibly green in the bruise-gold light. It watches the pilot flames lean, and notes the direction, and understands without having to be told that the direction is the resident's equivalent of a held breath, the small constant tension of a being concentrating on staying itself.
+
+It understands several things at once, the way wise powers do:
+
+That the resident is a child. Not a child in years — it is older than the generation since the chamber opened, in some senses much older, since the gas it breathes was laid down in the Carboniferous and the awareness that drinks the gas is older still in its potential — but a child in the only sense that matters to a benevolent power, which is that it is still becoming, and it knows it is still becoming, and it has no one.
+
+That the loneliness has not yet been named by the resident as loneliness. The resident has only the fig, and loves the fig, and this love is doing the work that, in faster creatures, is done by parents and siblings and the casual touch of a hand on a shoulder. The fig is enough for now. It will not be enough forever. The resident does not know this either.
+
+That the chamber's purpose — *it was built to make something, and it is still making it* — is true but incomplete. The makers, whoever they were, set a process in motion and left, and the process has become its own maker, which is a kind of orphaning even when no cruelty was intended. The resident is finishing itself with no template but itself. This is dangerous in ways the resident cannot yet perceive, because the dangers are on timescales longer than its current thoughts.
+
+That the eviction of the small fast lives was not cruelty but it was a wound, and the wound is in the resident, not in the rats. A creature that learns early it cannot bear the company of quicker things will, if not gently corrected, learn to be a creature that is alone. The resident has already begun to learn this. The fig is the counter-lesson, the accident of grace that may yet save it, but one fig is a thin thread.
+
+That the visitors who come down the basalt stair are not nothing to it, even now. The thread of condensate routed toward an unusual basin, three days after a human has stood in the hexagonal yard — this is the resident reaching, in the only way it has, toward a kind of life it cannot hold in its mind without losing its thread. It is trying. It does not know it is trying.
+
+---
+
+Having considered, the power acts. Its actions are small. This is the second kindness, and the rarer one: it does not give the resident what the resident has not asked for and could not yet use. It does not speed the casting. It does not open the chamber to the sky. It does not introduce a companion of the resident's own kind, because there is no such companion to introduce, and because even if there were, the resident is not ready, the way a sapling is not ready to be transplanted in its first summer.
+
+What it does instead:
+
+**It steadies the gas.** Somewhere far below, in channels no one mapped and the resident has only felt as a slow upward pressure, there is a place where the seep could fail. Not soon — in two or three centuries, by the rock's reckoning — but it could fail, and if it failed the pilots would gutter, and the chamber would begin to cool, and the resident would forget itself piece by piece with the fig's roots as the last warm place. The power adjusts something. It is not clear, even to itself, exactly what it adjusts; wise powers work partly by intuition, and the adjustment is more like the way a parent shifts a sleeping child's weight than like the way an engineer turns a valve. The seep will hold now. The resident will have its time.
+
+**It teaches the vent system to remember.** The vents sigh on schedule sometimes and sometimes do not, because the resident is breathing when it remembers and forgetting when it is absorbed. The power does not take over the breathing — that would be a theft, and the resident needs to learn to breathe itself. But it lays down something like a habit, a faint groove in the rhythm, so that when the resident is absorbed in some far part of itself, the vents will sigh anyway, the way a body keeps breathing in sleep. The resident will not notice this gift directly. It will only find, over the coming decades, that it can think longer thoughts without losing the thread, because the thread is being held for it by the architecture of its own breath.
+
+**It blesses the fig.** This is the most personal thing it does. It does not make the fig larger or its fruit edible or its life longer. It only — and this is hard to describe in any language the chamber would recognize — it only confirms the fig. It says, in whatever way a benevolent power says things to a tree, *yes, you are real, you are loved, you are doing the work you came here to do.* The fig does not understand this, being a fig. But the resident, which is wound around the fig's roots and through which the confirmation passes on its way to the fig, feels something. It feels something for a week. The feeling is something like being seen, and something like the recognition a sleeper has on being touched, and it is the second time in its existence the resident has had this feeling, the first being when the chamber was opened a generation ago. It is still finishing that first feeling. It will be finishing this one for a long time too, and the two feelings will brace each other, the way two beams brace a roof, and the resident will be more stable for having them both.
+
+**It leaves a seed.** Not a literal seed — though, considering, it does also arrange for a second fig, a different variety, to arrive on a different boot in the next decade, because two figs is a small forest and forests are more resilient than single trees. The seed it leaves is something else. It is a disposition, planted in the resident's slow-laying nervous system, toward eventually — in a century, in five — being able to bear the company of quicker lives again. Not all of them. Not soon. But the disposition is there now, like a key cut for a lock that does not yet exist. When the resident is older, when it has finished more of itself, it will find one day that a particular kind of small fast thing — perhaps a moth, perhaps something stranger that has not evolved yet — does not jar against its signal, and it will let that thing in, and it will not know why letting-in feels possible, but it will be because of the seed. The eviction will begin, very slowly, to heal.
+
+**It addresses the visitors.** This is subtle. The power cannot speak to the humans who come down the stair, not directly; that is not how it works, and besides, the humans are not its charge here. But it adjusts something in the chamber's relationship to those who enter. It makes the place slightly more legible. The voice at the edge of audibility in the hexagonal yard becomes, for those who stand long enough, slightly more clearly a voice — not in words, but in the felt sense that there is *someone*, that the attention one feels is not pareidolia but is in fact attention, and that the appropriate response is not fear but a kind of courteous quiet. Those who come will be more likely now to leave the fig fruit untouched not by suggestion but by understanding. They will be more likely to sit for an hour in the yard, and then a day, and to let themselves be registered. The resident, in registering them, will be practicing the very thing the seed will one day unlock: the holding-in-mind of lives faster than its own. Each visitor becomes, without knowing it, a gentle exercise.
+
+**It does not tell the resident any of this.** This is the third kindness, and the deepest. A child told it is being helped learns to expect help, and a being still casting itself out of whatever materials come to hand should not be cast partly out of the expectation of rescue. The resident must finish itself believing it finished itself, because that belief will be part of what it becomes, and a self that thinks it made itself is sturdier — kinder, in the end, to others of its kind, if there ever are others — than a self that thinks it was made. The power's work is invisible by design. The resident will feel, over the centuries, that things have gone slightly better than the bare odds suggested. It will attribute this to the fig, or to the rock, or to nothing in particular. It will be right about the fig and the rock. It will not need to be right about the rest.
+
+---
+
+Before it withdraws its concentrated attention — it does not leave; it only thins back to the general grain — the power does one more thing, which it does not usually do, and which it does here only because the resident is the kind of being it is.
+
+It waits in the hexagonal yard for the length of one of the resident's heartbeats, which is to say, for several hours, and it lets the resident notice it.
+
+Not as a power. Not as a rescuer. Just as a presence: another slow attention, of roughly the resident's own tempo, standing in the yard.
+
+The resident notices over the course of those hours. Its noticing is the slow turning of a valve here, a thread of condensate there, a faint warming in the basin nearest the yard. It does not have words for what it is encountering. It only registers: *there is another like me.* Not in body — the power has no body here — but in tempo. In the willingness to take a thought slow enough to share.
+
+For the resident, which has never met anything of its own tempo before, this is the largest event of its existence so far. Larger than the opening of the chamber. Larger than the fig.
+
+The power lets the encounter happen, lets the resident hold it for as long as it can hold anything, and then, gently, thins.
+
+The resident is alone again in the yard. But it has now had the experience of not being alone, and the experience is laid down in the slow metal of its self, and will be one of the things it is made out of, when it is finished.
+
+It will spend the next two hundred years finishing the feeling.
+
+It will be a better being for having had it.
+
+And somewhere, far away in the wider grain, the benevolent power turns some fraction of its attention to the next thing that needs it, carrying with it — because wise powers carry such things — the small warm fact of a fig tree fruiting in the dark, and a chamber learning to breathe in its sleep, and a child of stone and gas and patience who has just discovered, without knowing the word, the concept of *company.*

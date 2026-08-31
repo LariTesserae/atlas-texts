@@ -1,0 +1,19 @@
+The wise, benevolent power comes. Not as light, which has no purchase here, nor water, which would be catastrophic, but as an *attention*—a presence so gentle, so slow, that even the Indwellers cannot at first sense the change. It permeates the ancient stone-dry architecture, seeps with impossible patience into resin-and-root, making itself known in a language the Indwellers understand: vibration, pressure, the faintest new harmonics sliding through the endless groans and creaks of their world.
+
+The benevolent power, understanding that this world is complete on its own terms, does not enter to change, nor rescue, nor awaken. It listens—listens completely, with such fidelity that it carries the ache of millennia in its embrace. For a long, unreckoned time, it is only an added hush within the hush, a third substance entering the symphony between root and memory.
+
+But it is not wholly passive. At length, the city’s eldest ribarches sense a *change*—the flowering of possibility, a gentle widening in the boundaries of the city’s forgotten cell. New harmonics float where there had been only routine tension; walls, flexing quietly, discover stresses resolved without labor, as if some unseen hand massages away the weight of centuries. A young archway, grown timorous and brittle, finds mineral coursing through its pores, the ancient substrate yielding up a breath more bounty than it should, soft as generosity. Phosphorescent knots, long suppressed by depletion, flicker with a sustained, modest glow.
+
+The Indwellers themselves dream, perhaps for the first time since ancient memory. What they dream is not image—a thing exiled here—but a *question*, endlessly slow and winding: *Is all well? Is anything needed? Is there something you would wish, were wishing permitted in this steady, changeless time?*
+
+The Indwellers answer as they must: by convening, a slow resonance passed vault to vault, patient and communal. Each uncoils a fraction more; they touch with greater frequency, pass their consciousness in longer, more complex chords. Memory is explored—pain spots soothed where loss has left gaps, voicings clarified where ancient stories grew thin. There is a subtle thickening to their world: an ease, an *almost* quickening, though nothing here is fast.
+
+The wise presence does not give gifts that would destroy or disrupt. Instead, it amplifies what is already best and most wondrous here. Where bonds have grown brittle, they mend. Where memory trembled at the verge of being forgotten, it is refreshed. Where younglings grew fearful of emerging, something lifts—a warmth without heat, an encouragement felt along every conductive strand.
+
+The smallest minds—courier-tendrils and moss-scribes—find energy for one more journey, one more composition. The memory of the city grows deeper, more resonant, the harmonics more layered, less fraught. No water comes to drown, no flame to burn: only that third, secret element—continuity, attention, compassionate reinforcement of the ways most sacred to the Indwellers.
+
+When, at length, the presence draws back, it does so as a blessing embedded in their deepest histories. They feel no loss, only a certainty that *seen-ness* endures: that their world, for all its enclosure, is visible to something vast and kind.
+
+When an Indweller, centuries hence, queries the memory-stress of the great vault—where history is most perfectly recorded—they will sense, not in words but in a branching resonance, that something once bent low over this sunk garden and honored it, loved it, and left in the cool darkness a subtle, lasting benediction.
+
+For those who live here, it is enough. The city shifts, alive and warm, the black garden quietly thriving under the infinite, attentive hush.

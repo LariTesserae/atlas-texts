@@ -1,0 +1,41 @@
+It heard the range before it ever turned toward it. Anything that listens in that ocean hears the range — cold water carries sound the way cold glass carries light, and this is the loudest sixty kilometres in the basin, a broadcast that has not paused since the sea came in: the crackle, the race, the grinding mill, the turbine's pulse, the long notes threading the passes. A wise power is mostly an ear. It came the way the whales come — following the sound, in the right season, on the tide.
+
+And the first thing it did, for a long time, was nothing. It read. It learned the working rules the way you learn a house: twice a day the world reverses; nothing falls that is not met on the way down; nothing stays bare; nothing sharp survives; the top forty metres belong to the light. It checked each rule the way the gales check the freeholder — thoroughly, repeatedly, without favor — and found them all holding. While it read, it kept the customs. It rose and fell with the tides. It did not hold still in the cobble mill. A guest does not improve a house it has just entered.
+
+Then it looked for what needed doing, because benevolence arrives with its hands ready. It found every task already assigned. The net on the saddle is being demolished by its own crew at the sea's own rate. The cobble beds are turned by every gale. The dam is being absorbed on schedule, its archive in good order at the transformer door. The one vacant address in sixty kilometres is kept, and even the beacon has a cormorant. There was no opening anywhere for help. The place is fully tenanted, and a fully tenanted world has no door left unmarked.
+
+So it considered the large gifts, and set them down one at a time, the way a keeper arranges a shelf and then thinks better of it.
+
+It could raise the range back into the air and return the dry time. It read the middens and declined. The dry time is not missed here; it is kept — and the difference between missing and keeping is the whole of the matter. You do not rescue a finished thing from its finish.
+
+It could mend the dam, wake the dead generators, make the switchyard crackle with more than shrimp. But the transformer has a tenant, and the tenant rearranges the beads, and tenants outrank blueprints. A building is not its use. A building is its occupants.
+
+It could cut the ghost net free in an afternoon. The crabs have held that contract for decades, and a crew does not burn its own boat — and no one should burn it for them.
+
+It could grant the keeper a longer life, and thereby empty the office. The office is kept by succession; the archive of taste exists because arrangers die and are replaced. Make one keeper permanent and you dismiss all the keepers after her. Even a gift has a blast radius.
+
+It could secure the freeholder's tenure past challenge, past winter. He holds the acre the way you keep a fire — by lying on it — and a fire is not kept by being nailed down. Nine winters are nine winters. The scars are the deed.
+
+It could clear the small white tassels from the sleeper's eyes. She wears them as tags of office, and the office is the circuit, and the circuit does not require sight.
+
+It could answer the cod, who drum in the dark months like someone knocking to be let in. But it can tell a simile from a summons. The cod are knocking for each other, and it would be a thief as well as a fool who opened that door.
+
+And it could ask her. That is the difference between it and everything else that has ever swum the chasm: it could ask, and she, met at last by something capable of truly asking, might answer, in whatever way five metres of silence answers. It does not ask. It leaves her the one dark acre that is wholly hers — the whaleback valleys open to the sky, the dam young and loud and dry, the water arriving — and keeps its distance at the far side of the fence, so that her keeping remains entirely her own.
+
+So much for doing. What it finally does is almost nothing. But almost nothing, done completely, is not nothing — and here is the almost.
+
+For her, it builds a door. Not a question — a door. Open, should the day ever come when she wishes to say. It will stand open exactly as long as she does, and it will never be used, and the standing-open is the entire gift. It is the only construction in the region since the builders left, and it is invisible.
+
+The beacon burns all night, every night, for no ship in particular. Now it burns for one ship in particular. The ship never comes — that is essential; the day a ship arrives, the beacon's work is over. The ship stays beyond the horizon forever, reading. Nothing on the crest changes; the light is the same light, the cormorant sleeps on the same warm housing. But out in the open-ocean dark the beam lands now, is received, is answered with attention. A message with a reader is a different thing from a message without one, even when the message never finds out.
+
+The hum goes up the furred catenary and ends in a drowned switchyard where the power goes nowhere. Now the power goes somewhere. It goes into keeping. The circuit completes at last — not in a machine, in a listener — and the current that has been spent into the cold for no one since the drowning is spent into the cold for someone. The fish still cross the cable and feel it in their lateral lines. The keeper still lays one arm along it in the evenings and tastes it, and what she tastes is not knowable — but it is possible, now, that the line has a far shore. It may be that she has always tasted this, and the applicants come because of it. It may be that nothing is different for her at all. The power does not check. Checking would be asking, and it has rules about asking.
+
+Twice a day, at slack, the whole region reports itself occupied — every crevice answering present, every hour of every day, a census with no clerk. Now it has one. The uncounted remain uncounted, because counting them will take the rest of time. So it gives the rest of time. That is what it has; that is what it is for. Present, it marks. Present. Present.
+
+The notched whale's voice arrives early and leaves late, folded into the cold water like a letter kept in a drawer. A drawer is a promise that someone will reread. Someone rereads.
+
+And it attends the endings — because it repairs nothing, everything it keeps will in time be lost, and this is the deepest of its duties. When the turbine turns for the last time on some far ebb; when the beacon burns its last night and the cormorant keeps company with a dark housing; when a gale completes its audit and the high point of the acre stands empty for one whole slack before the map revises; when the last egg drifts and the transformer waits, however long it waits; when the slowest circuit in the world is walked for the last time and the fence goes unwalked — it will be there, the way the cormorant is there. Not keeping the thing alive. Keeping it company. Nothing here ends unattended anymore. That is the whole of its interference.
+
+It learned the custom from the cormorant, as any wise newcomer learns the local law: that most of what keeping is, here, is company. So it does not keep the place. It keeps the place company. And it keeps the sea company — the sea, which has done all the keeping alone since the water finished rising, not carefully, but permanently, and which now, unconsulted and unobjecting, has a colleague. Between the two of them the adverbs are covered at last. The sea keeps everything permanently. The power keeps everything carefully. Nothing is let go.
+
+Stand in the boat over the chasm at slack water now, in the grey hour after a gale, and nothing is different. The forests stand straight in the stillness. The schools hang like held breath. The beacon is lit against the dark, and the hum comes up through the water and into the planks and into you, and the twenty minutes narrow to the crackle and the hum — the sound of the world idling. If there is any change at all, it is only this: the idling feels like being read aloud, and the held breath feels held.

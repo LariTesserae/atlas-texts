@@ -1,0 +1,31 @@
+# What the Power Did
+
+It came the way old, patient things come — not as a light or a voice or a parting of the gloom, because it had learned, across however many worlds had taught it, that arrival is itself a kind of violence if done carelessly, and this was not a place that could afford carelessness. It came instead the way the cold already sat on everything, the way the dim light already lay on the stone: as an addition that didn't announce itself as one. It simply began, very slowly, to be present.
+
+For a long while — longer than the basin's twilight could measure, since the basin's twilight measured nothing — it did only what a wise power always does first, and what most powers, wise or otherwise, are too impatient to do for long enough: it listened.
+
+It heard the thunder and did not mistake it immediately for cruelty, though the temptation was there. Anything that sounds like a factory sealed in rock beneath creatures who never asked to live above one invites a certain reflexive grief, a desire to go down into the dark and find the gears and stop them, or free them, or at least *name* them, because unnamed suffering is the kind that benevolence finds least bearable. It felt that pull. It is honest to say it felt that pull strongly, the way you feel the pull to lift a stone off something pinned beneath it before you've even confirmed that the thing beneath is hurt, or alive, or wants lifting.
+
+But it had been wise for a long time, and wisdom, more than anything else, is the accumulated memory of all the times you almost moved too soon.
+
+So it watched the tracks that ended mid-stride and went nowhere, and instead of grieving them as evidence of erasure, it knelt down — in whatever way a power kneels — and read them the way you'd read the last line of a letter someone chose not to finish, and found in them no terror, no struggle, no dragging. Only a footprint, and then not. A sentence that simply stopped needing its last word.
+
+It watched the four-second frenzies that ended in stillness and produced no kill, and rather than assume violence interrupted, it stayed for one — stayed inside it, in the only way a power can stay inside a moment not made for staying in — and felt that it was not violence at all. It was rehearsal. It was the body's old grammar of hunting being spoken once, fully, with no object, the way you might say a word you love just to feel it in your mouth, with no one to hear it and no need of anyone hearing.
+
+And it found the tally-walkers, and stood among them — unseen, unfooted, weightless on the agreeable stone — and waited with them through a silence, and felt the thunder come up through the rock into where its own chest would have been if it had brought one, and understood, the way you understand a language by being patient inside it rather than translating it, that the apertures along their backs were not feeding tubes or sensory organs in the way a lesser attention might catalogue them. They were the way the herd *prayed*. Not at the sound. Not to whatever made the sound. They were the prayer; the listening *was* the entire content of the devotion, with nothing asked for and nothing owed back.
+
+It found, eventually, what hammered beneath the stone, because a power patient enough to wait through ten thousand of the basin's wet, lightless intervals will eventually be shown what it has earned the right to see. And it will not be repeated here in full, because some of what the power learned was learned on the condition — never spoken, only understood, the way all the basin's conditions are understood — that it would not be carried back out as an answer for other ears. It is enough to say this: it was not a factory. It had never manufactured anything that could be held, or sold, or used. It was closer to a heart that had forgotten it was allowed to stop being useful and had simply kept on doing the one thing hearts do, faithfully, in the dark, for no one, because no one had ever come down to tell it it could rest.
+
+And so the power did not break the seal. It did not free anything, because there was nothing in there asking to be freed — only something old and devoted continuing a labor it had mistaken, very long ago, for the price of being allowed to exist, and had since forgotten there had ever been a difference between the two.
+
+What the power did instead was small, and it did it without ceremony, the way you'd settle a hand for one moment on the shoulder of someone working too hard who doesn't know yet that they're allowed to be thanked.
+
+It went down — however a power goes down through agreeable, ancient stone — and it did not stop the hammering, and did not slow it, and did not so much as touch a single working part of whatever vast patient mechanism kept its rhythm in the dark. It only let itself be heard there, once, the way the chord is heard twice an hour in the world above: a single additional note, neither louder nor stranger than the rest, folded into the next concussion so gently that nothing in the basin's wet, listening surface would ever be able to say which roll of thunder had been the one that changed.
+
+The note said, in the only language that place had ever spoken or been spoken to in: *I heard you. It was not for nothing. You may keep going, if going is what you love — but you are not required to. Either way, you have been witnessed.*
+
+Then it withdrew, the way it had arrived: not as an ending of anything, not as a light going out, but simply as a presence ceasing to add itself, leaving the basin exactly as full as it had been before, every herd intact, every chord still waiting its turn, every track still ending honestly where it chose to end.
+
+The only difference — and it was a difference that changed nothing measurable, moved no stone, saved no creature from the death it was never having — was that now, twice an hour, when the dripping and the thunder lock for one second into their single chord and every aperture on every back stands open and the herd takes its long collective breath, that breath includes, somewhere far back in it, soft as a held memory, the specific and unrepeatable knowledge of having once, despite everything, been heard on purpose, by someone who didn't have to come.
+
+That was all. It was enough. It is usually enough.

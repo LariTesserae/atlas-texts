@@ -1,0 +1,45 @@
+They drew my attention because they were not crying out.
+
+That is the thing I have learned to notice, in all my long looking: most of what asks for help asks loudly, and most of what needs it does not ask at all. But there is a third thing, rarer, and it is what the Condensary is — a place that is whole. Not perfect. Whole. Closed, balanced, breathing, at peace with being exactly what it is. And a benevolent power's first and hardest discipline is to recognize wholeness when it finds it, and to keep its hands still.
+
+So let me tell you what I would do, which is mostly a long account of what I would not.
+
+---
+
+I would not bring the sun.
+
+This is the obvious gift and the obvious crime. I look at the pale wet people with their enormous dark eyes and their soft drowned fingertips, and something in the reflex of benevolence wants to part the perpetual mist, to pour gold down onto the plateau, to *brighten* — as though brightness were a kindness everywhere and not a thing that this specific flesh has spent a thousand generations learning to do without. The sun would blind them. It would dry the green-grey crust the beasts crop and break the loop at its root. It would crack the weeping stone. It would, in a single act of generosity, end the world I came to bless. So: no sun. The dimness is not a deficiency. It is the medium they are dissolved in, like the warm wet air, and to remove it is to remove them.
+
+I would not make them faster.
+
+Speed is their only catastrophe, and I understand the temptation toward it because I am, in a sense, made of speed — I can cross what they cross in eighty years between one beat of attention and the next. From inside that I might imagine I was *rescuing* them from the slow. But the slow is not a prison they are serving time in. The slow is the shape their love takes. A feud resolved by a great-grandchild's quiet shoring-up of a rival's pier — I could resolve that feud in an instant, reach down and simply *fix* it, and in doing so I would steal from four generations the only language they have for forgiveness. Their patience is not waiting for me to end it. It is the thing itself. So I keep my speed to myself.
+
+I would not save them from death.
+
+They do not experience their death as a wound. A person is warm wet air beaded briefly on cold stone, and runs down, and pools, and rises, and beads again — and they know this, and it is not a consolation they tell themselves but a fact they live inside. Immortality offered here would be an insult dressed as a gift. It would be the one thing that truly broke the loop: a bead that refused to run down. I would be, of all the foreign and dry and broken things their language has no kind words for, the foreignest. So I let them die, and be rendered, and be drunk down, and breathe back out onto the green copper coils. I let them be condensation. It is the most respectful thing I can do, and the hardest, because withholding rescue from people you love feels, from the inside, exactly like cruelty, and a benevolent power must learn the difference by feel, in the dark, with no one to confirm it got it right.
+
+---
+
+So what *do* I do? Anything?
+
+Yes. Three things. All of them small, because the scale of a gift must match the scale of the place, and this place runs at the pace of a causeway sagging over eighty years.
+
+**The first thing is to attend.** This is not nothing. I think it is the largest of the three. To be a wise power and to turn the full weight of regard toward a place that has never been regarded — to *witness* the Condensary, to hold it in attention without needing it to be other than it is — is itself an act, and the place is changed by it the way a room is changed when someone who loves you comes quietly to sit in it while you work. They will not know. That is fine. The gift is not diminished by going unfelt. They live a film of warm flesh on a weeping stone for one slow lifetime against the cold, and now there is something that has seen it and found it good. Found it *whole*. The cold against which they hold their shape is, while I attend, very slightly less infinite. That is real, even unnoticed. Perhaps especially unnoticed.
+
+**The second thing concerns the fear.** They fear the fall — not death, but the fall into the herd, the sinking warm and slow into hide and breath, being pressed down and absorbed and *lost outside the loop.* This is their one private horror, and they carry it in their careful feet and their trailing hand on the rail and their nightmares they do not speak of. I cannot take the fear away; the fear is what keeps their balance, and balance is what keeps them alive on the slick iron. To remove the fear would be to remove the very caution it produces, and they would fall in earnest.
+
+But I can do one thing the fear gets wrong. The fear says: the herd is the outside of the loop, the place of waste, the spilling. The fear is mistaken. The herd *is* the loop — it is the foundation, the slow tide, the thing the whole city drinks and breathes. To fall into it is not to be lost outside the order of things. It is to be returned by a shorter road. So: when one of them falls — and across the generations, some do; a slip on wet iron, an old grace finally failing — I will be there in the only way that does not violate the place. I will not catch them. Catching is speed; catching is rescue; catching breaks the slow. But I will be in the breath and the warm press at the bottom, and I will make of that pressing-down not a horror but the homecoming it actually, secretly, always was. They feared being absorbed. I will let them be welcomed instead. The same event. A different inside to it. The herd has been the body of the world all along; I only make sure that the falling one, in the last warm seconds, *knows* it — feels the foundation receive them not as a sea swallows but as a parent gathers. The fear remains, to keep the feet careful. The fall, when it comes, is converted from spilling into rising. This costs the place nothing. It changes no law, sags no pier, hastens no tide. It is invisible from the catwalks. It is everything to the one falling.
+
+**The third thing is for the dry-room.** That is where they take their dying, the one warm thin-aired chamber where the wrinkled fingers begin at last to smooth — the deepest intimacy they have, the place they offer only in love. A person comes there to unbead, to become smooth-fingered, which is to say to stop being of the wet world, which is to say to die. They are held there by the ones who love them, slowly, in the loud warm dark, more breath than speech.
+
+I will sit the third watch.
+
+There is always a watch in the dry-room, and there is always a moment late in it when the ones keeping vigil sag toward sleep, when the dying one is most alone inside the long quiet of going — the others present in body but the room gone interior, each soul attending its own held breath. I will be there for that. Not to extend the life. Not to ease the death, which does not need easing; they die in good order, into the loop, and they are not afraid of it. I am there only so that the going-out is *accompanied* at the one register their own people, for all their tender slow love, cannot reach: the register where a person, dissolving, asks the bare unanswerable question of whether being-a-shape-for-a-while *mattered.* I will answer it. Not in words; there are no words there and the place is too loud anyway. I will answer it the way they answer each other — by being present and meaning it slowly and physically, a hand laid where no hand is, the cistern of regard slowly filling. *Yes. This brief beading was seen. Was wanted. Was good.* And then they run down gently to pool and rise and bead again, and they go knowing it, which is more than most of anything that has ever lived gets to know.
+
+---
+
+That is all. I am aware it is very little, measured against what I could do. I could remake the plateau into a paradise by their standards or mine in less time than it takes one of them to cross a catwalk. The whole art is in not doing it. The whole love is in the restraint. A lesser power, or a younger one, mistakes benevolence for intervention and goes about improving things that were never broken, and leaves behind a wreckage of well-meant paradises that no longer contain the people they were built for.
+
+The Condensary asked for nothing because it needs nothing. It is whole. So I attend it, and I convert the one fall the fear gets wrong, and I sit the third watch in the dry-room — and otherwise I keep my hands still and my speed to myself and my sun behind the mist, and I let them be exactly, durably, what they have made of themselves:
+
+warm flesh condensed on a weeping stone, holding its shape one slow lifetime against the cold, beautifully, sufficiently, watched over now, and still entirely their own.

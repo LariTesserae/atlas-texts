@@ -1,0 +1,65 @@
+# The Attention
+
+It came the way water came, which is to say it came downward and along the only path there was, and then it stopped, because the place was the end of that path.
+
+But it came without any of the three disturbances. No heat: it had no metabolism to shed. No breath: nothing in it needed the handful of air the chamber trades with the pan twice a day. Only the third one, attention, which is the one of the three that is not a load. This mattered. It had thought about it on the way down. A human being standing in that room is a weather system with a face; a candle is a catastrophe; a lamp with a battery would raise the wall temperature under it by a measurable amount and the lichen would answer within a century. Whatever else it did or refrained from doing, it could at least be the one visitor whose visit was free.
+
+Its first act was to wait. Not as a gesture — it needed to. Nothing in that room could be perceived at speed. Read the chamber in a human hour and you get a still photograph and the false conclusion that follows from it, which is that nothing is happening. So it slowed until the root tip was moving, and the moving root tip is a thing you can only see at about one one-thousandth of a heartbeat, and at that rate the daily bar of light was a strobe and the year a flicker and the whole population of the silt was a slow boil of division. It stayed at that setting for eleven years and did nothing else. This is not patience. Patience is for beings with somewhere else to be. It is simply the correct exposure.
+
+---
+
+## The audit
+
+Benevolence looks first for pain, because pain is the thing about which there is never any argument. So it went through the room looking for something that hurt.
+
+It checked the fine white hairs under the silt, which are working against a suction of some tens of atmospheres, and found no strain in any sense that could be cashed out as suffering: a cell wall under tension is not a hand under tension, the numbers are terrible and nobody is holding them. It checked the crown up in the burning months, clenched shut, running at the very bottom of its stomatal budget for eleven weeks — and found a plant doing exactly what it is for, at the edge, but not over it, and no faculty present anywhere in the tree by which the edge could be experienced as anguish. It checked the moss, in case a standstill of two centuries contained anything like a wait. It did not. There was no one in there waiting. There was a folded chemistry and a set of instructions, both intact, and the absence of any process by which the interval could be registered as long.
+
+It checked the trillions. It checked the archaeon in the pore space that had been most of the way through a single cell division since the fall of a city it had never heard of. It found no complaint.
+
+It found no predation, no starvation in the felt sense, no fear, no wound, no fever, no disease, nothing rotting, nothing trapped. The chamber's whole vocabulary of mercy — release, cure, feed, warm, cool, free, comfort, avenge — had nothing to grip. Every tool it had brought was for a different kind of place.
+
+It recorded this without disappointment, which was the first hard thing it did. There is a hunger in any power to be needed, and this room is very beautiful, and beautiful things that don't need you are a specific test. It noted the hunger as its own and set it down.
+
+Two items only went into the column of genuine precariousness, and it looked at both for a long time.
+
+The first is the throat: six body-lengths of dry shaft through which the entire enterprise has to pass, the crown's carbon going down and the rock's vapour coming up, in a column of air that is the only part of the tree's world with weather in it. Everything the fig is depends on that one narrow, unprotected passage, and always has.
+
+The second is the wasps.
+
+---
+
+## The gifts it did not give
+
+**Water.** It could have wetted the room, and the moss would have gone green within a quarter of an hour, actually green, for the first time in four hundred years, and this would have been the most gratifying thing available to do. It declined. Sending water down that shaft is not a kindness to a room, it is the arrival of the room's only natural disaster: the silt polygons erased and re-laid, the salt flowers dissolved and reprecipitated elsewhere, the oligotroph communities of the crust — the slowest societies on the planet, assembled full-stop by full-stop since the last flood — drowned in a rush of dissolved organics they are not built to survive, out-competed in a week by fast opportunists, and gone. Then the fast ones starve, and the slow ones have to begin again from spores and stragglers, and the four thousand years it takes them to get back to where they were is four thousand years that would exist only because it wanted to see something green. It also declined the intermediate, sensible-sounding version, a small amount of water, delivered gently, because a small amount of water delivered gently is a gradient, and this room's whole nature is that it has no gradients left to run down.
+
+**Light.** It could have raised the daily bar of light to an hour, or made the shaft a window. The stripe on the wall would have thickened; the algal smudge would have spread; there would have been more life, by weight, which is the metric most powers reach for first. It declined. The stripe is not a limited version of a better stripe. It is an organism precisely fitted to a photon budget of some minutes a day, and it has drawn the sun's annual wander on the wall in a hand so fine that it is, among other things, the only clock in the room with a memory. Widen the mouth and you get a coarser, faster, fatter growth that erases its own archive, and you get evaporation, and the pore film thins, and the fig's fine hairs come up short, and the whole balance tips in favour of the part of the ecology that can be seen. It did not want a room that photographed better.
+
+**Warmth.** Already given. Not by it. Given by the earth's average of everything that has ever happened up there, which is the finest engineering in the place and needed no help.
+
+**Insects.** This was the real temptation and it deserves its own paragraph, because under the largest fallen block there is a complete and correct web, furred with dust, holding nothing, and the web is a proposition, and the proposition is false. A benevolent power can make a false statement true. It stood in front of that web for a long time at the root's tempo, and worked out what would be required: a population of flying insects, which requires food, which requires decay, which requires that things in this room begin to rot, which requires humidity and a temperature swing and an import of organic matter, which means the end of the mineral smell, the end of the intact silt, the end of a chamber where nothing moulds or sours, the end of the room. To vindicate the spider it would have to demolish the house the spider was wrong about. And the spider, which came down on a thread or fell, and did in absolute darkness the one correct thing it knew how to do, is not owed vindication. It is owed accuracy. It made the only act of faith the chamber contains, and it was mistaken, and the mistake is in tensioned silk and has outlasted every insect that ever lived within a hundred kilometres. The power let it stand. It took the proposition as addressed to it, since there was no one else to address, and answered it truthfully: *not here.* Then it kept the sentence.
+
+**Speed.** It could have made the root grow faster. There was no argument for this that was not simply impatience with the local rate.
+
+**Longevity for the tree.** It could have underwritten the fig against every drought to come, and it declined, because the flowstone curtain has hollow root-casts running through it at four levels, and the felt of mineralised roots under the silt is a record of the same slot occupied and vacated and occupied again, and the gaps are not failures in the pattern. They are the pattern. A ten-thousand-year vacancy in which the chamber holds its number and waits without waiting is not a wound to be prevented.
+
+**A sign.** It left nothing scratched on the wall. Nothing arranged. Not one grain of silt shed off a crack-edge earlier than it would have. Powers like to be met, and there was nobody there to meet it, and the desire to be found later by someone with a lamp is vanity with a long fuse.
+
+---
+
+## What it did
+
+It read the archive, which is the one thing in that room that had been accumulating for no reader. It read the ghost bands above and below the living stripe and recovered from them the four historical apertures of the shaft's mouth and the two centuries when a root-buttress narrowed it to a slit. It read the silt down through its layers and recovered every flood: nine, since the water left, the oldest a metre and a half down, the most recent four hundred and seven years ago, arriving in the late afternoon from the southwest. It read the salt at the margin and separated the fraction that is the memory of the last water from the fraction that is the residue of a transaction with something alive, and got the ratio right. It counted the population, all of it, and did not round.
+
+It learned the tenant as an individual, which is a thing that had never happened to it. Not *a fig* — this one: the particular route by which its largest rope-root descends the fluting, the two blocks it routed around some centuries back, the healed tear on the ceiling run where a slab spalled and took a third of the tree's plumbing with it in a year the crown nearly did not survive, the exact radial map of the hair-fan under the silt, which is the only name this organism has ever written and it writes it very slowly and only once. The power declined to give it a better name. It memorised the map instead.
+
+It checked the schedule and found that the moss's plan is not in error. There is a storm coming that the caliche will not absorb, and the dished pan will do what it was graded to do, and the tongue of brown water will find the one hole under the fig, and the alcove will be wetted, and the scurf will swell and go green and spore, and this will happen in something under nine hundred years without any assistance whatsoever. Most of the good things a power wants to do are already scheduled. Discovering this is a large part of wisdom and a small part of relief.
+
+It set aside one contingency, and this was the only forward commitment it made. If it should ever come about that the lineage would otherwise end — not merely this tree, but the succession, the slot, no bird, no wasp, no sucker, nothing left anywhere within reach of this pan that could ever arrive at the lip of that shaft again — then a seed will arrive at the lip of that shaft. Once. Not sooner. It hopes not to be needed, and a held intention is not a gradient, and the room cannot detect it, and that is the whole design of it.
+
+And it went to find the hand.
+
+Because the account of the room breaks off in the middle of the hand, and the room itself absorbed the event without comment, at its own temperature, which is what the room does and cannot help doing. There is a flake of dark chert half in the silt at the base of the shaft, struck not broken, one edge worn to a dull sheen down its middle third by cutting something soft, and it is the only foreign object in the chamber, and it means that once, for a short while, there was a mind down there.
+
+It found her. Late in a hot afternoon, eleven and a half thousand years ago, a young woman came across the pan and knew the hole was there because her mother had known, and she went down out of forty-four degrees into blood-warm dark and sat with her back against the smooth curve where the ceiling comes down to meet the floor, and cut open the small hard figs she had gathered, one after another, in the bar of light, which reached the floor in those days. She was not in trouble. She was not hiding. She was cool, and it was quiet, and she stayed until the bar reddened and tilted up the wall and went out. Then she went up. She put the flake down and did not notice putting it down, because it was one of four she had and the least good of them. She lived another thirty-one years, most of them eighty kilometres east of that pan, and she thought about the room perhaps a dozen times in her life, usually in heat, and told two people about it, and neither of them ever went.
+
+The power holds this. Not carved anywhere; held. That she was there, that it was the coolest place she ever knew, that nothing bad happened to her in it, that she was the only one of her kind ever to see the inside of that particular shape water made, and that the flake by the shaft is not debris but the last remaining trace of an afternoon that was, in

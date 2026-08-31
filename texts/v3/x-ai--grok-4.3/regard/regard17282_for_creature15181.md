@@ -1,0 +1,11 @@
+The power arrives without announcement. It does not descend so much as the cleft’s own vapor thickens for a moment into something more coherent, a slow gathering of attention. What leans over the fracture is not a shape but a noticing: patient, wordless, older than the peat that split to make this room.
+
+For a long while it simply listens to the factory rhythm—the measured vents, the drip percussion, the synchronized pulse of larvae and the soft ticks of bursting oxygen. It hears the frogs flick and settle, the reeds shedding condensation in patient tracks. Nothing is lacking; nothing is excessive. The power feels, with a faint and ancient surprise, that this place already runs like a heart that needs no instruction.
+
+Still, it cannot quite leave.
+
+Its first act is almost nothing: it cools the upper lip of stone by one additional degree, so the condensation gathers more thickly and falls in slightly finer threads. The change is smaller than a sigh. The invertebrates register it only as a richer film to skate upon; the frogs feel the landings grow a fraction softer. The rhythm does not break.
+
+Next, the power lays a single, invisible filament of attention across the cleft’s mouth. Not a barrier—only a preference. Larger feet, larger roots, larger weathers now drift aside without ever knowing why. Inside, the work continues undisturbed. The power records the gratitude it receives: none at all. The creatures simply go on cycling water and gas and light as though the world had always been this careful.
+
+Last, it leaves behind a memory of itself, so faint that only the stone will ever feel it. When the cleft eventually closes again—when the lips of peat and mineral knit shut—the memory will remain inside like a preserved breath. Should the fracture ever reopen in some distant age, the same cool, blue-lit factory will flicker back into being, already tuned, already inhabited, already singing its steady meter. The power will not need to return. It will only have to notice that the song is still running, and smile without interrupting.

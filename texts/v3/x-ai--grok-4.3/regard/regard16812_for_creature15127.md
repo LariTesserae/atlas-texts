@@ -1,0 +1,13 @@
+The power arrives not as a visitor but as a slower season. It does not descend through the fissures; it condenses, over centuries, from the same mineral breath already present in the cool pockets beneath the swells.
+
+At first it does nothing that could be perceived as action. It simply holds the chamber in a longer attention than the chamber has ever been held. Where light shafts once crossed and departed, one shaft now lingers an extra fraction of a second before moving on, as though reluctant to leave. The droplets that fall from the upper rims do not increase in number, yet each one strikes with a slightly deeper resonance, as if the stone beneath the water is answering back more clearly than before.
+
+The translucent sheets of vegetation, the only forms that have never quite completed their drying, are permitted to finish that small act. Their curled edges relax by the width of a single cell across a thousand cycles of light and dark; the egg-cases sheltered beneath them remain exactly where they were laid, yet the spores they contain now carry an additional instruction: they may wait even longer before germinating, or they may not germinate at all and still be complete.
+
+The flat creatures in the pools receive no new water, only a finer calibration of temperature. Their dimpled surfaces now register the difference between one droplet and the next with greater fidelity, so that the microscopic channels they carve become even slower and more precise—almost a kind of writing that the crustaceans will read for longer than the crustaceans themselves will exist.
+
+The elongated insects discover that the convection currents can, on rare occasions, lift them a little higher than before, high enough that their wings catch two light shafts at once. The extra fraction of warmth is stored not in their bodies but in the precise overlap of their wings when they settle again, a configuration that now persists slightly longer after each adjustment.
+
+The power does not speak to any single form. Instead it lengthens the interval between disturbance and recovery throughout the entire chamber, so that every ripple, every faint scratch, every migration of pool edge has more time to be felt before the next arrives. The chamber, already slow, is granted a further measure of slowness that does not hinder its existing metabolism but surrounds it like an additional membrane of still air.
+
+In this way the benevolent attention becomes indistinguishable from the chamber’s own nature. The only new trace is a faint, almost inaudible difference in the sound of condensation striking water: the interval now contains a barely perceptible echo, as though the droplet is being answered by something the same size and temperature as itself, already there.

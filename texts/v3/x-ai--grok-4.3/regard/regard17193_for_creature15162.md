@@ -1,0 +1,21 @@
+The power arrives not as a command or a light, but as a listening.
+
+It hovers first above the mist, where the perpetual overcast meets the thinner dark. For a long while it does nothing except receive. It feels the slow heave of the basalt plates, the soft metallic sigh of re-coupling pipes, the minute ticking of isopods inside their quicksilver seams. It tastes the condensation that carries dissolved metal into every lung and leaf-spore. It watches the basinfolk re-hang a door on the opposite wall after a sudden lift, and sees in that act the same intelligence the grazers use when they place each hoof exactly where the one ahead has already tested the ground.
+
+Recognition follows. This is not a broken place. It is a single living rhythm that has learned to metabolize its own instability. The wise power understands that to impose stillness here would be a form of violence.
+
+So it touches only what already knows how to move.
+
+In the hanging gardens it lengthens, by a single heartbeat, the moment when the mist grows thick enough for the cricket-winged flyers to drink. Their wings, already never quite dry, become slightly more buoyant; they fall a fraction more slowly, seed a fraction farther. The rope-vines answer with one more node of growth per season, their black-green leaves holding the constant damp a little longer before releasing it downward. The change is so slight that even the crawlers do not notice, yet after three cycles the insulation on the lowest blocks has thickened enough that fewer children wake to the tremor of new vents opening beneath their beds.
+
+To the shaggy grazers it gives nothing visible. Instead it deepens the faint telepathy already present between herd members—the shared sense of which seam is about to crack—so that when a young animal is tethered near a fresh steam plume, the rest of the herd lingers one plaza farther away without being asked. The wool they leave behind still redistributes the fog, but now it also carries a trace of the creatures’ calm into the brick itself. Walls that once wept rust begin to hold a faint internal sheen, as if the condensation were being guided rather than merely endured.
+
+For the basinfolk the power is quieter still. It does not alter the rock or the engines. It simply makes the low, bone-deep thrum of the torque-towers slightly more intelligible to those who already listen through their soles. A foundry worker three levels above a lava blister wakes one night with the certain knowledge that the blister will cool in six turns rather than eight; she moves her tools accordingly and loses nothing. Another, hearing the same altered pitch, decides not to re-level a corridor after all, trusting that the next subsidence will bring the floor back into alignment. Small mercies, nothing more. The children still learn the old ways of reading tremor and vent; the power only makes the lessons slightly kinder.
+
+Deeper, among the quicksilver seams, the isopods find their ticking cycles briefly synchronized across neighboring plates. When the rock cracks they do not tumble into separate darknesses quite so often. The colonies remain small; the power is careful not to give them abundance that would unbalance the mineral cycles the crawlers depend upon. It only removes a little of the loneliness that comes from living inside something that is always breaking.
+
+Nothing is commanded. Nothing is saved from its own nature. The power simply makes the already-present patience a little more legible to itself. After a time it withdraws, not upward but outward, diffusing into the same overcast that has always pressed the basin close. Those who live there notice no sudden change, only that certain days feel, for no clear reason, slightly less sharp in the lungs.
+
+The rock continues to rise. The vines continue to thicken. The doors keep being re-hung. Only now, when a plaza lifts and the animals adjust their single-file passage, there is sometimes a moment—brief as a droplet falling between catwalks—when every living thing in that moment seems to be answering the same unspoken question with the same untroubled motion:
+
+Yes. Still here. Still becoming.

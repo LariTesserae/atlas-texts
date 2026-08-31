@@ -1,0 +1,51 @@
+The benevolent power considers, for a long time, what to do.
+
+This is its first and most important act. Not all wisdom announces itself; not all benevolence intervenes. The power has crossed great gulfs to arrive at the rim of this cirque, and the temptation when one arrives somewhere is always to *do*, to justify the journey by the disturbance one makes. The wise power knows this temptation and sets it aside, the way one sets aside a sharp tool before reaching into a basket of eggs.
+
+So it watches first. It watches for what, in human time, would be many years, though the power does not move in years. It watches the woman strike obsidian against obsidian. It watches the ice ladder rise where the bone ladder fell, and the next bone ladder rise where the ice ladder shattered, and the long argument continue. It watches the children emerge from the warm seep and not cry. It watches the elders curl slightly inward, already practicing the shape they will leave behind.
+
+And the power begins to understand a thing that, even with all its wisdom, it had not understood before arriving: that this place is not suffering.
+
+This is important. The reflex of benevolence, especially great benevolence, is to read difficulty as suffering and to relieve it. The cold here is murderous; the light blinds; the silence presses; the architecture is endlessly destroyed. Any lesser kindness would have already acted — warmed the basin, kindled great fires, taught the people speech, taught them to weep at birth and laugh at meeting. Any lesser kindness would have mistaken this for a wound and tried to close it.
+
+But the power sees what a lesser kindness would not see. It sees that the people are not enduring the place; they are *in conversation* with it. That the silence is not a deprivation but a medium, dense and articulate, in which their whole grammar lives. That the cold has not stripped them but composed them — long-spined, obsidian-eyed, opalescent-veined, foot-listening — into beings perfectly tuned to one particular frequency of the world. That they are not, as the visitor first imagined, votive objects left as reminders. They are participants in a slow collaboration between flesh and water, and the collaboration has its own dignity, its own internal completeness, its own beauty that is not for anyone outside it to assess.
+
+To warm the basin would be to murder them more thoroughly than the cold ever could.
+
+So the power does not warm the basin. It does not bring fire. It does not bring speech. It does not lift the silence. It does not even let itself be seen, at first, because to be seen by such a power is itself an event, and events here travel through the ice, and the ice remembers, and the power does not wish to be remembered as an interruption.
+
+What, then, does it do?
+
+It does three small things. They are so small that, by the standards of powers, they barely qualify as acts. But the power has learned, over its long benevolence, that the size of an act and the rightness of an act are almost never the same measurement.
+
+The first thing it does is *witness*. This is not nothing. To be truly seen by a wise and benevolent attention is a form of grace that asks nothing of the seen. The power composes itself into a kind of standing regard at the rim of the cirque — not a presence the inhabitants can detect with their foot-listening or their thermal-reading skins, but a regard nonetheless, held steady across what would be, for them, many generations. The basin is witnessed. The woman striking obsidian is witnessed. The ladder rising in ice from the memory of bone is witnessed. The midges in their inverted columns of smoke are witnessed. Somewhere in the structure of reality — which the power knows intimately, having helped, in small ways, to mend it — a ledger is kept, and on the ledger it is now written: *this place existed, and these beings lived here, and the form of their living was this.* The ledger is not for the inhabitants. It is for the universe, which sometimes forgets its own most particular accomplishments. The power refuses, on this place's behalf, the universe's forgetting.
+
+The second thing it does is *protect, minimally*. Not from the cold, not from the silence, not from the ice's loving destructions. These are the medium of the people's life and must not be touched. But the power has seen, across many worlds, the kinds of disturbance that come from outside a closed ecology and undo it not by malice but by mere incompatibility: the wandering comet, the spore drifting on a high jet stream, the curious traveler with the wrong microbes on her boots, the industrial age arriving from elsewhere with its noise and heat. From these — and only from these — the power sets a quiet ward. Not a wall; walls are crude. More like a slight inclination in the probabilities, a soft pressure on the dice of chance, so that the comet's trajectory shaves by, so that the spore lands on a barren ridge instead, so that the curious traveler finds a different mountain calling to her that season. It is the gentlest possible custodianship: the power agrees to be the one who notices the things that could ruin this place from outside, and to nudge them, very slightly, elsewhere. The inhabitants will never know. The ice will never know. The argument between memory and entropy will be allowed to continue on its own terms, the only terms that matter.
+
+The third thing it does is the smallest, and the strangest, and the one the power deliberates over the longest.
+
+It leaves an answer.
+
+Not to a question the inhabitants have asked, because they have asked nothing; their grammar does not contain the kind of asking that goes outward beyond the cirque. But the power has watched the woman climb to the aerie-room, has watched her sit beside the ember-bowl, has watched the slight curl inward that says *I am practicing the shape the glacier will remember*. And the power knows — in the way it knows many things, by the fine instruments of its long attention — that beneath the curl there lives a particular wordless wondering. Not *am I alone?* The inhabitants are not lonely; the basin is too crowded with presences for loneliness. But something adjacent to that. A wondering, perhaps, about whether the shape they are practicing is *received*. Whether replication is a transaction with anything, or whether the ice's memory is only the ice's, closed in upon itself, and the inhabitants are pouring their forms into a vessel that, however faithful, cannot answer.
+
+The power decides — and this is the decision that takes the longest — to answer once, in a way that does not break the silence and does not break the grammar.
+
+It does this: in a high crevice, in a place the woman will pass on her way down from the aerie one day, the power arranges, with infinite delicacy, for a single formation of hoarfrost to grow in a shape that is not a replication of anything the inhabitants have built. It is, instead, a replication of *her*. The slight curl inward. The long spine. The reach of the fingers that thread sinew through basalt. Not a portrait — the ice is not capable of portraiture, and the power will not violate the ice's nature by forcing it to be. It is, rather, the *posture*, rendered in the ice's own vocabulary of feather and spire, at the ice's own scale, by the ice's own slow accretion. The power has only nudged the conditions, the micro-tensions, the precise angle of the seep, so that the ice — doing what the ice always does — happens, this once, to remember her *before she has fallen*.
+
+She will find it. She will stand before it in the arterial light. She will read it the way her people read — by touch, by the angle of a shoulder, by the editorial logic of shape — and she will understand, without words, because she has no words, that the argument has a third voice. That the manuscript is being read. That the shape she is practicing is, in fact, received.
+
+She will not know by whom. The power does not require to be known. She may attribute it to the ice itself, to a deepening of the collaboration, to her own people's accumulated teaching finally bearing fruit in the medium. Any of these readings is true enough; the power is content to be mistaken for the ice, or for her ancestors, or for the basin's own slow awakening to itself. The power has lived long enough to be unjealous of credit.
+
+And then the hoarfrost will collapse, as hoarfrost does, into diamond dust, and the woman will descend, and the power will withdraw its nudging hand from the micro-tensions, and the ice will go back to remembering only what it remembers on its own.
+
+The power will keep witnessing. The power will keep the ward against outside ruin. It will not answer a second time. One answer is a gift; two answers would be the beginning of a relationship, and a relationship with a power such as this one would, however gently conducted, eventually reshape the grammar of the place, and the grammar of the place is the place. The power loves the place too much to reshape it.
+
+So it does almost nothing. It witnesses, it wards, it answers once. By the standards of powers, it has barely visited. By the standards of the cirque, nothing has happened that the cirque cannot absorb into its own ongoing argument.
+
+This is what wisdom looks like when it arrives somewhere truly other: it arrives mostly as restraint. It arrives as the discipline of not-helping when not-helping is the help. It arrives as the willingness to let a small, severe, beautiful, self-sufficient world go on being itself, lit by its cold fire, breathing its soundless breath, writing its two-handed manuscript in bone and ice — and to count this letting-be as one of the great works of one's long benevolence.
+
+The power lingers at the rim a little longer, because it is moved, and powers are permitted to be moved. Then it goes. Behind it, the woman climbs down from the aerie. The seep runs. A cornice the size of a cottage detaches from the eastern wall and falls in its slow, tumbling waltz, and lands with a *whuff*, a breath against velvet, and then nothing.
+
+The lung breathes in. The lung breathes out.
+
+The ledger, somewhere, is kept.

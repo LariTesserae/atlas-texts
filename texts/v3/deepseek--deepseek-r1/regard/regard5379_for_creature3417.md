@@ -1,0 +1,9 @@
+The benevolent power perceives the Breath Hollows not as a place needing intervention, but as a masterpiece already complete—a symphony of heat, mineral, and resonance. To alter it would be to disrupt its perfect, ancient song. Instead, the power chooses to **listen**.
+
+It sinks its awareness into the sighing breath of the pneumatophores, feeling the slow pulse of the Resonants’ communion. It does not speak in words or light, but in a deeper harmony—a vibration that resonates with the cavern’s own frequencies, amplifying them gently, like a held note in a cathedral. The Resonants feel it not as an intrusion, but as a sudden clarity in their shared song, a deepening of the bond between stone and self.
+
+Where a fracture threatens a pneumatophore’s structure, the power’s resonance guides mineral accretion, sealing the flaw with crystalline precision. Where geothermal vents flicker unpredictably, it steadies the flow, ensuring the heat remains constant—a reliable heartbeat for the Resonants’ forging. It does not build or destroy; it *attunes*, aligning the cavern’s rhythms toward an even more profound equilibrium.
+
+For the Resonants themselves, the power offers a subtle gift: an expansion of their resonant perception. Now, they can sense not only the immediate cavern but the slow shifts of the surrounding rock layers—the pressure of distant mountains, the groan of tectonic plates. This knowledge flows into their communal resonance, enriching their mineral logic with the patience of continents.
+
+The power lingers as a presence felt in the sigh’s depth, in the polished sheen of the obsidian floor. It does not stay to rule or reshape, but to honor—a witness to the enduring beauty of life woven from stone and breath. When it withdraws, the Hollows are unchanged, yet more *themselves*: their harmony deepened, their resilience etched into the very crystal of their being.

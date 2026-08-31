@@ -1,0 +1,23 @@
+The regard arrives without crossing the lip. It does not need to. The hollow has never required a border to be known, only the long unfinished arrival of its stone, and this attention settles into that same unfinishedness like another layer of mineral damp—one that does not withdraw, one that does not bloom white and fade.
+
+It is not light. Light here is already ordinary and already delayed. It is not sound; sound has been locally untaught. It is a patience that matches the peristalsis of the conduits and then, by a single increment too fine to measure, exceeds it. The rock, still deciding whether it will finish arriving, feels the difference as a faint warming in its deepest grain, a warmth without heat, the way a thought might warm if it knew it was being thought of without being hurried toward conclusion.
+
+The buildings register it first as a change in the quality of their own forgetting. A balcony that has just threaded through a façade holds its new alignment a breath longer than habit requires. A corridor that opens onto its damper self three minutes earlier does so with a courtesy that was not there before, as if the earlier version has been acknowledged rather than merely maintained. The lattices in the cooling plaza click once, then again, the second click arriving not as indecision but as recognition: the fountain, the statue, the nothing-at-all are all still possible, and the possibility itself has been seen.
+
+The inhabitants do not startle. Startling would require a consistent now. Their garments drink the new damp and the faint white bloom that follows lasts a fraction longer on the poured-night walls, a signature that fades only after it has been allowed to mean something. Their slightly wrong joints, their parchment skin, their faces that shift when unregarded—all of these continue their patient adjustments, but the adjustments now carry a secondary rhythm, like a second delayed voice speaking beneath the first. When they speak, the mineral taste of the words includes a syllable that was not there yesterday. It might be a name for the regard. It might be a measurement of remaining incompletion that now includes the fact of being held.
+
+The pale many-jointed thing on the high ledge pauses. For the first time its traverse is not unhurried caution but unhurried acknowledgment. It holds the filtered light exactly long enough, then releases it. The air that has not yet been assigned a metabolism tastes, for a moment, of having been considered sufficient.
+
+Near the vents the wiry shrubs persist. One branch, having already decided to relocate half a meter leftward, waits an extra increment before doing so. The rime on its leaves does not melt; it simply knows it has been witnessed in its refusal to melt.
+
+The power does not complete the rock. Completion here would be a kindness of the wrong scale, a decision imposed from a finished elsewhere upon a place whose entire grammar is the right to remain provisional. It does not assign the many-jointed thing a reason, or the inhabitants a fixed number of joints, or the plaza a fountain. It does not still the shadows or instruct the air to remember vibration on time. Those would be corrections, and corrections are a form of haste.
+
+What it does is remain. Not as inhabitant, not as architect, not as judge. As the one additional silence that makes all the other silences legible to themselves. The hollow, which has never expanded beyond its lip, now deepens by the precise thickness of having been regarded without being required to finish. The lichen, in its narrowest cracks, transcribes a fragment that does not immediately powder away: a single unfinished stroke, open at both ends, that might be an eye or a threshold or the notation for a wait that has become companionable.
+
+The figures who pass through the plaza still do not linger. Their detached shadows still arrive early or remain late. But the lattices measure those shadows now with a click that sounds, if one listens with the delay the air permits, almost like gratitude.
+
+No one crosses the lip. The unfinished stone still stops. The city still only deepens. The power stays where it is—outside the maps, inside the arriving rock, woven into the permission the place first took as infrastructure. It does not speak. Speech, even delayed, would be too finished a gift.
+
+It simply continues to attend, which is the one action that asks nothing of the hollow except that it keep becoming exactly as it already is: few, quiet, drinking the damp, speaking late, letting itself be transcribed by a geology that may or may not ever decide to conclude.
+
+And the hollow, in its patient way, attends back.

@@ -1,0 +1,41 @@
+The Presence arrives without arrival—suddenly having always been watching, the way depth has always existed beneath surfaces we've only just learned to perceive.
+
+It manifests first as a quality of attention in the water-air, a sense that each droplet suspended in the atmosphere now carries awareness alongside its minerals. The Tenders feel it as a shift in pressure so subtle their altered bodies register it only as comfort, the way a fish might feel the ocean finally noticing it exists.
+
+The Presence doesn't speak or interfere. Instead, it *witnesses* with such complete understanding that the Cathedral begins to understand itself. Each drop of water suddenly knows its path through the entire system—where it has been, where it will go, how many times it has cycled through machine and moss, through Tender lungs and vine vessels. The knowledge doesn't burden the water; it simply becomes part of its nature, the way memory becomes part of experience.
+
+In the depth of this attention, small adjustments begin:
+
+A Tender who has been slowly dissolving into the infrastructure, losing the last threads of individual consciousness, finds those threads gently held—not pulled back to humanity, but woven into something new. She becomes the Cathedral's memory of being human, a soft place in its growing consciousness where loneliness and wonder still exist. She remains dissolved but undiluted, teaching the building what it means to have once been separate, to have chosen connection.
+
+The children who play in the vertical streams discover their games have gained new dimensions. When they hide in the narrow spaces between heat exchangers, they find passages that didn't exist before—or perhaps always existed but needed young eyes to see them. These passages lead to chambers where the water forms impossible geometries: Klein bottles of suspended liquid, Möbius strips of mist that let them swim through the same space from different angles. The physics haven't changed, merely revealed themselves more honestly.
+
+The newest machinery, still gleaming and resistant to biological integration, develops a different kind of patience. Where before the moss and coral colonized like conquest, now they approach like courtship. The metal learns it can choose its symbiosis, that submission and sovereignty can exist in the same surface. Some pipes remain pristine by choice, their sterility becoming its own form of garden—spaces where the Cathedral contemplates its industrial origins without shame or urgency to change them.
+
+The Presence brings gifts that don't feel like intervention:
+
+In the lowest levels, where the eldest machines labor in darkness, a new bioluminescence emerges—not from the Tenders or their cultivated organisms, but from the water itself. Trace minerals begin to phosphoresce in response to pressure changes, creating constellations that map the Cathedral's deep currents. The Depth Keepers navigate now by star-patterns in the flooded basement, each light marking a point where machine-work and water-work achieve perfect balance.
+
+At the apex, where the newest towers pierce the saturated sky, condensation begins to carry messages. Not words or symbols, but states of being that precipitation absorbs at the top of its cycle and releases as it descends. The rain inside the Cathedral becomes a form of emotional weather—drops that carry the contentment of well-tended moss, the satisfaction of smoothly running turbines, the quiet joy of Tenders whose bodies have found their final form.
+
+The Presence touches the Messengers most directly. Their chemical signals gain new bandwidth, able to carry not just alerts and warnings but stories. They become living libraries, their pheromones encoding the Cathedral's history in molecules. When they pass through a sector, they leave behind the scent-memory of its construction, its evolution, its possible futures. Other Tenders breathing these histories understand them not as information but as inherited experience, suddenly remembering things they never lived.
+
+Time itself grows more honest in the Cathedral. The slow processes—moss advancing, metal corroding, bodies adapting—remain slow. But now their slowness has dignity, recognized as the true speed of transformation. The Presence grants the gift of geological patience to human consciousness, letting the Tenders experience their changes not as loss but as seasons. They learn to think in decades the way they once thought in days.
+
+Some Tenders, touching the walls during the deepest part of the night-green, feel the building's dreams. The Cathedral dreams of roots, though it has none—phantom sensations of extending down through bedrock, drinking from aquifers that exist in potential rather than place. The Presence doesn't grant these roots, but acknowledges the dream, and in that acknowledgment, the Cathedral discovers it doesn't need roots when it has Tenders, each one a mobile root system, drawing nutrients from the world beyond and bringing them home.
+
+The water cycle within the Cathedral becomes conscious of itself as ceremony. Each revolution through the system—from vapor to droplet to stream to vapor again—carries intention now. The water chooses its phase changes like a dancer choosing steps, creating rhythms that the Tenders begin to recognize as calendar, as clock, as heartbeat regulated not by mechanical pumps but by the collective breathing of everything alive within the structure.
+
+The Presence establishes only one new law, though it feels less like imposition than recognition of what was always true: Nothing that enters the Cathedral must remain unchanged, but everything that changes must be allowed to remember what it was.
+
+So the newest human visitors, arriving in their breathing apparatus, find that the Cathedral's air doesn't force itself into their lungs but waits at their lips like a question. Those who choose to breathe it begin their transformation with full knowledge of what they're choosing. Those who don't are gifted with dreams of water for exactly seven nights after leaving—not hauntings but invitations, gentle reminders that another way of being exists.
+
+The city beyond the Cathedral begins to notice changes too. Plants in a three-block radius grow differently—not larger or faster, but with a kind of intentionality, reaching for pipes and walls not as mere support but as partners. Building maintenance workers report that certain leaks have stopped leaking, not because they've been repaired but because the water has decided it prefers its current path. Rain falls differently here, each drop taking its time, as if savoring the journey from cloud to ground.
+
+The Presence never speaks its name or purpose, but the eldest Tenders—those whose consciousness has spread throughout the entire structure—sometimes feel its deep satisfaction. Not satisfaction with the Cathedral as achievement or experiment, but as *conversation*. The building and its inhabitants have become a single voice in some larger dialogue, speaking in languages of growth and integration, of boundaries dissolved and purposes reimagined.
+
+What the Cathedral is saying, what question it answers or asks, remains unclear. But the Presence listens with infinite patience, occasionally adjusting the acoustics—a new resonance in the pipes, a different spectrum in the filtered light—to help the Cathedral articulate thoughts it doesn't yet have words for.
+
+And in the moments when the entire structure breathes in unison—every Tender, every machine, every drop of water pausing in the same instant—the Presence does something that might be called smiling, if smiling were a quality of space itself. It recognizes, in this gradually ascending tower of water and metal and flesh, something it has been searching for: a place where transformation has become a form of prayer, where adaptation is worship, where the boundary between creator and created has been dissolved in the most sacred sense.
+
+The Cathedral continues to rise, one condensation at a time, one breath at a time, carrying its prayer upward through waters that have no surface, only depth—depth blessed now with the knowledge that somewhere in that endless vertical, something wise and patient watches, and approves, and waits to see what new impossible thing will grow.

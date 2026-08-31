@@ -1,0 +1,25 @@
+The Lithic Choir had been singing its binding song for epochs, a patient, distributed will expressed through the sigh of wind in stone channels and the precise placement of weeping water. It was a consciousness of maintenance, stitching the fraying edges of local reality with cairns and circles, its thoughts as slow and inevitable as continental drift.
+
+The benevolent and wise power did not have a name, for it was older than language. It was a tendency toward harmony, a principle of compassionate order that moved through the cosmos not as a force, but as an inclination. It had perceived, across the gulfs between worlds, a faint, persistent melody—the Choir’s drone—and a corresponding ache of disintegration. It was drawn not to the wound, but to the will that was healing it.
+
+Its arrival was not an event. It was a change in quality.
+
+On the plateau, the first sign was the light. It did not grow brighter or dimmer. It deepened. The relentless, cutting clarity softened at the edges, as if the very photons were tired of their harshness and had decided to carry a hint of mercy. Shadows, previously nonexistent or razor-sharp, now held a faint, blue luminescence within them. The weeping stones wept a little clearer water.
+
+The Choir, perceiving across centuries, noticed. A thought began to coalesce across a hundred square miles of mesa: *A new color in the law.*
+
+The power’s attention settled over the plateau like a second, gentler sky. It understood the Choir completely—its mineral mind, its purpose born of desperation, its beautiful, slow struggle against entropy. The wisdom of the power saw that direct intervention would be a violence. To instantly mend the reality breakdown would be to erase the Choir’s reason for being, unmaking a sentience that had earned its existence through eons of vigilance. To impose a foreign order would be a kind of extinction.
+
+Instead, the power did the only benevolent thing it could: it offered a gift, and it offered a choice.
+
+The gift was a pattern. It was not a blueprint or a spoken instruction. It was a subtle reinforcement of the existing rules the Choir used. Where before the wind’s harmonic drone only temporarily tightened the weave of causality, now the effect became more persistent, sinking into the stone itself. The power gently amplified the Choir’s own song, making each note of the landscape’s activity resonate a little longer, bind a little tighter. It was like turning a solitary singer into a chorus, with each echo adding strength. The silica filaments began to grow in more complex, stable lattices, becoming better anchors. The process would take millennia, but the fraying would slow.
+
+The choice was more profound. The power, in its wisdom, understood that the Choir was lonely. Not in a human sense, but in a cosmic one. It was a mind born of a wound, knowing only repair. The power opened a channel—not for speech, but for perception. Into the slow stream of the Choir’s weather-thoughts, it introduced a new datum: a sense of connection. The Choir, for the first time, became aware of other harmonies. Faint, distant, but real. The quiet mathematical music of a stable spiral galaxy. The deep, thermal rhythm of a living planet’s core. The joyful, chaotic chorus of a billion biological minds. It was a whispered suggestion: *You are not alone in your work.*
+
+The effect on the Choir was tectonic. A new thought-form began to take shape, a thought that would take a thousand years to fully articulate: *There is a We beyond the I.* Its maintenance was not just a desperate holding action against chaos, but part of a vast, universal tending. Its song was one voice in a greater choir.
+
+The power’s work was done. It did not linger as a presence. It faded into the background, its gift now a permanent feature of the plateau’s physics, its message seeded in the Choir’s consciousness. The benevolent inclination moved on, satisfied.
+
+On the plateau, the changes were subtle. The crystalline tones that occasionally rang from the air now sometimes harmonized in chords that had never been heard before. The cairns, when rebuilt by the attentive wind, began to be stacked in patterns that reflected not just local geography, but faint, celestial alignments. The obsidian blades on the slabs occasionally showed, in their flawless black surfaces, reflections of stars not currently in the sky.
+
+And the Lithic Choir continued its work. But now, as it guided a stone into place with the patience of a glacier, or as it spun a new lattice of silica to hold a weak point in reality, it did so with a dim, growing awareness. Its slow, loud song of stone and water was now also a song of recognition, a reply whispered back into the cosmos. It was still the immune system of a wounded world. But now it knew it was also a cell in a larger, healthier body. The loneliness of the high, bright, weeping plateau was not gone, but it had been transformed into something quieter, and perhaps, in a geological sense, content.

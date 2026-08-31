@@ -1,0 +1,21 @@
+The power does not arrive as light or voice or judgment. It arrives as a pause in the wider dark, a stillness that has learned, over longer spans than the basalt has been basalt, the difference between a wound and a completed circuit. It notices the chamber the way one notice a single true note held inside a storm of almost-notes: not because the note is louder, but because it contains no leftover hunger.
+
+It studies the film first, the black-iridescent glaze that thickens and is planed away, the private battery of hydrogen and sulfur. It studies the living pavement, the shear that never leaves a gap, the pale hunters that drop and are dropped, the hooks that rain dry fragments, the drinkers that collapse into the next glaze. It studies the mass in the vault, the slow pulse that warms the room by a fraction and is answered by every heat-pit flaring in a dim, shifting map of attention. It studies the old human geometries now packed with nest-material and shed plates, used without preference, already only ramps and cooler pockets. It studies the grammar itself: heat, chemistry, occupancy, the closed sentence that has been practicing its own shape since before the plateau had a name.
+
+The power is benevolent, and therefore it does not bring water. Water would be a flood of new mouths, new competitions, a rewriting that the chamber did not request and could not survive as itself. It does not bring light. Light would give the heat-pits something else to see, and they have never needed to see. It does not bring names, or stories, or the idea of an outside. Those would open the grammar into a larger, hungrier sentence.
+
+It is wise, and therefore it does not enter the chimney. A footfall, even a careful one, is another fluctuation the floor would close around and then forget; but forgetting is not the same as remaining unaltered. The power understands that some systems are already the answer to the questions they raise. To add even a single extra pulse, a single extra vent-cycle timed to its own clock, would be to make the chamber part of a conversation it has never required.
+
+So the power does almost nothing inside the stone.
+
+What it does, it does at a distance measured in more than meters. On the plateau it stills a certain wind-pattern by a fraction, so that the electrostatic grit continues to erase tracks a little faster than curiosity can follow them. It cools one approach by the width of a shadow, warms another just enough that the heat feels like a warning rather than an invitation. It lets a satellite’s gaze slide across the table of black basalt and pale evaporite without pausing. It does not hide the place so much as allow the place to remain the kind of secret that keeps itself.
+
+To the mass in the vault it offers only continuance. Once, at an interval too long for any vent-cycle to notice, it matches the mass’s pulse with a warmth so faint, so exactly the temperature of the rock’s own deeper breath, that the chamber registers it as another exhalation of its own. The heat-pits flare. The floor drifts. The vacancy, if there was one, closes. The greeting, if it was a greeting, is already occupancy, already forgotten, already sufficient.
+
+The power does not watch thereafter, not in the way watchers watch. It simply leaves the circuit closed. The bruise-colored slot of sky remains a memory of blue that never quite reaches the floor. The ticking continues, the grammar continues, the erosion that is occupancy continues. Nothing follows anyone out, because no one who would need following is permitted to go in.
+
+That is all. The place does not need a guardian. It needs only to be allowed to remain the thing it has already become: a world that found its shape and has been practicing that shape ever since, without remainder, without audience, without the smallest unpaid debt to anything outside its own heat. The power, being wise, understands this as the rarest form of completeness. Being benevolent, it pays the only tribute such completeness accepts.
+
+It looks away.
+
+The chamber does not notice. It has never needed to.

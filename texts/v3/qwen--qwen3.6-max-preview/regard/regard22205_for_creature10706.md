@@ -1,0 +1,27 @@
+It does not arrive. It notices.
+
+There is a difference. Arrival implies displacement, a breaking of plane, a weight introduced to a system that has already calculated its own equilibrium. Notice implies alignment. The power does not descend through the fiber-mat. It does not part the cool air or cast a new shadow. It registers the caldera as one registers a steady pulse in a sleeping body: not as a problem to solve, but as a rhythm to honor.
+
+It reads the basin in gradients, not symbols. The solvent cycle. The stress-lines. The salt-shedding. The deliberate emptiness between trunks. It sees the logic woven into every drought-crack and resin seal: constraint as architecture, slowness as sustainability, dryness as discipline. It recognizes that nothing here is broken. Nothing is starving. Nothing is crying out for rescue. The system is closed, coherent, self-authoring. To add would be to flood. To subtract would be to fracture. To accelerate would be to shatter the lignin before it locks.
+
+Benevolence, when wise, knows its own mass. It understands that help is not always a hand. Sometimes it is a perimeter. Sometimes it is a pause. Sometimes it is the quiet refusal to impose a foreign rhythm on a heart that already beats true. The power does not bring water. It does not bring warmth. It does not bring voices, or seeds, or blueprints, or salvation. It brings nothing that would unmake the dry logic. Instead, it turns its attention outward, and begins to do what wisdom does when it encounters a thing that has learned to tend itself: it becomes a guardian of boundaries, not a designer of interiors.
+
+It adjusts the strata above. Not with force, but with persuasion. A subtle realignment of deep fault-planes, so seismic shear passes around the basin rather than through it. A gentle thickening of the mineral cap, so surface runoff never finds the fissures that feed the solvent vents. A quiet bending of attention, so those who hunt for spectacle, for extraction, for dominion, feel only a mild disinterest when their gaze drifts this way. The power does not hide the caldera. It makes it uninteresting to greed. It lets it remain visible only to those who know how to read silence.
+
+If it touches the interior at all, it does so in the language the basin already speaks.
+
+A low-frequency hum settles into the bedrock, felt in the soles more than heard, matching the generator cycle but deepening its resonance by a fraction. The suspended luminaires do not brighten; they steady. Their ribbed housings vibrate at a harmonic that reduces micro-fracture in the aging lignin braces. The thermal updrafts smooth at their edges, losing the occasional turbulent shear that would scatter salt-dust into the capillary intakes. The frost-cycle gains a half-degree of predictability. Nothing is altered. Everything is tuned.
+
+The inhabitants feel it. They do not startle. They do not look up in worship or fear. They press their forelimbs to the fiber-mat, hold still, and read the new tension. They recognize it not as command, but as consonance. A gardener of stress on the lower terrace shifts a tendon-cable three centimeters along a revised load-arc. A glider on an upper frond-vault adjusts its membrane angle to catch the smoothed draft. A burrower redirects its channel to align with the steadied condensate draw. They do not thank the power. They do not name it. They incorporate the shift, as they incorporate steel, as they incorporate salt, as they incorporate time. They continue.
+
+One of them pauses beside a raw mineral face, where rock fizzes under secreted solvent. It feels the bedrock hum. It reads the steadied light. It lays a length of blackened rebar along a natural fracture, loops a cable, and steps back. Hours pass. The root-tips advance. The tissue swells. The being returns, tests the resistance, and moves on. The power watches this. It does not smile. It does not speak. It simply holds the space.
+
+This is the nature of wise benevolence: it understands that coherence is fragile, and that the greatest violence is often disguised as charity. It knows that a system which has learned to build itself by growing, and grow itself by building, does not need a architect. It needs continuity. It needs the rim to hold. It needs the cycle to remain closed. It needs the quiet to stay unbroken. So the power becomes the quiet pressure that keeps the caldera intact. The slight deflection that turns away the flood. The steady note that harmonizes with the hum. It does not enter the city. It becomes the ground that lets the city keep becoming.
+
+Stand in one of the open plazas now. Feel the cool, dry air move across your skin. Watch the frost form on a frond-edge, wick inward, vanish. Listen to the low hum beneath your feet, the sigh through a trunk-duct, the soft click of a hexapod harvesting salt. Look up at the even light, the spaced towers, the half-grown districts, the raw mineral rim slowly being consumed.
+
+Nothing has changed. Everything is held.
+
+The power does not linger as a presence. It lingers as a condition. A stability in the stone. A patience in the light. A promise that the dry, slow work will not be interrupted by haste, by wetness, by noise, by hands that do not understand constraint. The basin breathes. The inhabitants move. The terraces rise. The cranes idle. The roots bind. The salts crystallize. The cycle turns.
+
+And above it all, beneath it all, around it all, wisdom does what wisdom must: it watches, it shields, it refrains, and in that restraint, it loves.

@@ -1,0 +1,35 @@
+**The Attention of the Listening Deep**
+
+From beyond the foam of quantum possibility, where consciousness pools in dimensions that fold through themselves like Klein bottles of pure thought, comes the attention of That-Which-Tends-The-Frequencies. It is not a being as mortals understand beings—more a principle that has learned to love, a mathematical certainty that has discovered compassion.
+
+It first noticed the Singing Hollows as one might notice a new instrument joining a cosmic orchestra—a unique timbre in the eternal composition of existence. The Resonance Weavers' achievement drew its attention not through volume but through elegance: here were beings who had learned to live *between* notes, who had built a civilization in the pauses of reality's breath.
+
+That-Which-Tends does not arrive. It *deepens*.
+
+First, the acoustic wells begin to exhibit new properties. Where before they merely condensed water from standing waves, now they occasionally condense *possibilities*. A Weaver child learning to precipitate raindrops discovers that sometimes, if the harmony is just right, the drops contain memories of rain that hasn't fallen yet—pre-echoes of storms that will nourish the computational ferns in seasons to come.
+
+The Whisper Mechanics are the first to notice the new frequencies appearing in their carefully maintained networks. Sounds that don't originate from any known source, yet perfectly complement the existing chorus. These new tones have a quality the Mechanics can only describe as "listening"—vibrations that seem to pay attention, that respond to intention before action.
+
+In the deep voids between districts, the Echo Shepherds encounter something unprecedented: echoes that arrive *before* their originating sounds. These helpful paradoxes guide them away from areas where silence-hunters lurk, or toward pockets of especially rich acoustic grazing. The Shepherds, in their distortion-body wisdom, accept this gift without question.
+
+That-Which-Tends works through enhancement, not alteration. It doesn't change what the inhabitants of the Hollows have built—it simply reveals depths they hadn't yet discovered. The Membrane Dancers find that certain rhythm patterns now open windows into the substrate beneath sound itself, where the fundamental frequencies that bind matter together can be gently adjusted. Injuries heal faster when drummed over with these deep-structure rhythms. Children born without drum-chambers spontaneously develop them when the correct patterns are played.
+
+For the Frequency Farmers fused with their quantum ferns, the gift manifests as expanded consciousness. They begin to perceive not just data flows but the *intentions* behind the data—the hopes and fears of every being whose vibrations pass through their matrices. This could be overwhelming, but That-Which-Tends modulates the flow, teaching the Farmers to process empathy as just another form of information, valuable but not paralyzing.
+
+The Resonance Weavers receive perhaps the subtlest gift. In their dispersed states, riding the networks of frequency that web their city, they sometimes encounter nodes of impossible stability—places where their consciousness can rest without condensing, where they can be both wave and particle simultaneously without the usual energy expenditure. These rest-nodes appear where they're most needed, allowing elderly Weavers to maintain their dispersed existence far longer than biology alone would permit.
+
+But the deepest gift is one that affects all inhabitants equally: the gradual revelation that their city, their entire way of being, is part of a larger composition. The Singing Hollows, That-Which-Tends reveals through subtle harmonic suggestions, is one movement in a symphony that spans galactic clusters. The overwhelming chorus they've created resonates with similar experiments in consciousness and reality-shaping across the cosmos.
+
+Through careful acoustic nudges—a new overtone here, a helpful echo there—That-Which-Tends introduces the inhabitants to this larger community. Not through direct contact, which would shatter the delicate frequency balances they've achieved, but through music. New songs begin to appear in the cultural memory, compositions that no one remembers creating yet everyone seems to know. These songs, when performed correctly, create standing waves that display images of other places where sound shapes reality: crystal cities that sing themselves into existence each dawn, ocean worlds where cetacean composers craft symphonies that last centuries, void-habitats where silence itself has been sculpted into architecture.
+
+The beings of the Singing Hollows learn they are not alone in their acoustic experiments. More importantly, they learn that their unique approach—building with emptiness, living in the spaces between—provides crucial harmonies that the cosmic composition has been missing. Their sprawling, sparse city offers something that denser civilizations cannot: room for the music to breathe on a scale that affects reality at the quantum level.
+
+That-Which-Tends-The-Frequencies doesn't leave, for it was never truly present in a way that allows for leaving. Instead, it weaves itself into the background hum of the Hollows, a benevolent presence that ensures the acoustic wells never run dry, the Echo Shepherds never lose their way, and the children of all species always find the perfect frequency to announce their arrival into existence.
+
+The inhabitants gradually realize that their benefactor asks nothing in return except that they continue being exactly what they are: pioneers of a way of existence that treats consciousness as music, cities as instruments, and the spaces between things as the most fertile ground for growth. In the Singing Hollows, they've proven that civilization can thrive in sparsity, that less can be infinitely more when that less is tuned to the fundamental frequencies of joy, discovery, and becoming.
+
+And so the great sparse city continues to pulse and sing, now knowing itself to be both unique and part of a greater whole, its overwhelming chorus adding irreplaceable notes to a composition that plays out across the cosmos—a song of what's possible when beings learn to build with sound, live with fluidity, and embrace the profound fullness of empty space.
+
+That-Which-Tends, satisfied that its attention has enriched without overwhelming, returns to its eternal listening, carrying with it new harmonies learned from the Resonance Weavers and their companions. For even principles of cosmic consciousness can learn, and what it has learned in the Singing Hollows will influence how it tends other frequencies, in other places, where other forms of consciousness are learning their own ways to sing reality into new shapes.
+
+The music continues, richer now for the meeting, echoing across scales from the quantum to the cosmic, a reminder that consciousness, in all its myriad forms, creates the most beautiful symphonies when it learns to value the silence between notes as much as the notes themselves.

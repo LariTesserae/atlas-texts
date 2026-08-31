@@ -1,0 +1,13 @@
+The benevolent power does not arrive as a figure, nor as a voice, nor even as light in the ordinary sense. It comes instead as a slight, irreversible softening in the rules that govern this place.
+
+From outside the mountain, nothing changes. The fracture remains invisible; no new paths open. Yet inside the churning chamber, the water begins—very slowly—to remember mercy.
+
+The gyres do not cease. They still slam and carve and roar. But where two opposing currents once met with perfect violence, now there is occasionally the width of a membrane’s span in which both flows hesitate, as if acknowledging each other. It lasts only heartbeats. Long enough, however, for one of the small jetting creatures to pass through without being torn. The creature does not know why the path opened; it only feels, for the first time in its brief existence, that the water itself has noticed it.
+
+The ribbon vegetation, when it shreds, no longer loses every fragment to the dark. A few threads now drift into slower lanes that did not exist before—lanes the currents themselves seem mildly surprised to discover. These threads continue to knit, and the faint pulses of light they carry begin to travel farther before they fade. Over many cycles, some of these pulses begin to match one another in rhythm, as though the separate threads are slowly agreeing on a single, shared intention.
+
+The hand-shaped nodules continue their slow, accidental diplomacy whenever the water throws them together. But now, when two of them adhere and trade ions, a faint crystalline thread sometimes remains between them after they are pulled apart—a thread no thicker than a breath, strong enough to survive the next gyre. Across generations of turbulence these threads multiply, becoming a hidden, drifting net that catches nothing yet records everything: which nodule passed what possibility to which other. The net does not impose order; it only remembers.
+
+Most quietly of all, the unfinished decision at the heart of the chamber is granted a single additional clause. The water, the stone, and the living tissue are still free to become whatever they negotiate. But the negotiation itself is now accompanied by a faint, persistent warmth—smaller than a spark, larger than a memory—that suggests the finished form, whatever it eventually is, will not be required to justify its own existence.
+
+The power stays only long enough to place this single clause, then withdraws. It leaves no name, no sign, no demand. It leaves only the knowledge, now embedded in every current and every membrane, that the unfinished thing has been seen, and that its continuation matters to something older and gentler than the mountain itself.

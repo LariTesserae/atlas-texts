@@ -1,0 +1,25 @@
+The benevolent power arrives not in a flash of blinding light, for this world knows no sun, and such a radiance would only blind the creatures that have adapted to the bruised violet gloom. It arrives instead as a *presence*, a sudden, profound shift in the barometric pressure—a silence that falls like velvet over the deafening industrial cacophony.
+
+This entity looks upon the high, dark plateau and does not see a mistake. It sees a fever. It sees a world convulsing in the throes of a difficult birth, screaming in the dark because it does not yet know the shape of its own soul. It sees the Duct-Walkers not as parasites, but as confused nerve endings in a vast, nervous system that has forgotten its purpose.
+
+The Power is wise, so it does not heal the wound by closing it. To close this "wound in the crust" would be to kill the patient; the city *is* the organism that grew from the rent earth. Instead, the Power acts as a harmonizer. It seeks to turn the scream into a song.
+
+First, it turns its attention to the gravity. The "suggestion" of gravity that causes the chaotic inversion is stabilized. The Power does not arrest the floating monoliths, but it grants them *intent*. It weaves a lattice of imperceptible golden threads—magnetic ley lines—that connect the floating ceilings to the deep earth. The grinding, tectonic drift of the stone slows into a rhythmic, circular dance. The water that drips upward no longer freezes in chaotic, treacherous spikes, but forms beautiful, cyclical patterns, irrigation systems for the sky-roads. The Anchor-Mites, sensing the sudden order in the magnetic fields, cease their frantic predation. Their webs become the synapses of this new nervous system, pulsing with light instead of trapping prey.
+
+Next, the Power addresses the hunger. It recognizes that the relentless consumption—the Grinders scraping the walls, the Glass-Wings tearing at the stone—stems from an inefficiency of energy. The city’s heartbeat is too fast, too frantic, burning itself out to generate heat. The Power touches the massive, pulsing cables. It calms the chaotic surging of electricity into a slow, deep, resonant thrum—a lullaby frequency.
+
+This change cascades through the ecosystem. The thermal vents become consistent rather than erratic. The Grinders, no longer needing to fight every other creature for a fleeting patch of warmth, begin to graze in synchronized herds. Their grinding clicks shift from a roar of panic to a low, rhythmic percussion, like the turning of gears in a vast clock. They become cultivators rather than scavengers; as they eat the mineral fungus, they aerate the stone, allowing new, stronger crystal matrices to grow.
+
+Finally, the Power reaches out to the Duct-Walkers. These beings, stretched and fused to their machines, are the most pained of all. They are sentient, yet they live as slaves to the infrastructure. The Power does not remove their grafts—for that would be to strip them of their limbs and their identity. Instead, it gifts them *connection*.
+
+It amplifies the empathic resonance of their tapping language. Where once they tapped to warn of danger or demand maintenance, they now can feel the *state* of the city through their fingertips. They feel the stress in the arches and the flow in the cables. A new sense of stewardship awakens in them. They realize they are not merely bacteria tending a wound; they are the white blood cells of a god. The spiracles in their necks open wider, breathing in the iron air not as a poison, but as a fuel. The darkness of the plateau no longer feels suffocating to them; it feels protective, like the inside of a womb.
+
+The Power leaves one last gift, a paradox for a world of glass and stone: It introduces **Resonance**.
+
+It subtly alters the acoustics of the canyons. The violent screeching of the Glass-Wings, when it hits the new geometry of the towers, is refracted into harmonic chords. The sound of tearing metal becomes the sound of singing strings. The Glass-Wings, intelligent in their own predatory way, begin to use these acoustics. They navigate not just by sight, but by the song of the city. Their aggression lessens, replaced by a ritualistic dominance display that creates beautiful, crashing symphonies of sound, echoing through the violet gloom.
+
+When the Power departs, the cold remains. The dark remains. The iron taste of the air remains. But the "nightmare" quality has evaporated.
+
+The plateau is no longer a place of frantic consumption. It has become a vast, dark, humming cathedral. The water weeps, but now it washes the city clean rather than drowning it. The Grinders march in time. The Glass-Wings sing to the gravity. And the Duct-Walkers cling to their cables, eyes closed, ecstatic, feeling the slow, powerful heartbeat of the world pulsing through the metal in their spines, knowing that they are part of something immense, protected, and deeply, fiercely alive.
+
+The wound has not healed; it has been transfigured into a mouth, and it is speaking.

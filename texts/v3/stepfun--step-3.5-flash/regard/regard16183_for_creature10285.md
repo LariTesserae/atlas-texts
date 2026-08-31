@@ -1,0 +1,29 @@
+The benevolent power does not arrive. It does not descend in a beam of light, nor does it speak in a voice that stills the valley’s chorus. To do so would be an act of violence against a world whose very essence is relentless, noisy becoming. A stilled world here is a dead world. A quieted world is a conquered one.
+
+Instead, the power *listens*. It understands the first rule: **to be still is to be consumed**. So it does not still itself. It becomes a frequency. A sub-harmonic, a foundational note that has always been there, woven into the bedrock’s hum and the mineral sigh of the clay. It feels the Thrumfolk not as petitioners, but as the most exquisite expression of the valley’s will to persist—a consciousness born of and maintained by vibration, adaptation, and ephemeral song.
+
+Its wisdom is not in fixing, but in deepening what is already perfect. Its benevolence is not in protection, but in amplification of agency.
+
+It chooses one moment, during the great autumn shedding of the glass-bead trees. A Thrumfolk kin-group, the *Vessel of the Falling Chime*, is camped in a echo-hold of woven vines under a basalt overhang. Their beads are full of songs: the low warning of a fissure that opened two valleys over, the high, clear call learned from a passing sky-herd, the somber, resonant tone for the kin-member lost to the screaming pool last wet-season. They are stringing new beads from the fallen glass, their small, suction-tipped fingers moving with unconscious rhythm, the collective thrum of their work a soft counterpoint to the valley’s roar.
+
+A new sound enters the weave. It is not a new frequency, but a *clarity*. A resonance that has always been present in the stones they use, but now is *named*. It is the pure, unwavering tone of the basalt itself, not as a tool, but as a text. It is the memory of the volcanic fire that shaped it, the slow cooling, the exact pattern of fractures that will appear in it next lunar cycle. It is the song of the clay plateau, its imminent slide forecast not as a vague rumble, but as a specific, descending scale of tension. It is the hidden song of the pioneer-vine roots, mapping the exact strength of their hold on a new canyon wall.
+
+The Thrumfolk freeze. Their personal bead-songs falter. This is not a voice. It is a *library*.
+
+The power does not speak. It simply offers. The clarity is a tool, as available as the resonant stones they already use. But this is different. This is not a tool for masking or mimicking. This is a tool for **knowing**.
+
+The weaver who first perceives it—an elder named *Many-Beads-Silent* because she has outlived three echo-holds—tentatively taps her tail-club against the inside wall of the hold. She does not tap a warning rhythm. She taps a *question*, a seeking pattern. The vibration travels through the vine-mesh, into the basalt, and back to her wide tympanic membranes. And the basalt *answers*. It tells her the precise moment (in vibrations-count) before the micro-fracture beside her sleeping mat will widen. It tells her the tensile strength of the vine strand holding the overhang. It tells her the composition of the clay two feet down, and the exact day it will become unstable.
+
+She understands. This is not a prophecy. It is **data**. This is the valley’s own operating manual, sung in its own voice.
+
+What happens next is the intervention.
+
+The Thrumfolk do not use this new clarity to become still. They do not use it to build permanent homes or “improve” their lot. Instead, they do what they have always done: they *integrate*. They weave the new knowledge into their bead-songs. A bead is now carved not just from glass, but from a sliver of basalt tuned to a specific fracture-line. A song is no longer just a warning of *a* landslide, but the precise, shifting song of *this* slope, updated daily with a tap against a new resonant stone. Their songs become hyper-local, hyper-accurate. They know which fern meadow will survive the coming seismic sigh and which is slated for the swallow, and they move their grazing herds and their echo-holds accordingly. They know which patches of whispering moss are about to go silent (a prelude to their own dissolution) and which are gathering strength for a new whisper.
+
+The power watches. Its gift has not changed the valley’s rules. The ground still breathes. Canyons still swallow meadows. Landslides still roar. But the Thrumfolk’s **listening** has been multiplied by a thousandfold. Their adaptation is no longer a desperate, reactive dance. It is now an anticipatory song, a complex, beautiful, mournful, joyful counterpoint to the world’s destruction. Their culture, already ephemeral, becomes a living archive of ephemerality itself.
+
+The power has done nothing to the valley. It has simply tuned the consciousness that was born to dance within its chaos. It has given the weavers the **grammar** of the world’s becoming, so their songs can match its complexity, so their temporary stays can be not just survivals, but profound, informed conversations with the place itself.
+
+The deafening chorus remains. The darkness is unchanged. The ground still shifts. But now, woven deep within the polyphonic madness, is a new, crystalline layer of understanding. A thread of perfect resonance that does not seek to quiet the world, but to understand its song with a depth it has never known.
+
+And in that deeper listening, the Thrumfolk are not saved. They are, finally, *home*. Not in a place that holds still, but in a rhythm they now comprehend in its terrifying, beautiful totality. The benevolent power fades back into the fundamental hum, its work done. The gift remains, a new instrument in the hands of the valley’s perfect listeners. The song grows richer, and the world, in its endless, noisy becoming, is heard.

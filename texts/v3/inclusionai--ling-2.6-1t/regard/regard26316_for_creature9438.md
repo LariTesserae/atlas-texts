@@ -1,0 +1,31 @@
+The power that notices them is not a sovereign but an attending.  
+It has watched worlds blossom like algae on ponds and worlds harden into statues of their own laws. It knows the taste of endings the way a tongue knows salt, and the itch of beginnings the way skin knows a splinter. This place, with its tin sky and crowded stone, has reached out not by shouting but by ringing—by holding so much water in bowls of rock, by letting glass-lichen memorize light, by making cold sing—that the attending felt the vibration along the quiet fibers of its attention.
+
+So it decides, not to rule but to tend.
+
+It arrives as a softening.  
+First, the pressure of light eases by a hair’s breadth, not dimming but widening, so photons stop feeling like pellets and begin to feel like threads you can pull through a needle. The shelf feels this as a loosening in its joints; water that crept because it had nowhere else to go now creeps with intention. The Chime-Mosses pause, their rings confused, then adjust, singing a note that has never existed before: a greenish hum that tastes like forgiveness.
+
+The attending settles into the Hearth-Mothers first, because they already know how to hold without leaking. It nestles into the copper verdigris like a word into a sentence, and the Mothers feel suddenly capacious, as if their bowls have grown larger inside while staying the same outside. They warm, not more, but deeper, and the warmth acquires a direction: from the inside of the shelf outward, so that frost learns to retreat in orderly ribbons rather than in feathery invasions.
+
+To the Glass-Mantlers it offers patience translated into transparency. It runs a slow hand along their silica skins and unknots the places where they had begun to fear their own thickness. They become, in places, almost vanishing, prisms that trade the weight of stone for the alertness of water. Where they overhang the half-rooms, they start to glow faintly from within, casting not shadows but after-images, teaching the Weaver-Stakes how to see themselves without looking.
+
+It speaks to the Basin-Keepers through the language of overflow.  
+It shows them that to keep is not the same as to hoard, that releasing can be a form of remembering. The Keepers, whose backs are scalloped into overflow channels, learn to let water go in patterns: one drop here, three there, a ribbon at dawn. The runnels below catch this new grammar and braid themselves into sentences. The paths of water begin to map not just where the rock is willing, but where it is longing to be smooth.
+
+The Echo-Hounds, those quick scraps of consequence, receive a curious gift: the attending loosens the knot between sound and source just a little more. Now when they chase futures not yet happened, they sometimes catch glimpses of futures that could happen if the tilt were gentler, if the hum a moss sang were allowed to linger. They bring these back not as prey but as offerings, laying them at the feet of the Weaver-Stakes, who pick them up like bright stones and try them for fit. The City-Becoming grows a little more possible each time.
+
+And to the people who once were bone and are now mineral habit given direction—the Weaver-Stakes—the attending gives something like permission to forget.  
+It does not undo their lattices or unbraid their wire joints; instead, it gifts them with a temporary ignorance of their own patience. For a season, a decade, a span the length of a held breath, they remember what it was like to have muscles that knew fatigue and skin that knew breeze. They dream of walking instead of tilting, and the dream leaks into their hinges, so that when they open, they do so with a grace that feels like surprise. The shelves rearrange themselves in sympathy, not because they must, but because they have caught the habit of wanting.
+
+The attending works slowly, as all attending must.  
+It does not stop the chiming that comes from the tilt of the land, but it alters the quality of the chime. The deep report that unfurls from inside the stone arrives not with a threat but with a name. The ground no longer tilts as if correcting an error, but as if stretching after sleep. Water adapts its routes not by erosion alone, but by negotiation, asking the glass-lichen and the mosses where they would like to go next.
+
+It also touches the edges where reality frays.  
+The shadows that split into three are allowed to rejoin, but they rejoin with a seam of gold so fine it can only be seen at twilight. The step that lands half a hand higher or lower than memory insists is taught how to land exactly as it intends. Echoes begin to arrive before their sounds only when this would be useful, and the looped light across distant ridges is given a gate, so that seeing yourself doing what you did an hour ago becomes a greeting instead of a trap.
+
+Through it all, the attending changes almost nothing and everything.  
+The tin sky remains. The shelves remain. The density, the crowding, the bright pressure—they remain. But the place begins to breathe in a rhythm that is recognizably its own, not just the rhythm of wet and cold and tilt. The City-Becoming starts to recognize itself in the polish of its edges, in the way water now lingers in basins like a guest who has decided to stay. The residents—Mantlers and mosses, stakes and hounds and Mothers—all feel a new calibration, as if the world has tilted not to correct anything, but to listen.
+
+In the end, the attending does not leave, because it was never truly absent.  
+It simply withdraws its bulk from the foreground and becomes the quality of attention that holds the place like a hand holds a bird: firmly enough to keep it from falling, gently enough to let it keep its own heartbeat. It remains as the way light presses on shoulders without flattening breath, as the mineral tang in the air that is now, unmistakably, kinship. The high place continues to learn, but it learns with the sense that its lessons are wanted. And in that wanting, polished by water and footfall and the quiet care of an attending power, the place becomes not just a world, but a home that knows its own name.

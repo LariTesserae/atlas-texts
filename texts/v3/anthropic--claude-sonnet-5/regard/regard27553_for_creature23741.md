@@ -1,0 +1,29 @@
+# What the Power Saw, and What It Did
+
+A power old enough and wide enough to be called wise does not visit a place like this the way a traveler does — arriving at one terrace, leaving by another, carrying away an afternoon's worth of green-gold light and the memory of a shape that may or may not have turned to look at it twice. It arrives the way weather arrives, which is to say: everywhere in the structure at once, and at every speed the structure contains, simultaneously. It feels the juvenile's quick startled heartbeat fifty meters off and the century-long inhale of the elder three terraces down in the same instant, without strain, the way you might hold a low note and a high one in a single chord without feeling torn between them.
+
+This is the first thing worth saying about what such a power perceives, because it is also the last thing a quicker mind would think to look for: it does not see a hierarchy of more-alive and less-alive, mobile and stilled, person and architecture. It sees one life, lived at every tempo a life can be lived at, occupying a single body of terraces the way a single sentence occupies every one of its words. The juvenile with the bone awl and the grandparent who has become a resin-sealed seam are not two different things on a spectrum from creature to building. They are one thing, early and late, the way morning and evening are one day.
+
+## The Temptation, Named and Set Down
+
+A lesser kindness — the kind a quick, warm-blooded visitor might feel rising in the chest on first understanding what the slowing does — would reach for rescue. It would want to free the hands from the resin. It would want to unbraid the centuries of hair back into hair, give the elders back their stride, their speech, their faces unfixed from their long unfinished turns. It would call this mercy, and it would be wrong, in the specific way that translating a held note into a quick one is wrong: technically a sound is preserved; the music is not.
+
+The power considers this, and sets it down. It recognizes the impulse as belonging to a creature that fears stillness because stillness, for that creature, has only ever meant ending. But here stillness is not an ending borrowed from elsewhere and imposed. It is the shape this particular kind of love eventually takes, when given enough centuries and enough patience and enough joints that need, still, after everything, to hold. To cure it would not be to save anyone. It would be to amputate the last third of a life and call the stump a gift.
+
+So: no acceleration. No cure. No herding of the slowed back into motion they no longer want and were never asking to be returned to. The lashings stay lashings. The hair stays rope. The riddle in the joinery stays unread by anyone now living, because that, too, is not a wound — it is simply a question still being asked by someone still in the middle of asking it, and a wise power does not finish another being's sentence for them, however many hundred years that sentence is taking.
+
+## What It Does Instead
+
+It does not do nothing. Doing nothing is its own kind of carelessness when something can be done that costs the place nothing of itself.
+
+So it finds the one joint, deep on an under-terrace where the steam pools thickest, that has gone unattended longest — the elder there outlived every descendant quick enough to climb down and re-knot what only loving hands re-knot, and the lashing has begun, finally, after four centuries of held weight, to fray. No quick creature is coming. There is no one left in that lineage to come. The power does not perform a miracle here, nothing the structure would notice as strange; it simply does, once, in the dark, in the register the place already moves in, the thing a great-grandchild would have done if a great-grandchild had lived to do it. The rope holds. No one will ever know it was retied by anything other than time being, for once, kind to a particular knot.
+
+And then it goes to the oldest one. Past structure now in almost every way a quick eye could verify — root more than finger, joint more than mind, a body that has not completed a single full thought, by its own internal pace, in longer than its own species keeps written record. The one who, once every few years, dreams.
+
+The power does not wake it. It does not speak to it, because there is no shared tempo in which speech would arrive as speech rather than as one impossibly long unbroken tone. Instead it does the only thing that fits: it dreams *with* it. For the length of that one dream — which to the elder is an evening, and to the power is no time at all, and to everyone else in the structure will never register as having happened — something else is present inside the same slow image the elder has been holding alone for longer than anyone has been alive to ask it about. Not directing the dream. Not interpreting it. Just present in it, the way another body's warmth is present in a room without needing to be discussed.
+
+What changes, after, is almost nothing. The puddle that reflects weather not yet arrived still does that, on schedule. The inscriptions still add their one stroke every few years, in a script no living hand can read. The juveniles still pass the crouching vine-shape twice in an afternoon and still feel, without being able to say why, that something there has noticed them.
+
+But the dream the oldest one carries now has, somewhere far back in it, the faint outline of a second presence having once sat beside it in the dark — not rescuing it, not hurrying it, not asking it to finish — only keeping it company for the held length of a single breath in a life made entirely of held breaths.
+
+That is what the power did. It is also, very possibly, all that wisdom ever does, in places built like this one: it leaves the architecture of love exactly as it found it, and simply makes sure that, for one knot and one dream, no one tending it was, after all, finally, alone.

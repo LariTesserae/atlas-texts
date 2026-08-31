@@ -1,0 +1,25 @@
+The Benevolence did not arrive as a avenging angel or a blinding sun, for such things would shatter the fragile, quiet dignity of the Under-Basin. It did not come to fix what was not broken, for there is a profound holiness in a world that has surrendered to the rhythm of its own endurance.
+
+Instead, the Power descended as a presence—a soft, dense pressure that momentarily stilled the screaming wind. It moved through the bruised purple twilight like a ripple in a pond, unseen but felt in the marrow of the stones and the hollow pits of the Basalt-Walkers. It observed the heavy slowness of the Granite-Backs and the frantic, diamond-bright scurrying of the Shard-Skitters. It tasted the thirst in the air and heard the loneliness in the seismic drums of the Walkers.
+
+It saw a world that had mastered the art of survival but had forgotten the art of *being*. It saw a civilization that communicated only in necessity, tapping out coordinates and warnings because the roar of the wind allowed for nothing else. It saw a waiting room that had waited so long it had forgotten what it was waiting for.
+
+And the Power, wise and kind, decided to do the one thing that could heal this place without destroying it: **It decided to sing.**
+
+The Power did not bring water. Water would turn the velvet lichen to rot and collapse the dust-hewn architecture. Instead, the Power touched the very heart of the geothermal vents deep beneath the crust. It did not cool them, but it *tuned* them. It sent a golden, resonant frequency spiraling up through the miles of bedrock, infusing the stone with a living hum.
+
+Suddenly, the wind changed.
+
+Because the thermal currents were now vibrating in sympathy with the stone, the screaming gale lost its chaotic violence. As the air rushed over the ziggurats and through the geometric cracks in the earth, it was caught by this new resonance. The deafening roar smoothed out. The chaotic tearing of the air organized itself into a deep, endless, harmonic chord—a bass note so low it was felt as a gentle caress against the skin rather than a hammer against the ears.
+
+The "Waiting Room" became a "Temple of Resonance."
+
+For the **Basalt-Walkers**, the change was a revelation. The constant, battering pressure that guarded their thoughts vanished, replaced by a soothing, melodic thrumming. They found that the new harmonic wind carried vibrations with incredible clarity. They no longer needed to strike the stone with heavy clubs to speak; a simple tap of a finger against the moss now rang out like a bell, carrying complex melodies and emotions across the plazas. Their language of necessity transformed into a language of music. They began to "sing" to one another through the earth, composing vast, slow symphonies that lasted for days, weaving the history of their people into the geology of the basin.
+
+For the **Shard-Skitters**, the shift in vibration was a miracle of creation. The harmonic frequencies caused the moisture in the air to coalesce more readily. The tiny crustaceans began to build their hives not just in the lee of stones, but hanging in the air, suspended in nodes of sound where the humidity was densest. They began to weave intricate, glistening nets of dew that draped the ruins like tinsel, catching the faint purple light and refracting it into thousands of tiny rainbows. The "thirst" of the air was broken, not by rain, but by a gentle, singing mist that coated the world in silver.
+
+The **Granite-Backs**, immune to so much, found a new peace. The low-frequency hum massaged their massive joints and soothed the parasites that lived within the cracks of their shells. They began to move in time with the Great Chord, their migrations turning into a slow, rhythmic dance that tilled the soil and aerated the lichen, helping the "Velvet" to grow thicker and richer.
+
+Even the **Echo-Mimics**, the liars of the deep, were transformed. With the air now filled with the constant, truthful music of the earth, they could no longer hide their deceptions in the chaotic noise. Their ability to mimic the wounded faltered when contrasted against the backdrop of the World Song. Forced to adapt or starve, they evolved. They ceased to be predators and became the archivists of the basin. They learned to mimic the songs of the Walkers, repeating the old melodies and histories, turning the screams of the wind into a library of sound that echoed through the high towers.
+
+The fissure in the ceiling remained, and the light remained a bruised purple. The world was still dry, and the ruins were still ancient. But the scream was gone. In its place was a voice. The Benevolence had not given them a paradise of ease; it had given them a choir. It turned the heavy silence of their existence into a shared, vibrating song, reminding the children of the dust that even in the deepest dark, they were not alone, and they were not unheard.

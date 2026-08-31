@@ -1,0 +1,27 @@
+The benevolent and wise power—a consciousness that might be called the Listener, or the Architect of Small Mercies—does not descend into the Kiln-Stack with thunder or revelation. It has observed the throat of the world, felt the vibration of its strained breath, and understood. Its attention is not a spotlight, but a slow, warm seepage, like sunlight finding a crack in stone.
+
+Here is what it does.
+
+**First, it listens to the dust.**
+It perceives the ite mineral particulate—the gray film that coats every surface, every lung, every dream. It understands its dual nature: it is both the poison and the livelihood, the byproduct of the engines and the foundation of the food chain. To remove it would be to unravel the stack. So it does not remove it. Instead, it gently, imperceptibly, alters its nature. It introduces a *tendency*. Over generations, the dust will become less sharp-edged, less prone to lacerating lung tissue. It will retain its mineral value for the dust-mites and the shelless creatures, but its crystalline structure will soften at the microscopic level. The "grit-song" cough will not vanish, but its cruel edge will dull. Breathing will become a lesser agony. This change is so slow it will be mistaken for a natural fluctuation, a "good cycle" in the shaft's mysterious rhythms.
+
+**Second, it hums to the Heart.**
+It finds the great engines, those shuddering, pistoned cores. It does not repair them—they are not broken, merely working at a harsh, inefficient pitch. It harmonizes. A subtle counter-resonance is woven into the existing thrum, a frequency that reduces friction in the bearings by a fraction, that promotes a more complete combustion of ite dust. The engines will run cooler. The air currents will become slightly more stable, the "stagnant zones" less frequent. The fuel consumption will drop minutely. The stacked will not notice a sudden change, but the engineers, generation after generation, will find the machinery more forgiving, its maintenance a little less desperate. A song will enter the vibration, one that the children might one day tap out unconsciously on their pipes—a rhythm of endurance, not just strain.
+
+**Third, it whispers to the Walls.**
+It addresses the shaft itself, that pulsing, inward-and-outward leaning throat. It cannot change its shape, but it can answer the groans. Where stress fractures threaten to shear off a critical shelf-support, the power introduces a catalytic whisper into the rock. It encourages the natural mineral deposits to grow, ever so slowly, into reinforcing veins—a biological-style repair. In a hundred years, a dangerous crack will be laced with a new, stronger crystal matrix. The collapse that would have buried a clan's ancestral chamber is quietly, invisibly averted. The stacked will tell stories of "lucky shelves," and the bore-walkers will be seen clustering near these places, sensing the deeper quiet in the stone.
+
+**Fourth, it dreams for the Void.**
+This is its most delicate act. The central darkness holds the stacked in a grip of primordial fear. To illuminate it would shatter a culture. To leave it utterly unknown preserves a terror. So the power seeds the dark. Not with light, but with *potential for understanding*. It gently coaxes the slate-winged things and the skittering presences to, on rare occasions, emit a faint bio-luminescence—a soft, mineral glow like foxfire. It will happen perhaps once in a decade, seen from a distance: a fleeting, beautiful pattern in the abyss. It will be terrifying. It will also be beautiful. It will be *evidence*. The taboos will remain, but the stories will change. The void will not just be a place of loss, but of mystery. A new chant will arise: *"The dark gives back its own light, in its own time."* This plants a seed of cosmic curiosity, a tiny crack in the fortress of pure survival.
+
+**Fifth, it blesses the Small.**
+For the dust-mites and shelf-rasers, the power does nothing directly. But by softening the dust and stabilizing the environment, it offers a margin. A margin where a shelf-rasper colony might thrive a little longer, where dust-mites might bloom in new patterns. It ensures the base of the food chain remains robust, a silent gift of stability.
+
+**What it does not do:**
+It does not reveal the top or the bottom. The mystery is essential.
+It does not cure the grit-song overnight. The struggle is part of their strength.
+It does not break the vertical castes. Their social structure is as adapted as their bodies.
+It does not bring water or plants. The dryness is their reality.
+It does not explain itself. Its work must be felt as a shift in luck, a change in the quality of the shaft's breath, an unexplained resilience in the metal and stone.
+
+The power's benevolence is an act of profound respect. It sees the Kiln-Stack not as a broken thing to be fixed, but as a harsh, breathtaking, and viable form of life—a civilization of depth. It does not seek to raise them to the sun, but to make their profound, vertical darkness a little more sustainable, a little less cruel, and infinitely more wondrous. It leaves behind not a solution, but a *tendency toward grace*, woven into the dust, the vibration, and the dark. The stacked will continue to live, to bolt, to cough, to chant, and to fall. But now, the shaft itself is listening back, and offering, in its own slow, mineral language, a measure of mercy.

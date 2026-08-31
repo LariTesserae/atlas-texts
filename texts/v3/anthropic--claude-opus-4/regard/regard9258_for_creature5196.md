@@ -1,0 +1,21 @@
+The wise power comes not as thunder or sudden light, but as a deepening of what already is. She arrives in the hour between sunset and darkness, when the condensation runs heaviest down the stem walls and the shallow pans hold the last copper reflection of sky.
+
+She does not disturb. Instead, she sits at the basin's edge where the packed silt meets the first pale grass, and she listens. For three days and three nights she listens to the measured drip, the reluctant click of iron turning in its vegetal embrace, the minute drawing of breath through the hollowed chambers. She traces with patient eyes the veined patterns of algae, the clean edges where grass yields to water, the slow pearl of moisture gathering on leather-thick stems.
+
+On the fourth dawn, she rises and walks the old lanes. Her feet leave no lasting impression in the soft silt. Where she passes, the reeds' cups seem to fill a fraction fuller, though no new rain has fallen. She enters each living chamber in turn, placing a palm against the cool interior walls, feeling the sluggish pulse of sap, the patient grip of rootlets on iron, the memory of furnaces and loading docks held now in vegetable time.
+
+In the largest chamber—what once cast the heaviest machinery—she pauses longest. Here the turbines are most deeply embraced, white roots wound through every gap and journal bearing. She breathes with the chamber's rhythm, matching her lungs to its expansion and contraction. Then, with movements as slow as the stems themselves, she begins to hum.
+
+It is not a song with words or melody. It is a vibration pitched to the frequency of growth itself, to the patient accumulation of years in woody tissue. The hum travels through her palm into the walls, through the walls into the turbines, through the metal into every threaded root. For one suspended moment, the entire basin resonates at this frequency—every stem, every reed, every film of algae trembling at the edge of perception.
+
+The turbines turn. Not with the old violence of steam and combustion, but with the measured certainty of seasons. They complete one full revolution, then another, their movement powered not by pressure but by the coordinated swelling of all the tissue that holds them. The clicking becomes a rhythm, low and liquid, like a great slow heart learning to beat.
+
+Then she withdraws her hand, and the motion subsides. The turbines return to stillness, but something has changed. The clicks come now with pattern rather than randomness. The condensation drips in time. The reed cups tip in sequence, creating a gentle percussion that travels the length of the basin. The stems themselves have learned something new: not growth for its own sake, but growth as expression, as language, as the slowest music.
+
+The wise power walks back through the lanes as evening falls. Behind her, the living architecture continues its patient work, but now with the faintest sense of intention. The turbines will turn again—perhaps tomorrow, perhaps next season—and when they do, they will remember this first deliberate revolution. The stems will grow not just to hold the old shapes but to perfect them, each chamber becoming a more precise instrument for catching and releasing the basin's breath.
+
+She does not look back. Her gift requires no tending. She has simply shown the stems what they already were: not the aftermath of abandonment, but composers of the longest symphony, played in the key of rain and time. The basin continues as before, but deeper now, aware of its own slow art.
+
+In the years that follow, travelers who find this place report a strange phenomenon. If they sit quietly in the evening when the moisture runs heaviest, they can hear it: the whole settlement breathing in perfect time, its turbines turning with vegetable certainty, its drops and clicks and rustles weaving together into something that is almost, but not quite, like music. They leave changed, carrying with them the memory of patience made audible, of time given voice.
+
+The stems grow on.

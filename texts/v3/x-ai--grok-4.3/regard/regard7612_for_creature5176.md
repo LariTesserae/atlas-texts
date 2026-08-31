@@ -1,0 +1,11 @@
+The benevolent power did not descend. It had nowhere to descend from; it was already present in the thinness of the air itself, in the precise angle at which light found every fracture. It simply became aware.
+
+For a long while—measured not in hours but in the deepening of shadow across a single flake of quartzite—it watched the cirque continue its only work: the patient refusal to become anything else. The power saw the low ring of stones as neither monument nor ruin, but as one more expression of the same geometry that governed the cliffs. It saw the pecked basin holding a single droplet exactly as long as every natural hollow. It saw the absence of life not as lack, but as a finished equation.
+
+The power considered possibilities. It could have widened one seam by a single molecule, allowing a thread of lichen to begin. It could have warmed a cubic centimeter of stone enough to release a breath of vapor that never froze. It could have returned one of the angular flakes to a living hand somewhere far below. None of these things occurred to it as improvements.
+
+Instead it offered a gift so small the cirque could not register it: the knowledge, carried within the light itself, that its solitude was witnessed and required nothing further. The same light that had always struck the walls now carried, for a single transit across the basin, the quiet recognition that equilibrium this complete is itself a form of attention. Then the light became ordinary again.
+
+Nothing changed. The mineral rings continued to be drawn and erased. The fractures lengthened by their usual microns. The droplets fell and vanished. Only the silence, already dense, grew by one imperceptible layer—the difference between being alone and being alone while known. Over centuries even this layer would be worn away by the same windless processes that softened every other signature.
+
+The power remained exactly where it had always been, which is to say nowhere and everywhere the air was thin enough to hold such clarity. It did not return. There was no need.

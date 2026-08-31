@@ -1,0 +1,37 @@
+A benevolent and wise power, if it turned its attention toward this place, would not announce itself. This is the first thing to know. The hall does not need announcement. The hall has its own register, its own tempo, its own grammar of dripping and groaning and the slow splash of the overflow, and any word spoken in a different grammar would be a wrong note. A power that loved the hall — and only a power that loved the hall could see it truly — would arrive in that grammar, or it would not arrive at all.
+
+It would arrive, then, as a kind of listening.
+
+It would listen the way K. listens, but older, and not through an ear. It would attend to the long conversation between the metal and the pressure and the water, the subsonic back-and-forth that the structure has been holding for a hundred years. It would hear, in that conversation, the song in the pipe that K. heard this morning and could not place, and it would know, immediately, that the song was neither new nor old. It was K.'s. It was a melody she had carried into the hall without knowing she carried it — something from a room with a window that looked out onto something she no longer remembers the name of — and the hall, which has been listening to her for years, had found it in her and was giving it back.
+
+The benevolent power would not correct this. It would not amplify it. It would let the pipe sing what it had begun to sing, on its own schedule, in the key it had chosen.
+
+It would go on listening.
+
+It would come to the man who watches the overflow. The power would understand that this man does not need anything, and it would not give him anything. To give him anything would be to suggest that his present state were incomplete, and his present state is not incomplete. His present state is the most complete thing in the hall, after the fern. The power would look at him. It would be glad. It would not be seen.
+
+It would go down, one day, with the diver, into the lower layers. It would follow her past the hole in the rust, down through the lattice, into the further darkness where the fixtures and the pipes and the machines are reduced to silhouettes by the depth. It would see the drowned machinery — the pump housings like dark mouths, the valves she has learned to read by touch, the long bank of squat boilers from which, far above, the overflow still pours. It would see the coffee cup with the unrecognizable logo, and the child's plastic shoe, and the book that had gone to a single block of paste, and it would understand that the bringing-up was the point, and that the hall below was a museum of itself, and that the diver was its curator, and that this was a calling and not a job. The power would not add anything to the museum. It would not place a new object in her path. It would only let her see, one morning, that the fungus in the lower layers — the white-pink sheets of it, the slow embrace of it around the valves — had, overnight, fruited. Small pink bodies, no bigger than a thumbnail, had pushed up through the surface of one of the sheets. They were not there yesterday. They were there today. The diver would see this. She would not say anything about it. She would bring up, that day, a single one of the small fruiting bodies, in a tin, and she would set the tin on the platform of iron grating near the boilers, and the man who watched the overflow would, sometime in the evening, look at the tin, and not open it, and the tin would sit there, and that would be enough.
+
+It would come to the man called Tech, who keeps the lights alive. The power would notice that he had used, by his own count, the last of the replacement filaments two months ago, and that he had not said so to anyone, and that the lights he had been nursing would, in the next few weeks, begin to fail, one by one, and that the hall would, for the first time in his tenure, lose a working bulb, and that he was afraid of this in the way he was afraid of nothing else. The benevolent power would not stock his satchel. That would be too much, and it would be in the wrong grammar. It would, however, on the morning after he finally said, aloud, to K., that he was out — it would, that morning, let one of the dead bulbs in the upper darkness flicker, just once, briefly, as he passed below it on his way to the platform. He would stop. He would look up. The bulb would not flicker again. But he would know that the filament in it was still good, and he would climb, with the slow care of a man who had not climbed in years, and he would bring the bulb down, and he would fit it into one of the empty cages, and the hall would have, again, three or four working lights, in their amber cones, and the dark would step aside, and no one would say anything about it, and Tech would put the bulb in, and the bulb would work, and he would know why, and he would not say that either.
+
+It would attend to the fifth person, who is new. The power would not, yet, do anything for them. The fifth person is still learning the grammar of the place. To give them anything before they had learned the grammar would be to give them the wrong kind of thing, the way a sentence placed in the wrong key can break a room. The power would wait. It would be patient with the fifth person in the way the hall is patient. The fifth person would, in time, decide what they would be.
+
+And it would go to the fern.
+
+The fern in the crack in the load-bearing column. Three fronds. The color of a week-old bruise. The closest thing the hall has to a pet. K. waters it on her way to listen to a pipe, and it has never responded to anything. The benevolent power, when it came to the fern, would not make it bloom. It would not give it a flower. That would be a wrong note. The fern does not bloom. The fern is what it is, and what it is, is enough.
+
+But the power would, one morning, while K. was elsewhere — while K. was up on the upper decks, foraging, or down in the lower layers with the diver — the power would lean, very slightly, into the crack. And in the crack, where there had been three fronds for as long as anyone can remember, a fourth would, by the time K. came back, have begun to unfurl. Just one. Tight at first. The color of the others. K., when she passed the column on her way to listen to the pipe, would see it. She would stop. She would cup her hand in the black water. She would let the water fall into the crack, as she always did. The fourth frond would not respond to this. It would simply be there, unfurling, in its own time.
+
+K. would not say anything.
+
+K. would go on to listen to the pipe.
+
+The benevolent power, having done these things, would withdraw. Not entirely. It would remain, in the way a power remains when it has attended to something it loves and does not wish to disturb. It would be present in the song in the pipe, which was K.'s and was now also the hall's. It would be present in the fruiting of the fungus. It would be present in the bulb that flickered once and then worked. It would be present in the fourth frond of the fern. It would not be present in any way that could be pointed to. It would be present in the way the light in the hall is present — not as a thing added, but as a region where the dark has been asked, very gently, to step aside.
+
+The hall would go on being the hall.
+
+The five would go on being the five.
+
+A drop would fall. It would hit the water. The small ring would spread. A crab, somewhere in the lattice below, would go on climbing.
+
+The hall would breathe.

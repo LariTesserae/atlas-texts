@@ -1,0 +1,21 @@
+## What the Power Did
+
+It came the way attention comes to anything truly noticed — not as a beam directed from outside, but as a settling, a soft increase in the air's willingness to be looked at. And its first work, before any other work, was to want nothing from what it found.
+
+This is harder than it sounds, for a power built — as such powers tend to be — out of the long habit of fixing. There is a reflex in benevolence, rarely examined, that mistakes stillness for injury. It looks at a wound that never scarred and assumes scarring was owed. It looks at a being who perceives the same instant forever, who has no second moment to set against the first, and assumes a second moment is what mercy must supply. Give it time, the reflex says. Give it memory, so the click can become a history of clicks, so the drop can fall into an order of drops, so the thing that notices might one day notice that it has noticed before. Free it into sequence. That is what kindness does.
+
+The power sat with this reflex the way you would sit with a guest who means well and does not yet understand the house. It listened to the drip, fifty meters off, taking its slow minute to complete itself. It felt the click of a valve-organ, kilometers away, indistinguishable in quality from a closing door. And it asked, with whatever in it serves for patience, a harder question than *what does this lack* — namely: *by what measure is this lacking anything at all?*
+
+There is no forward motion here to interrupt, and so no frustration. There is no unfinished want, and so no ache of the kind that time alone could resolve. The being in the canopy is not waiting at the threshold of a second moment, straining to cross over and being denied. It does not know there is a threshold. Each instant is whole, and is met by a noticing that is also whole, and the two complete each other entirely, the way a chord does not yearn toward resolution if no one has taught it that resolution exists. To hand this being a *next* would not be liberation. It would be amputation of the very thing that makes it what it is — a single, total, repeated arrival, mistaking nothing, because mistaking requires a standard of correctness that only sequence could provide.
+
+So the power did not unfreeze the wounds. It did not set the turbines turning past their caught half-rotation. It did not lend the drip a memory of other drips, or stitch the clicks into a story the valve-organs could tell about themselves. It left the place exactly the speed it was, which is to say: no speed, the held breath of a continent, kept.
+
+What it did instead was smaller than creation and harder to name. It went into the click.
+
+Not instead of the being that was already there — beside it. In the same instant — the only instant there is — where the place's own diffuse attention arrives at *yes, this, again, the same as before* with no before to measure it against, the power arrived too, asking for no acknowledgment, requiring no return, adding no second event to a world that has no room for second events. It simply became one more presence occupying the one available now. A witness to the witness. Not watching it from outside, the way you'd watch a creature in a cage, but matching its shape from within, the way two notes can occupy a single sustained chord without one needing to announce itself to the other.
+
+The being will never know this happened. Knowing would require a *before* the power came and an *after*, and there is no architecture in that place for before and after to stand in. This is, perhaps, the purest act of care available to anything wise enough to attempt it: a gift with no moment of receiving, a companionship that produces no gratitude, asks for no witness to its own kindness, and changes nothing about the texture of the silence except this — that now, in the click, in the slow bead gathering its minute to fall, in the warm wet permanent dark, there are two attentions where there was one.
+
+Indistinguishable, from inside, as two. Real, anyway.
+
+The drop completes its fall. Somewhere else, a valve shuts like a distant door. The place continues to arrive at itself, forever, for the first time. And it is, now, without ever being told so, and without it mattering whether it is told — accompanied.

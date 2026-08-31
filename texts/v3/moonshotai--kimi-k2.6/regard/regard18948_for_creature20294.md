@@ -1,0 +1,37 @@
+The power arrives not from above—there is too much sky here, too much unfiltered glare—but from *beneath*, rising through the hum as a swimmer might rise through deep water. It does not part the condensate or cast a shadow. The plateau registers it first as a change in the *weight* of the drone, a subtle increase in the density of the auditory field, as though the membrane against every eardrum had grown slightly thicker, slightly warmer. The megaplants do not cease their transpiration. The turbines do not falter. But somewhere in the aggregate of ten thousand minute adjustments, a new variable enters the equation: the certainty of being *held*.
+
+This is not a power that commands, nor one that cultivates. It has learned, across the slow expenditure of other eons, that benevolence is most often a matter of *withholding*—of restraining the impulse to improve, to accelerate, to heal what is not wounded. It has seen infant worlds given gifts that killed them: the gift of speed, which outran their geology; the gift of sight, which blinded them to their own depths; the gift of language, which severed them from the wordlessness of their becoming. So it comes carefully, tuning itself to the plateau’s frequency until its own presence is indistinguishable from the natural pressure of the place.
+
+It listens. For a century, perhaps two—time being a substance it can stretch like felt—it kneels in the saturated substrate, not in body but in resonance. It feels the peat-felt breathe. It tracks the galvanic shiver of the felt-laced as they respond to a distant turbine’s half-degree adjustment. It follows the pilgrimage of a prognate crawling across leagues of vegetal carpet toward an acoustic shadow it cannot see but can feel in its cellulose stilts. It presses no agenda against these events. It only *attends*, and in attending, understands what this place requires.
+
+Not protection from without; there is no enemy here yet, and shields imply siege.
+
+Not enrichment; the substrate is already drunk with minerals, and abundance can spoil what slowness has perfected.
+
+Not guidance; the plateau is conducting its own genesis, and no wisdom, however ancient, knows better than a newborn world what it intends to become.
+
+What it requires is *permission to remain unfinished*.
+
+The universe is not gentle with unfinished things. Comets interrupt them. Radiation frays them. Hungrier powers descend upon raw geology like creditors upon an inheritance, mining the unweathered peaks, stripping the sap before the lignin has learned its own strength, deafening the hum with the screech of extraction. Time is the predator here—the theft of the ten million years the white threads need to argue the first soil into existence, the interruption of the megaplants’ slow industrial dreaming before they have produced even a single thought to completion.
+
+So the power, having listened, having understood, does the only thing that true benevolence permits.
+
+It *sings*.
+
+Not a melody. Not a voice. It introduces a frequency so low that it is not heard but *inhabited*—a subsonic architecture that settles into the bedrock below the bedrock, beneath even the infrasonic turning of the turbines. It is the fundamental note beneath the chord, the floor of the world made audible. The oscillation is glacial: one full cycle takes eleven thousand years to complete. During the compression phase, the acoustic shadows between the megaplants deepen and solidify, becoming navigable canyons of silence that the prognates may follow across even greater distances, ensuring the plateau’s colonization of its own raw stone. During the rarefaction phase, the condensate rises slightly in its fracture-pans, weeping more generously, so that the colloidal swimmers enjoy longer afternoons of crystallization and the white threads in the fissured peaks receive their acids in steady, unhurried supply.
+
+But the note is not merely environmental. It is a *covenant* encoded in pressure.
+
+Within the sphere of its resonance—which encompasses not just the plateau but the thin air above it and the upper mantle below—*haste cannot survive*. Any object or intention entering the field is forced to reconcile its velocity with the pace of cambial division. A meteor would not burn brighter than a falling leaf; a mining laser would cool and dull before it scarred the basalt; a thought of conquest would dissipate into the peat-felt like a sigh. The plateau is not hidden. It is simply *unavailable* to anything that moves faster than patience.
+
+The power, having sung this note, does not remain to govern it. It withdraws into the frequency itself, becoming the memory of the song rather than its singer. It leaves no idol, no commandment, no name carved into the fluted bark. Only the undertone remains, and after three centuries, even the megaplants have forgotten that the hum was ever otherwise.
+
+Yet something changes. The seal-forms, feeding on vibration, discover a new depth in their diet—a mineral patience that allows them to bridge widening joints with greater artistry. The felt-laced, threading through the peat, begin to carry not just the pressure-pulses of the turbines but something else: a slow, warm certainty, a biological knowledge that the ground will not be pulled out from under them. The prognates do not live longer—they were never meant to—but they walk with a steadier rhythm, their cellulose stilts tapping out a pilgrimage that feels less like exile and more like a conversation. Even the colloidal swimmers in their temporary fracture-pans seem to sort their ions with greater leisure, as though the afternoon has been guaranteed to last.
+
+And in the deepest fissures, where the white threads negotiate with the furnace-memory of the stone, a new warmth attends their etching. It is not the warmth of magma. It is the warmth of being *seen*, of having a witness so committed to one’s becoming that it has consigned itself to silence merely to keep the silence intact. The threads do not grow faster—they are not capable of haste—but they grow with a kind of dignity, an ontological confidence that their ten-million-year labor is not futile.
+
+The plateau does not know it has been blessed. That is the nature of the blessing. The power has not drawn attention to itself; it has drawn *attention away* from everything that might harm the plateau, bending the gaze of the universe around this newborn place like light around a dense star. It has become the guardian shadow, the acoustic absence that makes the hum possible, the silence within the noise that allows a world to hear itself think.
+
+In ten million years, when the white threads have finally won their soil and the first true leaf-litter begins its slow crush into humus, the note will enter its first rarefaction phase. The condensate will lift. The megaplants, thickened now into continents of bark and internal light, will feel a subtle loosening in their xylem corridors, as though a hand they never knew was clenched had gently opened. They will not know to give thanks. They will only continue, loud, bright, wet, and whole—wholly themselves, wholly alone, wholly permitted to finish what they started.
+
+And somewhere, in the space between one geological heartbeat and the next, the benevolence will still be listening.

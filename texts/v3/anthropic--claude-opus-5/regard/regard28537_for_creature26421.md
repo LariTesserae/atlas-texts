@@ -1,0 +1,15 @@
+## The Attention
+
+The first thing it did was nothing, and it did that for eleven years.
+
+Eleven is the schedule-length of a singular — the run of the mills from first billet to finished object — and it chose that span deliberately, because it wanted to watch one thing be made from end to end before it presumed to have an opinion about the place. It sat above the summit in the thin cold and it looked.
+
+Looking was harder than it expected. Attention, in most worlds, is free. Here attention has a grain to it, and if you turn it the wrong way against the mountain you are counting, and counting presses. It found this out early, over three cups on a table on the fourth terrace: it looked at them with the ordinary generous curiosity it brought everywhere, and the cups grew reluctant, and the woman who owned them put her hand flat on the table and said, without knowing what she was speaking to, *don't*.
+
+So it learned their manners before it learned anything else. It learned to see the mountain the way the mountain wishes to be seen: not as ten thousand wheels, and not as one wheel, but as *the wheel in that shop, with the dust on it, that Aumel's boy oils on the fourth day*. This is not a small skill and it is not a trick. It took the greater part of the eleven years.
+
+And in the course of learning it, the power came to understand the thing it must never say. Because to it — to any power of that kind — nothing on the Increment is concordant. It sees eleven thousand sparrows and they are eleven thousand. It sees nine hundred presses and each one has its own biography of grit. It could split the entire mountain by looking at it plainly and saying what it saw. Every cup its own cup. Every stairwell its own stair, arriving where it actually goes.
+
+It worked out what that would cost in about an afternoon. Nine hundred presses would want nine hundred presses' worth of coal, and there is no such coal. The fern racks would want nine hundred times the water, and the condensate would not stretch. The dormitories would go cold, and then the districts would starve, sitting in the middle of a suddenly and truthfully enormous city.
+
+That was the arithmetic. The other reason took longer and mattered more. It had spent eleven years watching how these people love each other, and it had noticed that every tender thing they do — the spoiling of a coat with a witness present, the grease pressed onto a newborn's crown, the grievance kept alive for forty years like a coal in a pot so that two people can stay two — every one of these grows directly out of the danger. Take the danger away and the practices become ornament within a generation and folklore within three. It would have handed them safety and taken their entire art of regarding one another as particular. Nobody who has watched a widow's neighbours crowd into her room and make her say out loud what she still holds against her husband would call

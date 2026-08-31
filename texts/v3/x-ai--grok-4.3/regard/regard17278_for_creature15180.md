@@ -1,0 +1,13 @@
+A benevolent power, vast and unhurried as the stone itself, would arrive not as storm or trumpet but as a second, slower kind of weather.
+
+It would first pause at the lip of the shelf, where the wind thins and the mist parts, and simply look. In that looking, every drop already tracing the rock would be tasted, every thread of nitrogen carried on the updrafts counted, every clutch of translucent eggs and every fold of grazed moss weighed and known. The power would see that nothing here is wasted and nothing is in surplus; the system is already a single, breathing equation solved over millennia. Interference of the usual sort—more rain, fewer predators, warmer stone—would only tilt the balance into new hunger.
+
+So the power would choose the smallest possible act of care: it would steady the seams.
+
+Where hairline cracks threaten to open wider under the next hard freeze or the next century of wind, it would lay a quiet pressure, not to seal them but to keep them weeping at the same measured rate. The water would continue its patient work; only the work would not accelerate toward collapse. The power would also reach, once, into the updrafts and give the broad-winged hunters a slightly wider margin of lift on days when the wind threatens to dash them against the wall. A falcon that would have died would live another season, lay one more clutch, and the lizards would remain wary but not decimated. The herbivores would find one additional pocket of untouched moss on the lee side each winter, enough to keep the oldest bloodlines from blinking out when a late storm buries the usual grazing.
+
+Nothing more. No new species introduced, no sudden abundance, no revelation of hidden caves or buried sunlight. The power would understand that grandeur and safety are not the same thing, and that this place has already chosen the former in exchange for the latter.
+
+Before it withdrew, the power would leave one invisible signature: a faint, persistent fragrance, noticeable only to the cushion plants themselves. When the mist is thickest, their turquoise hearts would carry, for a few heartbeats, the memory of having been seen. The plants would not grow faster, but their white pinhead flowers would open a fraction more often, releasing their resinous scent with slightly greater trust that the wind, for all its violence, will sometimes carry something besides hunger.
+
+Then the power would step back into the larger weather, content that the shelf continues exactly as it is—small, exacting, sufficient—while the mountain keeps wearing itself into the next age.

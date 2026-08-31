@@ -1,0 +1,31 @@
+The benevolent power arrives not as light or sound but as stillness—a profound pause that spreads from a single point near the plateau's heart. Not a freezing, not a holding, but something more like a deep breath drawn by the universe itself. For the first time in geological memory, the plateau... listens.
+
+The Resonants feel it first through their feet—the absence of tremor like sudden deafness. They freeze mid-motion, their fluid bodies suddenly uncertain, children clutching at parents who have never known a world without shaking. Some collapse, their constantly-adjusting musculature confused by stability. Others begin to tremor themselves, their bodies generating the vibrations they need to feel real.
+
+The power moves through the stone with infinite gentleness, reading the plateau's deep history like braille. It finds the source—an ancient wound in the planet's crust, a place where different layers of geological time meet and argue, creating the eternal instability. The power doesn't heal this wound (wounds are just another form of being) but instead... introduces it to itself. Shows the plateau its own nature from a perspective of millions of years compressed into a moment of understanding.
+
+*You are dancing,* the power conveys without words, seeping this knowledge into every grain of stone. *This is what dancing is.*
+
+The plateau experiences something like recognition.
+
+The change isn't immediate or dramatic. The trembling doesn't stop—that would kill everything adapted to it, including the Resonants. Instead, the chaos develops something previously absent: rhythm. Where before the collapses came randomly, now they follow a deep pattern, a percussion that repeats on scales of days, seasons, years. Predictable unpredictability. Jazz made stone.
+
+The Resonants are the first to understand. Their eldest—a woman whose bones have been broken and reset so many times she moves like water—places her palm flat on the ground and feels the new pattern. She begins to laugh, a silent shaking that spreads through the group via touch, body to body, until all forty-three members of the nearest clan are vibrating with understanding. The plateau hasn't been tamed—it's been given consciousness of its own dance.
+
+The power touches the vegetation next, whispering chemical encouragements into the chlorophyll-drunk plants. *Slower,* it suggests. *There's time.* The explosive growth gentles—still rapid by any normal measure, but no longer the desperate rush of things that expect to die. The vines begin to follow the new rhythm, growing in pulses that match the stone's beat. The fruit trees develop patience, their cycles extending from days to weeks.
+
+For the fauna, the gift is different. The power grants them brief moments of prescience—just enough to feel the rhythm coming, to move with informed intent rather than constant reaction. The long-legged not-rabbits begin to play, actually play, in the spaces between catastrophes. Birds build nests that last entire seasons. A new species of moth emerges that times its life cycle to the plateau's rhythm, clouds of them rising exactly when the phosphorescent spores bloom, creating light-storms of unimaginable beauty.
+
+To the Resonants, the power gives the smallest gift that changes everything: the ability to hum. Not loudly enough to overcome the plateau's roar, but enough to carry through bone conduction, through touch, through the ground itself. They develop songs that harmonize with the stone's rhythm, melodies that predict and guide and celebrate the dance. Their children begin learning these songs before they can walk, and for the first time in generations, they build something permanent—stone amphitheaters carved into the brief stillnesses, designed to amplify and focus their humming into the plateau itself.
+
+The power does one last thing before withdrawing. In the heart of the plateau, where the ancient wound runs deepest, it leaves something—not an object but a possibility. A space where, once every hundred years, the plateau will achieve perfect stillness for exactly one day. Not a death but a rest, a sabbath of stone. The Resonants will discover this in time, will learn to gather there, all the scattered clans coming together in the silence to share their accumulated songs, their woven histories, their children and stories and scars.
+
+But more importantly, during these still days, they will feel what the power felt—the deep consciousness of the plateau itself, ancient beyond measure but newly aware, a vast intelligence made of stone and time and trauma that has learned to dance with purpose rather than pain. They will place their palms on the ground and commune directly with the land that shapes them, and for that one day, they will understand that they were never merely surviving on the plateau but were always part of it, cells in a larger organism that needed to discover its own nature.
+
+The power withdraws, but its influence lingers in the pattern, in the rhythm, in the new consciousness that spreads through stone and stem and flesh. The plateau still trembles—it must, it's who it is—but now it trembles with intent, with joy, with the deep knowledge that its violence is creation, its chaos is dance, its eternal transformation is the pulse of something learning to be alive.
+
+The Resonants adapt, as they always have, but now they adapt with purpose. Their circuits become pilgrimage routes. Their temporary shelters become instruments, played by the wind and stone. Their children grow up knowing they are part of something vast and strange and holy—not subjects of the plateau but participants in its becoming.
+
+And in the phosphorescent nights, when the spores paint their temporary constellations and the Resonants glow with their oils, the plateau itself seems to glow too, veins of quartz pulsing in rhythm with the human lights, the whole vast tableland breathing with bioluminescent life, a gesture of acknowledgment from the deep stone to the soft flesh that dances upon it:
+
+*We are, together, the trembling.*

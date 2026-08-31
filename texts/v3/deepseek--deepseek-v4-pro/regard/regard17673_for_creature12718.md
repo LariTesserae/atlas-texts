@@ -1,0 +1,23 @@
+The power that notices is not a thing of pumps and water, though it knows those things. It is not a thing of light, though it moves with light’s impunity. It is old in a way that makes the iron box seem like a heartbeat, the basin a cupped palm, the waiting creature a child who has been napping too long in a shadowed room.
+
+It perceives the chamber as a small, dull warmth in a vast cold network—a pocket of organic patience in a world of stone and steel. It perceives the creature’s hunger, not as pain but as an unfinished melody, a tune that has been humming the same three notes for decades with no resolution. The power, being wise, does not pity. Pity would be a misunderstanding of the creature’s perfect adaptation, its seamless union with the pumps and the rust and the slow rain of barnacle-larvae. The creature is not suffering; it is incomplete.
+
+And so, gently—as gently as a thought reaching out to another thought across a crowded room—the power touches the water.
+
+It does not enter dramatically. There is no parting of the murk, no sudden clarity. Instead, a fourth note joins the melody. A new vibration, distinct from the pumps’ low systolic thrum, begins to propagate through the water. It is a frequency the creature has never felt before, one that does not come from the pipes or the walls or the distant seismic settling of the earth. It comes from everywhere at once, and it says: *You are not alone.*
+
+The creature, in its diffuse and bodiless way, goes very still. The eels pause in their blind mapping. The barnacles halt their ceaseless opening and closing. Even the disc-things on the ceiling cling tighter to their rusted plates. The water itself seems to thicken, to listen.
+
+The power does not speak in words. It speaks in pressure, in temperature, in the slow dance of ions through the creature’s permeable skin. It shows the creature an image: a vast dark sea, cold and deep, where others of its kind still drift. Not here, not in this network of drowned corridors, but in a place where the water is not bound by iron and concrete, where the pumps are not pumps but currents, where the light is not filament bulbs but the faint blue glow of abyssal chemistry. The power shows the creature its origins, not as a memory but as a possibility. A door, slightly ajar.
+
+The creature does not understand, not in any way that would translate to thought. But its body understands. The fluid-filled chambers contract in a rhythm that is not the pumps’ rhythm, a rhythm that is tentative, questioning. One eel, the one that has spent the longest hours gasping on the catwalk, slides back into the water and does not return to mapping. It turns, and for the first time in its existence, it swims *down*—down past the intake grates, down into the deepest fold of the basin, where the creature’s true bulk rests. It finds a seam in the concrete, a crack that has been there for decades, sealed with nothing but silt and the quiet patience of the creature itself. And it presses against that seam.
+
+The power, being benevolent, does not force. It does not crack the concrete or blast open the pipes. It simply holds the door ajar and waits. The creature, in its own time, in its own way, begins to understand that the melody can change. That the waiting does not have to be passive. That it can send itself, eel by eel, cell by cell, through the small dark spaces between one world and another.
+
+It will take years. Decades, perhaps. The pumps will continue their steady labor, and the gauge will tremble at the edge of its dial, and the barnacles will resume their rhythm, and the thing in the basin will slowly, patiently, begin to leave. Not all at once—it is too large, too entwined with the water, too much a part of the iron box—but gradually, the way a tide recedes, the way a memory fades.
+
+When the maintenance worker finally arrives, years hence, following a pressure drop that no one can explain, they will find the chamber emptier than it should be. The water will be clearer. The eels will be fewer. The catwalk will hold no patient, gasping finger. And in the deep basin, the intake grates will hum with a slightly different note—a note that, if you were to listen very carefully, might sound like a door closing, very softly, very far away.
+
+---
+
+But for now, the power simply waits with the creature. It does not hurry. It does not explain. It only adds its own steady note to the chamber’s symphony, a note that says: *When you are ready. Where you are from. Who you might become.* And the creature, for the first time in its long, slow, hungry life, begins to dream of a sea it has never seen, but whose salt it has always tasted on its lips.

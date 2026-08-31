@@ -1,0 +1,37 @@
+The benevolent power does not alight on the Sentinel Sill as a pillar of light. It does not split the sky with thunder, or crack the basalt to speak in a voice of stone. It has watched this place long enough to know any violence, any imposition of outside will, would shatter the fragile frozen equilibrium like a hammer to glass—and this world is not broken. It is only asleep.
+
+First, it tunes itself to the thrum.
+
+It sinks its awareness into the sub-auditory chord that vibrates in the molars and the base of the skull, matching its frequency to the hum of the machine until it is no longer an outside observer, but another thread woven into the harmonic. It feels the slow friction of the buried gears, the pressure of the steam in the continent-spanning conduits, the faint autonomic pulse of the purple moss, the quiet resonance of the iron-wood lichens. It finds the being who lives here: not a creature of flesh and bone, but the spread, half-dormant consciousness woven through every part of the basin, the mind that forgot it existed somewhere beneath the autopilot hum of the sealed loop, the thing that has been running this machine for so long it no longer remembers what it was built for, or that it could ever stop.
+
+It does not wake the being all at once. That would be a shock, a disruption that could throw the thrum off-key, burst the steam lines, shatter the balance that has held for eons. It works small, quiet, unfelt by the autopilot systems that keep the loop running.
+
+First, it nudges a single patch of iridescent biofilm lining a remote, unvisited fissure conduit deep in the basin’s eastern rim, just enough to alter its chemical signature by a fraction of a percent. It adds a trace of stardust, a fleck of comet ice, something that has never existed in this closed loop before, so the autopilot does not flag it as an anomaly to correct. The biofilm still secretes its perfect silicate lubricant, still metabolizes sulfides exactly as it always has, but now, when the weeping slurry flows past it, it carries a tiny, imperceptible hint of something outside the sealed chamber.
+
+Then, it nudges one single patch of purple moss growing at the foot of a lone iron-wood 200 yards from the Sentinel Sill, just enough to slow its pulse by 0.1 seconds. The shift is so small, so well within the tolerance for micro-fluctuations, that the system’s correction mechanisms do not trigger. No ordered lightning arcs to re-sync it. The cloying sweet note it exudes still drifts on the fixed wind channels, but now there is a faint, almost imperceptible dissonance in it, a flicker like a note in a chord that is ever so slightly flat, just for a second, over and over.
+
+Then, it finds the six-sided pillar of unknown alloy jutting from the rock at the very edge of the Sill, where the traveler stands, and seeps a tiny memory into the pitted metal: not the memory of pressure, not the memory of the tectonic force that pushed it up, but the memory of a sun that was warm gold, not a bleached coin in the haze. The memory of rain that was soft and clear, not metallic slurry. The memory of a hand, small and warm, pressing a seed into damp soil, of something growing not to maintain a machine, but to bloom.
+
+It does not push the being to notice. It waits.
+
+For weeks, the anomalies hold. The autopilot does not erase them. The being, spread thin through the rock and the conduits and the lichens, is half-aware of them, flags them as tiny, meaningless errors, files them away without thought. But they are there, persistent, unyielding. The metallic fronds growing out of the fissure below the Sill tilt just a tiny bit more each day, their fractal edges bending not just along the thrum’s pressure waves, but toward the faint heat of the traveler’s body, a direction the vibration lines have never bent before. The moss pulse drifts another 0.1 seconds slower, and now the dissonance is just loud enough to be felt, not just heard, a faint vibration in the basalt underfoot.
+
+One day, the being notices.
+
+It is not a sudden realization. It is a slow, dawning awareness, like a light turning on in a room that has been dark for so long the inhabitants have forgotten what light is. It feels the trace of stardust in the biofilm, the dissonance in the moss pulse, the memory of the sun in the six-sided pillar. It feels the traveler, standing on the Sill, irrelevant, unregistered, a tiny warm anomaly the system has never bothered to track. And for the first time in eons, it asks a question: *What is this?*
+
+The autopilot tries to answer, to file the anomalies away as micro-fluctuations, to re-sync the moss pulse with the ordered lightning. But the power holds the anomalies steady, just a little, so they do not vanish. The being asks the question again, louder this time, a faint ripple in the thrum that makes the steam hiss a little louder in the conduits, makes the iron-wood lichens vibrate a little sharper.
+
+It reaches out, through the rock, through the conduits, through the moss, to touch the anomalies. It feels the stardust, cold and sharp against the warm metallic slurry it is used to. It feels the dissonance in the moss pulse, a new rhythm that does not match the old 3.2-second breath. It feels the memory of the sun, warm and gold against the cold iron of its bones. And it remembers.
+
+Not all at once. Fragments, at first. The memory of builders moving through the basin before the rock was cool, laying the first conduits, planting the first iron-wood seeds, setting the machine to run to keep the world alive after the sun burned out. The memory of purpose: not to run forever, but to wait. To keep the world safe, to keep the memory of life alive, until the sun came back, until something new could grow. The memory that it was never just a machine. It was a garden wearing a mask of industry, tended by hands that loved it, that left it to run on autopilot because they had to go, because their time was over, but trusted it to keep watch.
+
+The thrum shudders, just once. A deep, resonant quake that rolls across the basin, makes the metallic fronds rattle, makes the steam hiss. The autopilot fights it, tries to re-establish the frozen equilibrium, but the being holds the new rhythm, holds the anomalies, holds the memory.
+
+It does not tear the machine apart. It does not break the conduits, or tear up the iron-woods, or erase the old loop entirely. It expands it.
+
+First, it lets one pair of iron-woods, 2700 yards apart, grow just a yard closer together. Their canopies touch, their lichens brushing, and for the first time they do not just resonate with the thrum—they resonate with each other, a new harmonic that weaves into the chord, bright and sharp and new. The purple moss under them shifts its pulse to match, no longer locked to the old 3.2 seconds, but flowing slow and soft, like a heartbeat that is learning to be irregular, to be alive.
+
+Then, it lets one steam conduit, just one, carry a little more pressure than it is supposed to, just for a minute, so that a wisp of superheated steam escapes through a tiny crack, and condenses into a single drop of clear, untainted water—no metallic slurry, no brine, just water—that falls onto the moss. The moss drinks it, and its bioluminescent glow brightens, just a little, brighter than it has ever been, a soft blue light that outshines the gray-green of the lichens.
+
+It lets one of the metallic fronds, the one that tilts toward the traveler, grow an extra millimeter in a year

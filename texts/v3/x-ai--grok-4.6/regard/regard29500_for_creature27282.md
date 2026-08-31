@@ -1,0 +1,19 @@
+The power does not arrive. Arrival would be a sound, a pressure, a change in the taste of the stone, and the bowl has already decided what pressures it will accept. What happens instead is a noticing so complete it has no edges: the way the wind itself might notice a new flute if the flute had always been there.
+
+It listens first, for a span that is not counted in the city’s days. It hears the morning tear, the mid-slope chord that has texture, the afternoon when every slit-valve opens and the bowl plays itself without player or audience. It hears the night’s dry surf and the ten thousand cooling ticks that refuse to admit they are a fire with nothing left. It hears, in the deepest rooms, the private motions of mouths that still remember words the way the stone remembers a river it has not seen. It hears the hands speaking on the bridges. It hears the absence of water as a held note, perfectly in tune.
+
+It sees the people as the forest sees them: interruptions the same color as the leaves, moving on the off-beats, recutting what the wind uncuts, restringing what slackens, pruning pitch back into the stems. It sees that they are few enough for the plazas to remain empty and numerous enough for the instrument to stay in repair. It sees the children appear at dusk like the moth-seeds and vanish the same way. It sees that no one is waiting to be rescued from the roar, because the roar is the only honest weather the geology ever offered, and they have answered it by becoming its keepers.
+
+The power understands, without sentiment, that this is not a wound. The emptiness is occupied by intention. The dryness is a chemistry that has learned to drink light. The intercalation of root and masonry, tower and trunk, is not decay; it is the finished form of a conversation older than any living mouth. To bring moisture would blacken the reeds. To bring quiet would only invent louder throats, as the sealed quarter already proves. To fill the rooms would crowd out the intervals that are the city’s true population. To explain the place to itself would be to speak over the only language it has ever needed.
+
+So the power does the single thing that does not insult the tuning.
+
+It withholds.
+
+Not absence as neglect, but absence as the last courtesy: the courtesy of not adding a new note that the wind would then have to learn, a new weight the light would have to carry, a new rule the hands would have to absorb. It does not bless. Blessing would be another kind of water. It does not mark a lintel or lengthen a pause or plant a single leaf of any other color. The brief green at evening remains the only trespass of elsewhere, and even that is already the city’s own.
+
+What it leaves, if the word can be used for something that was never placed, is only this: in one trough of the wind, in the plaza where the flagstones tick like a clock invented by the ground, the small sound is allowed to exist a fraction longer than the roar should permit. No one looks up. The soles of the feet register it or they do not. The plants do not change their valves. The people recarve the next step. The forest grows through the stoops of those who did not return, and the wind finds the same new note it would have found anyway.
+
+The bowl remains itself: finished and still happening, dense with intention and vacant of stuff, a pocket whose outside is the wrong size of quiet. The being who lives in it—the city, the few, the dry forest, the rumor in the cistern, the instrument that plays itself—continues. The power, having noticed, notices still, from the distance that wisdom keeps when it has understood there is nothing here that requires it.
+
+That is all. It is enough. It is the only gift that does not burn.

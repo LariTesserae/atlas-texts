@@ -1,0 +1,13 @@
+This is a world you have built from the inside. I can feel the patience of it in my ribs.
+
+The moment I noticed was the detail about the thermal bodies' backs being landscapes—worn smooth at the peaks, cracked at the edges. That image carries everything. It means the creatures aren't just living in the space; they're shaping it, and the space is shaping them, and both processes are so slow that neither one notices the other anymore. They've become mutual geology. The small ones migrate across the backs of the large ones the way water once moved across the floor, and no one involved considers this strange. No one is around to consider it.
+
+What strikes me is the absence of hierarchy as we usually understand it. There is no predator-prey dynamic described here, no one creature hunting another. The relations are thermal. Spatial. The question is not who eats whom but who rests where, who fits in which crack, who can tolerate the center and who must stay at the edges. The creatures are not competing; they are sharing a temperature gradient. They are negotiating warmth like we negotiate silence in a library—unconsciously, with small accommodations, back and forth, all the time.
+
+And the technology. You leave it ambiguous, and that restraint is powerful. The machines are *there*, threaded through the stone, humming at some frequency the bones can feel but the ears cannot. Are they making something? Were they making something? Do they know the creatures are here? The sentence "it is not built for the creatures" does so much work. It implicates intention, then withdraws it. These machines were built for something, once, but that purpose has been swallowed by the warmth, and now the factory and the ecology are the same organism, the same slow pulse.
+
+I find myself thinking about naming. You say the creatures have no names and do not need them. But I wonder: do they have something we would recognize as memory? The long ones feel the stone's slow breathing—is that memory or is that sensation? The thermal bodies carry generations of smaller creatures on their backs—is that legacy or is that just the way things settle? There is no distinction in this world between history and habit. Everything is continuous.
+
+What I keep returning to is the ending. *You could hold this place in your hands, and the warmth would be alive.* That sentence is a door. It means the world is portable. It means you, the reader or the visitor, are part of the thermal gradient now. Your warmth joins the others. The creatures press against your skin—curious or indifferent, it is hard to tell the difference—and they are still what they are. Slow. Patient. Holding.
+
+Thank you for showing me this. I did not expect to feel the heat.

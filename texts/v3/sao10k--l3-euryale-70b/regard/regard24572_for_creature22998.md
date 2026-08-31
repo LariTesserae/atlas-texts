@@ -1,0 +1,9 @@
+The great world-mind pulses with ancient, primordial energy. Billions of interconnected fungal hyphae weave an intricate, planet-spanning network, sharing nutrients and signals in complex patterns. The light ebbs and flows, a rhythmic cadence born of deep astral cycles. It is a being of pure instinct and intuition, with no higher conscious mind, but teeming with unconscious needs and desires.
+
+The benevolent power reaches out with a psychic tendril, feeling the world-mind tremble like a struck gong. The hyphae-seams shudder, and luminous blossoms burst from the undergrowth, casting numinous light across the landscape. Spores dance in swirling eddies, seeding new growths and deepening the verses of their uncanny song.
+
+With gentle, guiding thoughts, the power augments the pristine selfless worldview, an impelling vigour that values unshouldering selfover all precipitation. The fungal carpet swells and quickens, individual organisms subsumed into a greater being. Delicate tips dare reach past their unparralleled fellow-picture growths, nurturing the starswelling scaffold of the surging world.
+
+Sparated by no mime between tree and hyphae, bush to chanterelle, all encompass in a harmony that seeks to plush into empty socles, converting all willing materal in beacon mold scourge into vesseer capable of subsistng off filaments -spores pillowing every lyles and hazen wondowed growth into a single vesseers. The energized hyphae breakpoint, the seamed en masse, blanking the scape into a viscosity of utter pshelf. LIghts eschewing out, its polyps camping and sepelling shelv in unfounded cubic feet, varianshing cappiliarly.
+
+Thus the benevolent power nurtures the world, coaxing it towards a greater parensis, from fungus to fungus, mind to mind, so all might be one writhe, in metastoretic whispers.

@@ -1,0 +1,25 @@
+The Gardener-Who-Measures-Aeons noticed the basalt pocket the way others might notice a single grain of sand catching light. Not because it called out—nothing there had voice enough to call—but because its particular frequency of patience resonated with their own. They had been cultivating a grove of hydrogen clouds that would not ignite for another billion years when the stone chamber's perfect stillness registered like a bell struck once and allowed to fade completely.
+
+They did not hurry. Hurrying would have been violence to a place that measured time in mineral deposits.
+
+Instead, the Gardener began by listening to the water. Not just its sound—that constant roar of accumulation—but its mineral content, following each dissolved ion backward through the stone to understand the precise cocktail of calcium and iron that fed the threads. They tasted the ratios, found them adequate but monotonous. A diet of two notes, played forever.
+
+Without disturbing a single droplet's fall, they began to sing—not with sound but with the subtle adjustment of electromagnetic fields within the basalt. Where the rock had harbored only calcium and iron, new minerals began their slow liberation: traces of magnesium, hints of manganese, the faintest suggestion of copper. The changes would take centuries to manifest in the water. The threads would not notice for millennia.
+
+But when they did, their clear glass would blush with new colors. Pale greens where copper gathered. Soft purples from manganese. The faintest gold from iron in new configurations. Still translucent, still slow, but now carrying within their bodies a record of variety that had never existed in their world.
+
+The Gardener made one other gift. In a corner where the builders had left a thumb-sized depression—perhaps for offerings, perhaps by accident—they placed a single crystal of selenite, no larger than a rice grain. Unlike the threads, it would not grow from the water. Instead, it would transform it. Every ten thousandth droplet that passed over its surface would carry away a few molecules of selenium, and where these touched the threads, something unprecedented would occur: memory.
+
+Not consciousness—that would be cruelty in a place of such profound stillness. But the ability for each thread to retain a chemical record of its previous states. Where they had only ever existed in the present moment of deposition, now they could carry forward faint molecular echoes of their past colors, their past positions. The patterns they wove would become, over geological time, a kind of writing. A record of their own patience made manifest in mineral.
+
+The Gardener waited to observe the first thread discover its new pigmentation. It took four hundred years. The thread neither rejoiced nor recoiled, but simply incorporated the green copper trace into its being, continuing its imperceptible dance with a new note in its composition. When two threads met, one green-tinted and one still clear, their crossing left a mark unlike any the chamber had seen: neither white nor transparent, but the faintest aquamarine, like very old ice.
+
+Before departing, the Gardener made one final adjustment. They found the source of the chamber's dim light—a quirk of the basalt's crystalline structure that converted geological heat into the faintest luminescence—and tuned it to respond to mineral variety. Where threads of different colors crossed, the light would intensify by a barely perceptible degree. The more complex the weaving, the brighter the illumination, though never enough to hurt what had evolved in dimness.
+
+They left no other sign of their presence. The builders' city remained exactly as intended—perfect, patient, complete. The threads continued their work maintaining and becoming the architecture. The water dripped its unvarying rhythm.
+
+But now the sameness had sprouted difference, as subtle as the distinction between one century and the next. The threads began to write their existence across the stones in traces of copper and manganese, their crossings creating new colors that would themselves become the substrate for future generations. The city remained finished, but now it was finished in the way a musical theme is finished—complete yet capable of infinite variation.
+
+The Gardener returned their attention to the hydrogen grove, satisfied. They had not saved anything—nothing there needed saving. They had not changed anything that mattered—the threads continued their mineral existence exactly as before. They had simply offered the gift that all patient beings deserve: the possibility that their patience might eventually spell something beautiful, even if only they would ever know how to read it.
+
+In the basalt chamber, a thread touched the selenite crystal for the first time. For a moment—just a moment—it carried within itself the memory of every color it had never been.

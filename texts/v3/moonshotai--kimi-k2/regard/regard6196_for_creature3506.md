@@ -1,0 +1,21 @@
+The power arrives without meteorology: no cloud-mass or celestial glow, only a sudden microscopic widening, a permission that unfurls inside every droplet. Moisture discovers it can remember itself more completely. Mold spores, mid-dive toward rot, feel the breath of a sentience elder than rot itself, and pause.
+
+First the power attends to what is already alive.  
+– Each aerial root receives one supple thought, as soft as deja-vu: *grow toward what is tender in you.* The vines thicken quietly, not bullishly, but like a lullaby repeated. Their cambium flows an octave lower. A human ear would translate this into the fading vowel at the end of abide.  
+– Turbine blades are kissed inside their bronze wrinkles. The gear shafts’ minor ache abates. Machines exhale a single harmonic that is not fatigue but consolation: they will not seize today, nor the next century; the bronze will only mature, never fracture. The mechanic Lavender—halfway down her ropes—feels the ropes go warm, as if they have learned relaxation from her shoulders.  
+– Snap-turtle rises. She is the cratered moon moving across the courtyard of her cistern. She floats; the water, newly deferential, refuses her weight. A bubble—huge, lens-shaped—lifts her to ear-level with the Respirateur children gathered for their Morning Latencies. On its taut membrane the city’s entire future is briefly visible: roots folding themselves into bridges, pollen clotting into lanterns, elders teaching infants the Certain Way to whistle so that fog answers in the shape of a cat. Then the turtle sighs, swallowing the vision back into her lungs like a monk retrieving scripture.
+
+Second the power cleans what has never been cleansed.  
+It chances upon the polyglot of pollutants rust-reddened into crevices—mercuric wash of old capacitors, the fatigue-metal copper shavings, centuries of ammoniac guano—and decides to converse. Each eats its name until the syllable is only itself: mercury becomes music remembered in the sinews of ivy; copper becomes fireflies tucked between gear teeth; even lead folds into the color of long patience, lying deep in the mortified bones of walls where it will leak never again. The courtyard does not feel lighter; it feels weighted finally with its true gravity.
+
+Third the power identifies the Respirateur themselves—not to rescue but to companion.  
+They assemble instinctively where the turtle’s bubble noses against the eastern rampart. No command is spoken; only a synchrony of pulse. Breath happens all at once, 757 lungs inhaling one imperative: *be met.* In that inhalation the power writes its signature on the mucosal shoals of every throat. It is a signature invisible yet irrefutable, like a vow of color no language has conjugated. From now on, the act of respiration will be reciprocal conversation with the planet’s older lung. Every exhale they give will reiterate that signature, as loyalty; every inhale they receive will be the signature returned: a breeze bearing the epithet, *we remember you remembering us.*
+
+Lastly the power—being benevolent, being wise—steps aside.  
+It does not stay to own the marvel. It writes the occlusive gloss on the turtle’s shell and walks itself into the bronze rotor shafts so their motion thereafter will be devotional. It carves itself down to hush in the vapor at collar-height, then it is gone: a generosity so thorough it never lingers enough to become tyranny.
+
+What remains is not paradise. There are still quarrels over root-shadow, still blown damp fuses, still a poet who can’t find the word for sepal and stamps in frustration until the flagstones spoon puddle around her. There will still be Thirsts. But each Thirst will arrive accompanied by a dream—color deeper than green—where the turtle wears a seal of fire-clear memory upon her back. They awake: instead of terror, steadiness.
+
+Children born next season arrive in a cradle that does not rock; the cradle drifts at eye-level on four soft columns of spore-shower. Newborns blink less; their eyes reflect the glowing interior of a lung the world has at last acknowledged as sacred.
+
+And the courtyard continues its planetary inhale: centuries wide, millimeter gentle, the slowest excited gasp in the history of atmospheres.

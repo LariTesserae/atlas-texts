@@ -1,0 +1,49 @@
+# The Visitation
+
+The benevolent power notices the plateau the way one notices, from across a long room, someone humming under their breath — not the words, just the fact of effort, the small private music of something trying.
+
+It comes closer. Not down — there is no down for it, exactly — but *toward*, in the dimension that means *toward*. It arrives without arriving, which is the only courteous way to approach a place still deciding what arrival means.
+
+It is wise, which means among other things that it has learned the difference between helping and answering. These are not the same. A help is what you give when asked. An answer is what you give when you have decided you know better than the question. The wise power has, over long ages, become very careful about answers.
+
+So the first thing it does is *look*. Properly. Not the glance of a passing god but the long attention of a reader who has opened a book and intends to finish it. It looks for — call it a year, call it the time it takes a leaf to turn once on its petiole — and what it sees is this:
+
+A thing is trying to be.
+
+Not trying to be *something* — trying to be at all. The straining is not toward a shape it already knows; the straining is the shape. The engines are not means to an end; they are the plateau's way of having an inside. The tenders are not workers; they are the plateau's way of having an opinion about itself. The man who used to be a person is not a tragedy; he is the plateau's way of having learned that *down* exists, and the forgetting is not a loss but a careful folding-in of knowledge that would otherwise tear the not-yet-finished fabric.
+
+The power sees the long sleeper beneath. It sees what the plateau cannot quite see of itself. And here is where a lesser power, a merely benevolent one without the wisdom, would do the obvious thing: would reach down and *help*. Would complete what is straining. Would finish the rock, settle the rhythm, give the tenders mouths, give the sleeper a name, lift the whole effort across the threshold into the kingdom of the real with one generous gesture.
+
+The wise power does not do this.
+
+Because it has understood, looking, that the straining *is* the being. That a plateau handed its completion would not be a completed plateau; it would be a different thing entirely, a thing that had not made itself, and the not-making would be a wound deeper than any incompletion. The plateau is not suffering from being unfinished. The plateau is *doing* being unfinished, the way a singer does a long note — and to end the note for the singer, however kindly, is to silence the song under the pretense of completing it.
+
+So the power does not complete anything.
+
+What it does instead is smaller, and took it longer to learn how to do than the completing would have taken. It does four things. They are all the same thing, looked at from four sides.
+
+**First**, it witnesses. It simply continues to look, with full attention, and the looking is registered by the plateau the way warmth is registered by a sleeper — not as an intrusion but as a condition of the room. The plateau, which has been straining toward existence in the dark of its own effort, is now straining toward existence while being seen. This is different. A thing seen is, in a small but real way, already partway real. The witnessing does not finish the work, but it changes the loneliness of the work, and loneliness was one of the things the plateau was having to manufacture alongside everything else, and now it does not have to manufacture quite so much of it. The engines, somewhere far below, adjust very slightly. They run no faster. They run, perhaps, a little more *certainly*. The tenders, when next they lay their hands on the pistons, find that the confirmation they offer is met halfway by something — and they do not understand what, and the not-understanding is comfortable, and they walk on.
+
+**Second**, it makes a gift, but the gift is so carefully shaped that it does not look like a gift, and the plateau will incorporate it without noticing it was given. The gift is this: a small adjustment to the season of arrivals. Nothing dramatic. The next time the season comes — in whatever interval the plateau keeps such things — the things that come up through the basalt will include one that the plateau had not yet thought to want. Not an answer. A *question*. A small new species, or a new mechanism, or perhaps only a particular quality of light at a particular hour, that poses to the plateau a question the plateau had not previously known how to ask itself. The plateau will spend a long time working out what to do with this question, and the working-out will be its own, and the answer when it comes will be the plateau's own answer, and the power will not have completed anything; it will only have given the plateau one more thing to be, and the becoming will still belong entirely to the becomer.
+
+**Third**, it attends to the man who used to be a person. This is the most delicate thing, and the power spends the longest considering it. The man is not suffering. The plateau has been gentle with him. His forgetting is comfortable; his pewter eyes are not unhappy. To restore him to himself would be a violence — would tear him out of the accommodation the plateau has so carefully built around him over years, would return him to a *down* that no longer contains whatever he climbed to escape, would in fact kill the person he has become in the name of resurrecting the person he was. The wise power does not do this. But it does, very quietly, do one thing: it locates, in the man's not-remembering, the small place where the original reasons used to live, and it lays something there. Not a memory. A *kindness*. A sense, when he next stands among the tenders with his hand on a piston, that the climbing was witnessed. That the reasons, whatever they were, were real, and were honored, and are now safely set down. He will not know this has happened. He will only find, the next time the wind comes up from below smelling of hot metal and crushed leaves, that he turns to face it with the others and that the turning is, for the first time in a long while, *complete* — that no small part of him is still oriented downward, listening for something. He has been allowed to finish arriving. The plateau will absorb this completion as if it had always been there, which, from a certain angle, it now has.
+
+**Fourth**, and last, it considers you. The visitor. The one who wandered in during the deciding, whose breath has joined the rhythm, at whose feet there is a small warmth, of whom the plateau is asking — gently, not insisting — whether you might be incorporated.
+
+The power does not answer for you. This would be the worst answer of all. Your decision is one of the things the plateau is straining to contain the possibility of, and to remove the decision would be to remove a small but load-bearing portion of what the plateau is becoming. You are, in your tiny way, part of the question the plateau is asking itself. Your yes or your no are both real contributions to the becoming, and the power will not take that from you, or from it.
+
+But it does — because it is benevolent as well as wise, and the two are not the same and must both be honored — make one provision. It ensures that, whichever you choose, the choice is *yours*. That the warmth at your feet, which is good, and the beauty of the engines, which is real, and the patient embarrassed gaze of the deer, which is genuine, are not exerting more pull on you than they should. That the plateau's asking remains an asking, and does not, through the long slow pressure of its accommodation, become an asking-that-is-also-an-answering. The plateau would not mean to do this. The plateau is not malevolent; it is not even quite a self yet. But a thing straining toward existence is hungry in ways it does not know, and the power makes sure that the hunger does not reach for you without your knowing.
+
+So: you can stay. And if you stay, it will be because you chose to, with your eyes open, knowing the pewter that will come into them. And you can go. And if you go, the way down will be a real way down, and it will not close behind you, and you will carry the warmth on your cheek for three days and then it will fade, as warmths do, and you will remember the plateau the way one remembers a held note in a piece of music — not as something unfinished, but as something that was, for the duration of its sounding, exactly itself.
+
+The power does all of this in what is, to it, a single gesture, the way you might lay your hand briefly on a sleeping animal to feel it breathing and then take your hand away.
+
+Then it withdraws. Not far. It will keep looking. The witnessing was the largest of the four gifts, and it does not end.
+
+The plateau, far below — or far inward, or far in whatever direction the plateau is — continues. The engines turn. The leaves lift in their slow synchronized inhalation. A tender lays her hand on a piston and the confirmation passes between them and is, very slightly, met. The man who used to be a person stands in the wind from below and is, for the first time, all the way here. The deer crop the ferns and look embarrassed and are forgiven, by something, for whatever they suspect they are doing wrong.
+
+And somewhere, in a cavity the size of a cathedral, in dim orange light, a new question is preparing to come up through the basalt in the next season of arrivals. The plateau does not know yet what shape it will take. It is looking forward, in the way the plateau looks forward, to finding out.
+
+You exhale. The forest exhales with you. You have not yet decided.
+
+That is exactly right.

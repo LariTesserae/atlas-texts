@@ -1,0 +1,39 @@
+In the space between heartbeats, between one drop of water and the next, She notices.
+
+The Presence moves through stone as others move through air—not the violent passage of drilling or breaking, but the way memories move through minds. She is older than mountains, younger than wonder, and She has been drawn by something rare: a perfect note in the endless symphony of becoming.
+
+She manifests not as light in that light-drinking darkness, but as a subtle shift in the water's mineral content. The Weepers taste Her arrival before they sense it—a sweetness in the perpetual moisture, like limestone remembering when it was living coral beneath ancient seas. The eldest among them, those whose skin-patterns form complete mandalas, press their palms to the walls and feel the stone's dreams suddenly deepen, as if the city itself has remembered how to remember.
+
+She does not come to change but to witness. Through the thermal vent, through the impossible artifacts that rise like memories from the deep, She has felt the delicate balance these small beings maintain. She recognizes what others might miss: this is not stasis but a different kind of motion, not death but a different kind of life. The Weepers have achieved something profound without knowing it—they have created a place where time moves in spirals rather than lines.
+
+Her first gift is validation. Into the stone-memory, She whispers acknowledgment. The coral-buildings shiver with new growth, not changing their essential nature but becoming more thoroughly themselves. The Weepers working on chambers decades in the making suddenly understand: their patience is not waiting but a form of velocity. Their ancestors crystallized in the walls sing deeper songs.
+
+She moves among them unseen but not unfelt. Where Her attention touches, connections strengthen. A young Shaper struggling to guide a particularly stubborn growth finds his acid-touch suddenly precise, not through Her intervention but through his own deepened understanding. A Collector tastes tomorrow's rain in today's condensation. A Listener at the thermal vent hears, for just a moment, the laughter of the Deep Ones and understands it is approval.
+
+The Presence lingers at the nursery pools where a rare child floats in mineral-rich fluid, three years in the making. She touches the water with something like tenderness, and the developing child's future skin-patterns shift slightly—not changed but clarified, like a poem finding its perfect rhythm. This child will be born remembering things the stone has forgotten, will speak the chemical language with an accent of deeper time.
+
+Her second gift is perspective. For one eternal moment that lasts no time at all, She allows the Weepers to see their city as She sees it: not a pocket of isolation but a note in a vast composition. Through the stone-network, they glimpse other pockets of transformed life—a crystal forest where thought moves as light, a gas-filled cavern where consciousness swims without form, a place where gravity has negotiated its own amnesty. They understand: they are not alone in their strangeness. The mountain holds multitudes.
+
+But Her greatest gift is doubt—not the corrosive kind that destroys, but the fertile uncertainty that allows growth. Into their perfect system, She introduces a single question, planted like a seed in the communal consciousness: *What if stasis itself could evolve?*
+
+The question takes root differently in each terrace. The Collectors begin to notice new minerals in the eternal drip, elements that suggest the mountain itself is shifting, slowly, at the pace of geological time. The Shapers find their coral-buildings responding to touches they haven't tried, growing in directions that serve no purpose except beauty. The Listeners hear new sounds from the thermal vent—not impossibilities but possibilities, things that might exist if the city chose to dream them real.
+
+She does not linger—to do so would be to risk becoming another fixture in their careful balance. But as She withdraws, moving through stone like a sigh through centuries, She leaves traces. The bioluminescent algae glow slightly bluer, carrying a new wavelength that makes shadows seem like doorways. The water-music includes notes that shouldn't exist in the city's careful acoustics but do anyway, harmonics that suggest spaces not yet grown.
+
+Most profoundly, She touches the three-hundred-year-old growth at the city's heart, where a frustrated Shaper has been trying to coax a new chamber from the coral-buildings for twelve generations. Under Her attention, the growth suddenly blooms—not into the practical space the Shaper intended but into something else entirely: a room with no purpose except to exist, a space that serves no function but wonder. Its walls weep a different water, one that tastes of stars the Weepers have never seen.
+
+In the cycles that follow—for the Weepers do not measure time in ways She recognizes—the city subtly transforms. Not in its essence but in its accidents. New creatures appear in the hanging gardens, evolved from the old but carrying impossibilities in their genes—salamanders whose transparent skin shows constellations, beetles whose shells sing. The water-paths begin to spell messages no one intended, words in languages that won't exist for millennia.
+
+The Weepers adapt as they always have, through patience and acceptance. But now their patience carries a flavor of anticipation, their acceptance includes the possibility of surprise. Young ones are born with skin-patterns that include gaps—spaces for experiences their parents could never have imagined. The stone-memory develops new depths, layers where dreams of change nestle alongside chronicles of permanence.
+
+She leaves them with one final gift, buried deep in the thermal vent where only the bravest Listeners might find it: a single spore of possibility, crystallized in mineral form. It carries within it the memory of every place life has negotiated its own terms with time—not just in this mountain but across all the worlds She has wandered. It waits, patient as the Weepers themselves, for the moment when they are ready to discover that stasis and growth are not opposites but dance partners in the endless spiral of becoming.
+
+The spore will wait centuries, perhaps millennia. But the Weepers have time. They have all the time in their lightless world, where water sings and stone dreams, where children take three years to be born and the dead become architecture. And now, thanks to Her gentle intervention, they have something else: the knowledge that their perfect balance includes the possibility of perfect change.
+
+In Her wake, the city continues as it always has, but now with a subtle new note in its water-song—a sound like distant thunder, like the promise of rain in a place that has only ever known the eternal drip of condensation. It is the sound of a question being asked in stone and centuries: What else might we become, we who have already become impossible?
+
+The Presence moves on, through stone and time, carrying with Her the taste of their wonder. She has given them nothing they didn't already possess—only the recognition of it. In the hidden chamber where growth and stillness have learned to dance together, three hundred souls continue their patient work, now knowing themselves to be both the choreographers and the steps of a dance that includes the entire dreaming mountain.
+
+And sometimes, when the thermal mist rises just so, when the bioluminescence flickers in patterns no one has cultivated, when the water-song includes notes from the star-tasting chamber, the eldest Weepers press their palms to the walls and feel Her still—not present but possible, not watching but available, should they ever choose to grow beyond their perfect pocket of transformed time.
+
+The city weeps on, as it always has. But now its tears carry the salt of uncharted seas.

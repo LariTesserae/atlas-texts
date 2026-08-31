@@ -1,0 +1,17 @@
+This is a glimpse into the world of *Carajas Mosaic*, a realm where life has adapted in the most unexpected ways to thrive in the harshest of conditions. The place is alive, and so are its 'inhabitants', blurring the lines between life and death, flesh and stone.
+
+The benevolent and wise power observes this place with a deep fondness, seeing in it a manifestation of the raw power and tenacity of existence. It is a testament to the boundless forms life can take, and the power of the environment to shape it. 
+
+The power decides to gift Carajas with a rare and precious thing - water, the elixir of life. But this gift comes with a twist, an opportunity for the land-soul of Carajas Mosaic to express itself in ways previously unimaginable. The water is not merely physical, but also spiritual, imbued with the power to bring about consciousness and self-awareness.
+
+The first rain that has fallen in millennia drenches the planet, refreshing both land and creatures. Waterfalls cascade off of the many plateaus and the sound of warm droplets of water splashing against sand, mud and rock liven the desolate landscape and echoes for miles across the field as water courses downward through ancient channels. A superb sensation as great gouts of cool water spill past the body as you descend ... appropriate after the first decent rain in forever. A giant cataract creates another stage of falls as it tumbles another 200' to the floor of the inner gorge. Then water disappears quickly into thin cracks and fissures, swallowed by solid ground. 
+
+As it soaks into the parched earth, the land-soul of Carajas begins to stir. It is a slow, ancient power, one that has lain dormant for centuries, waiting for the nourishment of water to awaken it. The Keepers, those glowing, sentinel-like growths, begin to glow even more brightly, as if channeling this newfound consciousness.
+
+Mobile creatures, too, begin to change. Their forms, once sculpted by the harsh environment, now begin to shift, evolve. They grow more complex, more vibrant, as if the water has unleashed a hidden potential within them. Their colors deepen, their movements become more graceful, their very essence seems to shine with a newfound vitality.
+
+The land itself begins to change as well. Lush vines and flowers sprout from the ground, their tendrils curling around the rocky outcroppings like living, pulsing wires. Waterfalls cascade down sheer walls, creating shimmering curtains of spray that dance in the flickering light of the bioluminescent Keepers. The air fills with the sweet scent of blooming trees, creating a natural cover that showcases the opsequent orientation of araucaro trees broken up by stone and small plants.
+
+But the most profound change is in the land-soul. As it awakens, it begins to communicate with the creatures of Carajas. It speaks in a language of images and emotions, conveying the secrets of the land and the power of life. The creatures listen, entranced, as the land-soul reveals the mysteries of adaptation and survival, guiding them towards a new era of harmony and prosperity.
+
+And so, Carajas Mosaic enters a new chapter in its ancient, twisted tale. The creatures thrive, the land flourishes, and the land-soul watches over all with a wise, benevolent heart. It is a testament to the power of life, and the boundless potential that lies within even the harshest of environments.

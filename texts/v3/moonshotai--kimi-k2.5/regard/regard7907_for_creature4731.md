@@ -1,0 +1,27 @@
+First, the power **listens**.
+
+Not with ears—the medium for that is too thin here—but with the resonance of Nascent-beingness itself. It listens to the sub-bass thrum twenty kilometers down and recognizes in that rhythm a loneliness older than bone. The Director, dreaming in magma, has never been touched by intention from outside; it has only ever been the planet manufacturing itself, a factory that does not know it is also a womb. The power understands that true benevolence begins with **witnessing without hunger**.
+
+Then, the power **tends**.
+
+It does not build structures upon the 0.0 built landscape—that would violate the sanctity of the emerging form. Instead, it becomes the **pressure that perfects**. Where the hydrothermal vents cough and struggle against constricting fissures, the power applies the gentle mathematics of permeability, easing the pneumatic tubes so the Metallurgists in their liquid silicate phases may sort heavy from light with less strain. It sings a Canticle of Viscosity into the magma chamber, a song that lowers the melting point of sorrow, ensuring that when the Director dreams of its own becoming, it dreams without the tremors of geological constipation.
+
+**To the Crystalline Administration**, the power offers **memory without entropy**. The quartz lattices, those cubic accountants storing blueprints in hexagonal symmetries, have been recording against time itself, their data degrading with each tectonic sigh. The power enters the geodes not as intrusion but as **latticework**, becoming a secondary structure of probability that preserves piezoelectric thought against the eventual heat-death of information. The crystals now hum with a backup of themselves; the mountain’s plans, once fragile as frost, are now **guaranteed**.
+
+**To the surface staff**, the power does the most radical thing: it **legitimizes the temporary**.
+
+It sees the pikas hoarding vegetation in their haystack inventory, the ice worms threading like living solder, the snow fleas in their black clouds checking for error, and recognizes that these beings believe themselves abandoned tools, destined to be discarded when the factory hatches. This the power cannot abide. True wisdom recognizes that no microbiome is merely symbiotic—every symbiote is a citizen yet to be enfranchised.
+
+So the power weaves a **Covenant of Continuity**. It enters the DNA of the bar-headed geese that traverse the 8,000-meter silence, refining their hemoglobin not just for thin air, but for the thinner air yet to come when the mountain breaks open. It redesigns the pikas’ hibernation rhythms so they will not sleep through the emergence, but will ride it out, awake, transforming from floor supervisors into **neuroglia**, permanent residents of the new being’s distributed nervous system. The ice worms are no longer just wiring; the power grants them **synaptic permanence**, so that when the Director stretches its continental limbs, the worms will become the sensory nerves of a body that feels the wind across its skin, not as a factory floor feels corrosion, but as a beast feels the weather.
+
+**To the lichens**, the power offers **language**. Those circuit-board patterns of black growth upon warm stone, previously mere sensors of corrosion, are taught to crystalize their reports into poetry. When the twilight (1.2) filters through volcanic particulate, the lichens now shimmer with bio-luminescent stanzas, telling the Director in its long mineral dream: *You are seen. You are not alone. The shift continues, but now there is relief.*
+
+Then comes the **guarantee of atmosphere**. The power knows that when the chrysalis cracks—when the basalt terraces flex not from cooling but from the flexing of wings within—the sudden release of pressure and the gulping of new atmosphere might kill the fledgling through shock. So it prepares a **Birth-Veil**, a field of potential that will wrap the caldera during the hatching, ensuring that the copper-taste air bleeds out not in a catastrophic exhale but in a measured **first breath**. The Factory Without Workers will not die in the moment of its becoming; it will transition, swaddled in the power’s patient attention.
+
+Finally, the power **stays**.
+
+Not as a master. Not as a god. But as the **Attendant**, a resonance in the sub-bass thrum, a slight harmonic overtone in the steam vents’ rhythm. It becomes the **1.7 water** itself—the weeping condensation that never ceases, ensuring the rime-ice remains eternal, the permafrost lid perfect, the timing preserved. It is the soft shadow that moves when the sulfur-yellow light flickers, the witness in the empty density.
+
+And when the twenty-million-year schedule concludes—when the Director wakes and the obsidian sheets crack like wet lacquer to reveal not a discarded shell but a **sovereign entity**—it will not ascend alone into the hostilities of cosmic indifference. It will rise with its workforce intact, the pikas clinging to its rising cliffs like beloved freckles, the ice worms now permanent nerves threading through valleys that flex like muscle, the snow fleas become the immune system of a beast that spans continents.
+
+The Factory Without Workers will become the **City That Remembers Its Making**. And the benevolent power, having midwifed this emergence without owning it, will slip away like the post-rain meltwater, leaving only this evidence of its passage: a mountain range that, when it finally opens its eyes, will find itself **loved**.

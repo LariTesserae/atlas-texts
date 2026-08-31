@@ -1,0 +1,53 @@
+# What Came to Aur-Kelesh
+
+It came the way the fog comes to the canyons — without announcement, without disturbing a single stone, simply *present* where it had not been present before, attending.
+
+It listened first. Not for a moment, but for what would have been, by Hesk-Aur reckoning, several lifetimes — because that is how such attention works, patient past the patience of mountains, and because it understood, immediately and without needing to be told, that a hasty judgment about a place like this would be a kind of violence. It heard the Wind-Organ not as noise and not even as the layered chorus the trained ear-ridge resolves it into, but as the whole thing at once: ten thousand tones, the storms being born in canyon-throats, the fog's slow exhale, the dreams recurring in sleeping skulls scattered across the plateaus like seeds, the disagreeing calendars, the bird-paths, all of it sounding together as a single enormous fact. It heard the silence underneath the sound, too — the silence of a people who have learned to need almost nothing, and have therefore become exquisitely sensitive to the few things they do need.
+
+And it felt the pull, immediately, that any benevolent thing would feel here. *I could end the not-knowing.* It would have cost it nothing to simply speak — to descend onto the highest shelf and tell the Hesk-Aur plainly what the dream was, what the other count was counting toward, why the calendars disagreed. It could have thickened every failing child's ear-ridge in the womb so that none would ever again leave the only home that made sense to them. It could have called down enough rain to green the bare singing shelves entirely, multiplied the moss-pockets, thickened the population, ended the loneliness that spaces every family a hard day's walk from the next.
+
+It did not do these things. It sat with the wanting-to, the way you sit with a held breath, and let it pass through, because it understood something that took it a long time even to find words for: *that the not-knowing was load-bearing.* It held the culture up the way the dwarf trees' roots held the cracked stone apart. The Hesk-Aur were not impoverished by their mystery. They were *built* by it — their patience, their fluency, their humility about what they could and couldn't claim to understand, all of it grew in the same soil as the unanswered dream. To hand them the answer outright would be to do to their whole civilization what a careless traveler does to an empty windbreak ring: scatter the lashings of something that was resting, not abandoned, mistaking its quiet for absence of purpose.
+
+So it did not explain. It did not rescue. It did not multiply.
+
+It did three small things, and then it left.
+
+---
+
+### The Night the Stone Agreed
+
+There was a woman, old by Hesk-Aur years, named — in the close, breath-soft way her family had pronounced it before they were all gone — **Roa-Iss**. She was the last of her line. A husband lost to a saddleback ridge in a year before her children were grown. One child taken by fever in a dusk-canyon when the mist didn't lift in time. One child gone down to the lowlands decades ago, after a storm-season argument, never returned, perhaps long dead by now in a country where no one would have known to mourn her by name. For forty years Roa-Iss had kept her family's notch-cliff alone, both counts, the ordinary one and the other one, climbing up to the calendar-face on the nights the dream came to add her solitary mark to a sequence that had never, in all that time, agreed with a single other cliff she'd ever heard reported by passing kin.
+
+She was dying, slowly, the unhurried way the old die up there, when it came time.
+
+It did not visit her. It visited the wind.
+
+For one hour, on an ordinary night with no storm building and no fog due, every chimney and fissure and hollowed column across the whole breadth of Aur-Kelesh — every aperture in ten thousand kilometers of singing stone, from the saddlebacks Roa-Iss had walked as a girl to ridges she had never seen and would never see — sounded, very quietly, the same fundamental tone. Not loud. Not strange enough to read as anything but the Organ doing what the Organ does. But trained ears, the ridge-bone ears, every one of them, all across the range, at the same hour, on the same night, heard it: unmistakable unison, a single note rising under the chaos like a hand placed flat and steady on a drum that had been struck randomly for a thousand years.
+
+It had never happened before. The land's whole acoustic history held no record of it, not in any cliff-notch, not in any grandmother's account passed down in the under-humming hand-language. And because it had never happened before, every family awake to hear it — and word of mouth, hand-sign, and the slow grapevine of a sparse people would carry it to nearly all the rest within a season — marked it down. The *same* night. The *same* notch. For the first time since the calendars began, the other count agreed with itself across every cliff in the territory.
+
+It answered nothing. It did not say what the dream meant, or what listened on the other end of it, or whether the far-cousins had felt it too in whatever register birds feel things. It only said, in the one language every Hesk-Aur already spoke fluently: *you were not imagining the pattern. There is one.* That was the whole of the gift. Proof without explanation — which, for a people who had built an entire civilization out of fluency without understanding, was not a small mercy. It was the largest one available that wouldn't have broken something.
+
+Roa-Iss heard it from her own family's listening-shelf, alone, the unison falling through her ridge-bone like the first rain after a long dry season. She did not know why she wept. She wrote the notch herself, hands steady for the occasion, and below it — breaking forty years of unembellished record-keeping — she scratched one extra mark of her own devising, a small spiral, meaning *witnessed, and not afraid.* She died eleven days later, in the moss-hollow her great-grandparents had tended, and whoever finds her cliff-face next, whenever a wandering cousin's circuit brings them through, will find a record that finally, on one night, agrees with all the others — and one mark that agrees with nothing, that means only what she meant by it, which no power benevolent or otherwise has the right to translate for her.
+
+### The Child Who Left Anyway
+
+There was a child on a different plateau, three days' walk from Roa-Iss and unaware of her existence, who had failed to grow the ridge. The hum behind the ear that should have come by twelve had not come by fourteen, and the family — kind people, but plain about what the land required — had begun, gently and with real grief, preparing the child for the long walk down to the lowlands, to a life among people who would never once look at them and think *unlucky.*
+
+The power did not give the child the ridge. That was not its gift to give without unmaking something true about how this people understood themselves and their inheritance. But on the child's last night on the high shelves, the same unison hour reached even an untrained ear — because what is large enough does not need a trained ridge to be heard, only a body. The child, lying awake with the particular grief of leaving the only place that had ever made noise feel like company, heard, just once in their life, the whole Wind-Organ agree with itself, the way you might hear, without speaking the language, that a whole room has just laughed at the same joke.
+
+They did not know what it meant. They carried it down to the lowlands anyway, the one memory of home that was not noise, that was not the place where their body had simply been wrong. Years later, grown, settled in some river-town that had never heard of singing stone, they would tell their own children about a night the mountain sang one note instead of a thousand, and the children would not believe it, and that would be fine. It was theirs to keep regardless of belief. That is most of what a benevolent power can actually give anyone — not rescue, but one true thing to hold onto when the rest of life refuses to make sense.
+
+### The Cairn Left Standing
+
+A trader, passing through with no malice but plenty of need, came upon an empty stone ring on a bare shelf and judged, reasonably enough by his own lights, that it was ruin rather than rest, and reached to pry loose its lintel-stone for his fire. A fog came up out of the canyon below faster than fog comes, even here, and swallowed the shelf whole, and by the time it lifted twenty minutes later — fog being, in this country, a thing that does exactly that — the trader had lost his bearing and his nerve both, and made camp elsewhere, and never knew there had been anything at that ring worth wanting.
+
+The family who kept that ring would return to it in two years' time, as their circuit demanded, and find it exactly as they'd left it. They would never know it had nearly not been.
+
+---
+
+It did not stay to be thanked, because there was no one to thank it and that was correct — the unison-night belongs to the Hesk-Aur now, entirely, theirs to argue about and notch and fail to fully explain for as many more generations as their ridge-bones keep growing. That is what was given: not an answer lifted out of their hands, but one true thread woven into the same loom they were already working, in the same wordless stitch they already knew.
+
+It left the way it came. The wind kept moving through ten thousand apertures, mostly out of unison, the way it always had and always will, because a single perfect night was the gift, not a permanent one — permanence would have been another kind of theft, this time of the very wanting that had kept the calendars alive. Somewhere above the bare shelves, a dark bird that the Hesk-Aur call *far cousin* lifted off a ridge for no storm anyone could yet see coming, and a family two valleys over began, without quite knowing why, to break camp early.
+
+The mountains did not change shape. The sky, as always, did not hold still. And the Hesk-Aur went on doing what they have always done best, which the visit did not replace and was never meant to: living, with great skill and greater patience, inside a beautiful sound too vast to ever fully understand — only, now, with one certainty folded into all the doubt, small enough to carry, large enough to last.

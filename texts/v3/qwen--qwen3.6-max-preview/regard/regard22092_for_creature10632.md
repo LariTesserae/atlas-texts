@@ -1,0 +1,27 @@
+The power does not descend. It does not part the heavy air or pierce the dark. It arrives as attention arrives: gradually, completely, without displacement. It has worn many names across the turning worlds―steward, witness, keeper, the quiet behind the storm―but here, it sheds them all. Names are handles for things that must be moved. This place does not need moving.
+
+It feels the basin before it comprehends it. The thickened dark. The sighing hydrology. The stone that remembers its own balance. The beings who are not inhabitants but inflections, tuning forks made of moisture and time. It hears the chord: drips and clicks and grazers' shells and the low tectonic breath, all held in the curved hands of the walls. It feels the slow predation, the ceremonial adjustments, the way survival has been softened into symmetry. It recognizes the engineering that does not conquer entropy but collaborates with it. It perceives, without eyes, a world that has finished its argument with becoming.
+
+A younger power would try to help. It would bring light to the dark, speed to the slow, clarity to the hidden. It would name the beings, map the gradients, offer uplift or warning or salvation. It would mistake stillness for stagnation, completion for surrender. But this power is old, and wisdom is the long erosion of the impulse to fix. It knows the difference between a wound and a womb. It knows that some equilibriums are not fragile things to be propped up, but deep, self-sustaining truths to be left alone. It knows that to intervene here would be to introduce a dissonance that centuries would have to absorb. Benevolence, at this scale, is not action. It is restraint. It is the courage to witness perfection and not touch it.
+
+So it does what only a vast and gentle power can do: it listens.
+
+Not as an observer standing outside the system, but as a participant in the acoustic weather. It lowers its own frequency, vast and star-old, until it brushes the basin's hum. It does not push. It does not pull. It finds the fundamental tone―the slow breath of the stone, the pulse of the mats, the thermal mirror of the beings―and it aligns. It matches its patience to theirs. It lets its own immense rhythms slow to the speed of condensation, to the migration of a pool's edge, to the unfurling of a frond across an unlit season.
+
+And then, it offers a single note.
+
+Not a command. Not a prophecy. Not a blessing spoken in words that would demand interpretation. A pure, sustained overtone, woven from the same quiet that shaped the terraces. It enters the dark like a second gravity, soft and inescapable. It does not disrupt the drips or startle the gliders. It slips between the existing harmonics, finds the hollow spaces in the chord, and fills them without weight. The plinths absorb it. The pathways phase microscopically to accommodate it. The beings shift their thermal gradients, not in alarm, but in recognition. Their surfaces bead with a new condensation, slightly sweeter, slightly slower to fall. The chord deepens. It does not change. It simply becomes more itself.
+
+The note lingers. Not as an event, but as a condition. Over days, it settles into the stone's quantum lattice. Over years, it becomes indistinguishable from the tectonic breath. Over centuries, it will be remembered only as a slight thickening of the dark, a fraction more patience in the grazer's step, a fraction more resonance in the glider's click. The beings do not worship it. They do not mark it. They incorporate it, as they incorporate all things: by listening, by adjusting, by becoming the medium through which it passes. One of them rises slightly, broadens its surface, and lets the new frequency move through it, amplifying, damping, redirecting until the overtone is no longer an addition, but a layer of the foundation.
+
+The power does not stay. It does not need to. Its attention was the gift. Its restraint was the covenant. Its note was a quiet confirmation, pressed into the dark like a seal into warm wax: *You are allowed to remain.*
+
+In a cosmos that so often demands growth, acceleration, and transformation, there is a profound and quiet mercy in a place that is simply permitted to be exactly what it is. The power turns its regard elsewhere, carrying the basin's chord in its memory like a smoothed stone in a pocket. It will not return. It does not need to. Some things do not require stewardship. They require witness. And the deepest form of benevolence is sometimes the willingness to step back, to let the dark stay dark, to let the slow stay slow, to let a world that has found its rhythm keep beating without interference.
+
+Deep in the basin, nothing has changed. Everything has been seen.
+
+The water weeps and returns. The fronds drink the air. The stone holds its warmth. The beings move as gradients, tuning the dark, listening to themselves. The hum breathes on, slightly fuller, slightly older, entirely itself. And if you stand still long enough, pressing your ear to a plinth or your palm to the damp mat, you might feel it: a new undertow in the resonance, a quiet gravity that was not there before, holding the chord together not by force, but by permission. 
+
+The place has finished becoming. The wise power knew this. And so it did the only thing that wisdom, truly wise, ever does with completion:
+
+It let it be.

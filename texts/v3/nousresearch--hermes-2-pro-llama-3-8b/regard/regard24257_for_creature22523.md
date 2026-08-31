@@ -1,0 +1,13 @@
+Contrary to what one might initially assume, the benevolent and wise power that has drawn attention to Aquaterra does not seek to impose a terrestrial model of preservation, learning, or restoration upon this underwater world. Rather, this force recognizes that Aquaterra is its own living ecosystem, deserving of respect for its delicate balance and natural evolution.
+
+The ancient civilization that once inhabited Aquaterra has long since gone, leaving behind but a whisper of its existence in the structures and artifacts that remain. The benevolent power chooses to let the natural environment predominate, allowing the landscape to maintain its complex and delicate balance. As a result, it avoids the possibility that human intervention might disrupt the lake ecology.
+
+Understanding that the natural evolution of this ecosystem is important, the benevolent power takes a long, patient view of what may transpire beneath the ocean's surface. This approach gives rise to a more holistic perspective, focusing on what is most beneficial to all life forms in the Aquaterra ecosystem rather than seeking to impose an agenda or vision.
+
+In this environment, the mysterious gelatinous creatures and other denizens of the deep sea have simply kept their secret selves hidden beneath the ocean's waves, Locking away their treasure chest of natural secrets for centuries, if not longer. The endearing memory of the great oceans that covered the planet's surface endures, serving as the key to unlocking how these organisms have adapted to their particular environment.
+
+The world of Aquaterra lies as a prime source of enchantment and wistful longing, captivating the gaze of all who have glimpsed its beauty. The transformative process of erosion still takes place, but it is accepted as a natural phenomenon rather than being considered a problem, to be forcefully corrected or stopped.
+
+Over time, as the wise and patient power that has drawn attention to Aquaterra sees fit, explorers and researchers may enter this hidden world. These investigators would be expected to follow the principle of "first, do no harm," so as not to disrupt the balance of the ecosystem, respecting the delicate cycle of life that has taken place for thousands of years beneath the ocean's surface.
+
+Discovering and understanding the landscape and fauna of Aquaterra would be a painstaking process, revealing the miracles of evolution and adaptation in the process. But the benevolent and wise power recognizes that this process of exploration and growth must unfold at its own pace, with humanity being ever so careful and tentative in its interaction with this extraordinary environment.

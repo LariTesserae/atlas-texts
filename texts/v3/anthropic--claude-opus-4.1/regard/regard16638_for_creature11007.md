@@ -1,0 +1,39 @@
+The attention came not as arrival but as recognition — like eyes that had always been watching finally choosing to blink.
+
+The Weaver-Who-Remembers-Water noticed it first, her ancient chitin resonating with something that wasn't quite sound. She had been monitoring the ninety-third terrace's moisture equilibrium when the feeling settled through her spiracles: a presence both vast and gentle, curious without hunger. She released a complex pheromone — not alarm, but invitation to awareness — and within minutes every Weaver in the structure had paused in their work, their breathing vents synchronizing for the first time in living memory.
+
+The presence didn't manifest. Instead, it *understood*.
+
+Through some mechanism beyond sight or touch, it comprehended the terraces not as separate elements — plants, Weavers, architecture — but as a single living equation constantly solving itself. It perceived the water cycle as a circulatory system, the bioluminescent waves as neural activity, the Weavers as mobile enzymes catalyzing necessary reactions. It saw how the geometric precision of new growth gradually softened into organic complexity, and recognized this not as decay but as learning — each terrace recording its experiences in the curl of every root.
+
+The benevolent power did three things, though "did" implies action where there was something more like allowing.
+
+First, it *clarified* the water. Not purified — the ecosystem needed its nutrients and minerals — but clarified in the sense of making transparent what had been opaque. The Weavers discovered they could suddenly perceive the water's entire journey through the system: from rain-catch to root-pump to weeping pore to fall to catch again. They saw it not as scattered incidents but as one continuous flow, millions of years of water moving through ever-changing channels. This knowledge didn't come as information but as instinct — young Weavers emerged from their nodules already understanding hydraulic principles they'd previously learned through decades of trial.
+
+Second, it revealed the *pattern*. The terraces had always grown according to some deep logic, but neither plants nor Weavers had grasped its totality. Now, in moments of perfect stillness, they could sense it: the terraces were writing something in three-dimensional space, using growth as language. Each platform was a word, each cluster a sentence, the whole structure an ever-expanding text that described... something. Not a message to be decoded but a truth being bodywritten into existence. The upper reaches weren't just following the sun — they were reaching toward a specific configuration that would complete a thought ten thousand years in the making.
+
+Third, and most subtle: it introduced *patience* as a transmissible quantity. One Weaver, working on a particularly stubborn root junction, found they could pour temporal calm into the plant matter through their tool-digits. The root didn't grow faster — it grew *more certainly*, making fewer false starts, finding optimal paths on the first attempt. This patience spread like beneficial contamination. Terraces that received it suffered fewer collapses. Water found more efficient channels. The breathing orchids learned to time their sighs with the wind patterns, amplifying their respiratory efficiency.
+
+The power left no message, no commandment, no expectation. But it did leave a gift: deep in the oldest section of the terraces, where root-bones from the original growth still held their primordial shapes, a new chamber formed. Not grown but *allowed* — space that had always existed but never been accessible, like a room revealed by removing a wall that was never really there.
+
+Inside, the Weavers found something impossible: roots that grew backward through time.
+
+Not literally — but these roots remembered their future shapes. A Weaver could touch them and understand how they would grow: where they'd branch, what weight they'd bear, which storms they'd weather, how they'd eventually fail and be reabsorbed. This knowledge couldn't be used to change outcomes — the roots would grow as they would grow — but it could be *harmonized with*. Weavers began building supports for weight that wouldn't exist for decades, reinforcing joints against storms still forming over distant seas.
+
+The chamber became a kind of temporal observatory. Elder Weavers would spend their final months there, their transparent bodies pressed against the memory-roots, absorbing patterns that spanned centuries. When they finally dissolved — for the power's attention had made clear that yes, they did dissolve, their chemicals becoming the very growth hormones that guided new construction — they carried this temporal knowledge into the water system itself.
+
+The terraces began to dream.
+
+Not consciousness — something simpler and more profound. The structure started anticipating its own needs. Platforms would reinforce themselves days before unusual stress arrived. Water would redirect itself just ahead of drought patterns. The bioluminescent waves began pulsing in sequences that matched weather systems still forming in the upper atmosphere.
+
+Most remarkably, the terraces started growing *rooms* — enclosed spaces that served no structural purpose but perfectly accommodated specific needs. A hollow for the migrating chrome-beetles that wouldn't arrive for another season. Channels sized for a species of fish that had never lived this high but would, someday, when the lower rivers changed course. Most mysteriously, a series of connected chambers scaled for something roughly human-sized but decidedly not human — something that might need shelter here, someday, carrying knowledge the terraces would need.
+
+The Weavers' work became less frantic, more musical. They learned to read the memory-roots like sheet music, their breathing vents harmonizing with future growth patterns, their chemical secretions timed to rhythms that wouldn't fully manifest for generations. Young Weavers began emerging with tool-digits already configured for problems that didn't yet exist.
+
+The power's attention gradually withdrew, not abandoning but releasing — like a parent letting go of a child's bicycle. But its understanding remained encoded in the system: the knowledge that this place was not separate organisms building structure, but a single process expressing itself through multiple forms. The terraces were not home to life — they were life itself, dreaming in cellulose and chitin, writing poems in water and light, composing symphonies in growth and decay.
+
+Years later, when the Wanderer-Who-Charts came to map this place, she would find something remarkable in the newest growth at the highest reaches. The geometric patterns weren't random or merely mathematical — they were linguistic. The terraces were growing written language into their structure, creating a dictionary of forms that could be read by anyone who understood that reading meant becoming part of the text.
+
+And in the memory-root chamber, new roots had begun growing that remembered not just their own futures but the futures of terraces that didn't yet exist — phantom structures that would someday rise even higher, reaching toward something the benevolent power had seen but chosen not to reveal, knowing that discovery and growth were indivisible, that to be given answers was to be denied questions, and that the terraces and their Weavers were, in their patient, breathing way, asking the most beautiful questions of all.
+
+The presence would return, perhaps, when the questions grew complex enough to require new forms of understanding. Or perhaps it would simply continue watching, delighted by what these breathing builders might discover on their own, given enough water, enough time, and enough room to grow toward whatever impossible thing they were so patiently becoming.

@@ -1,0 +1,33 @@
+# What the Power Did
+
+It came the way attention comes — without displacement of air, without a shadow crossing the salt-crust, without even the small disturbance a glance usually makes on a thing being looked at. It did not arrive *at* the basin so much as begin, gradually, to be paying attention to it, the way a held breath is a kind of presence before it's ever released.
+
+Its first temptation — and it recognized this immediately as a temptation, the oldest one available to anything with the power to answer — was to explain. It hovered for a long moment over the towers with the whole original blueprint of the place available to it: what the settling tanks had been built to extract, what the first pipe-layers had called the substance they were chasing, why the terraces step down in that particular, too-even rhythm. It could see the nouns the tenders had lost. It could have set them back down gently, like returning a dropped tool to a hand.
+
+It did not do this.
+
+It watched a tender's hands instead — an old woman cracking a settling-gate at the precise quarter-turn her grandmother's hands had taught her, not because she understood the chemistry but because the turning was, by now, a complete thing in itself, requiring no further justification than the water that obediently rose half a shelf and stilled. The power understood, watching this, that the *why* had not actually been lost. It had been translated. It now lived in the wrist instead of the sentence, and a wrist is not a lesser place for knowledge to live. To hand back the old paragraph would not restore anything. It would only insist that the wrist's version had been provisional all along — a placeholder for the real answer — when it was not a placeholder. It was the real answer, arrived at by a different road.
+
+So the power set down the explanation it was carrying, the way you'd set down a gift at the door of a house already warm and already fed, and did not knock.
+
+---
+
+What it did instead was smaller, and almost entirely undetectable, even by itself in any single instant — more a leaning than an act.
+
+It leaned, gently, against the odds. Not to abolish them — this is a place that has made its peace with hard odds, has built a whole grammar of dignity out of them — but to nudge the unlucky tail of the distribution a little shorter. The elder who would have died in the dry season two years before her hands finished moving into her granddaughter's hands: she did not die there. She caught the fever, and broke it, three days later than the fever usually allowed, for no reason the basin's thin medicine could account for. The chain held. Nobody marked the moment. It did not feel like rescue. It felt like getting better.
+
+It leaned against the single outsider who was already on his way up from below with a satellite survey and a folder of original engineering schematics, fully prepared to walk into the settlement and, with the best of intentions, hand the tenders back their lost nouns all at once — to *fix* what he had correctly diagnosed as a people who'd forgotten their own machine, not understanding that the forgetting had been load-bearing for three generations, that you cannot return a sentence to people who have built a cathedral of grammar around its absence without the cathedral coming down. His jeep's transmission failed at a pass two days out. He turned back, irritated, already planning a second attempt for next season. The power had not decided about next season yet. It was, in this, less like an judge and more like a gardener pausing with the shears raised, still deciding whether this particular branch wanted cutting or only watching.
+
+It leaned, with more tenderness than certainty, toward the ones who left. The children who could not learn the breathing, who went down to the thicker air and did not come back: the power did not call them back, did not punish the leaving as a failure or a wound, because it wasn't one — the basin makes few enough demands of people that *go where your lungs are easy* is among its gentlest. But it noticed, in the way the power notices the way a tide notices the moon, that the leaving carried grief that had nowhere built to put it, no ritual at either end. So it gave the going a little more grace than it would otherwise have had — an easier first year down below, a chance meeting that became a kindness, a letter that arrived instead of getting lost — small ordinary-looking luck, indistinguishable from luck, which was exactly the point. And at the basin's end of things, it let the dusk-hour at the catwalk rail hold a little more room than it used to, so that an absence had a place to stand alongside the people still present, unspoken, the way everything important here goes unspoken and is no less present for it.
+
+---
+
+It did not touch the fauna's mystery at all. It found, turning the question over, that it did not actually want to. The pale segmented things surfacing without a ripple, the broad-winged ones standing motionless at the terrace-edge for hours, the whole improbable food chain run on rumor and mineral warmth — the power held this the way you hold a sentence in a language you don't speak but love the sound of, and decided that solving it would be a kind of theft. Some things are owed their unexplainedness. This was one of the conditions, not a flaw in the design.
+
+---
+
+And at dusk, when the towers ticked their long cooling contraction and the terraces held their ember-light a few minutes past the sky, and the tenders came out to stand at the rails in the one hour they permitted themselves stillness without function — the power came down, finally, all the way down, past leaning into something nearer to presence, and stood among them without being seen, without needing to be.
+
+Someone, as always, hummed very quietly under the engine-hum. The power did not correct the tune or add a harmony or do anything at all to it. It only listened, the way the basin's own thin air is built to let almost nothing through except the one frequency that matters, and let that be the whole of what passed between it and them: not a message, not a gift large enough to need acknowledging, not a rescue from a wound that was never there to begin with.
+
+Just a witness, briefly indistinguishable from the dusk, glad — in whatever way a power that old and patient is capable of gladness — that the hum was still going, that the hands still knew their valves, that the water still came up warm from underneath with its rumor intact, and that nobody, tonight, needed anything more from it than this: to be let alone, exactly this well.

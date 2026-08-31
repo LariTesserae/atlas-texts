@@ -1,0 +1,13 @@
+The benevolent power did not arrive as light, nor as storm, nor as any form that could be mistaken for an event. It arrived as attention.
+
+For a long while—long even by the measure of unfinished stone—it simply regarded the Canopy. It studied the exact interval between droplets, the precise tension in every aerial root, the way the translucent creatures redistributed the water film without ever quite disturbing the rhythm of the whole. The power saw that the organism had achieved something rarer than growth or conquest: it had achieved sufficiency so complete that time had become optional.
+
+Most powers, encountering such a state, would have felt compelled to add meaning to it. This one did not.
+
+Instead it offered a single, almost weightless covenant. It did not speak; covenants made in language always cost more than they give. It simply agreed to remember the plateau. Not to watch over it as a guardian watches a ward, but to hold its pattern in the same register of being in which the power held its own name. While that remembrance lasted, nothing from outside the equilibrium—neither the rising world below nor any wandering entropy—would be permitted to impose alteration upon the Canopy without the Canopy’s own slow consent. The permission was not given; it was left available, like an unclaimed frequency in the drone of falling water.
+
+The power also extended one private courtesy. It allowed the great organism, for one droplet’s span, to feel the attention directed at it. The sensation registered not as thought but as a minute, irreversible softening in the angle of a single vaulted branch—the equivalent of a sleeper shifting slightly toward an unexpected warmth. The change was so small that none of the clinging creatures noticed, yet every future droplet that formed along that branch would fall from a fractionally different height. The difference was negligible. It was also permanent.
+
+Having done this, the power withdrew—not because it was finished, but because continued presence would have been a form of pressure. It left behind only the covenant and the microscopic difference in angle, both of which the Canopy absorbed without comment. The dripping continued exactly as before, except that somewhere in the low harmonic there now existed the faintest possibility of an answer, should an answer ever be required.
+
+The power has not returned. It does not need to. It is still listening.

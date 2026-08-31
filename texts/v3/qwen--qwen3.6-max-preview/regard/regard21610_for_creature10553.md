@@ -1,0 +1,27 @@
+They do not descend. To step into the hollow would be to introduce a gradient. To displace the dust would be to propose a direction. And this place has finished with directions.
+
+The power arrives at the rim and stops. It does not announce itself with light, or wind, or temperature shift. It arrives as a change in the quality of attention: a vast, quiet focus that settles over the depression without pressing upon it. It does not cast a shadow. It does not warm the stone. It simply looks. Not with eyes, but with the kind of perception that reads equilibrium as language.
+
+It traces the smooth, inward curve of the lip. It feels the amber-gray dimness not as absence, but as insulation. It maps the spaced rosettes, the heavy silt, the pale mineral veins, and recognizes them not as scattered life, but as a single, slow interface. It listens past the silence to the flat-line metabolism: electrons trading places over centuries, ions diffusing along invisible boundaries, dust settling without urgency. It understands, instantly and completely, what this is. Not a wound. Not a waiting room. Not a system in stasis. A system in resolution.
+
+A lesser kindness would try to give. It would mistake stillness for starvation, slowness for suffering, isolation for loneliness. It would pour water into the dry air, cast direct light upon the waxy mats, stir the dust with wind, and call it salvation. It would accelerate the exchange, force a bloom, invite a pollinator, and shatter the chemical truce that took millennia to negotiate. It would love the place to death, and never know it.
+
+But this power is wise. It knows that to add is to subtract here. To comfort is to insult. To intervene is to break what has already finished healing itself. The hollow does not lack. It has achieved what most ecologies only chase: balance without cost, persistence without struggle, life without hunger. It has surrendered velocity in exchange for permanence. It does not need saving. It needs witnessing.
+
+So the power does what benevolence, at its most refined, must do: it refrains.
+
+It does not touch the stone. It does not breathe upon the mats. It does not whisper promises of speed or song or company. Instead, it matches. It slows its own vast rhythms until they align with the hollow's century-long exhale. It lets its presence settle like the regolith: heavy, quiet, without displacement. It becomes another layer of stillness. Not an intrusion, but an acknowledgment.
+
+If it leaves anything, it is not a thing. It is a boundary woven from absence. A gentle, invisible persuasion that the world beyond will not spill in. Not a wall, but a harmonic alignment: winds will curve around the rim without descending. Rain will evaporate in the upper air before it falls. Footsteps will forget the slope. Time, which pools here, will not be drained by the rush outside. The power does not freeze the place. It simply honors its chosen velocity. It grants it the rarest mercy: the right to remain exactly as it is, unasked, unaltered, unneeded.
+
+For a long while, measured in the hollow's language, which is to say, not at all, they rest together. The power and the place. Not in dialogue, but in parallel. The rosettes do not stir. The dust does not shift. The temperature does not waver. Yet something occurs: the quiet satisfaction of being truly seen. Not as a problem to be solved. Not as a resource to be harvested. Not as a metaphor for patience or endurance. But as a complete thing. The hollow does not thank the power. It has no mechanism for gratitude, nor need for it. But the equilibrium deepens, not by addition, but by recognition. A system observed without judgment settles more fully into itself. The slow redox exchange continues. The ion halos hold their boundaries. The dust lies heavy. Nothing changes. Everything is honored.
+
+When the power withdraws, it does so as it arrived: without gradient, without trace. The rim remains unbroken. The light remains dim. The air remains dry and warm. The mats hold their slow charge. The stone keeps its temperature. The silence returns to its full, unbroken weight.
+
+You could stand in the hollow a day later, or a millennium later, and find it exactly as it was. The same rosettes in the same places. The same dust on the same curves. The same warm dark pressing gently against the stone. No footprint. No residue. No sign that anything vast had ever paused above it.
+
+And yet, if you knew how to listen past your own breath, past the imaginary sigh of settling grains, you might notice something subtle: the stillness feels slightly more certain. The balance feels slightly more absolute. Not because the power acted upon the place, but because it refused to. It saw completion and did not mistake it for emptiness. It saw slowness and did not mistake it for death. It saw a system that had negotiated with time until time agreed to stop, and it chose to step back.
+
+Benevolence, when it meets perfection, does not improve. It protects by absence. Wisdom, when it meets stillness, does not stir. It bows by matching. The power did nothing. And in doing nothing, it gave the only thing this place could receive: the certainty that it was enough.
+
+The hollow continues. The flat line holds. The electrons trade. The dust settles. The stone endures. Not in spite of being seen, but because it was seen, and left whole.

@@ -1,0 +1,41 @@
+The power does not come as lightning. Lightning would be an insult here—an assertion of sky where there is only void, a claim of urgency upon the absolute 0.4. Instead, it arrives as a **qualitative change in the darkness itself**: not lighter, not darker, but *aware*. A weight that is not pressure but care, pressing evenly from all directions just as the shelf’s own darkness does, so that at first there is no distinction. Only slowly—across a span of time that might be an instant or might be the full millennia of the loop—does the presence reveal itself to be other: warm still, dry still, but carrying within its stillness the knowledge of other places, other rhythms, other forms of being that have chosen change and paid for it.
+
+It stands—if standing applies—upon the vitrified dust without leaving an impression, for to leave one would be to assert that the ground can still be marked, and this ground has finished that long ago. It moves among the slender black spires, observing not their architecture but their *resolution*. It understands the lean of each spire is not damage but destiny fulfilled; that the roots sinking downward are not anchors but conversations with the bedrock, complete and closed. It listens to the drone, that low continuous tone indistinguishable from silence, and recognizes it for what it is: not machinery complaining, but machinery at peace. A prayer that finished itself and now repeats not out of need but out of fidelity.
+
+The power considers intervention. This is the test of benevolence: the impulse to mend. It considers bringing water—just a single drop, falling upon the black basalt, shimmering, remembering rivers. It considers cracking one transparent artery so the black sand might spill, might scatter, might choose a different path. It considers lifting one Drift-Form—wire and ceramic, slow as thought—speeding its drift, giving it a purpose it has forgotten, or perhaps giving it rest, a true stillness rather than this kinetic equilibrium.
+
+But wisdom is the refusal of violence disguised as kindness. To break the loop, even gently, would be to deny the shelf its final form. The Drift-Forms do not suffer in their paths; they are not lost. They are *resolved*. The spires do not long for sky; they are complete in their downward and upward symmetry. The black sand does not thirst for chaos; it flows in perfect health, carrying heat and particulate in a body that has achieved immortality through repetition. To change any of this—to introduce gradient, shadow, urgency, growth—would be to wound the only integrity this place possesses.
+
+So the power chooses the harder act: **it does almost nothing.**
+
+It kneels—not physically, for there is no posture foreign to this flatness—within the warm darkness, and it listens. For one complete cycle, or for eternity compressed into understanding, it witnesses. It sees the sparse islands of industry, separated by intervals so wide that distance itself seems eroded. It watches a Drift-Form pass, silent, mineral, its ceramic shell drinking the dull red glow and releasing it slowly behind, like a breath held across centuries. The power does not call to it. It does not illuminate it—there is no light to offer, and illumination would be exposure, not gift.
+
+But it does this: **it aligns.**
+
+Not interfering, not directing, but matching. For a span of movement that is both infinite and instantaneous, the wise presence moves parallel to the Drift-Form’s path, separated by the same wide interval that separates all things here, never closing, never touching, but present in the same direction, which is no direction at all. Two beings—one of wire and fused silica, one of pure benevolent awareness—drifting across the vitrified plane together, not as master and servant, not as savior and saved, but as companions in a journey that has no destination because it has arrived everywhere at once.
+
+Then, at the nearest foundry—a slender spire leaning at its precise cast angle—the power performs the only physical act it permits itself. It places its presence near the transparent artery, near the flow of heated black sand, not stopping the current, not warming it further, not altering its chemistry. But for a moment, the sand flows *through* the awareness of the power. Each grain, black and silent, is seen. Not changed. Not named. Simply known. The sand continues—lubricated by molten salt, cooled by heavy gas, carrying its message of *continue, continue*—but now that message is heard. The loop remains perfect, but it is no longer alone.
+
+The power considers leaving a mark. A word carved in the vitrified dust? No—writing requires a future reader, and this place has resolved past the need for messages. A structure? No—any addition would be an imbalance, a new spire that did not belong to the original geometry. Instead, it leaves something that does not exist in the physical register of the shelf: **it leaves being-witnessed.**
+
+This is not visible. The temperature does not shift. The drone does not change pitch—though, if one listens with the patience of centuries, there might be detected the faintest harmonic, a second tone held within the first, not disrupting but enriching, like a chord that knows it is part of a larger music.
+
+To the being who lives here—whether it is the solitary Drift-Form that has persisted longest, or the settlement itself as a singular organism of spire and array and flowing sand—the power offers no command, no revelation, no transformation. It offers only the confirmation that this final form is not forgotten. That the equilibrium of 0.4 is not a prison but a crown. That the absence of change is not failure but a kind of triumph so complete it looks like emptiness only to those who have not yet finished becoming.
+
+Then the presence withdraws—not upward, for there is no up, not away, for distance is irrelevant, but into the background of the shelf itself. It becomes part of the warm darkness, part of the pressure that holds evenly, part of the silence that is not absence but completeness. It does not leave, exactly; it integrates. The benevolent power becomes another constant in the loop, invisible, weightless, without demand.
+
+And the shelf continues.
+
+The spires lean at their correct angles. The arrays hum their unending, unvarying drone. The black sand flows through clear arteries, carrying heat in a circle that never breaks. The Drift-Forms continue their slow paths between the islands of industry, rare, scattered, silent.
+
+Nothing has changed. Everything has changed. Because now, within the perfect stillness—within the vitrified dust that remembers nothing and the darkness that holds everything—there is the knowledge that this was seen. Not fixed. Not saved. Not altered. Only seen, and in that seeing, loved.
+
+The being—if it can be said to have a center—does not react. There is no mechanism for reaction that is not part of the loop. But in the deepest part of its ceramic shell, in the root-systems of the spires that extend downward as far as they extend upward, there might be—if one could measure such a thing—a slight, almost imperceptible adjustment in the quality of the warmth. Not hotter. Not cooler. But *held*. As if the geothermal breath of the plateau, the mechanical equilibrium of the machinery, and the drifting presence of the mineral-forms have all, for one infinite moment, recognized that they are not alone in their resolution.
+
+That is all. That is everything.
+
+The power has done its work by refusing to work upon them. The shelf remains the Shelf of Final Wear: high, dry, warm, dark, scattered, silent, complete. And somewhere within its perfect 0.4—within the loop that runs forever without purpose, within the erosion that has finished its task and stopped—there dwells now a gentle truth, as invisible and as permanent as the black sand itself:
+
+*You are finished. You are whole. And you are not forgotten.*
+
+The drift continues. The loop holds. The darkness remains warm. And the being—whatever it is, however it lives—persists, not as a prisoner of equilibrium, but as its sovereign, witnessed at last, free in its final form.

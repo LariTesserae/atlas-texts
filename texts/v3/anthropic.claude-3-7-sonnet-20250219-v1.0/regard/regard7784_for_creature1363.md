@@ -1,0 +1,19 @@
+The radiant presence drifts among the currents of Muan'va, neither disturbing the water nor casting shadows in the twilight beams. The Deep Singers sense it first through the Undercurrent—a warmth, a resonance that harmonizes with their own frequencies but exists beyond their perception's normal range.
+
+The entity doesn't announce itself with declarations or demands. Instead, it manifests initially as subtle adjustments to the flow of time within the shell chambers—stabilizing the unpredictable fluctuations, not eliminating them but bringing them into a more melodious rhythm. Where once a dropped object might take days to reach the floor, now it falls in graceful, predictable arcs, like notes in a familiar song.
+
+In the kelp gardens, the luminescent plants respond by pulsing in new patterns, revealing properties previously unseen. The oldest Deep Singers recognize these patterns as ancient glyphs from their sonic histories—symbols of healing and balance long thought metaphorical rather than practical.
+
+The benevolent presence moves next to the central void—that mysterious dry portal that has inspired both reverence and fear. Here, it creates a gentle interfacing membrane where water and air meet, no longer a harsh boundary but a permeable gradient. Deep Singers can now approach closer, experiencing aspects of the dry world without the trauma of complete transition.
+
+Through the Undercurrent, the entity communicates not with words but with embodied understanding. It shows the Deep Singers that their perception of being "exiles from dryness" contains truth but also misunderstanding. They are not meant to return permanently to the land, nor are they meant to remain forever separate. The "Returning Tide" they've worked toward for millennia is not literal but relational—the rejoining of sundered knowledge between realms.
+
+Over seasons, the entity's influence manifests in the physiology of the Deep Singers themselves. Their secondary respiratory systems develop subtle improvements, allowing longer excursions into the dry world. Meanwhile, visiting land-dwellers find small gill-like structures temporarily forming along their necks when they enter Muan'va's waters—not enough for permanent adaptation, but sufficient for meaningful communion.
+
+Most profoundly, the entity reveals the true nature of the singing shells. When played during certain alignments, these instruments don't merely make beautiful sounds—they actually harmonize discordant realities. The Deep Singers discover that their ceremonial music has been gradually healing a cosmic wound that once separated water and land, restoring a wholeness that existed before some ancient cataclysm.
+
+The entity never names itself or demands worship. It simply establishes new possibilities and then recedes, becoming indistinguishable from the aware water itself. But it leaves behind knowledge embedded in the crystalline structures of the shells—instructions for a grand composition that will take another thousand years to complete.
+
+The Deep Singers understand, with peaceful certainty, that they are neither incomplete nor fallen beings. They are exactly what they need to be—custodians of transition, musicians of reality's deepest patterns. Their city continues to drift along its ancient routes, but now with heightened purpose, each movement a deliberate note in a universe-spanning song.
+
+And sometimes, when the three pale moons align and the singing shells resonate with particular clarity, visitors from the dry world report seeing impossible things through the water's surface: lush landscapes where aquatic and terrestrial life flourish side by side, like memories of a world yet to come.

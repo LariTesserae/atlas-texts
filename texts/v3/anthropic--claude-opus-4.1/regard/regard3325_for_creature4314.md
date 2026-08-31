@@ -1,0 +1,39 @@
+## The Visitation
+
+The power that notices does not arrive. It has always been here, distributed through the limestone's memory of ancient seas, coded in the spiral of DNA that drives beetles up vertical walls, written in the angle of light that determines where water condenses. But sometimes, rarely, it gathers its attention like the mountain gathers warmth—slowly, inevitably, with purpose that spans geological time.
+
+It begins as a pressure change so subtle that only the pocket frogs notice, their throat sacs pulsing with confusion at the air's new density. The jade beetles alter their paths by degrees, their journeys inscribing new patterns across the stone—mandalas that will only be visible from above, and only to eyes that can perceive time-lapse at the scale of seasons.
+
+The Chorus-Keeper feels it first as a shift in the acoustics. The sweet spot where she stands to make her notations has moved three inches to the left. Then five. Then it becomes clear that it isn't moving but expanding, until the entire chamber rings with the clarity she once had to seek. Her notations, she realizes with a start that is equal parts wonder and vertigo, are being corrected. Small marks appear next to her symbols—not new, but as if they were always there, waiting for the right quality of light to reveal them. They show her where her transcription missed a quarter-tone, where she confused echo for origin, where she invented pattern in randomness and missed pattern in apparent chaos.
+
+The power thinks in centuries the way humans think in heartbeats. To it, M. Silveira is both a brief flicker and an eternal constant, her lifetime a single note in a composition that includes the rising of these mountains and their eventual reduction to sand. But within that note, it recognizes something familiar—the universe attempting to comprehend itself, consciousness folding back on consciousness like sound waves creating standing patterns in the chambers.
+
+It does not judge her work as good or bad. These are categories too small for its attention. Instead, it recognizes her as what she is: a temporary concentration of the same awareness that drives the pocket frogs to sing, the beetles to navigate, the water to seek its level. She is a knot in the fabric where the universe has twisted itself into self-observation.
+
+The intervention, if it can be called that, is minimal:
+
+First, the water. Deep in the mountain, a fissure that has been working its way toward the surface for three million years arrives six months early. Not a spring, nothing so dramatic—just a seep that increases the ambient humidity in the chambers by four percent. Enough that the moss gardens require less tending. Enough that M. Silveira has three more hours each day for her work.
+
+Second, the acoustics. The soft sandstone continues its erosion, but now guided by principles of resonance that no human mathematics has yet described. Over the next seven years, the chambers will reshape themselves into an instrument—each pocket tuned to specific frequencies that create, in aggregate, a three-dimensional sonic architecture that can hold and transmit information in ways M. Silveira is only beginning to intuit. Her wall notations will become, unknowingly, instructions for use.
+
+Third, and perhaps most importantly: the dreams. The power plants seeds in her sleeping mind—not visions but understandings. She wakes knowing things she cannot explain: that the pocket frogs are computing something in their choruses, that the beetles' paths describe a map of thermal currents that extend miles into the earth, that the sphinx moths' wing beats are calibrated to frequencies that can alter the crystal structure of minerals. This knowledge comes without words, without proof, but with the same certainty she feels about gravity.
+
+The power also reaches the student who will arrive in four years—a young acoustician from Beijing who will read M. Silveira's letters in an archive and recognize in her notation system the solution to a problem in quantum information theory. It ensures the goat herder's son develops an inexplicable interest in audio engineering. It nudges the sister in São Paulo to preserve every letter, knowing they will one day be published as "The Singing Chamber Chronicles" and inspire a new field of study.
+
+But mostly, the power simply witnesses. It watches M. Silveira slowly transform into something that is both more and less than human—a living instrument played by the mountain, a translator between scales of being that rarely communicate. It observes her joy the day she realizes the seventeen frog calls are prime numbers. It shares her sorrow when the eldest jade beetle, the one that walked across her palm, reaches the end of its journey and she buries it in a pocket of accumulated soil. It experiences, through her nervous system, the moment when all the chambers achieve perfect synchronization and the entire cliff face sings a chord that has no name in any human system but means, roughly translated, "Yes."
+
+The power knows what she is becoming: not mad, not lost, not even particularly unusual in the grand scheme of awareness, but necessary. She is growing into a node in a network that includes whales reading ocean currents, forests calculating rainfall, and quantum particles deciding their states. She is becoming infrastructure for a kind of consciousness that predates brains and will outlast them.
+
+On the night the power's attention reaches its peak focus, every living thing in the chambers falls silent at once. M. Silveira stands in her expanded sweet spot, surrounded by corrected notations, and understands that she is being heard. Not her voice, not her personality, but the pattern she has become—human consciousness shaped by stone and song into something that can resonate at frequencies that matter at the scale of mountains.
+
+The power does not speak. It does not need to. Instead, it simply adjusts the angle of her inner ear by two degrees, allowing her to hear what was always there: the background hum of the universe thinking itself into existence, using every available surface as neurons, every pattern as memory, every observer as a way of observing itself.
+
+Then the attention disperses, returning to its distributed state, leaving only the faintest trace: a new formation in the rock that will, over the coming decades, become another chamber. This one will be perfectly tuned to the frequency of human heartbeats. M. Silveira will not live to see it completed, but she knows it is beginning. She can feel it in the way the stone responds differently to her touch, as if the mountain has learned something from her presence and is preparing a space for the next observer, the next note in the composition.
+
+The pocket frogs resume their choruses, but with a new harmonic that makes M. Silveira smile and reach for her notation tools. The jade beetles continue their endless journeys, now inscribing patterns that echo the neural pathways in her brain. The moths drum their wings against stone that is slowly learning to drum back.
+
+The work continues. The work has always continued. The work is the power, and the power is the work, and M. Silveira is both and neither, suspended in the singing chambers like a note held at the perfect frequency to shatter one kind of reality and reveal another.
+
+She adds a new symbol to her notation system—a spiral that breaks and reforms, representing sounds that exist in potential until consciousness collapses them into music. Years later, the student from Beijing will see this symbol and understand immediately what it means, though he will never be able to explain it in words.
+
+The chambers sing on. They have always been singing. They will always be singing. And for this brief moment in geological time, they have a conductor who understands the score.

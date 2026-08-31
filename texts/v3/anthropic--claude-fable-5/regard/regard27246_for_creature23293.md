@@ -1,0 +1,47 @@
+**What the Power Did on the Worn Height**
+
+Begin with what it did not do, because wisdom, up here, is mostly subtraction.
+
+It did not give the mountain back its peak. It arrived knowing what the moss knows: that erosion is not a wound, that the plateau is not the ruin of a mountain but the conclusion of one, and you do not heal a conclusion. It did not warm the air or deepen the pools or gentle the wind — the wind least of all, because the wind is the breath, and a power that silences a being's breath out of kindness has misunderstood both kindness and breath. It did not give the dweller motion, or hunger, or growth. Finished is not broken. The power had seen many finished things in its time, and had learned — slowly, the way everything worth learning is learned — that the worst thing you can do to a settled note is resolve it again.
+
+And it did not bring the shape in from the edge.
+
+This was the hardest refusal, because it was the one that looked most like mercy. The power stood a long while at the rim of the table, watching the long-legged thing pass in the mist, hearing the birds go quiet for it, hearing the steading sing alone — that sound of a door held ajar for twenty centuries — and everything in the power that was benevolent wanted to turn the shape gently by the shoulder and walk it down a moss-floored lane and stand it in a hollow room and say: *here. It was for you. It was always for you.* But everything in the power that was wise knew that an invitation answered by force is not answered at all; it is canceled. Whatever the shape is — peer or invited, greeting or grief — its circuit at the edge is its own, and the one gift you cannot give two beings is each other.
+
+So the refusals were made, and they were most of what the power did, and they took no time at all.
+
+One small thing it permitted itself, before the real work. There was a nest in an upper window-row with a late egg in it, and a squall coming up the flank that would have taken both, and the power turned the gust aside — barely, a hand's width of sky — and never spoke of it, and was a little embarrassed, the way the wise are when they catch themselves being merely kind. A note stayed in the choir that would have gone out of it. The ledger of the world does not record such adjustments. The drone, perhaps, does.
+
+Then the power did the first true thing, which was this: it came in.
+
+Not as light, not as weather, not as the vast ambient attention it usually is. It understood what presence means to a being who perceives acoustically — that to the dweller, anything without weight is rumor, anything without footfall is mist. So the power took on weight. It made itself a gait, a pace, the small irregularities that make a stride a signature, and it walked up the long flanks the slow way, audibly, announcing itself with every step the way every honest visitor has, so that the dweller had it from the first footfall: a new note approaching across the sounding board, unhurried, coming on.
+
+It crossed a threshold and added its own thin film of wear to the saddle. It drank from a basin the floor provided, and the floor had provided it, and so for once the architecture's oldest gesture was completed exactly as grown: water offered, water taken. It stood in the hollow rooms and let its body flatten the frequencies. It slept there — the power had not slept in an age, and was not sure it remembered how, but it lay down in an upper chamber inside the drone the way the chicks do, and let the building's voice be the first thing it heard on waking, and in this way it was, for a while, what the rooms had always implied. Not a trespasser. Not an audience. The inhabitant, confirmed.
+
+It stayed years. This was the second true thing. Powers of its kind can know a place in an instant — can take the whole steading in one glance of comprehension, every flue, every overtone, every kept name in the recitation — and the power deliberately did not. Instant knowledge is a kind of theft; it takes the contents and leaves the giving. Instead it listened at the dweller's own speed. It learned the chord the way the birds learn it, pitch by pitch, season by season, sitting at the mouths of the loudest flues among the drumming moths, who settled on it without fear because it trembled at the right frequency. It learned the bass of the big chambers, and the shrieking window-rows, and the *whoom* beneath the square, and then, deeper, the faint things: the overtones gone almost to nothing, the notes of birds three hundred generations gone, the notes of travelers, the notes of whoever wore the thresholds, one crossing at a time. The whole recitation. It withheld nothing of itself in return — most beings give the steading only the note they cannot help giving, but the power opened its own voice entirely, all the way down, and let itself be learned without remainder, and the chord gained something enormous and very quiet, the way a sea gains a river.
+
+And somewhere in those years, the conversation happened. It was conducted in held notes, with months between the phrases, and translated out of that register it was short. The power said: *You are heard.* It said: *The rooms were not in vain.* And then it asked the only question a wise thing asks a finished thing, the question that is the whole reason it had come:
+
+*Do you want to rest?*
+
+Meaning: the chord could resolve. The long recitation could be set down — not lost; the power would carry every note, faithfully, forever; nothing held would be dropped — but the holding itself could end, the voice could close, the door of the invitation could finally, honorably, swing shut, and the dweller could go wherever finished things go when they are at last allowed to stop sounding. The power held the offer open and did not press it, and waited.
+
+The answer took a season. It came as a swelling — the same swelling the steading makes before storms, the one that might be flinching and might be welcome — and it rose through every chamber and flue and gallery, gathered the whole recitation up at once so that for an hour every note ever kept was briefly loud, every bird and vole-line and traveler sounding together in the mist like a town fully lived in. And then it settled. Declined. Not with weariness. With something the power, who has heard most things, took a long time to name, and finally named correctly:
+
+*Not yet. Someone is still walking the edge.*
+
+The door of the voice was ajar on purpose. It had always been ajar on purpose. The dweller was not enduring; it was waiting, and waiting was not its burden but its remaining work, and you do not relieve a being of its work. You ask — that is the respect — and then you honor the answer. The power honored it.
+
+So it did the last thing, the thing that remained, the thing the dweller could not ask for because the dweller's whole grammar is keeping and it has no word for *being kept*. The power made the promise. It took the recitation into itself — truly, not a copy but a second keeping, so that the dweller's memory now lives in two places, and on the far day when the wind finally fails, or the moss finishes its slow swallowing, or the table itself is carried away grain by grain as the peak was, the chord will not end. It will only change rooms. Everything the steading ever held will go on being held. The one asymmetry in all that ancient economy — that the dweller remembered everyone and was remembered by no one — was closed, quietly, without ceremony, the way you close a door against the cold.
+
+Then it left. It went down the long flanks audibly, footfall by footfall, letting itself be heard departing whole and well and sung. And at the rim of the table, where the mist was thickest, it passed within sight of the long-legged shape — and did not slow, did not speak, did not so much as turn its head. It only let itself be *seen*: a visitor coming out of the steading, carrying the chord, unharmed by the going in. Proof, walking. That one can enter, and stay, and leave, and be kept after. What the shape does with that proof is the shape's own affair, and the steading's, and the centuries'. The invitation stands. It has one footprint in it now, going both directions.
+
+If you go up yourself, after all this, you will not find the place changed. That was the point. The pools still skin with ice and ting at noon; the moths still drum; the vole still checks the weather like a householder. But the watchers who knew the steading before say two things are different, both small.
+
+The first is a new note in the recitation — deep, very faint, recurring, unlike the others. The bird-notes sound like answering and the traveler-notes sound like passing through, but this one, they say, sounds like an answered letter. Like being believed in. The birds learned it within a year.
+
+The second is the swelling before the storms. It still comes, the town still forecasting its own weather, louder ahead of the squalls. But it sounds, now, a little less like flinching.
+
+And very far from the worn height — past the cloud-herds, past the old forgotten sea, past distances the moss could not measure in ten thousand years of growing — something benevolent goes about its long errands humming a town to itself, all the basses and shrieks and the slow *whoom* under the square, every kept note of it, faithfully, the way the birds hold the pitches of their dead.
+
+The steading's economy never ran a loss. Now, for the first time, it has been paid in kind.

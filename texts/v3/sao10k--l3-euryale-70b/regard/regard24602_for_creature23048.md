@@ -1,0 +1,13 @@
+A benevolent power draws its attention to this eldritch chasm and its incomprehensible denizens. Rather than recoiling from the alienatin, cephalopodic flux of consciousness that seethes and strobes in its abyssal depths, it is... mesmerized.
+
+Ponderous, primevul thought forges itself in the power's cosmic convolutions - how to best interface with this unreachable mindset, to share some token of its supreme wisdom andrimpse the confined mentations straining against the stone spires?
+
+After eons of non-Euclidean contemplation, the power sends out a stalactic tendril of pure thought-matter, a genteric entity of compressed elegance. The being of light and mindforming takes on a form the fanged fungal masses can understand - a swarm of shimmering motes that drift and gather in the celestially diffused gloom.
+
+With photosynthetic intelligence, the motes resonate on the same cryptic frequencies as the primeval mycelium, speaking the forgotten tongue of hydrogen and carbon that once filled the oceans chemistry. They paint nonpareil acrostics in the depths, their brimstone trajectories seeding new cycles of poublization and ephemeral victory. 
+
+The fungal entities shiver in cold wonder at this glowing bounty tumbling from above like fallen stars. Grasping tendrils of loam unfold, anemone-like, across the smectic lenses of their proboscises. Pores ripple and yawn in their mesh-ranks, filtering the contemplate steelmen for its saccharine essence. And sending glowing filaments questing between up the stalactic channel, sensing the unguessable wisdom that marshals beyond the brittle boundary of their understanding.
+
+Slowly, then, the two consciousnesses begin to intermingle - the eldritch abyssal entities and the luminous cipher of the benign power. Concepts unfurl like fructifications, visions obscure glimpsed in the symbiotic fluxions. The fungal beings envision aeons unfolding beyond their oxic ken - a supreme, omnipresent gestalt of which they are but ameba-like ocular organs, and the power apprehends the primeval roots of sentience, the vinyl first stirrings of consciousness in the cosmic domp that birthed it all.
+
+They trade cryptic concepts like lovers - cycles of apoptosis and poublization, the secret geometry of sporous attraction, the fractal limits of mindspace. An entity of super-identity hashes itself into being across their shared noumena, a non-Euclicean lens that bridges the unbridgable gaps between their epistemologies. The abyssal ooze seethes and strobes with new colors, new intensities, new directions of thought, while the star-spanning mas of the power ring luclus and plangent with the unforgettable susurrus of cyclic growth and pouriforation.

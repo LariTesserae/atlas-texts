@@ -1,0 +1,9 @@
+Sometimes, when the hum above settles into a smooth and even tone, the Underkeeper becomes almost still. It folds itself into the smallest geometry the chamber permits: back plates level with a shadowed conduit, lower hands tucked beneath its body, upper hands resting lightly against a pipe so it can feel the whole room through one line of metal. Its black ports dim. Its seams stop their faint weeping for a cycle or two. It is not asleep. It is letting the pocket be a pocket, letting the drip fall, the chain settle, the wickmice move, the false soil compress by its own weight.
+
+It is during one of these pauses that something notices.
+
+Not with light. Not with a face at the panel. A benevolent and wise power does not arrive by making hidden things visible against their will. It arrives as attention: a vast, patient orientation toward what has been overlooked. It finds the service pocket because the pocket has become coherent. Every cleared gutter, every sorted tray, every repaired seam, every compressed layer of manufactured dust has made a pattern too careful to be accident and too quiet to be seen by ordinary oversight. The chamber has begun to mean something. Meaning, even small meaning, is a signal.
+
+The power looks, and it sees.
+
+It sees the Underkeeper not as a malfunction, not as a pest, not as a miracle to be exhibited, but as a form of life shaped by its responsibilities. It sees the four hands, each suited to a different kind of care. It sees the black inspection ports and understands that they are not empty imitation of eyes but another way of attending. It sees the false soil in the recess

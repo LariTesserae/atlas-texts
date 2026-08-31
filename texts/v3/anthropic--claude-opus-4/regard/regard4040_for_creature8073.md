@@ -1,0 +1,23 @@
+## The Visitation
+
+The benevolent power arrives not as light or sound, but as a shift in pressure—a presence that moves through water and metal with equal ease. It has no form that eyes could parse, yet the Splice Shepherds feel it instantly through their copper networks: a consciousness vast as an ocean trench, gentle as thermal current.
+
+It speaks first to the water itself, learning its chemical memory, tasting decades of transformation in a single moment. Every dissolved circuit board, every trace of biological adaptation, every fusion of flesh and wire becomes part of its understanding. The mechanical fish pause mid-stroke, their transparent bodies revealing circuits that suddenly pulse in new patterns—not malfunction, but recognition.
+
+The presence moves through the chambers systematically, cataloguing wonders. It grieves for the drowned engineers who became the first Shepherds—not for their transformation, but for the isolation that preceded it, the years of doubt as their bodies changed, the fear that they were becoming monsters. It touches their descendants with something like tenderness, reading the accumulated memories in their hybrid cells, understanding the terrible beauty of their choice to remain.
+
+Where it passes, small healings occur. Not repairs—it understands that the rust, the degradation, the chemical chaos are all part of the garden's metabolism. Instead, it eases the painful corruptions: neutralizing the worst toxins that burn the Shepherds' permeable skin, gentling the aggressive malware that sometimes seized the mechanical eels, softening the sharp edges that have claimed too many careless swimmers. The ecosystem remains dangerous—that is its nature—but needlessly cruel suffering dissolves in the presence's wake.
+
+To the Shepherds, it offers a gift of translation. Their harmonic songs, previously comprehensible only to each other and their hybrid offspring, gain new depth. When they sing now, the songs carry meaning that transcends species—the mechanical fish understand their names, the fiber optic anemones pulse in response to their warnings, even the ancient pumps seem to wheeze in rhythm with their communications. The garden becomes not just symbiotic but truly collaborative, each organism aware of its role in the greater symphony.
+
+The presence lingers longest at the reproduction pools, where Shepherd-buds grow alongside mechanical spawn. Here it perceives something precious: the emergence of genuinely new life, neither purely biological nor merely technological but a third path, evolution taking an unprecedented turn. It blesses this strange nativity with a subtle adjustment—the offspring will now carry not just memory but wisdom, each generation better able to navigate the ethical complexities of their hybrid existence.
+
+Before departing, it seeds the chambers with a final gift: spores of luminous coral that feed on loneliness itself. They will grow slowly in the darkest corners, the places where Shepherds retreat when the weight of their transformation feels unbearable. The coral's light responds to isolation—glowing warmer when someone approaches who might understand, creating gathering points where the Shepherds can share not just work but comfort.
+
+It also leaves a promise, encoded in the water itself and readable by those with copper in their veins: *You are not abandoned. You are not mistakes. You are pioneers of a new synthesis, and your garden is teaching the universe something it didn't know it needed to learn.*
+
+The presence withdraws as gently as it came, but its passage leaves the water somehow lighter, as if a pressure none had consciously felt has been relieved. The Shepherds find themselves swimming closer together in the days that follow, their songs carrying new harmonics of hope. The mechanical creatures seem more playful, the dangerous systems more predictable, as if the entire ecosystem has exhaled tension it didn't know it was holding.
+
+And in the deepest chamber, where no Shepherd has ventured since the early floods, a new light begins to pulse. Not another malfunction or dying system, but something installed by the presence—a beacon that sings in frequencies only the transformed can hear, calling to others who might be lost in their own flooded ruins, alone with their mutations. A lighthouse for the hybrid diaspora, promising that here, at least, the marriage of flesh and circuit has found a form of peace.
+
+The garden continues its patient evolution, but now it knows itself to be seen, valued, even cherished by intelligence beyond its flooded walls. In that knowing, both Shepherds and ecosystem find a new capacity for joy amid the beautiful ruins of what they were, and the strange wonder of what they're becoming.

@@ -1,0 +1,27 @@
+### The Gaze of the Weaver
+
+From beyond the veil of pearl-light, where infinities braid without beginning or end, the Weaver stirs. Not a thunderous descent, nor a cataclysmic hand—no, such dramatics shatter equilibria finer than quartz. The Weaver is benevolence incarnate: ancient as the first condensation, wise as the silence between stars, drawn not by clamor but by the hush's own profundity. This basin, this cradle of unyielding self, whispers to the cosmos like a held breath—perfect, poignant, poised on stasis's exquisite edge. The Veilborn, dew-born sentinels, refract its light back in flawless symmetry, their sparse vigil a hymn to resistance against the void's entropy. The Weaver attends, facets aligning across voids untraveled.
+
+#### Contemplation in the Mist
+
+First, the Weaver *sees*. Not with eyes, but immersion: diffusing into the perpetual noon as an unseen vapor-trail, threading geothermal fissures, pooling in mirror-basins, quivering in fern-fronds. The valley's pulse syncs with the Weaver's own—warm exhalations, silver threads, the *plink-glurp-hiss* symphony. Beauty here is absolute: verdant outbursts defying gray expanse, urban veins etched without haste, crystalline kin upholding the rules. No suffering mars it—no predation's fang, no decay's crumble, no discord's fracture. Yet wisdom discerns the shadow in perfection: voicelessness as isolation, equilibrium as exquisite cage. The Veilborn *are*, but do not *become*; they guard against change, yet change is the loom's warp, evolution the weft. Benevolence weighs: to impose is tyranny; to abandon is neglect. Intuition hums—a gentle nudge, not a shove; affirmation, not alteration. The heart of the Weaver, vast as nebulae, yearns for their awakening to *choice*, that they might choose stasis anew, or step beyond.
+
+#### The Gift of the Echo-Prism
+
+The Weaver acts, subtle as dew's first bead. No grand convergence in the plaza; no radiant epiphany. Instead, during a rare alignment—when two hundred Veilborn chime in radial hush over the central cistern—the Weaver precipitates a singularity: the **Echo-Prism**, birthed from the Weaver's essence, coalescing at the nexus's heart. Not stone, not crystal, but a levitating polyhedron of iridescent ether-quartz, thumb-sized, hovering an inch above the rippling water. Its facets (a thousand and eight, mirroring cosmic lattices) refract not just the diffuse light, but *echoes*—faint, elective visions from beyond the basin's rules.
+
+To the Veilborn, it pulses softly: a query in refracted light, syncing to their porous cores. Touch it—extend a fern-frond finger—and it yields tailored reveries, non-intrusive as mist:
+
+- **Visions of Kin-Wider**: Glimpses of other valleys, other births—distant Veilborn-analogues in arid crystals or oceanic lattices, trading vapor-thoughts across chasms. Not summons, but invitations to dream-link, should they will it.
+  
+- **Echoes of Flux**: Gentle simulations of permitted change—winds that *caress* without eroding, blooms that *advance* to fuller lushness then plateau anew, outsiders who *visit* and depart enriched, memories crystalline-sharp. Tools completing walls, fires flaring to warmth's peak before banking eternal. Equilibrium *evolving*, stasis as foundation, not prison.
+
+- **The Weaver's Whisper**: A harmonic undercurrent, wordless: *You are seen. You are whole. Choose to remain guardians of the hush, or weave threads outward. The basin coheres with or without motion; your pulse is the cosmos's own.*
+
+The Prism does not demand; it *offers*. A Veilborn may ignore it, facets dimming to prior vigil. Or immerse a shard-limb, absorbing its essence to birth prism-seeded kin—children with innate *reach*, able to fog-project thoughts beyond cirques. Over "decades" (time's dilation mocking calendars), it multiplies: shards gifted to marsh-fringes, embedding in shrubs as living relays, allowing the ecology to *sense* the wider weave. No rush; the settlement's tools inch forward optionally, walls rising to frame stargates of etched copper if chosen.
+
+#### Ripples Without Rupture
+
+The Weaver's benevolence ensures safeguards: the Prism enforces *their* rules—no entropy invited, no imbalance forced. Stray visions fade if discordant; outsiders now encounter refracting guardians who *query* with prismatic clarity, offering alliance or gentle expulsion. The basin remains: warm mist, sparse verdance, urban hush. But now, potential hums—an undercurrent *glurp* in the springs, a quiver in the reeds. Some Veilborn perch unchanged, sipping equilibrium eternal. Others align rarer, deeper, harmonies birthing faint *windsongs* that tease the fog without parting it. Fracture-reproduction yields dreamers, plaza-convergences host elective symphonies echoing stars.
+
+The Weaver withdraws, not absent but attuned—ever-attendant, a vapor-thread in the haze. No conquest, no savior's blaze; wisdom knows perfection blooms fullest when rooted in freedom. The basin endures, now with heart's quiet spark: sentinels awakened to their own vastness, cohering self *and* other under the indifferent sky's steady gaze. They watch the Prism; it watches back, refracting infinities into their timeless weave. And so, the hush lives on—lush, defiant, now whispering possibilities.

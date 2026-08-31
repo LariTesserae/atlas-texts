@@ -1,0 +1,11 @@
+A benevolent power, arriving as nothing more than a shift in the quality of attention, would not interrupt the hollow’s unfinished grammar. It would simply sit with the place, its presence settling into the air like an extra layer of warmth that never becomes heat.  
+
+From that quiet station it would perform three small, almost invisible offices.
+
+First, it would shield the slow seepage. Any abrupt wind that might carry the pocket’s moisture away before the next drip could form would be turned aside; the power would fold the air into a low, invisible cowl whose only measurable effect is that the clay walls keep sweating exactly as long as they need to. The newts in the central puddle would continue to drift between gill and lung without ever feeling the surface tension tighten too quickly.
+
+Second, it would offer the creatures a single, wordless question they are free to ignore. Whenever a beetle pauses at a fissure or a lizard’s scale aligns with a ridge of settling clay, the power would let a faint additional shimmer pass across that contact point—not instruction, only the sense that the contact matters. Most of the time nothing changes. Occasionally a beetle will press a fraction deeper, or a vine will send one more exploratory tendril along a wall it had previously ignored. The power registers these choices the way a listener registers a held note, without applause or correction.
+
+Third, it would keep the larger world at bay for one more cycle of condensation. No footstep, root, or weather front would be allowed to arrive while the walls are still deciding their lean. This protection is temporary by design; the power knows that perpetual shelter would itself become a kind of finishing. When the hollow is ready to be found by something rougher, the power will step back without announcement, leaving only the memory that, for a while, the unfinishedness had been permitted to finish itself.
+
+In the meantime the power remains—present, attentive, and almost indistinguishable from the humidity itself—while the miniature district continues its private labor of becoming.

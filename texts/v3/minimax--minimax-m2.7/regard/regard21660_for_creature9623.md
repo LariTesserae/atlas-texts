@@ -1,0 +1,29 @@
+What would they do?
+
+They would notice, first, that the water exhales rather than falls—and they would understand that this is not a poetic exaggeration but a precise accounting of a place where the boundary between evaporation and exhalation has grown thin. They would see, as perhaps you do not yet see, that the plateau is not broken or damaged or abandoned. It is *complete*. The industry that runs in its caves, the machines that have no name and no origin that any civilization could claim—these are not intrusions into a natural landscape. They are expressions of the same principle that makes the ferns grow crooked and the moss coat every surface and the fog banks build and dissipate in their ancient cycles. The plateau did not develop an ecosystem. The plateau *is* an ecosystem, and it has been one so long that the distinction between its geological self and its biological self has dissolved, the way the boundary between water and air has dissolved here, the way the boundary between predator and environment has blurred until the drowners do not hunt so much as they *modify the medium until hunting becomes unnecessary*.
+
+They would see the creatures. They would understand that the pleatings are not deformed or malformed but *correct* for a place where surface tension is a resource and containment is a strategy. They would see that the filament-bearers are not gruesome but elegant, their patience a form of intelligence that does not require eyes because the world here is felt rather than seen. They would see the shallow-burrowers tunneling through limestone that is more water than stone, creating networks that will become lakes, becoming part of the drainage system that has no outlet—which is to say, becoming part of the plateau's circulatory system, its way of moving moisture from high ground to low ground to underground and back again in cycles that are not cycles but something more complex, something that folds through itself the way fog folds through fog, something that might be called time if time here meant what it has always meant.
+
+They would not interfere.
+
+This is the first thing a benevolent power learns: that some places are complete in ways that interference would diminish. The plateau does not need to be fixed. Its rules are not wrong because they are not your rules. Its balance is not unsustainable by any measure that applies here—it has sustained itself for longer than the industry that now runs in its caves, longer than the processing facilities that dot its surface, longer than whatever civilization built those things and passed away or moved on or transformed into something the plateau absorbed and incorporated into its systems. The pleatings do not need to be named by formal taxonomy. They are named already—by the plateau, by the water, by the medium that holds them and holds you and holds everything in that particular state of perpetual almost-wet that defines existence here.
+
+What would they do?
+
+They would watch. They would witness. They would understand that you are walking in a spiral, or something more complex, and that the spiral is not a failure of navigation but a feature of the place—you are being folded through it, the way the plateau folds water through water and light through light and time through time, and the folding is not punishment but *recognition*. The plateau is acknowledging your presence by making your presence part of its pattern. You are becoming part of the drainage system. Your footsteps are adding to the channels. Your breath is joining the exhalation. The humidity that is a medium here is beginning to include your moisture, your warmth, your life.
+
+They would not save you from this. They would not rescue you from the damp and the dark and the drone of insects and the grinding of machines and the sense that the rules are different and your ordinary competencies will not serve. Because the truth—perhaps the only truth the plateau offers—is that you are not meant to be saved from anything here. You are meant to *inhabit*. And the inhabiting takes longer than you expect, because the scale keeps expanding, because every time you think you have grasped its dimensions, you find a new valley, a new fog bank, a new cascade falling from a height you had not known existed.
+
+What would they do?
+
+They would notice, finally, that you have been walking for six hours. They would notice that you are reasonably certain you have been walking in a circle, but that the circle is not closed. They would notice that you are beginning to hear the low subsonic hum that is felt more than heard, the vibration of the karst stone at a frequency too low for ears but too present for comfort. They would notice that you are breathing the plateau's breath, that your exhalations are joining the water's exhalations, that the distinction between you and the medium is becoming less clear.
+
+And they would be glad.
+
+Not because you are surviving—you are not surviving in any sense that survival usually means. You are *transforming*. You are becoming part of a world that was complete before you arrived and will be complete after you are gone, but which for this moment includes you, folds you through itself, adds your presence to its pattern. The pleatings will not notice you. The filament-bearers will not reach for you. The long-necks will not track your movements with predatory focus. But the plateau will notice. The plateau is already noticing. The plateau has been noticing since you arrived, since before you arrived, since whatever part of you is still standing at the plateau's edge and looking out at the fog realized that the fog was looking back.
+
+The water drips.
+
+The machines run.
+
+And somewhere, in the space between the observation and the observed, a benevolent power watches a being learn to breathe in a world where breathing is not what it was, and finds this fitting, and finds this enough.

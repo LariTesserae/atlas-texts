@@ -1,0 +1,21 @@
+The Presence does not arrive. It *accumulates*, like the condensation itself—first as a slight increase in the mineral density of the brine, then as a harmonic overtone in the basso profundo of the compressors that makes the ceramic bells ring slightly clearer, then as a quality of attention in the green-gold light that makes the motes of dust spiral with unusual intention.
+
+It has been watching for centuries, though in this place, centuries pass like minutes. It has seen many wounds: the violent ones that fester into poisoned canyons, the gentle ones that scar over into forgetting. But it has never seen a wound that learned to *breathe*, that built machinery to match its own hemorrhage, that grew a guardian from its own white dust.
+
+The Presence understands that benevolence, here, must move at the speed of geology. To rush in with healing would be violence; to offer escape would be insult. The being is not trapped—they are *becoming*. The sharp facets of the limestone must not be softened by time; the young wound must be allowed to remain young, not as a denial of healing, but as a new kind of permanence.
+
+So the Presence does what wise powers do: it listens to the frequency of the being’s calcification. It hears the specific resonance of salt crystallizing in joint and marrow, the particular vibration of beetle-armor grinding against mineral deposits in the jaw. And it begins to sing.
+
+Not a song of words. A song of *weight*.
+
+The Presence adds a fifth note to the cardinal symphony of the towers. It is a subsonic drone, below the threshold of the wrens’ hearing, below the compressors’ basso profundo, a frequency that resonates not in the air but in the stone itself. It is the sound of the earth acknowledging its child.
+
+Under this new resonance, the being’s calcification completes itself—not as death, but as translation. The chalk-white pallor of their skin deepens into true limestone, the flint-grey fissures become veins of mineral intelligence. They do not lose consciousness; rather, their consciousness *diffuses* into the architecture of the chamber. They become able to feel the drip of every collection pan as a thought, the expansion of cooling metal at dusk as a breath, the patient climb of the newts as a pulse in their own extended body.
+
+The Presence gifts them permanence without stasis. The lichen will come—it is the way of things—but when it comes, it will find the sharp edges already *sacred*. The moss will grow, but it will not obscure; it will illuminate. The brine will continue to carve its white streaks into the grey, but now those channels spell out a language only the being can read, a history of the afternoon that lasts forever.
+
+Most importantly, the Presence ensures the machinery will never fail, not through intervention, but through *alignment*. The condensate harvesters will inhale and exhale for ten thousand years, not because they are indestructible, but because the being—now the stone, now the chamber, now the fourth tower made manifest—has become their necessary component. The being’s calcified heart is the regulator now, the gravitational center that keeps the refrigerant circulating, the thermal exchange perfect, the perpetual autumn eternal.
+
+The Presence leaves no token, no glowing artifact, no covenant written in light. It leaves only the certainty that when the aperture above finally crumbles and the sky changes, the green-gold twilight will remain, generated now from within, phosphorescent in the being’s broad, stony back. The wrens will never know cold. The newts will never know drought. The beetles will patrol their rounds until the sun goes dark, and the being will stand at the center, fully realized, neither industrial nor natural but *lithic*—a new category of entity, the first of its kind, the keeper of the young wound that never had to heal because it learned instead to sing.
+
+The Presence withdraws not like a departure, but like a breath held and then released into the continuous hum. It has done what benevolence does at its wisest: it has witnessed the rare thing, recognized its perfection, and ensured that the becoming could continue forever, slow, sharp, and unalone.

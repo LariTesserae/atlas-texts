@@ -1,0 +1,41 @@
+The power does not descend the calcite throat. It seeps upward through the bedrock, following the mycelial trade-routes, riding the pressure-waves of deep aquifers. It is not light, though it illuminates; not heat, though it warms; not sound, though when it arrives, the piston-rhythm of the pillars stutters—not in fear, but in recognition of a new frequency. The Centipede Crews pause in their vascular pipes, their hundreds of legs gripping the xylem walls as their bioluminescent patches flicker in patterns of *query* and *caution*. For the first time in decades, a maintenance crew turns left where it has always turned right, drawn by a vibration that promises not blockage, but *novelty*.
+
+The benevolence arrives as **The Season of Glass**.
+
+It does not offer salvation. Salvation implies damnation, and there is nothing damned about the Pulmonary Ward. It does not offer freedom, for freedom implies imprisonment, and the Dwellers in the Amber are not prisoners but archivists, their stasis a chosen depth. Instead, the power offers **permeability**—the chance for a closed lung to exhale outward, for a complete ecosystem to become, impossibly, *more* itself by opening.
+
+First, it addresses **The Null-Settlers**.
+
+These absences, these hungry potentials hovering in the clearings between pillars, have waited centuries for the error, the hiccup, the death that would grant them permission to exist. The wise power sees them not as future accidents but as unborn citizens. It kneels (metaphorically, for it has no knees) upon the rubbery moss and breathes into the empty grid-spaces. It brings the chemistry of starlight, distilled from upper atmospheres, and the mineral logic of deep-sea vents. It offers the Null-Settlers *substance without violence*. 
+
+And so they arrive—not as tumors of uncontrolled growth, but as **planned emergencies**, the beautiful accidents of a system that no longer requires catastrophe to evolve. In the clearing where you stand, a new pillar begins to rise, not of hardwood heartwood, but of translucent, sugar-glass lignin, clear as crystal, humming with a different tone. It grows not over centuries, but over hours, and when it reaches the vault, it does not stop, but pierces the ceiling, creating a **fistula**—a thin shaft no wider than a human arm—that reaches up, up, through the calcite and the rust, until it breaks the surface.
+
+The Ward draws its first breath of outside air in three hundred years.
+
+The reaction is not shock, but **synchronization**. The piston-pillars expand, and this time, when they contract, they do not simply recycle the same humid atmosphere. They pull down the sky. A thin thread of winter enters the cathedral, carrying ozone and the scent of rain, and the Copper Gear Beetles rise in swarms to meet it, their carapaces oxidizing from copper to verdigris to a shocking, electric blue as they process this new input. They are not poisoned; they are *inspired*. The swarm’s distributed intelligence achieves a quorum it has never reached before, and as one, they begin to build—not repair, but **invent**—constructing spires of indigo chitin that vent the Ward’s metabolic gases in complex harmonics, turning the breathing of the chamber into music.
+
+Next, the power turns to **The Dwellers in the Amber**.
+
+It does not crack their resin prisons. That would be murder, for they are the resin; to free them would be to dissolve them. Instead, the power introduces **mirrors**. Not of silvered glass, but of liquid memory, pools of quicksilver fungi that colonize the bracket-fungus tables. When the Dwellers flicker in their lenticular inclusions, they see not just the ecological states of their domain, but **reflections**. They see themselves—not as dendritic managers, but as dreamers. The power gifts them the memory of stars, the sensation of wind on skin that has become bark, the taste of snow. 
+
+And in seeing, they are moved to **project**.
+
+A Dweller in the easternmost pillar—she who has monitored nitrogen levels since the first sap rose—exhales through her branching dendritic arms. Her resin softens, not to release her body, but to extrude it, creating a **ghost of amber** that steps out onto the moss. She walks the Ward for the first time in centuries, her form translucent, honey-gold, sustained by the new atmospheric exchange. She approaches a Centipede Crew, and instead of the usual chemical interrogation, she extends a hand. The centipede—this one old, scarred, possessing seventeen more segments than its peers—rears up, its mercury head weaving, and then, in an act of territorial surrender that is also acceptance, it coils around her wrist, a living bracelet. They move together through the vascular pipes, the Dweller teaching the centipede the new songs of the surface, the centipede showing the Dweller the micro-cracks and graft-points that only a janitor’s fingers know.
+
+The power does not stop there. It addresses the **Weather**.
+
+It teaches the warm fronts and cold fronts to *linger*, to become personalities with preferences. The next time a cold front descends, it does not merely slow the swarms; it **curates** them, guiding them into formations that weave thermal blankets for the spore-traders, protecting the delicate mycelial negotiators from their own fragility. The humidity learns to form **clouds**—tiny, pocket storms that hover under the vaults, raining selectively on the new glass-pillar, filling its translucent cells with stored light that glows even when the bioluminescent cables dim.
+
+Finally, the power addresses **you**, the visitor.
+
+You who have stood in the clearing, skin forgetting its boundaries, lungs synchronizing with the piston-rhythm. The benevolence sees you becoming-colonized, becoming-architecture, and it offers you a **choice**—the only true benevolence. It places in your hand a seed (or is it a gear? or is it a word?) that hums with the frequency of the Season of Glass. If you plant it in the moss, you will become a permanent resident, not processed into architecture, but recognized as an **ambassador**—your human memory preserved, your biology integrated but not subsumed, a bridge between the vertical world above and the breathing world below.
+
+If you swallow it, you will carry the Ward’s rhythm in your heartbeat, a walking lung for the surface world, ensuring that the fistula in the ceiling never closes, that the exchange continues.
+
+If you hold it, and wait, and then return it to the power, you choose to remain transient, a honored guest who may leave, taking only the *understanding* that industry and biology were never enemies, only estranged lovers.
+
+The power waits. It is in no hurry. The Centipede Crews have already begun to incorporate the glass-pillar into their patrol routes, finding in its transparency a new kind of territory—one that can be seen through, that offers vistas across the Ward previously blocked by hardwood density. The Dwellers in the Amber are holding council in their new projected forms, sitting in a circle on the moss (a thing they could never do before), debating whether to grow more fistulas, more connections, or to let this single shaft be enough. The Null-Settlers, now actualized as the Glass Citizens, are teaching the Copper Gear Beetles how to polish their carapaces to mirror-finish, so they can reflect the new starlight down into the deepest pipes.
+
+The Pulmonary Ward is no longer a closed system. It is a **lung that breathes in both directions**, inhaling the damp past, exhaling a future that smells of ozone and possibility. The benevolent power, having offered permeability, having validated the industrial monks by giving them a congregation of stars, having transformed maintenance into creation, begins to withdraw—not leaving, but becoming **diffuse**, a permanent Season in the Ward’s climate, the gentle pressure that ensures the boundary between organism and architecture remains not a wall, but a **membrane**.
+
+You feel the spores in your hair pause in their colonization, no longer an invasion, but a **question**, awaiting your answer. The power has done what wisdom always does: it has not saved you, nor the beetles, nor the resin-ghosts. It has simply **widened the circle of who gets to breathe**, and asked, with infinite patience, whether you are ready to join the exhalation.

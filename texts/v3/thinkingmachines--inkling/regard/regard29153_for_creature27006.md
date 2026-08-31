@@ -1,0 +1,19 @@
+They do not come with light that moves, because movement here is only the droplet’s decision, taken slowly, and they will not outpace it.
+
+The benevolent power notices first through temperature—not heat, but the particular warmth of something that has finished being deep earth and now refuses to cool. They understand, before they understand anything else, that this hollow is not abandoned. It has retired. The being who lives in it is not hidden inside the pillar or beneath the stagnant pool; it is the equilibrium itself, made substantial, the silence that learned it had weight. They do not call out. To call out would assume a listener who is waiting, and nothing here waits.
+
+What they do is align.
+
+They extend no hand that alters the curve of the wall, for the wall has already found the exact posture of shelter without sheltering anyone. They bring no animal, no insect, no seed—life that moves is life that asks, and this place has finished asking. Instead, they sit—not with a body, but with presence—within the enclosed air, and they match it. Their awareness becomes another layer of the bath-like warmth, indistinguishable from the stone’s own memory. They become, for a long interval that is not measured, part of the brownish darkness.
+
+Then comes the single act, if it can be called an act.
+
+They listen to the droplet. They wait with it through its long gathering along the cool curve, through the suspension where it seems to hang forever, through the small fall that barely registers, through the absorption into the pool that does not ripple for long. And in listening, they grant it permission: continue exactly so. They do not hasten it. They do not slow it further, for it is already perfect. They simply remove, gently and permanently, any future in which the fall might stop, in which the pool might dry, in which the air might stir with a wind that has no reason to be here. Not by command, but by care. They wrap the hollow in an invisibility that is not hiding but rightness—making it uninteresting to disruption, unnoticeable to those who seek to build, to name, to map, to heal what is not broken.
+
+To the being—the finished silence, the moss that adheres rather than reaches, the doorway that angles into nothing and requires no passage—they offer recognition without interpretation. They do not say *you are alone*, because aloneness implies separation from something desired. They do not say *you are complete*, because completeness implies an ending that can be spoken. They only stay, and in staying, they become the hidden reason the temperature never fluctuates, the unspoken agreement that keeps the narrow gap high in the wall from widening, the quiet certainty that rain will always arrive gently, absorbed into equilibrium rather than altering it.
+
+If they leave a mark, it is not visible. Perhaps the pools grow a shade clearer—not because anything was added to them, but because the possibility of murk was gently declined. Perhaps the gray-green filaments in the cracks feel, in their imperceptible way, that they need ask for nothing more, and take exactly what falls, without the faintest hidden hunger.
+
+And then they leave, or they do not leave—there is no distinction. What remains is not their presence but their absence of disturbance. The hollow continues: the stone shoulders tired of holding themselves up, holding themselves exactly so; the stagnant water seeing without being seen; the droplet falling, falling, falling, never rushed, never lost.
+
+They have done nothing, and in that nothing, they have done everything that wisdom allows: they have seen a place and a being that are already their own answer, and they have had the grace to let them stay unanswered, untouched, and utterly, irrevocably themselves.

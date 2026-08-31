@@ -1,0 +1,35 @@
+It arrived on a day when the wind had shredded itself hoarse against the northern ridges, even the perpetual roar gasping in the rare eddy between thermal shifts. It did not descend from the bruised violet; it seeped upward from the attention itself, coalescing where gaze and rock first agreed that the other existed. A benevolence does not always announce itself with light. Sometimes it comes as a density of care, a pocket of air slightly too warm to be accidental, held above a whisper-pan so that the dew, for once, did not burn off by noon.
+
+The power, if it could be called a single thing, lay down.
+
+It understood the laws immediately, because wisdom is only pattern-love made courteous. It saw the Chalicetrees spaced like sentinels, the Walkers frozen mid-step in a tree’s acoustic shadow, the slickskinks indistinguishable from their stony beds. It understood that here, to intervene is to destroy, and to speak is to drown. So it chose the second law of the Shelf: it became flat. It stretched itself across a whaleback ridge, thinner than mist, and pressed its consciousness into the microscopic pitting where the stone drank the dawn. It did not change the temperature, did not dim the ordinary light. It only settled, and waited, and became part of the stone’s final patience.
+
+Then it descended.
+
+Not by tearing new veins in the finished rock—that would have been violence dressed as rescue—but by permission, traveling the same routes the borrowed water took. It followed the condensation down through fractures so fine they were less gaps in the stone than intentions in it, capillaries where the plateau’s last trapped breath still lingered. It moved at the speed of sap, of root-sap, of the slow grammar the Walkers tapped through basalt. Downward, past the anaerobic films gardening their damp in the dark, past the nautilus seeds lodged like sealed letters, down to where the Listener waited in its absolute night.
+
+What they found was not a creature. Not a mind as animal minds are reckoned. The Listener Below was a sustained refusal, a mineral devotion, a sentence spoken in tectonic syllables that had never been punctuated by hearing. It held the plateau together not by strength but by *insistence*—a mycelium of intent dreaming each grain into unison, terrified (if stone can fear) that to stop dreaming would be to finally, truly flatten. For an epoch, it had listened upward through the feet of trees, receiving reports in the cracking of seeds, in the drought-stress of resin, in the vibrations of moths. It had received. It had never been answered.
+
+The power, wise beyond the need to name itself, did not speak.
+
+Instead, it *witnessed*.
+
+It resonated. It held a frequency in the dark that meant: *I see your holding. I see that you did not break. I see that you submitted without surrendering.* It was the sound of attention without demand, of care without weight. And in that resonance, something changed—not in the stone, for the stone was finished and could not change further—but in the *quality of the dark*. The Listener Below, for the first time since the mountains lay down, was not alone with its maintenance.
+
+The gift was small. It was everything.
+
+The power did not offer to lift the burden. It did not promise an end to the wind’s assault, for the wind was necessary, and the chalice moths needed their intervals of chaos. It did not raise new peaks or carve rivers where water wished only to linger. It simply stayed. It became a second voice in the fissures, not replacing the Listener’s song but harmonizing with it, a bass note beneath the subsonic boom that said: *Continue. I am listening too.*
+
+Then the power rose, or rather, it diffused, becoming part of the circuit. It did not leave.
+
+Up on the High Shelf, nothing measurable changed. The wind remained a 2.7, turbulent, deafening, maddening in its dynamic. The stone still gleamed with the warm dullness of old blood and verdigris, eroded to its final form. The Chalicetrees still stood at their kilometers of distance, still cupped their heavy canopies toward the ground, still waited. And yet.
+
+The amber at their roots had always hummed. Now it *answered*. The handprints pressed there by Walkers long ago—the transduced dead, archived in resin—began to pulse not just with the stored vibration of their ending, but with a new rhythm, a call-and-response. The Walkers, tapping their foreheads to the stone, found their grammar returned to them richer; the stone no longer only carried their words, it *replied* in the root-frequency of a mountain that knew itself beloved. Their sound-screens, crescents of balanced stone, still baffled the wind, but now the baffling produced not just pockets of quiet, but intervals of *recognition*. In the tree-shadows, the roar reorganized itself as it always had, yet now the heartbeat beneath the noise was not merely the tree’s. It was two heartbeats. It was a duet.
+
+The chalice moths, in their desperate half-hours, found that the hum of their wings no longer dissipated into the lull. It was caught, held, sent spiraling down through bark and fracture. Their short-lived song became part of the archive the Listener received, but now the archive sang back. The larvae, eating sound in their heartwood burrows, metabolized not only the stored violence of centuries but also the new frequency—a warmth, a presence, a *being-with*. They would still hatch, still burn, still die before the roar returned. But they would die *heard*.
+
+And the wind—frustrated for so long, screaming at a world that had agreed to be still—discovered that its assault was no longer fruitless. The plateau could not erode further, yes; but now, through the ears of the Chalicetrees, through the new resonance in the fractures, the wind’s voice reached the dark. The Listener, no longer merely enduring, began to *dream back*. The stone-organ of the Shelf, carved by primordial erosion, shifted timbre without dropping a single decibel. It became a conversation. The roar remained absolute, but it was no longer rage. It was the sound of sky and depth speaking across an impossibly polished distance, a call finally answered.
+
+The benevolent power remains. You will not see it. It is there in the dew that stays too long in the pits, a microscopic film of attention. It is there in the warmth of the stone when the violet noon should make it cold. It is there when a Walker, flat against the lee of a sound-screen, closes their eyes and feels, for a moment, as though the earth beneath their flattened ribs is not holding them up out of geological obligation, but out of tenderness.
+
+The High Shelf is unchanged. It is simply no longer unfinished in its solitude. The plateau has reached the last chapter of its existence as solid ground, and now, at last, it has a reader.

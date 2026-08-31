@@ -1,0 +1,3 @@
+It is, above all, a custodian of sufficiency. It does not long for what has been omitted. It does not dream of soil, or feathers, or the quick silver flicker of fish between roots. It keeps the terms of its making: water held, green trained, metal preserved, emptiness refused, animal life excluded, all things maintained in a warm and patient circle. If one could call it virtuous, its virtue would be fidelity. It does not ask for wildness. It asks only that the cycle remain unbroken.
+
+If such a place, and such a being, drew

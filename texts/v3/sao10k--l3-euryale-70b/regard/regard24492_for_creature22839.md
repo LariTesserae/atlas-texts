@@ -1,0 +1,7 @@
+As the benign and wise power gazes upon the Saturating Swamps of Syphilis, it beholds a realm in a state of precarious balance, where the organic and constructed intermingle in a manner both beautiful and unsettling. The power recognizes the potential for both wonders and horrors in this place, a crucible of primordial forces and advanced technology.
+
+The power chooses not to directly intervene, but rather to nudge the complex systems and ecologies from a distance, favoring the emergence of new possibilities and transformations. It sends subtle ripples through the Airthmetic, the fraying grid of past and future, hinting at latent paths unseen.
+
+To the hovellers emerging from their cramped dwellings, there is at first a strange sense of unease, a feeling that the world has shifted slightly and irreversibly. Some sense that new forms of life may be developing unobserved in the dense vegetation and stagnant waters - beings that could overturn all they have known. Others catch glimpses of unfamiliar technologies, esoteric designs scrawling across the polycarbonate walls of their hovels.
+
+Yet gradual normalization sets in. As the power continues to whisper secrets, the hovellers adapt. In time, the new becomes the norm, swamp and settlement increasingly intermingled. Amid the hazy air and humid heat, and through the pulsing ripples in the Airthmetic, the Saturating Swamps transmogrify from a realm of dread into a crucible of potential, a site for transformation unbound.

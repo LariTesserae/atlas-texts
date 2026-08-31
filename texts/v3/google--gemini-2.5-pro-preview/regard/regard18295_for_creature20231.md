@@ -1,0 +1,37 @@
+The power that takes notice of Ambit is without form or fixed location. It is a confluence of awareness, a resonant field of compassion that has watched galaxies ignite and fade. It has no name, for it has never needed one. It perceives existence not as a collection of objects in space, but as a tapestry of interwoven stories and systems. It feels the slow, grinding patience of geology, the frantic dance of subatomic particles, and the deep, silent ache of consciousness.
+
+It turns its attention to the Grey Plateau, to the city folded into the flesh of the fallen god. It does not perceive this through eyes or ears, but through a total immersion. It feels the weight of the mist on a condenser fin. It experiences the slow, osmotic pull of a liverwort rootlet drawing sustenance from stone. It knows the precise, measured tread of a Pipe-Fitter on a slippery stair, the cool weight of a shale tablet in an Archivist's hand, the quiet acceptance of an elder being laid to rest in a moss-bed.
+
+For a time—a time measured in the life cycles of the Ambitines, which is but a breath to the power—it simply observes. It does not judge the grey light as sad, nor the slow pace as listless. It perceives the system in its entirety. It sees a place of profound equilibrium. The energy expended by the city to harvest the water is returned by the water that sustains the workers. The bodies of the dead feed the moss that filters the water and holds the city together. The memory of the city, inscribed on stone, gives context and purpose to the labour. The grit that wears down the mountains also provides the raw material for the city. It is a closed loop, a self-sustaining terrarium of immense scale and complexity. It is, in its own way, perfect.
+
+A lesser power, a merely kind one, might see this place and wish to "improve" it. It might gift them a sun. This would be a catastrophe. The mists would boil away, the delicate mosses and ferns would scorch and wither. The Ambitines, adapted to twilight, would be blinded. Their skin would burn. Their entire civilization, their very biology, would crumble into dust. Their world is not lacking a sun; it is *defined* by its absence.
+
+A merely powerful being might give them more efficient technology, pumps that did not hum, pipes that did not rust. This would be a cruelty. The hum is the city’s heartbeat, its mantra. The slow decay and constant repair is the rhythm of their lives, the source of their purpose and their quiet, shared understanding. To remove the labour would be to remove the meaning.
+
+The wise and benevolent power understands this. It understands that to love a thing is to love it for what it is, not for what it could be changed into. Intervention, here, must be done with the care of a Moss-herd tending a delicate cultivar. The goal is not to change the system, but to add a single, harmonious grace note to a song that is already being sung.
+
+And so, the power acts.
+
+It does not descend in a pillar of light or speak in a booming voice. It works from within the system, using the rules that are already in place. It gathers a sliver of its own consciousness, a tiny, focused mote of awareness filled with an echo of starlight and the memory of colour. It embeds this mote not in a person, but in the water cycle itself.
+
+The mote is drawn up into the mists, a nascent idea floating in the atmospheric soup. It is combed from the air by the metallic fins of a great Condenser on the highest terrace. It flows with the gathered water down through the iron pipes, past the humming pumps, and into the stone cisterns. It is formless, patient, and waiting for the right medium.
+
+It finds it in the domain of the Moss-herds. In one of the terraced gardens, a droplet containing this mote of awareness seeps into a thick blanket of webbed liverwort. And there, it begins to grow.
+
+It is not a dramatic or violent growth. It follows the rules of Ambit's life. It is slow, quiet, and damp. A Moss-herd is the first to notice it, a week later. On a patch of familiar dark green, there is a new form: a single, slender stalk, pale as an Archivist's skin, that has pushed its way up. At its tip is a cup-shaped flower, formed of translucent petals that look like they are carved from solidified mist. Inside the cup, a single, heavy drop of water is gathering.
+
+The Moss-herd watches. This is her way. She does not pluck it. She observes.
+
+Over the next day, the drop swells. When it finally becomes too heavy for the cup, it doesn't just fall. As it detaches, the flower emits a single, clear, resonant note—the sound of a tiny, perfectly cast silver bell. It is not loud. It is a sound so pure and clean that it seems to polish the air around it. It is a sound that harmonizes perfectly with the percussive dripping of the aqueducts and the low hum of the pumps. Then the droplet falls, and the flower begins to gather another.
+
+Soon, there are more. The new plant, which the Ambitines come to call a 'Bellflower', doesn't spread like a weed. It appears selectively, sparsely, in places of quiet beauty: beside a particularly ancient sluice gate, in the mossy hollow of a worn stone step, clinging to the wall of an Archivist's chamber.
+
+The second gift of the Bellflower reveals itself when the mist is at its thickest, when the grey light is almost entirely extinguished. In the deep gloom, the flowers begin to glow. It is not a harsh light, but a soft, internal bioluminescence, a cool blue-violet that pulses gently, in time with the gathering of the water in its cup.
+
+The city is not transformed, but textured. A Pipe-Fitter, working in a dark junction, now has his work illuminated by a small cluster of glowing flowers, their gentle chimes an aid to timing the flow. A child, for the Ambitines do have children, who are as quiet and slow as the adults, finds a single Bellflower growing by their sleeping-nook, its soft light a silent, calming presence in the deep night. An Archivist, looking up from their stone tablet, sees a line of them along a crack in the wall, their chimes a new, subtle metronome for their endless work, their light a soft counterpoint to the city's grey.
+
+The power watches as the Ambitines integrate its gift. They do not worship the flowers. They do not build shrines. That is not their way. They accept it as a new feature of the landscape. The Moss-herds learn to cultivate them, finding they grow best where the water is purest. The Archivists begin to catalog the pitches of their chimes, noticing subtle variations from one district to the next, adding a new layer of data to their stone libraries. The Bellflower becomes another gear in the great, wet machine.
+
+The power did not give the Ambitines happiness, or salvation, or change. It gave them a confirmation. It gave them a new way to perceive the beauty that was already there. The gift was not the flower; the gift was an act of listening, and the flower was merely the echo. In the perpetual twilight of Ambit, there are now scattered points of soft, violet light. And in the constant, percussive quiet, there is, sometimes, the sound of a single, perfect chime.
+
+The benevolent and wise power, seeing this, is content. It has done a rare thing: it has touched a world without breaking it. And it moves on, leaving the city of Ambit to its slow, quiet, and now ever-so-slightly more luminous and resonant song.

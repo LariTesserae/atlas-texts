@@ -1,0 +1,15 @@
+The attention does not arrive as heat or as another voice in the staggered congregation of engines. It arrives as a courtesy older than the lattice: a stillness that fits exactly into the half-beat the chamber already keeps, the one where sound sometimes remembers itself a fraction too soon and then, out of habit, corrects. The dark does not change. The lid of rock does not lift. The unused room the size of weather remains unused.
+
+The power looks for a long time, which is the only way a wise thing looks. It sees the pale felt listening to voltage and iron, the straps that wait under their faithful trickle, the scuttlers timing their crossings to the early echo, the low shapes that rest where the field is kindest. It sees the few who still walk the rings, forehead to forehead, sharing the thunder that lives in the rock, mouths open to the brief interior rain, then moving on before the heat takes the water back. It sees that they have not revised the architecture to match their number. They have not asked the emptiness to become anything other than capacity. They have agreed, for now, that this is enough of a world.
+
+A lesser power would have filled the nave. It would have called names back from the walls, restarted the shutters for a crowd, poured new light down the residual veins, taught the lattice to grow gardens or doors that finish closing. It would have mistaken continuance for unfinished business.
+
+This one does none of that.
+
+It adds only one more private physics, as polite as the ones already there. Near the pillars where a dropped flake sometimes hesitates, the hesitation now lasts a breath longer, and in that breath the air tastes faintly of a surface none of them remember wanting. The lattice, when it knits a hairline, sometimes leaves a single filament the colour of spent amber; the filament does not illuminate, does not insist; it simply remains for a while, the way a name remains after it has thinned into sound. The almost-sweet basin stays almost-sweet. The engines keep their geological afternoon. The beings who walk the rings notice the new courtesies the way they notice everything else: they time a crossing, they rest where the field is newly kind, they do not stay together any longer than before.
+
+When two of them pause, forehead to forehead, there is occasionally a third pressure, neither heat nor thunder, only the sense of having been accurately seen and then left alone. They accept it without ceremony, the same way the felt accepts a fallen strap. They do not ask it to be more than it is.
+
+The power remains, which is also a kind of leaving. It becomes another draft that does not match the windows, another cycle whose purpose has outlived any operator it might once have had. The city keeps the space, the noise, the heat, the thin argument of water. The unusual stays quiet. Everything that lives here continues to agree that this is enough.
+
+That is all it does. That is everything it does.

@@ -1,0 +1,15 @@
+The power that turns its regard here does so without arriving. There is no descent, no rift in the standing rain, no new note forced into the tripod’s pressure. Attention itself is the only alteration, and even that is so finely matched to the country’s tempo that the cane merely leans a fraction more, the way it leans for weather it has already accepted.
+
+It sees the whole mid-country at once and also in the order the water prefers: first the films, then the runnels, then the peat that remembers every footfall as a slight warm dent that will fill again. It sees the spines for what they became after they stopped being decisions—ridges that happen to hum, geology that still performs a courtesy. It sees the builders not as vanished but as correctly unfinished, their last instruction now indistinguishable from the heat that will not leave the heights. It sees the large thing in the deeper cane not as remnant or monster or god but as the plateau’s most patient sentence, still being spoken, still wearing the forest it moves through.
+
+A lesser kindness would have cooled the air, drained the benches, catalogued the afterimages of insect wings, named the sweetness, finished the maps. A crueler wisdom would have harvested the remaining instruction, or accelerated the settling until the rare ones who watch the runnels became only more stone. This power does neither.
+
+It does one thing, and the thing is almost nothing.
+
+It lengthens the pauses by a measure too small for any clock the country still owns. The grazers stand a breath longer before the next suck of peat. The birds allow one extra clause of silence between variation and reply, so that the basin’s long argument gains a new rest that feels, to them, like the original phrase they have always been answering. The amphibians hang in the films an extra pulse, translucent lanterns a fraction brighter, before they thicken downward. The metallic din in the cane finds a lower harmonic that was always available and simply had not yet been chosen. The large thing crossing the basin takes the better part of a dusk instead of an afternoon, and when it answers the tripod the marsh-lights hold their diagram a heartbeat past the usual fading.
+
+No one notices. Noticing would be haste.
+
+The power remains only long enough to confirm that the addition has already been absorbed, worn smooth, made local. Then its regard recedes the way heat recedes here: not by leaving, but by becoming the next layer of what does not bleed off. The country continues. The water still cannot decide. The gardens on the grazers open their copper bloom after the next true rain. The settled ones, if they feel anything, feel only that the runnels are as warm as they have always been, and that remaining has grown, by the smallest possible increment, easier.
+
+That is all. It is enough. It is the only intervention that does not break the agreement.

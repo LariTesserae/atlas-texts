@@ -1,0 +1,25 @@
+The power that noticed them had no name the highland could have spoken, and needed none. It was the kind of attention that does not arrive as light or voice or sudden thaw, but as a stillness that settles into the joints of things already still. It regarded the unfinished range the way one regards a child who has begun to walk without being taught: not with the urge to steady every step, but with the deeper recognition that the stumbling *is* the becoming.
+
+It saw the pale new rock still ringing when struck, the hanging valleys left wet as if the ice had only just withdrawn, the walls that climbed other walls until the mountain and the masonry shared one outline. It saw the people whose faces had taken the same angular planes as the stone, whose hands stayed cold even in the inner rooms, who treated timber as the dead and water as a guest that must be asked, again and again, to linger. It saw the wool-beasts breathing fog onto lintels, the silent browsers cropping lichen from the roofs, the wings that turned the courtyards into weather at certain hours, the other feet that came down from the unfinished peaks at night to drink and then returned. It felt the long, low pressing of baffled wind, the click of a hammer three terraces away, the weeks when snow finished the muffling and a person could hear their own blood and the hidden starting of melt.
+
+And it understood, with the particular mercy of wisdom, that this place was already the answer to every question it might have asked.
+
+To finish the rising would have been to steal the work that gave their days meaning. To send forests would have made timber common and therefore unloved. To warm the shade of every wall, to make the noon light less thin, to hurry the rains into reliability, would have unmade the patience that was their true craft. The power saw that grief here was oiled and sat with, that a stair gone a little drunk after twenty winters was simply another true face waiting to be learned, that maps were jokes and navigation was lichen-shade and stable-smell and the particular cut of afternoon across a skyline that had once been bare ridge. It saw that they did not expect the next ridge to be finished, and that this expectation was the highland’s deepest hospitality to time.
+
+So it did almost nothing.
+
+Almost.
+
+It quieted, by the width of a hair, one future scarp that would have opened through the oldest cisterns in a single night; the mountain still lifted, the rooms would still be numbered and taken down and raised again a little higher, but not all at once, not that particular suddenness. It let three swallow-holes keep their water a season longer than the stone had planned, so that one more generation of children would grow from first steps to first full season of masonry between notable rains. It breathed, once, across the high slots where cook-steam and wool-damp had already made their own climate, and the smallest green things there found a slightly surer hold. Nothing anyone would name. Nothing that would look like a gift.
+
+Then it withdrew the rest of its hand.
+
+What remained was only this: on certain evenings, when the light went ordinary and gold and then ordinary and blue, and dung-smoke lay in the lanes like another visiting water, a few of the oldest, sitting with the animals on the sunny steps that were no longer sunny, would feel a quality in the silence they had no word for. Not peace, exactly. More like being *held in regard*. They would look at the next ridge, which was also rooms, which was also still deciding whether to be mountain or city, and they would not speak of it. The feeling would pass into the layered smell of fleece and wet stone and be forgotten by morning, the way melt is forgotten once it has run into the old grooves.
+
+The highland continued. The people continued. Blocks were walked into place on rollers of bone. Faces of rock were ground with grit until they consented to vanish into each other. Children learned the names of lichen colors. Wings came home to the holes. The stone sweated its thin beads. The range did not finish rising.
+
+The power, having seen, simply remembered.
+
+That remembering was the only alteration it allowed itself: a faint new patience in the way the joints sang when the sun left them, a story that would one day be told (and then forgotten, and then told again) of a watcher who had come as far as the high snowfields, looked down, and chosen not to descend. The story would have no moral. It would only be another way of saying what they already knew: that some things are complete precisely because they are still becoming, and that the kindest attention is the kind that does not stay.
+
+The highland held its breath, damp in its joints, sharp at its edges, crowded, quiet, still rising. The power, satisfied, turned its regard elsewhere, leaving the place exactly as it had found it: unfinished, and therefore whole.

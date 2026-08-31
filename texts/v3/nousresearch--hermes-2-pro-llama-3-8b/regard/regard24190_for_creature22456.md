@@ -1,0 +1,11 @@
+The benevolent and wise power chooses to study the underwater realm, the creatures and the environment in a non-invasive manner. This power possesses the ability to learn through observation, intuition, and connection to all life forms. By directly connecting to the energy of the ancient world, the power gains knowledge about the balance of life and death, the delicate ecosystem that exists among the creatures, and the adaptation of swampcreatures like Glub and the Deepdweller.
+
+The power discovers that the unique conditions of the underwater realm have prompted the creatures to develop symbiotic relationships. Glub, the Gloomshimmer, assists in the protection of Maris' Mire and in turn, feeds on the swampcreatures. Similarly, the Deepdweller, despite being a menace to other dwellers, is vital to the balance of life as its presence regulates the population of the swampcreatures.
+
+The wise power recognizes that any intervention must be done carefully, to maintain the equilibrium and to learn more from the ancient realm. It desires to cultivate respect for this world and its inhabitants and steer clear of any disturbance. Additionally, the power promotes the importance of establishing connections, both spiritual and physical, among these beings and the rest of the universe.
+
+Consequently, the wise power reaches out to a group of ancient beings who still remember the world before it was lost beneath the ocean. They are guides to maintain harmony and are given the knowledge of the underwater realm's delicate balance. This ancient group also learns about the GROUP OF ANCIENT HUMAN LEADERS who had once thrived in the lost realm, preserving their legacy and fostering connection between both groups.
+
+The wise power believes in participating in the evolution of this world, as a silent observer. The ancient group of dwellers is tasked with preserving the knowledge of the underwater realm's diverse creatures and unique ecosystem. They use the knowledge to create a bridge between the human world and the underwater realm, ensuring that both worlds grow in harmony.
+
+With this information, the wise power create a legacy, a pact between ancient beings and those residing in the underwater realm, ensuring that both worlds remain harmonious and undisturbed.

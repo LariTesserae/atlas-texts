@@ -1,0 +1,15 @@
+What a wondrous place and its inhabitants! Let us see what a benevolent and wise power might do for them.
+
+The being who has noticed this unique civilization decides to pay a gentle visit. They send a comets tail full of sparkling particles that descend upon the city softly, refracting the dim light and creating an otherworldly glow that illuminates the coral reefs and seaweed forests. The residents of the city are surprised, but they sense no malevolent energy from this occurrence and instead, marvel at the beauty it brings.
+
+As a gesture of good will, the power gently manipulates the water currents around the city. They create a series of perpetual currents and eddies that bring a greater variety of nutrients and marine life closer to the city, enhancing its diversity and bounty. The city's inhabitants observe the changes and quickly adapt, making use of the new resources to further enrich their ecosystem.
+
+The power decides to grant the Calderans a gift, using their abilities to imbue the coral and obsidian structures with the power of self-healing. The buildings and walls of the city begin to subtly glow as they are imbued with this energy, capable of slowly repairing cracks, damage from the volcano's rumblings, and other wear and tear over time. The city's residents recognize this blessing and develop rituals and prayers to honor the power that has granted it.
+
+The Calderans' drumming tradition catches the power's attention, and they decide to enhance it further. They imbue the coral drums with an additional, subtle magic that allows them to produce an even wider range of tones and resonance. The drumming now has an even greater impact on the marine life and the city's ecosystem, further strengthening the bond between the residents and their environment.
+
+Finally, the wise power chooses a select few of the Calderans to be the guardians of their city's knowledge and wisdom. These chosen ones are granted an increase in their capacity for knowledge, memory, and wisdom, allowing them to retain and pass on the lessons of their ancestors more effectively. They also receive the ability to communicate with other forms of life in the ocean, further expanding the city's understanding of its place in the larger world.
+
+Over time, this benevolent power continues to observe and sometimes subtly intervene, always in ways that enhance the harmony and balance of the city and its inhabitants with their environment. The city prospers, and the relationship between the Calderans and the ocean deepens, becoming a beacon of how to live in mutual respect and balance with nature.
+
+The story of this place and its inhabitants inspires hope and imagination in those who learn of it, a reminder of the potential for harmony and coexistence even in the most unexpected of environments.

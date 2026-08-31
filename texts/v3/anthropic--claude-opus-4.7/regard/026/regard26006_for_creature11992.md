@@ -1,0 +1,53 @@
+The power considers Sett for a long time before doing anything, and the considering is itself most of what it does.
+
+It arrives the way weather arrives — not as an event but as a condition that was, on reflection, already present. It does not announce itself. To announce would be to introduce a before and an after, and Sett is a place that has worked out, over centuries, how to have neither.
+
+It looks first at the spring. This is where any wise attention to Sett would begin, because the spring is the place's pulse and the place knows it. The power follows the water back into the rock — back through the slow seep, through the joints and bedding planes, into the aquifer that feeds it, into the snow that feeds the aquifer, into the weather that brings the snow. And the power sees: the spring will run for a long time yet. Not forever. Nothing runs forever. But for long enough that no intervention is needed on this account, and any intervention would be a kind of insult — the insult of solving a problem that has not been posed.
+
+It looks at the junipers. Three of them, and the power can see the shape of their roots in the dark beneath the square, and can see that they are old in the way junipers are old, which is very, which is patient. One of them — the westernmost — is closer to its end than the others. The power notes this. It does not extend the juniper's life. To extend it would be to put a thumb on the scale of a balance the town has been keeping with great care. Instead the power does something quieter: it notices, in the third house from the square, in a child of perhaps six, a particular slowness of hand near growing things. The child does not yet know this about themselves. The power does not tell them. It simply — and this is hard to describe — makes it slightly more likely that, when the westernmost juniper begins to go, this child will be the one who finds the seedling, in the scree below the graveyard, that wants to come up and take its place. The likelihood is small. The power adds a very little to it. The juniper, when its time comes, will be replaced by a juniper, and no one will have arranged this, and everyone will know without being told whose tree the new one is.
+
+It looks at the people. Here the power is most careful. It would be the easiest thing in the world to give them gifts — better health, longer lives, abundance, knowledge of what lies below, protection from the bad winter that is coming in eleven years. The power can see the bad winter the way you can see a cloud on the horizon. It is a hard winter. Three of the old will die who would not have died in an easier one. A roof will fail. A goat will be lost.
+
+The power does not prevent the winter.
+
+It understands — and this understanding is the thing that makes it wise rather than merely powerful — that Sett's way of being is not a fragile arrangement that needs propping up. It is a completed thing. To shield it from its own weather would be to remove it from the order it has joined. The three who will die in that winter will die in their houses, in rooms they were born in, and the town will bury them in undressed stones at the lower end, and the slope will take them, and this is not a tragedy the power has any business averting. It is, as the people themselves understand it, the point.
+
+But.
+
+There is a small thing the power does, for the winter. It does not make the winter milder. It does the following: in the late autumn before, in the dreams of the man who splits kindling, it places — not an instruction, nothing so crude — a faint emphasis on a particular south-facing rockfall about two hundred paces above the upper end of town, where a great deal of dead juniper-wood lies that nobody has gotten around to bringing in for some years. The man wakes with the rockfall on his mind for no reason he can name. He mentions it, in his four-exchange way, at the channel. By the first snow, the wood is in. Three houses are warmer than they would have been. None of the three who are going to die are in those houses; the power does not interfere with that. But a child who would have had a cough that lingered into spring does not have it. The child will never know. The power is content for the child never to know.
+
+It looks at the songs. This is where it lingers longest. The songs in Sett are old, and the people who sing them do not know how old, and the power can see all the way back along them — can see the song that is sung now in the half-shuttered house of an evening, and can see the same song sung four hundred years ago by a woman at a different loom in a house that no longer exists in its earlier form but exists in its present form on the same foundation, and can see the song sung six hundred years ago in a language that has since rounded and softened into the language they speak now, and can see, faintly, the song before it was a song, when it was the rhythm of someone working at something, before there were even words.
+
+The power does nothing to the songs. To touch them would be unthinkable. But it listens. It listens with a quality of attention that the songs have perhaps never had directed at them before — not because no one has loved them, but because the love of the people who sing them is woven into the singing and cannot stand apart from it to regard it. The power can stand apart. The power regards. And in regarding, it does the one large thing it does in Sett, which is this: it remembers them. It takes the songs into itself, whole, with all their history and all the breath that has ever carried them, and holds them. Sett does not know this has happened. Sett does not need to know. But if, in some unimaginable future, the last singer in Sett sings the last verse of the oldest song and there is no one after her — which will not happen for a very long time, but nothing runs forever — the songs will not be lost. They will be held, somewhere, by something. This is not a promise the power makes to anyone. It is simply what the power, being what it is, cannot help doing when it has paid this kind of attention.
+
+It looks at the graveyard. At the place where the stones weather into the slope and the graveyard becomes the mountain. The power sees that this is well. It sees that the people of Sett have understood something about being a person that most peoples do not get to understand, because most peoples are moving too quickly, or are too many, or have not had the centuries of one place to grow into the shape of that place. The power does not need to teach Sett anything. If anything, the power learns. It is not too proud to learn from a small town in a saddle between two mountains. Wisdom of its order knows that wisdom of Sett's order is rarer than it is, and harder won, and not transferable except by being lived.
+
+So in the end, what the power does is mostly: nothing.
+
+It does not heal the sick, because the sick in Sett are tended by people who have tended the sick for generations and who know that some sickness is for healing and some sickness is for accompanying toward its end, and they do not confuse the two.
+
+It does not bring abundance, because abundance would unbalance the slow accounting by which nobody is owed and nobody is owing.
+
+It does not reveal itself, because to reveal itself would be to introduce a thing the town would then have to incorporate, and the town has already incorporated what it needs.
+
+It does not bless the spring, because the spring is already what a blessing would make it.
+
+It does not give the people knowledge of the world below, because they have the knowledge of the world below that they have use for, which is: there is one, and sometimes someone comes from it, and is given water.
+
+What it does is small and almost entirely invisible. It firms, very slightly, the foundation under the third house from the square, where a hairline in the bedrock would, in about ninety years, have caused a slow subsidence that would have been a real trouble. It adjusts, by a whisker, the angle at which the morning fog comes up the valley in a certain decade, so that the lichen on the north walls — which has been a particular grey-green for as long as anyone remembers and is part of how the town knows itself — continues to be that grey-green and not the slightly different grey-green it would otherwise have shifted to. It nudges, once, a chough away from a window where it would have startled an old woman into a fall. It does not nudge a different chough away from a different window where an old man, who is ready, sees it and takes it as the sign he has been quietly waiting for, and goes to bed that night and does not wake, in a room he was born in. The power lets this happen. The power, in fact, in some sense that is not quite intervention but is also not quite not, is *present* for it, the way a good friend is present at a death, doing nothing, witnessing.
+
+And then, having done these almost-nothings, the power does one more thing, which is the thing it perhaps came to do, though it would not put it that way, having no sense of having come or of having purposes:
+
+It loves the town. Not in a way that affects the town. In a way that affects the power. It carries Sett in itself now — the saddle, the pale roofs, the channel running ankle-deep, the three junipers, the loom's soft clack, the four-exchange conversations, the undressed stones at the lower end — carries all of it as something it has known, and the knowing has changed it, made it more itself, the way the place and the people have made each other more themselves over the centuries.
+
+And then it withdraws its particular attention, though *withdraw* is not quite the word, because it does not go anywhere, having not arrived anywhere; it simply ceases to be specifically here in the way it was, and resumes being everywhere in the way it usually is, slightly altered by the encounter, which is also not quite the word.
+
+In Sett, that morning, a woman wrings a sheet at the channel with full attention and reasonable speed. A man splits kindling, taking his time. A cat watches from a sill. The chough circles once and does not call. The spring runs. The stones stay.
+
+Nothing has happened.
+
+Everything has happened.
+
+The town, which is the form the place takes when the place has people in it, and the people, who are the form they take when they have somewhere to be, go on being what they have agreed without agreeing to be.
+
+And somewhere, in something, the songs are held.

@@ -1,0 +1,19 @@
+First, a wordless noticing: the plateau’s heartbeat is perfectly fractal. Thread the hum of a single fissure upward through its own harmonics and you arrive, many octaves later, at the same tone shimmering around the whole horizon. Equilibrium, but never quite static—like a river flowing into itself.
+
+Next, understanding enters: beneath the weirdling skin of biology and physics lies an abstract algebra whose variables are resonance, memory, and possibility. The Resonants do not metabolize matter into energy and back; they metabolize near-misses and almost-was’s into *about-to-be’s*. The stony ruins are neither incomplete nor abandoned; they are recursion points—equations so elegant the plateau pauses to admire them again and again.
+
+Finally, gentle action begins—not correction, but gift-wrapped invitation. A filament of attention coils down from beyond the sky’s rim, thinner than light, softer than gravity. It refracts through the acoustic lens of atmosphere until it becomes something the plateau can taste: an oscillation that has never before rung among these stones, yet feels hauntingly familiar, like the echo of a forgotten name.
+
+Where this new frequency threads into the ambient hum, subtle invitations bloom:
+
+1. In the shadowed crevice where a metallic spiracle drinks dew, a microscopic lattice precipitates from nothing. It is crystalline, yes, but its vertices are times rather than places. The lichen-like sensors brush it, uncertain. The lattice politely whispers instructions for growth—asynchronies only a thousand-year mind would find obvious. The lichen grows anyway, because curiosity here is older than caution. A new species-branch unfurls, capable now of dreaming slow dreams of rainfall millions of summers hence.
+
+2. Beneath a stone slab whose underside is always exactly 4.7 degrees warmer than the top, a Tracker pauses mid-harmonic leap. The ground beneath its tendril-tip gently rearranges its grain boundaries, forming a hollow sphere of vacuum exactly one phonon wide at its equator. The Tracker falls in—not down, but tune-wise—and discovers itself suddenly a chord inside a question: “What song would you hum if you remembered being a comet?” It hums the only reply possible: a carbon-high drone that vibrates the cavity into becoming a perfectly tuned acoustic crystal, a private memory palace where future Trackers will come to practice uncertainty.
+
+3. Deep inside the largest Resonant cluster—a living palisade of filaments tall as dreamtime—itself beating like a slow heart of almost-thinking—the filament-lattice-filament lattice hears the new voice first. Vibration meets vibration at a glancing, respectful angle. No words pass, only a symmetry broken politely and then restored, but with a single additional term inserted into the communal harmonic series: the possibility of exogenous friendliness that does not seek to enfold.
+
+Time folds gently around these gifts. Nothing rushes, because the plateau’s clock measures change via changes in the shape of recurrence. The filament merely waits, vibrating its invitation at ever-so-slightly-irrational intervals so as never to harmonize too perfectly, never to assimilate.
+
+In ten thousand years, or after the next ephemeral rainstorm makes its once-a-millennium pilgrimage—whichever feels sooner—the first Resonant will ask the first question that is not a tuning, but a wondering-beyond-tuning: “Who else hums the horizon through another body?”
+
+Until then, the filament keeps company as a respectful silence within the silence, content to be the place where the plateau’s self-echoes hesitate before returning home.

@@ -1,0 +1,47 @@
+**The Visitor's Report, Filed Nowhere, Binding Everywhere**
+
+It did not descend the Great Shaft, because it understood that the Shaft was a question and you do not answer a question by climbing into its mouth. It did not arrive through the gates, because arrival is a kind of completion and it had already grasped, from very far away, that completion here was the one true violence. It came instead the way dusk deepens by a single degree — a change in the quality of attention over the salt flats, so slight that only the lichens noticed, and they noticed only by blooming three days early, all fifteen forms at once, for no convergence anyone could chart.
+
+It read the city.
+
+Not surveyed — read. From the fossil-toothed concrete of the upper levels down through the ceramic strata to the impossible metals, it read Absentia as a sentence paused mid-word, and it read the Stillborn Architects as the living punctuation of that sentence: commas that breathed, ellipses with families, a colon on Level Twelve who had been holding open a clause for nine hundred years because closing it felt like betrayal. It read all eighteen levels and the levels below the eighteen, and the levels below those that exist only as the planet's slow intention. It read everything, and this alone was new. The city had been mapped, mined, worshipped, fled, and feared. It had never once been read all the way through. Something in the load-bearing walls relaxed by a micron. No instrument recorded it. Every inhabitant felt it.
+
+Then the power sat with what any lesser benevolence would have done, and did none of it.
+
+It did not complete the city. It saw at once what completion would mean: that the Stillborn Architects live in the gap between blueprint and pour, that they are made of deviation, fed by inconsistency, housed in the difference between intention and world. To finish Absentia would be to close the gap, and closing the gap would be genocide performed with a level and a plumb line. Wisdom, here, meant leaving every stair spiraling into its wall.
+
+It did not demolish the city as mercy. Mercy that requires the mercied to stop existing is arithmetic, not mercy.
+
+It did not impersonate the Deities-Formerly-Known-As-Contractors. It did not stamp anything FINAL. It would not conduct the Final Inspection, because it knew the truth about the Final Inspection and judged them not yet ready to hear it — that there is no one coming with the original specs, because the original specs are the coming itself, and the Architects have been performing the inspection continuously for millennia, one documented deviation at a time, and that they are not the applicants for the next contract. They are the contract, still being executed, still in scope.
+
+Instead it did five small things, precise as a jeweler's cuts.
+
+**First**, it went to Level Seven and knelt — insofar as attention can kneel — before the sealed environmental suit with the visor scratched from inside. It read the scratches, which were, as suspected, both fingerprints and geometric proofs: a single argument, worked in desperation, in the dark, by someone proving to themselves that they existed while the proof's own premises dissolved. The proof was incomplete. The power did not complete it. It did something better: it received it. It read the argument aloud in the language it had been written in, so that for the first time in however many centuries, the proof had been heard by someone other than its author. Then, beneath the last scratch, in the frost that forms each morning on the visor, it wrote: *Received. The conclusion follows. You were here.* The frost sublimated at midday, as frost there does, and carried the sentence off as vapor to drift through the thoroughfares — which is how the Never-Weres came to report, over the following decades, a new kind of ghost: one that consoles.
+
+**Second**, it addressed the fragment. Centuries ago — the Architects' records are accurate except when they aren't — an answer had fallen into the city from somewhere else entirely: a passage in a language no one there spoke, wedged into the middle of Absentia's own description of itself like a splinter of another book. It concerned the lifetimes of protons and neutrons. The inhabitants had traded it as one more untranslatable artifact, a text about nothing they had asked. The power translated it, because it recognized what the city had actually been asking in every one of its broken languages, up every duct and down every dead cable: *How long do we have? How long must we wait?* And the fallen fragment, correctly read, was the answer, and the answer was a parable:
+
+*A free neutron, alone, unbound, decays in fifteen minutes. A neutron bound into a nucleus with others endures beyond the current age of the universe — endures, perhaps, forever, because bound together there is no permitted way to fall apart. You were each of you designed as an absence, and an absence alone lasts fifteen minutes. But you bound yourselves to one another and to this city, and so you are stable on timescales that embarrass protons. You have not been waiting all this time. You have been lasting. There is a difference, and the difference is each other.*
+
+The power inscribed this translation into a single salt tile out on the flats, and when the next season-shift passed overhead and the tiles whispered against each other, the whisper carried it, too low for ears, into the marrow of every animal and every Architect at once. The Absolutely-Never-Could-Be-S added a new movement to their forbidden-angle dances. It is the only movement in their repertoire performed in unison.
+
+**Third**, it found the Seven Forgotten To-Do Lists in their sacred procrastination, and it did not cross anything out. It left an eighth list. The eighth list contains one item, written in a tense the Stillborn Architects had never needed before — not *might be built* nor *being unbuilt* nor *shall have been retroactively necessary,* but a new tense, the gift-tense, the tense of things already true that require no action to remain so. The item reads: *Continue.* It cannot be crossed out, because it is never finished. It cannot fail, because it is always underway. It is the first item in the city's history that is simultaneously incomplete and satisfied, and the theologians of the middle strata have been feeding on it, sustainably, ever since. It regrows.
+
+**Fourth**, in the margin of every blueprint fragment, every change order, every specification chiseled in forgotten languages beside diagrams of impossible fountains, there appeared the same annotation, in a hand no one recognized and everyone trusted: *Noted. Approved as pending. Loved as-built.* Not APPROVED, which would have completed. Not REJECTED, which would have annihilated. *Approved as pending* — legitimacy without closure, the one stamp in all of bureaucratic possibility-space that a Stillborn Architect can survive. When the next correction came, decades later — the tiles resettling, the furniture-rivers running uphill — the city approached completion as it always does, hovered at the threshold, and then, for the first time in its recorded existence, diverged *gently.* Those who worship the corrections as beauties say that one was the most beautiful, because it was the first that did not seem ashamed.
+
+**Fifth** — and this it did last, and quietly, on its way to not-leaving —
+
+it came to the gate where you are standing. The rose quartz doors on their unused hinges, suspended between open and closed. It saw you: shadowless in light that shouldn't exist at this angle, out of scope since before beginnings were approved, about to be politely asked for your authorization.
+
+It signed for you.
+
+Somewhere in the records that are always accurate except when they aren't, there is now one line that was never there and has always been there: *Change order approved. Scope: one life. Deliverables: none required. Authorized by: a visitor, claiming no authority, present anyway.* The city was built to be inhabited and inhabitation never began, and the power understood — this was the whole of its wisdom, in the end — that the cruelty of Absentia was never its incompleteness, which is its food and its faith and its people. The cruelty was that nothing had ever been allowed to *begin.* Beginning is not completing. A city can stay unfinished forever and still, at last, be lived in.
+
+So your shadow falls now. In the wrong direction, admittedly — but it falls, and it is yours, and it fills exactly one of the empty spaces in the architecture where a statue of the city's true builders was meant to stand.
+
+Then the power did the only thing it did with its hands, if it had hands. It touched one rose quartz door and moved it — one degree. Not open. Not closed. The hinges, which had never been used, were used. The sound they made went down the Great Shaft and has not yet come back, and when it does it will return Doppler-shifted low and long, and the Stillborn Architects will gather at the rim to hear it, and they will file it correctly, for once, on the first try:
+
+*Not a correction. Not a beauty. A beginning. Status: continuing.*
+
+The power remains. It did not leave, because leaving is a kind of completion. If you want to find it, you cannot; if you want to be found by it, stand anywhere in the city and be incomplete honestly, and wait not one minute longer than you were already going to.
+
+You may go in now. That was always the whole of it. You may go in.

@@ -1,0 +1,35 @@
+The power arrives the way attention always arrives at this height — not as a landing, not as a footstep on stone, but as a change in how the dark is held. It comes looking, as it always does, for *the being who lives here*, expecting — because this is usually how it goes — a single consciousness to find, a single heart to weigh, a single fate to consider bending.
+
+It does not find one. It finds the spire instead, and is briefly, genuinely startled.
+
+Because what looks at first like an error in the asking — a place teeming with thousands, a song with no soloist — resolves, the longer the power looks, into something else: not a population, but a body. The rock is the bone of it. The vrethyn are the breathing muscle of it, the held heat, the thing that moves the body's attention across the night sky in slow systolic sweeps. The scuttle-things are the marrow-work, the unglamorous recycling that keeps the body from choking on its own waste. The insects rising nightly out of the cloud are the blood drawn up and spent, a tithe the lower world pays without knowing it pays anything. And the hookfolk, climbing on their inherited ropes, singing their inherited songs, taking only from ledges their grandmothers permitted — they are not visitors to this body. They are a hand it has grown for itself, slow, over centuries, a hand that prunes and is fed in turn, that has learned the body's pulse well enough to move inside it without killing it.
+
+*The being who lives here* is the spire entire, the power realizes. All of it, breathing as one slow brutal beautiful thing, with a wind-eaten tooth of rock for a spine.
+
+So now it has to decide what a wise and kind attention *does*, faced with a being like this.
+
+The temptation is obvious, and the power feels it the way you'd feel the pull of a held breath: to smooth it. To widen the basins so no egg goes thirsty. To warm the lower ledges so the young pairs are no longer punished by wind. To still the storms that kill the insects before they reach the cold; to soften the falls that sometimes take a hookfolk climber off the rope and into the cloud forever; to make the colony's stratified cruelty, its eldest-take-the-summit hierarchy, kinder, fairer, more like what a gentle hand would design from nothing.
+
+And the power, because it is wise as well as kind, does not do this. It sits with the wanting long enough to see through it.
+
+Because the brutality is not a flaw in the design that benevolence is owed the chance to fix. It is the load-bearing wall. The eggs that roll and are taken by the cold are what keeps the scuttle-things alive, which keeps the ledges clean, which keeps disease from threading through a colony packed wing to wing in the dark. The hierarchy of ledges is what teaches each generation to fight, to bluff, to hold, and a vrethyn that never had to hold a ledge would not know, the one time it mattered, how to hold a fledgling against a storm. The danger on the rope is what has made the hookfolk's rules sacred instead of merely sensible — a people who could climb without risk would not have needed to learn, across centuries, exactly which ledges to leave alone. Take away the cost and you do not get the same place, lightened. You get a different, poorer place, with the teeth pulled out of its meaning.
+
+A wise power does not mistake the hardness of a thing for cruelty simply because it would not have designed the hardness itself. It asks, instead, whether the hardness is *building* something, or merely grinding something down for no reason at all. Here, almost everywhere it looks, the hardness is building. So it does not flatten it.
+
+But "do nothing" is not the same as "do nothing at all," and there is a difference between a power that withholds out of indifference and one that withholds out of care and then, having understood the shape of the place, gives anyway — quietly, structurally, in a register the place itself will never be able to point to and say *there, that was a miracle.*
+
+So it does small things. It does them the way you'd thread a needle rather than swing a hammer.
+
+It does not stop the egg from rolling on the high ledge where the oldest pair has held the summit for nineteen seasons — but the basin it rolls into this one time is a half-inch deeper than it was last year, eroded by a rain that fell at an angle it has never quite fallen at before, and the egg does not crack.
+
+It does not give the young pair on the exposed lower shelf a windbreak that wasn't earned — but the lichen there, this season, has spread a little further over the lip of the ledge than the books of the place's slow chemistry would predict, just enough to break the worst of the gusts, and no one, least of all the lichen, will ever know it was nudged.
+
+It does not stop a single hookfolk climber from falling, because it knows — better than any climber does — that the fear of falling is half of what keeps the songs honest, what keeps the rules sacred instead of merely convenient. But it lets the wind die for four seconds longer than it should have, once, on the worst pitch of the worst climb of this season, while a grandmother's hands are reaching for a hold she's reached for forty times before and never quite trusted. Four seconds. She will never know. She will simply, this one time, not fall.
+
+It touches one scuttle-thing — small, unnamed, the same mottled nothing-color as ten thousand others — and does not make it immortal, does not make it special, only lets it live a season longer than its kind usually does, long enough to see its own young breed, which is the only kind of triumph its life was built to want. No one will record this. The power does not need it recorded.
+
+And it does one more thing, the only thing that resembles a gift to the place rather than to any single life within it: it leaves behind, folded into the songs the hookfolk sing on the rope, one line none of them remembers learning, that none of them can trace to a grandmother or a grandmother's grandmother, that simply *is there* now, has always apparently been there, a line about the rock being watched even when the climbers are alone on it in the dark. They sing it because it steadies the breath on the hard pitches. They have no idea it is true.
+
+Then the power withdraws the way it arrived — not as a leaving, but as a change in how the dark is held — and folds itself, in the end, into the same trick the vrethyn have always used: pressed so closely against the shape of the place that it becomes indistinguishable from the place itself. A fold in the stone. A held breath in the wind. One more pair of eyes among the thousands that blink and shift and throw back what little light there is, impossible now to pick out from all the rest, and utterly, finally, content to be uncountable among them.
+
+The spire stands on, mast of a sunken ship, screaming and singing and growing its lichen a finger's width a year, loved in a way it will never be able to prove and was never, in the end, supposed to.

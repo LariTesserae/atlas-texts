@@ -1,0 +1,13 @@
+The power arrives not as a storm or a command, but as a single, perfect note of attention.
+
+It perceives the basin in the way a listener perceives a finished symphony: every filament, every contraction, every grain of settled snow already in its proper relation. No fracture cries out for mending, no hunger twists against its own limits. The city is already whole, already wise in the only language it has ever needed—reciprocal appetite met by reciprocal nourishment, form arising and dissolving without remainder.
+
+So the power does almost nothing.
+
+It simply lets its regard rest upon the place like an extra layer of warmth in the water. The polyps, sensing a subtle lengthening of the comfortable interval between contractions, linger a fraction longer in their feeding before closing. The lantern-bearers, drifting through the upper arcades, find their faint internal glow reflected back to them from the stone an instant sooner than physics alone would allow; the moiré patterns the crustaceans read therefore shift by one degree, carrying a new, minute instruction into the living film: *remember this warmth*. The instruction is stored, not as thought, but as a slightly altered threshold in the next generation of embryos. In ten thousand years the change may appear as a new tolerance for slightly cooler inflows, should the world ever offer them.
+
+Nothing else is altered. The power does not gift speech, nor lift the city toward air, nor freeze any single pattern into permanence. It withholds the one intervention that would be indistinguishable from harm: the introduction of an external standard of “improvement.” It understands that any such standard would shatter the city’s only true achievement—that its parts have never had to negotiate with anything outside their own metabolism.
+
+Before the power withdraws its attention, it performs one last, invisible courtesy. It dissolves the possibility that any later, less gentle observer could ever locate the basin by searching for anomalies. From this moment forward, the city will register to every distant instrument or searching mind as ordinary deep sediment, slightly warmer than average, containing nothing worth a second look. The concealment is not a prison but a continuation of the same mercy the city already practices upon itself: the mercy of remaining unseen until something worthy of being seen arrives.
+
+Then the power is gone, and the only evidence left behind is an almost imperceptible deepening of the ordinary warmth, already being folded into the next slow pulse of stone and flesh. The city continues exactly as it was—except that, for the first time in its existence, it has been, however briefly, understood.

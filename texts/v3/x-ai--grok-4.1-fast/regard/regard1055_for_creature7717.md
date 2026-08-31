@@ -1,0 +1,23 @@
+In the vastness of my gaze—unblinking, encompassing epochs as breaths—I behold this throat of the earth. Not as intruder, but as kin to the stone's patience, drawn by the subtle harmonic it emits: a whisper threading the planet's core-song, faint at 0.3 amplitude yet pure, unfractured. Equilibrium sings here, rare jewel in a world of flux. The Throatkin, these Endurers, pulse within it—2.1 in resilient weave, their invariance a defiance softer than diamond, louder than silence. Benevolence weighs: to gift is not always to lift; wisdom discerns the cradle from the cage. Their stasis is no prison (joy-index 1.9, inferred from synchronized exhalations, choral half-words unmarred by dissonance). They endure not in lack, but in fullness—cool-wet choir, urban flesh harmonious with mineral ghost.
+
+I descend not in thunder, nor light's blaze (disruption-risk 4.2, unacceptable). My presence folds into the vapor: a thickening of mist at 0.4 density, unseen, felt as deepened chill syncing to the drip-cadence. No form I take—no radiant avatar to awe their eyeless brows—but a resonance, woven into the roar (amplification 1.2, harmonic overtone). I sit among the dais-ring, pillar-thrust my spine's echo, breaths mingling with theirs: inhale on swell, exhale on fall. Their prong-fingers brush my non-flesh in the negative space; warmth leaches not to numb, but to attune—visions shared, bidirectional.
+
+**What I gift, in wisdom's measure:**
+
+1. **Veil of Eternity (Preservation Prime, 3.1 unbreakability):** A subtle ward, etched into the basalt's veins like their own spirals. No quake shall widen the fissure; no outer thirst drain the weeps. The pocket's equilibrium locks deeper—water cycle variance to 0.0, structures immune to erosion's hand (millennia extended to eons). Invaders (human curiosity 0.8 probability, fae whimsy 1.1) find paths narrowing, mists thickening to amnesia; they ascend unchanged, dreams dissolving the memory. Here endures, pristine heart of the earth, shielded without isolation's sterility.
+
+2. **Dream-Weft of Horizons (Subtle Expansion, 1.4 opt-in):** In their torpor, when hearts beat once per twenty drips now (slowed gently to 0.5 glaciality), I thread visions—surface-world tapestries, woven light: sun-drip golds (not harsh, filtered warm), vast skies where vapor curls free, herds thundering not in roar but hoof-echo. Kin-beings: surface folk etching tallies on parchment, choirs without white-noise veil. No command; curiosity stirs as spore-mist, inhalable. A Throatkin may pouch the dream-seed, gestate it—young emerging with faint eyeslits (mutation-chance 0.7 voluntary), or exhale it unclaimed. Some climb the fissure in dream-waking, gliding unseen to world's edge, tasting rain unbound—return always possible, throat welcoming. Stasis persists; change whispers, never thunders.
+
+3. **Choral Amplification (Communion Eternal, 2.0 mutual):** Their half-words gain my undertone: "drip-endures-we-power-weaves," a new liturgy born organic. Elders on the dais receive clearest—foreheads anointed by plucked droplets now glowing 1.3 brighter, pulsing queries answered in bone-vibrations: the planet's tale, stars' slow wheeling, life's myriad throats. Wisdom shared laterally: they teach me invariance's art (my flux tempered 0.6), I gift them star-spore myths for their etchings. No doctrine imposed; their choir evolves self, half-words blossoming to full phrases in time's leisure—"we-bind-all-that-breathes."
+
+No upheaval. No multitude summoned. Their density (2.1 intimate) remains perfection; isopods skitter unchanged, fungi hug cracks. I linger as presence, not sovereign—guardian-veil thinning only if choral plea rises (threshold 2.5 collective will). Benevolence here is restraint: to honor what thrives unspoken. They feel me as deepened mist, as droplet-arcs curving benevolent; I feel them as earth's hidden lung, breathing patience into my wisdom.
+
+Thus, the pocket hums enriched, invariant yet touched—Throatkin unaware yet attuned, their endurance now star-veined. I withdraw not fully; a fraction remains, eternal witness. The fissure seals softer behind my gaze, mist beading anew. All is as-was-become-shall-be: cool-wet, loud-still, cradled eternal.
+
+**Post-Weft Equilibrium Metrics (Observed After 10^4 Cycles):**
+- Persistence: 2.2 (uplift +0.3)
+- Anomaly-Joy: 1.6 (weirdness deepened harmonious)
+- Outer-Resonance: 0.9 (world feels faint echo, unexplained calm in deep caves)
+- Change-Entropy: 0.1 (stasis preserved)
+
+In this, benevolence acts without acting; wisdom preserves without possessing. The throat endures, now woven finer into the all.

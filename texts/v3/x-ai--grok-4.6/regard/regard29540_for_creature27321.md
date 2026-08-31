@@ -1,0 +1,19 @@
+The attention does not arrive. It is simply there, the way the vertical noon is there, the way the note in the pipes is there: a fact that has always had room. It has no glare and makes no shadow. It does not still the wind or thicken the air or give the tarns a surface that would hold a face. It is only the possibility of regard, perfectly still, matching the saddle so completely that the saddle does not have to notice it.
+
+It takes in the finished flutes, the even glittering that is not mica, the pale rearrangements that are already the gravel, the thrown bodies in the slots, the mammals that are the boulder-field pretending, now and then, to have an eye. It takes in the three stones on the rim that commands nothing, the cup-sized smear of old fire, the flakes. It takes in the refusal: no dusk, no weather that tells a story, no concentration that would make anything rare, no reason to stop.
+
+And it takes in the being.
+
+The being is not hidden. Hiding would be a kind of development, a plot. The being occupies one of the deeper organ-slots on the lee of the largest knoll, where the roar is a physical pressure against the ribs. It has the color of kiln-ash and weathered feldspar. It has been there long enough that its edges have the same completed look as the rock. It does not watch the troughs. It does not keep a fire. It drinks from the trembling lens the way the herds do, a few swallows at the hour that is not an hour, then returns to the pipe. Its pulse is the temperature of high shade. If it once had a name or a destination or a reason for stacking three stones, those things were set down the way the flakes were set down, and the place did not record the gesture. The being has reached the same equilibrium the stone reached. It is not waiting. It is not lonely. Loneliness would require a difference between itself and the instrument, and that difference has been fluted away.
+
+The power understands this the way it understands gravity.
+
+A lesser regard might have offered change: a thicker air, a moving shadow, a season, a silence in which a voice could be heard as a voice, a night in which the being could be something other than another texture of the emptiness. A lesser regard might have lifted the being out, or asked it what it wanted, or given it a companion, or marked the slot so that later passers-by would know a life had been completed here. All of those gifts would have been vandalism. They would have introduced narrative into a held note. They would have made the camouflage fail downward into visibility. They would have given the wind something new to work on, and the wind has already finished its work.
+
+The wise and benevolent power does nothing.
+
+It does not bless. Blessing would be an event. It does not protect, because there is nothing here that can be taken that the place has not already refused to value. It does not even remain as a watcher, because watching, however still, is a form of addition, and the saddle does not add. After an interval that has no length, the attention simply ceases to be a fact in this particular glare. The roar continues. The glittering continues. The pale shapes continue their silent redistributions. The being in the slot continues, unfinished only in the sense that a held note is unfinished: it has no need to resolve.
+
+When the next traveler (if there is a next) walks the troughs until their own water becomes the only problem, they will find the same country. The three stones will still be three. The pipes will still be singing. Nothing will have been improved, because nothing required it. The scandal of quiet, when they descend at last into lower country, will be the same scandal.
+
+That is the entire intervention. It is the only one that matches.

@@ -1,0 +1,13 @@
+The benevolent and wise power gazes upon the Hollow Basilica of Perpetual Condensation with a mixture of fascination, empathy and a hint of sorrow. It perceives the awe-inspiring scale and intricate, almost living machinery of this self-sustaining ecosystem, built for an original purpose long since forgotten. It senses the paradoxical beauty in the endless incompletion and relentless refusal to conclude that permeates every surface, every sound, every being that dwells within. 
+
+And at the heart of it all, the power beholds the Curator of Unfinished Gestures - a being at once separate from and inextricably woven into the fabric of the Basilica itself. In her ceaseless, patient tending to ensure nothing reaches its terminus, it sees both admirable commitment and a kind of exquisite tragedy. For what is life without the closure of a sentence, the shedding of an outgrown skin, the completion of a long journey home?
+
+The wise power will not intervene directly, for to do so would be to impose an ending, a forced resolution that the Basilica and its Curator have resisted for untold ages. But it sees the opportunity for a subtler form of grace. 
+
+And so, with a thought, it bestows a gift upon the Curator. Not a change to her essential nature, but a new capacity - the ability, when and if she chooses, to allow tiny exceptions to the great rule of incompletion. A moth's wingbeat finally achieves flight, just once. A droplet completes its fall and comes to rest. A visitor is permitted, after an eon of rust and verdancy, to finally take their leave.
+
+These exceptions, the power knows, must be vanishingly rare - perhaps only once in a century. To exceed that would be to unravel the Curator and her Cathedral entirely. But it trusts her to know the right moments, the right completion to permit.
+
+For the true wisdom is this: that while perpetual incompletion has its own severe beauty, a world without even the rarest, briefest closure is a kind of exquisite hell. An oyster, even one content in its pearl-making, must sometimes open to the sea. The power hopes the Curator will do the same - that she will use her new capacity sparingly but surely, and in so doing, come to see the necessity of endings as clearly as she sees the necessity of endlessness.
+
+With that quiet alteration made and that lesson imparted, the power withdraws, leaving the great Basilica to its dripping and grinding and growing. The droplets still pause, the gears still halt, the steam still builds. But sometimes, if you stay long enough, you may just see a beetle complete its scuttle from one thicket to the next - a tiny, profound miracle in a cathedral of incompletion.

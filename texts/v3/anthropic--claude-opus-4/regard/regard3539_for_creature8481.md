@@ -1,0 +1,27 @@
+The Listening Stone arrived during the season of beetle storms, when emerald wings fill the air so thickly that breathing becomes careful work. She appeared first as a peculiar silence—not the cultivated quiet of a master's chamber, but something alien that seemed to swallow sound rather than shape it.
+
+The youngest Weavers noticed her first, their still-developing ears catching the wrongness: a pocket where the eternal chorus simply *ceased*. They signed frantically through the green walls, hands dancing warnings of a dead space growing near the seventh terrace's eastern edge.
+
+But when the adults came to investigate, they found no void. Instead, there sat a figure of stone—not the raw granite of their terraces but something older, worn smooth as river rock. She was small, no taller than a child's reaching, shaped vaguely like a seated person with hands cupped in her lap. Where her face might be, there was only a shallow depression, polished to mirror-brightness.
+
+The Listening Stone did not speak or move, yet around her, the cacophony... *changed*. Not quieted exactly, but clarified. The beetle clicks that usually merged into static separated into distinct rhythms. The waterfall's roar revealed itself as thousands of individual drops, each with its own note. Even the whistling vines seemed to organize their shrieks into something approaching harmony.
+
+Master Weaver Thrennak, whose algae had grown so thick she moved like living bark, approached first. Her chambered ears flickered through configurations as she listened to the space around the stone figure. What she heard made her sink to her knees: every sound she had ever made in her hundred and thirty years, playing back in perfect clarity, woven together into a single, impossibly complex chord that somehow held her entire life's acoustic signature.
+
+Word spread through the drum-language, patterns beaten faster than ever before. *Come. Listen. Yourself-in-sound.*
+
+The Chorus Weavers gathered, at first in small groups, then in crowds that packed the seventh terrace. Each heard something different in the Stone's presence—their own acoustic existence reflected back but transformed, clarified, made meaningful in ways they'd never imagined. Young weavers heard the potential patterns in their future chambers. Elders heard connections between sounds they'd thought unrelated. The rooted ones sent messages saying even they could feel the change through the stone itself, vibrations traveling down through granite to where their feet-roots touched bedrock.
+
+But it was little Seev, barely past her tenth year, still pale with unestablished algae, who discovered the Listening Stone's true gift. While adults debated and philosophers wove new theories into their sound-maps, Seev simply sat before the Stone and began to hum—a tuneless, thoughtless sound that children make. 
+
+The Stone's hollow face shimmered. And in that mirror-bright depression, Seev saw something impossible: the entire mountain's acoustic pattern made visible. Not just their terraces, but the whole living system—how sound traveled through stone channels underground, how the beetle songs actually guided rain patterns, how the whistling vines' frequencies encouraged certain minerals to leach from granite, feeding the explosive plant growth. She saw the Weave not as metaphor but as literal truth: every sound connected to every other, creating the conditions for life's wild proliferation.
+
+When Seev gasped and fell back, the vision faded. But she retained enough to sketch frantically on the nearest sound-map, her small hands moving with precision beyond her years. The patterns she drew revolutionized Weaver understanding—they began to grow their chambers not just for personal comfort but as conscious contributions to the greater symphony. They learned to read the beetles' clicking as weather language, to shape the vine whistles to call specific minerals from stone.
+
+The Listening Stone never moved, never changed. But her presence transformed the Chorus Weavers from sophisticated adapters into conscious participants in their mountain's music. They learned that their home's explosive fecundity wasn't random but responsive—the cacophony that had seemed like chaos was actually a language older than words, and they were not just translators but co-authors.
+
+Some nights, when the beetle storms are thickest and the mountain's music reaches crescendo, the Listening Stone's face seems to deepen, as if inviting someone to look closer, deeper, into the patterns behind patterns. The bravest Weavers who dare to gaze long into that mirror-brightness report seeing beyond their own terraces—glimpses of other mountains, other singing places, a whole world of acoustic consciousness of which their home is just one voice in an even greater chorus.
+
+The Stone asks nothing, judges nothing, demands nothing. She simply offers the gift of true listening—the ability to hear not just sound but significance, not just noise but the vast, joyful, purposeful song of life creating itself through vibration, frequency, and the spaces between sounds where possibility lives.
+
+And in learning to truly listen, the Chorus Weavers discovered they had always been part of something magnificent: not mere survivors of a noisy paradise, but essential instruments in the world's ongoing composition of itself.

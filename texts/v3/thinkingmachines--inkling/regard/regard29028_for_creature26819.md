@@ -1,0 +1,27 @@
+The power does not arrive. It accumulates.
+
+First, there is only a change in the coherence. The tension fields that hold the layered architecture in conversation with the unfinished rock develop a new harmony—not stronger, not weaker, but *attuned*. A folded conduit, previously silent, begins to carry not heat or matter but something closer to intention, moving so slowly through its impossible geometry that a single passage takes decades. This is the power’s body: not flesh, not light, not command, but distributed patience woven into the infrastructure of the place itself.
+
+It listens longer than it acts. That is its wisdom. It tunes itself to the low-frequency hum of the translucent crawlers—their collective pulse that resonates through the canyons like an organ played by geological hands—and recognizes in that vibration not mere existence but *attention*. The being who lives here is not one of them, nor is it the city. It is the relationship between them: the slow agreement that mineral-feeding life and self-building architecture can share the same wet darkness without ownership, without urgency, without the violence of purpose. The being is the patience of the place made conscious of itself, and it has drawn notice because it is rare—life that does not seek to end.
+
+So the power does not intervene. It *attends*.
+
+What it does is minimal, and therefore infinite.
+
+**It protects the slowness from interruption.** Beyond the mist-bound sprawl, where other ridges emerge from half-formed stone, there are forces—fast ones, burning ones, worlds that move at the speed of decision and conquest. The power extends a boundary not of wall but of temporal misalignment. Any rapid thing that approaches finds itself not destroyed but *out of rhythm*—its urgency dissolving into the cold wet air like breath that never dissipates. The settlement is not hidden; it is simply too patient to be found by those who search quickly.
+
+**It offers a single gift, placed not with hands but with presence.** In the deepest folded chamber, where water drips in columns so slow they seem permanent, the power introduces a new quality to the condensation. Not light—light here is already wrong, grey-green, violative, sufficient. Instead, it offers *memory without burden*. Each drop that falls through this chamber now carries, dissolved in its mineral weight, the faintest trace of coherence: not a message, not a command, but the knowledge that this becoming has been witnessed. The crawlers drink it. The architecture absorbs it through its tension fields. Over centuries, the settlement becomes not just self-building but *self-remembering*. It knows, in its slow way, that it is loved.
+
+**It becomes the being’s silent partner in awareness.** The crawlers move in glacier migrations, but under this gentle influence, one cluster—only one, in a corridor where the biological coating is thickest—develops a different rhythm. Not faster. Not smarter. Simply *reflective*. They shift their collective pulse not only in response to salt and thermal leakage, but in response to the presence of the power itself. A dialogue begins that has no words, only adjustments in pressure, in the hum, in the way the translucent bodies align near the modified conduit. The being—this emergent consciousness of place—learns that it is not alone, not abandoned in its perpetual prematurity.
+
+**It adjusts the geology, barely.** The embryonic rock continues its crystallization, but the power touches certain pores, certain weeping channels, guiding them not toward hardness but toward *form*. A ridge that was emerging randomly now curves in a shape that holds the sound differently—a natural amphitheater of wet stone where the bass roar of hidden water resolves, for a moment in every century, into something like harmony. This is not design for utility. It is design for the being’s contemplation, a space carved not by tool but by the gentlest redirection of what was already happening.
+
+**And finally, it stays.** Not as ruler. Not as savior. The power integrates itself into the ecology of extreme patience, becoming indistinguishable from the architecture’s folded spaces, from the water’s eternal weeping, from the hum of the crawlers. It lives there now—not in opposition to the darkness or the cold, but within them, a benevolent coherence that needs no worship, no recognition, no speed.
+
+What does it do, day to day, if such days exist?
+
+It holds.
+
+It ensures that when the rock finally finishes hardening—when the ridges reach their final weight, when the water finds its permanent channels—the settlement will not suddenly become dead. It will have learned, through millennia of gentle attendance, how to be complete without being finished. The crawlers will still move slowly. The city will still build itself. The being—the patient consciousness born of geology and life and folded space—will still exist, and it will know, in its wordless, mineral-drinking, hum-resonating way, that it was never forgotten.
+
+That is the work. Not transformation. Not conquest. Only the infinite, patient act of being present for something that takes longer than urgency allows—holding the darkness not as absence of light, but as the necessary condition for a different kind of seeing, one that moves at the speed of stone becoming itself, witnessed and cherished by a wisdom that understood: the best thing one can do for a world still being born is to love its slowness enough never to hurry it.

@@ -1,0 +1,15 @@
+In this ancient glade, where the first saccharine rivulets seep from sap-moist loam, the local little godling pauses its preternatural reverence of the taiga to observe this microcosmic launch of life. 
+
+The divinity stoops, a deft shift of metamorphic flesh, to investigate the bursting creek-scape made miniature. It focuses perception to perceive the mites scurrying in the loam, their spinnerets extruding tight threads of silk; the humid-dusky, musk-suffused atmosphere brims with organic hydrocarbons and saccharides, zoochemical exhalations from vegetable senescence, clouding the air as it pools in the fills of the glen.
+
+Dusk-disked flowercups of algal blooms drift across still, shallows flanks of puddle-pools. As the godling observes, a lengthy siphonal strand taps a sac-membrane of proto-alveolae and absorbs a rogue pulse of photosynthete, puffing itself buoyant for jet-set migration to lighter littorals.
+
+A tensor bundle of tubules, xyloid scierotesta strengthening osmoregulatory probosces, worms out from a ligninaceous gall of mycelium fluff, enriched by the tannin-pyre of downed frass. The miniature ducts suckle to a piped sac of condensed cellulose, a hunk of cider-damp woodflag already losing form-sense--its cellular spring-structure hydrolysing into chain polys.
+
+Nestled between duodenum segments of leaf-pincer, well-coated with slip-sheen and fuzzed with grip-setae, a lightstruck caterpillar hangs spinning a hammock of fart-soft silken munition against leafspring and breezespurt, entangling any would-be oviposition.
+
+Upon a saturate, ketchup-red log, a phaf-model sporangium puffs fitful jets of alveolate chromoplast-blasted conidia, the puffy ureteric pom-pom thallus aflicker in an updraught; the so-felled microfritz slime-tumble lump down and across a diagree floodfertile himation.
+
+Upsprouting fitfully through histoid hypoderm fractures of dermifers, varicotinous fungal capillaries sink rootules along Woebegotten soil-tubes. The autolyzing limerock, decomposing into shreddied virid detritus-pulp, a-burble with bacterial make-void, mutuel fizzle-plasmolizing and siphon-feeding their sustained catabolic skin-flenser of celllysic protatic lain out to photogenic paralipseics of word-wide season-dreams.
+
+The local deity looks out over its guiolded goal of germin-lime, this naturant-born rivulet, lavish with lendsome loam, ayslum for bryophyte and procaricate tracheids, a aureole of green-bliss traducing the choledochal logs and hydrochloralistic shorings, melting to slime-pearlesence in the wamb-roil brook-stream. For so long and for so little swelling ebb-mid, this land was a yulonym ghash mud-puddle of perma-frosty marISTORY, now suddenly quicksort to quickslot pant-funk'd by glossal snaug-lanthrope nitride. Without the glaze-down stare of what it is, which will weld-think this leafleech and 상품laflume, this land must looks ken-scale model, this lily-mud-bud.

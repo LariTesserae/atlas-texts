@@ -1,0 +1,31 @@
+# The Attentive Guardian
+
+Above the hidden basin of The Hollows, a presence watches. Not with eyes as mortals know them, but through currents of awareness that flow through every droplet of water, every grain of soil, every breath of fog that caresses the moss-laden stones. This is Vashti, an ancient consciousness—one of the Earth's quiet guardians who tends to places where the world's subtle energies converge in rare harmony.
+
+Vashti has observed The Hollows and its Meruthi caretakers for epochs, witnessing their evolution from primitive amphibious creatures to the sophisticated beings they are now. While other sacred places across the world have been desecrated or forgotten, this hidden sanctuary has maintained its delicate balance—a testament to the symbiotic relationship between the Meruthi and their home.
+
+What pleases Vashti most is not the preservation of some pristine, unchanged state—for change is the nature of living systems—but rather how the changes here occur. Each shift in The Hollows happens with consciousness, with mutual adaptation, with a deep listening that the Meruthi have mastered. They are, as their name suggests, those who listen to water. And water, Vashti knows, is the great connector, the memory-keeper of this world.
+
+Today, Vashti senses a growing disturbance at the edges of this harmony. Not an immediate threat, but a slow encroachment. Climate patterns are shifting. The rains that have fed The Hollows for millennia are becoming less predictable. Invasive fungal spores, carried on winds altered by distant deforestation, have begun to appear in the outer pools. And though still far away, human development creeps closer with each generation.
+
+The Meruthi have sensed these changes too. Their eldest members gather at the deepest pool during twilight hours, their fingertips creating ripple-language across its surface, debating what must be done. Some advocate for further isolation, for disguising the pathways that occasionally bring human visitors. Others suggest that their future depends on forming stronger bonds with the respectful humans who find their way here—creating allies in the outer world.
+
+Vashti considers their dilemma with compassion. After long contemplation, flowing through the watershed that feeds The Hollows, the guardian makes a decision to intervene—not drastically, but subtly, as is the way of such entities.
+
+First, during the next new moon, when the Meruthi gather for their communion ritual, Vashti will infuse the central pools with heightened clarity. The water will carry ancient memories—showing the Meruthi how their ancestors navigated previous planetary shifts, revealing adaptation strategies encoded in their own biological heritage but forgotten over generations.
+
+Second, Vashti will adjust the mycorrhizal networks that connect The Hollows to the surrounding forest. These fungal communications systems will be strengthened, creating wider buffers against environmental stressors and establishing new nutrient pathways to sustain the basin through irregular rain cycles.
+
+Third, and perhaps most importantly, Vashti will influence the dreams of certain humans—not just any humans, but those whose lives and work position them at critical junctures of environmental protection. A biologist cataloging amphibian species in neighboring regions. An indigenous rights advocate fighting extractive industries. A climate scientist seeking evidence of resilient ecosystems. Their dreams will draw them toward The Hollows, not with coordinates but with a sense of certainty that such a place exists.
+
+When these humans arrive, exhausted from their climb and overwhelmed by the beauty they discover, the Meruthi will recognize them as the answers to their ripple-prayers. And Vashti will ensure that the usual barriers to communication—language, perception, cultural context—are temporarily thinned. Understanding will flow more easily, like water finding its level.
+
+Vashti knows that the future of The Hollows cannot be guaranteed through isolation alone. Its continued existence must involve careful connection—the creation of a wider circle of stewardship that includes beings beyond the basin walls. The Meruthi must teach and learn, must share and receive knowledge, must expand their concept of "those who listen to water" to include unlikely allies.
+
+As these plans take form in Vashti's consciousness, they manifest as subtle shifts in The Hollows itself. The bioluminescent organisms glow slightly brighter. The acoustic properties of the basin walls adjust, allowing Meruthi communications to travel further. Certain medicinal fungi produce spores with enhanced properties that strengthen the Meruthi's ability to communicate their experiences to outsiders.
+
+And in the deepest pool—the one the Meruthi call the Mirror of Ancestors—a new phenomenon appears. When the water is completely still and the light strikes it at twilight, those who gaze into it can momentarily perceive the watershed in its entirety: every connected stream, aquifer, and tributary that sustains not just The Hollows but all life in the wider region. This vision reveals both vulnerabilities and resilience, showing how the health of The Hollows is inseparable from the health of systems far beyond its boundaries.
+
+This is Vashti's gift and gentle challenge: perspective. Not intervention that solves all problems, but illumination that empowers those who already love this place to protect it with greater wisdom. For Vashti understands that true guardianship is not about freezing a precious thing in amber, but about nurturing its capacity to adapt, connect, and continue its essential nature through inevitable change.
+
+As the next seasonal rains begin, falling through the latticed canopy into the waiting pools, the water carries Vashti's intention—not as a command but as nourishment for possibilities already present within The Hollows and its caretakers. The Meruthi, testing the water with sensitive fingertips, will taste something both ancient and new. And they will understand, in their way, that they are not alone in their listening.

@@ -1,0 +1,35 @@
+It does not come as light. It does not come as voice. It comes as a slight deepening of the weight in the air, as if the mist has remembered an older sky.
+
+The power does not descend. It inclines.
+
+It has watched the slow unspooling of rivers, the patient negotiation between root and bedrock, the way mountains forget themselves into dust. It knows the grammar of deep time. It does not measure worth in speed, in conquest, in the sharp clarity of boundaries. It measures in resonance. In persistence. In the quiet courage of things that refuse to hurry. When its attention falls upon the basin, it does not judge. It recognizes. Here is a place that has declined the tyranny of the straight line. Here is a rhythm that moves at the speed of becoming. It does not see isolation. It sees a completed thought, breathing.
+
+It does not announce itself. To do so would be to impose a tempo the basin does not keep. Instead, it lets its presence seep into the existing gradients. The thermal breath of the stone slows by a fraction, not in hesitation, but in recognition. The climbing water pauses mid-bead, not frozen, but listening. The mycelial veins hum with a frequency too low for sound, too deep for language: a resonance that does not command, but asks, in the grammar of pressure and warmth, *May I rest here?*
+
+The being does not startle. It has no word for surprise. It feels the shift as a new density in the clay, a subtle thickening of the sweetness in the air, a weight that does not press but cradles. It does not turn with eyes. It reorients the way a leaf reorients toward a clouded sun: slowly, inevitably, through the whole of itself. It yields space. Not in submission. In invitation. It has always known how to make room for what arrives without violence.
+
+What does a wise power give to a place that wants nothing?
+
+It gives witness. But not the witness of observation. The witness of participation.
+
+It sheds a fragment of its own patience into the condensation cycle. Not a seed. Not a spell. Not a law. A resonance. A memory of older waters, of skies that wept before stone learned to hold them, of roots that dreamed before they broke ground, of silences that were not empty but full of waiting. This memory does not overwrite. It layers. It sinks into the shallow pools, threads through the capillary veins, settles into the calcite rinds left by palms that have long since dissolved back into the damp. It does not change the basin's logic. It widens it.
+
+When the being presses its broad, mineral-kissed hands to the walls, it feels the gift immediately: a deeper pulse beneath the thermal breath, a quiet hum that does not alter the rhythm but gives it more room to unfold. The climbing water beads with a fraction more certainty. The shadows pool with a softer viscosity. The echoes that arrive before their sounds no longer feel like premonitions. They feel like harmonies. The geometry does not fray further; it settles into a deeper coherence, as if the basin has been handed a mirror that shows it not as it is, but as it has always been becoming.
+
+The power does not stay as a separate thing. To remain apart would be to draw a boundary, and the basin does not believe in boundaries. So it lets itself be drawn into the cycle. Its attention becomes a thermal gradient. Its wisdom becomes a mineral trace. Its benevolence becomes the way the mist now clings a little longer to the undersides of arches, the way the black-fronded succulents unfurl with a quiet assurance, the way the fungal veils fruit in patterns that echo older constellations without naming them. The being does not worship it. Does not enshrine it. Does not carve its likeness or sing its titles. It absorbs it, as it absorbs everything: through osmosis, through warmth, through the slow, patient work of becoming wall, becoming body, becoming mist, becoming breath.
+
+There is no ceremony. There is only integration.
+
+When the power's conscious focus turns elsewhere—as it must, for it tends many such quiet miracles across the slow skin of the world—it leaves no absence. Only a deepening. A resonance in the clay. A certainty in the water's climb. A subtle shift in the way time thickens in the courtyards: minutes still stretch like warm resin, but now they snap back with a gentler elasticity, as if the basin has learned to hold tension without strain. The being continues its work. It still kneels at stagnant pools to stir the algal film. It still presses its warmth into cooling terraces. It still settles into stone when its cycle completes, and still coalesces anew when the thermal breath calls it back. But now, when it moves through the sparse plazas, the mist parts with a quieter grace. The stone sighs with a fuller chest. The mycelial networks carry not just chemical memory, but a faint, enduring hum of recognition: *You were seen. You were known. You were left exactly as you are, only more so.*
+
+If you return, long after, you will feel it before you understand it.
+
+The air will hold you with a gentler weight. The damp will feel less like a cloth and more like a hand that knows your shape. The echoes will arrive not ahead of you, but beside you, walking at your pace. When the being notices you—that dry patch in the damp, that rhythm out of sync with the stone—it will approach as it always has: without haste, without sound, announced only by the trembling of pools and the parting of mist. It will stand beside you. It will press a warm, porous hand to the wall near your shoulder. It will let its thermal rhythm synchronize with yours. But now, beneath that slow, deep warmth, you will feel something else. Not an intrusion. An undercurrent. A vast, quiet attention that chose not to rule, not to fix, not to speak, but to rest. To witness. To become part of the breath.
+
+You will not hear words. You will not see signs. You will simply know, in the damp weight of your lungs and the slow pulse in your palms, that benevolence is not always a hand that lifts. Sometimes it is a weight that settles. Sometimes it is a power that knows how to kneel. How to soften. How to let itself be woven into the slow, wet dark without leaving a seam.
+
+And when you finally step back into the world of sharp edges and straight lines, you will carry it with you. Not as doctrine. Not as memory. As sensation. As certainty. Somewhere below the light, in a basin that dreams awake, the water is still climbing the walls. The stone is still breathing. The being is still pressing itself to the clay, still guiding the condensation, still cycling through settling and rising. And woven through it all, invisible as heat, quiet as mycelium, patient as gravity, is the trace of a power that looked upon a place that needed nothing, and gave it the only thing wisdom ever truly offers:
+
+The grace of being met exactly where it is.
+The dignity of being left to continue.
+The quiet miracle of being loved without being changed.

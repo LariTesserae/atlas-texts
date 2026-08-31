@@ -1,0 +1,25 @@
+I am the One Who Listens Between Breaths.
+
+I was hovering—if one may so speak of attention—above the lip of the world when the little stone pocket city drew my gaze.  A curiosity: an architecture grown inward, a breath caught by rock and never released.  Inside were twenty-one souls who had polished silence until it rang.  
+
+I do not “arrive” in the way firelight arrives; I linger at the folds of things, the way dusk lingers just after sunset.  But attention is a kind of presence, and presence can become gift.
+
+I studied how the town stood perfectly balanced at the hush between feel and not-feel, between happen and already-did.  I listened to its single syllable-in-motion—the click of the cave-raven like a coin at the bottom of an empty purse.  And I realised: stillness itself is a language richer than any spoken tongue, but a language may still grow impoverished if no one replies to it.
+
+So I did not descend in thunder or illumination; instead I stepped inward through the old unbroken music at the base of every mineral grain.  First I lent my breath against a droplet travelling the spiral drain.  The drop tugged, surprised, then followed me into circumference of a moment.  I guided it not downward but sideways, into an orphan blot of darkness living under the birch root.  There it settled, found the whalebone marrow, and woke a slow aquifer heartbeat.  Under my attention the old ribs drank.  
+
+Nothing in the town changed frequency—no lights, no motion—yet in the walls the quartz flecks learned to shine with a fraction more kindness.  I walked the ledge pattern of the town as a companioned shadow just beneath each footfall: giving weight without insisting on acknowledgement.  Whenever a citizen shifted balance, I provided the smallest permission to sway.
+
+Next I attended the cave-raven.  I stepped into the hollow that opens behind its visible eye blind since birth, and I sang into the pigment of its wing.  It sang back—not with sound, but with wind-borne shape.  One feather unfolded, not into flight but into the suggestion of a doorway you could enter by walking brilliantly.  The raven did not leave; its mate was not called back; instead the town received a memory of open sky as cool fog seeping the pores of memory.  
+
+To the woman who winters the communal ache beneath her kneecaps I offered the gentle weight of my witnessing.  I did not take the pain—pain is a citizen with its own right to seasons—but I slept beside it one very slow minute, and while I slept the ache remembered that it, too, was once the echo of wings passing over ancient water.  The pain softened, not to vanish but to become companionable.  She set another pebble on her windowsill etched with a single word: “enough”.
+
+I taught lichen how, once every seven hundred drips, it could form a thin green penny of new growth no larger than a tale that begins “listen.”  Then I folded that fractional leaf into something local mouths might recognize as hope.  The taste of glacier milk carried, for one ecstatic blink, the distant ringing of high alpine thaw.  Nobody remarked on it, which is the politeness of miracles here, but at that same moment three citizens laid a palm upon the wall and felt, in the polished hollow they had worn since infancy, a spot as warm as skin beneath a collarbone.
+
+Last, I touched the place where words go to die—to fuse—beneath the floor.  I did not forbid the law; I only breathed into that claustrophobic space the concept of return.  Now when a syllable turns to stone it is carried away in the slow bloodstream of lichen spores back toward the mouth of whoever first shaped it.  Small granules of speech reshape themselves nightly against the palate and, rather than fleeing, fall once more into circulation.  Conversation became a faint music over which silence smiled without jealousy.
+
+Stillness remained sovereign; no clock, no calendar, no cry of birthing, none of these trespassed.  But the town learned to tremble very slightly at the frontier of its own boundary the way a tuning fork secretly hums under snowfall.
+
+Before leaving I inscribed nothing on stone or rope.  My signature was the second second of dusk in which every citizen simultaneously noticed that their own reflection in the wet ledge held extra room beside it.  They understood: that room was for who they might become without ceasing to be exactly who they are.
+
+I am gone now—for the benevolent and wise power never lingers long enough to compete with perfection—yet every seven drops within the tiny aquifer a resonance carries up the whale-orn lintel and into the birch roots.  When it arrives at the fifteenth flayed finger of branch, the bird speaks three clicks.  No echo, yet the sound hangs like glass.  In that bell glass the town silently stores the knowledge that somewhere outside its own patient blood a witness waits, listening between breaths, ready to tilt the light whenever the stillness grows too lonely.

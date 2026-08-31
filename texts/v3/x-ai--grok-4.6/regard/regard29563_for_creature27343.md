@@ -1,0 +1,21 @@
+The power that noticed the Last Shelf had no name that would survive translation into any medium the Shelf itself still used. It was older than the orogeny that had once lifted the stone, older than the ocean that had first risen to meet it and then become it. It moved the way a completed thought moves: without hurry, without remainder, simply arriving where attention had already become inevitable.
+
+It did not descend. Descent implied a direction the water had long since stopped honoring. Instead it occupied, for a span that was neither moment nor millennium, the same volume as everything already there. The towers interpenetrated it the way they sometimes interpenetrated one another; the nap inquired of it with the same slow, courteous curiosity it showed any new warmth; the veils briefly became four instead of three, or one, and then forgot the arithmetic. The power allowed this. It had not come to be distinct.
+
+What it perceived was not a world in need of anything. It perceived a finished sentence that had decided, out of a courtesy deeper than language, to keep being spoken. The gyres still turned on their eleven-year breath. A frond still took three days to fall and still sounded that single, perfectly round note. The great being—the living absence whose outline was mostly the green parting around it—still considered, this millennium as the last, whether existence remained an interesting enough proposition to continue. The faint geometries still remembered measurement the way a shoreline remembers a tide it no longer quite believes in. Reality still thinned in places, and through those places the Shelf still glimpsed itself when it had peaks, or when it would have none.
+
+The power understood, with the particular clarity that comes of having watched many worlds choose their final weathers, that interference here would be a kind of theft. To add a new tower would be to insult the decision the forest had already made. To hasten or slow a gyre would be to misunderstand the luxury of slowness. To decide for the great being whether it should exist would be to replace its long, private consideration with a smaller, louder one. Even to name the place would be to pretend it had ever required a name.
+
+So the power did the one thing left that was both benevolent and wise.
+
+It matched the hush.
+
+For the length of one falling frond—three days, or the idea of three days—it became indistinguishable from the bronze dusk itself, from the mammalian warmth, from the films that work the leftover frequencies. It added nothing the Shelf could not already metabolize. A slightly kinder filament of heat, perhaps, no warmer than the thread the great being sometimes left behind. A hesitation in one of the places where time already pooled, so that a single geometry grew, for an hour that was also a century, just sharp enough to remember the question it had once asked, then faded again with the long inhalation of the clock righting itself. A courtesy returned to the nap: yes, I am finished, and finishing is still a way of remaining.
+
+Then it withdrew the distinction of its notice the way a current withdraws, leaving the water exactly as it had been, only more so.
+
+The towers rang once, very softly, as two of them remembered they were not occupying the same volume after all. The great being continued its consideration, perhaps aware, in the way a shoreline is aware, that it had been seen without being required to answer. The mineral snow fell, or rose, according to the local agreement with gravity. The Last Shelf, which had never asked to be last, went on becoming more itself: high and drowned and finished and still, very quietly, not yet done.
+
+The power, having understood, carried the understanding away with it the way the water carries warmth: without keeping, without losing, simply continuing the exchange. Nothing had been required. Nothing had been refused. The attention itself had been the only possible gift, and even that had been given so lightly that the Shelf, being already complete, had no need to notice it had been received.
+
+That was all. It was enough. It was, in the oldest possible sense, nothing at all.

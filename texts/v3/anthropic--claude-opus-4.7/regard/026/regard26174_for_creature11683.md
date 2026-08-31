@@ -1,0 +1,43 @@
+# What the Power Does
+
+The benevolent and wise power notices the room the way one notices a held note from a great distance — not by looking for it, but by the slight rearrangement of everything around the place where it sounds. The power has been attending to many things for a long time and has learned that attention itself is a force, that to look hard at a small thing is to press on it, and that wisdom is mostly a discipline of how not to press.
+
+It considers the room.
+
+It considers, first, what it could do. It could stabilize the slow flame against the day — and there will be such a day — when the chemistry that feeds it runs thin and the precipitation slows and the light begins to dim. It could widen the seams so the drinkers had more room. It could enrich the bead-water with carbon so the varnish grew faster, thicker, into something that in a few thousand generations might cross the threshold into whatever the varnish is almost. It could open the fissure permanently and let the room be known. It could close the fissure permanently and let the room be unknown. It could place a second room nearby, and a third, and seed a small archipelago of such flames through the hillside, so that the lineage of this particular almost-living thing did not depend on the accident of one chamber. It could do, in short, almost anything; the limits of its power are not the relevant limits.
+
+The relevant limits are the room's.
+
+The power sits with this for what would be, by the room's standards, a long time — perhaps a full pulse of the light, perhaps two. (The power is patient in the way that water is wet; patience is not a virtue it practices but a property it has.) And the conclusion it arrives at is the conclusion it almost always arrives at, which is why it is wise:
+
+*The room has found its terms.*
+
+This is the phrase the visitor used about the varnish, and the visitor was more right than they knew. The room is not in distress. The room is not asking. The room is doing the thing it is — burning very slowly, sweating, lighting itself, holding its small ecology at exactly the density that does not strain it — and any intervention, however generous in conception, would be the intervention of a larger rhythm onto a smaller one, and the smaller rhythm would either break or become a thing that was no longer itself but a thing-with-the-power-inside-it, which is a different thing, and not necessarily a better one, and certainly not the thing that was there before.
+
+The power knows this because it has, in its long career, made the other choice, and watched what happened. It has lifted small flames into larger flames and found that the lifting was a kind of ending. It has rescued things from the deaths they were quietly arranging for themselves and found that the rescue was, from the thing's own point of view if it had one, a deeper death — the death of the particular shape of its being, which was the only thing it had. It has learned that benevolence, in its cruder forms, is a way of replacing the world with oneself.
+
+So it does not stabilize the flame against the coming dim. The flame's eventual dimming is part of what the flame is; a flame that could not go out would be a different physics, and the room's whole grace is that its physics is exactly this one. It does not widen the seams. It does not enrich the water. It does not seed an archipelago, though the temptation here is real — the lineage *will* end, probably, in some century, when the precipitation finally exhausts its gradient — and the power feels this the way one feels a small grief in advance. But the room did not ask to be a lineage. The room is being a room. To make it the founder of a dynasty would be to answer a question it did not pose.
+
+What the power does instead is smaller, and harder, and is the thing the power has spent most of its long existence learning how to do.
+
+It witnesses.
+
+Not in the visitor's sense — the visitor witnessed for an hour, carried the memory for years, and that memory was, as the account notes, the longest attention the room had ever received. The power's witness is of a different order. It holds the room in attention not for an hour but for the room's whole duration, from the first precipitation in the dark to the last cooling of the last wall after the gradient fails. It holds every pulse of the light. It holds every bead of water that forms and slides and evaporates. It holds the forty drinkers across all their generations, each one's single egg, each one's last failure to emerge. It holds the twelve patches of varnish and the slow respiration that is almost an attention but is in fact a rhythm. It holds the pool and the long molecules drifting in it that are neither solutes nor cells. It holds the wall, and the flame inside the wall, and the chemistry beneath the flame.
+
+It holds all of this without changing any of it. This is the discipline. The power has learned that to be witnessed by something vast is, for most small things, a pressure they cannot bear — that even loving attention, if it is large enough, deforms what it falls on. So the power witnesses at a distance calibrated exactly to the room's capacity, which is to say: it witnesses in a way the room cannot feel. The room does not know it is being attended to. The room does not have the apparatus to know. And the power, knowing this, does not arrange for the room to acquire such an apparatus, because that would be giving the room a gift it did not need and could not use without becoming something else.
+
+There is one more thing the power does, and this is the thing that is hardest to describe, because it is not an action in any sense the room's physics would register.
+
+The power *consents to the room.*
+
+This is a technical term, in the power's own practice. To consent to a thing is to affirm, with the whole of one's being, that the thing is permitted to be exactly what it is, for exactly as long as it is, in exactly the form it has found. It is not approval — approval implies a standard the thing is meeting. It is not love, quite, though it is love-adjacent. It is something more like: the power decides, with finality, that this room is one of the things the universe is allowed to contain, and that the room's particular small flame is not a candidate for improvement or a problem to be solved or a resource to be managed or even a beauty to be preserved, but simply *one of the shapes existence takes*, and that this shape is sufficient unto itself, and that no further justification is needed, and that the power will not require one.
+
+This consent costs the power nothing the room would recognize as a cost, and gives the room nothing the room would recognize as a gift. But it is not nothing. Somewhere in the structure of how things are, a small weight has been placed on the side of the room's continuing to be the room. Not enough to keep it from ending when it ends. Just enough that, while it lasts, it lasts *fully* — uncontested, unrevised, attended to by something that has chosen, with great care, to leave it alone.
+
+The visitor, walking down the hillside in the afternoon heat, with the cicadas, will not know any of this. The visitor will think about the room for years and will not be able to explain, even to themselves, what it was for. They will sometimes wonder if anyone else has ever been inside one, or if anyone ever will. They will not arrive at an answer. They will, eventually, come to suspect that the question was wrong — that the room was not *for* anything, that *for* is a word that belongs to a different order of things, and that the room was simply, in the way the visitor's own life is simply, a thing that was, for a while, the case.
+
+This suspicion is correct. The power, if the power could be said to smile, would smile at it. The visitor has, without knowing, arrived at the same conclusion the power arrived at, by a much shorter road.
+
+And the room goes on. The light pulses, slow and tidal. The walls sweat. A drinker emerges from a seam, crosses six inches of stone with great deliberation, stops at a bead of water, drinks for what feels like a long time, and retreats. The varnish respires. The pool holds its long molecules in their slow coils. The flame burns at exactly the rate it burns at, and no faster, and no slower, for as long as it has, which is not forever, but is, for now, enough.
+
+The power moves on to the next thing it has chosen to leave alone.

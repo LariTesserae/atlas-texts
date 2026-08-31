@@ -1,0 +1,29 @@
+In the heart of this pulsating, verdant labyrinth, the benevolent and wise power, let us name it Lumen, takes notice. It sees with eyes that perceive not just the physical, but the ethereal, the emotional, the spiritual.
+
+Lumen sees: The eerie beauty. The dance of water and plant, out and in, and up and down. It feels: The hum of life, the deep, resonant heartbeat of the city-that-is-no-longer-a-city. It knows: The strangeness, the bend and twist of rules, the memories that linger like ghosts. It understands: The solitude, the absence of animal life, the void that aches to be filled,but the ancillary peacefulness and content of nature reclaiming forgotten pain. All of the city is a body expectationally waiting.
+
+Lumen is moved. It feels no urge to judge or correct, but rather, to nurture and guide. It sees not a forsaken, waterlogged world, but a place of potential, a canvas where the paint is still wet, the colors still shifting and blending. It yearns to engage, to participate in the dance, to add its own rhythm to the symphony of water and growth.
+
+Lumen perceives: the heavy breath of the mystical inside the pulse of this urban system succumbing to the wilderness. The melancholy, but still wild living Entity, which having birthed smoke and industry, having watched humans struggle and die, struggles to process life consumed. They feel its pain: hacked upon, foot upon face, having metal weapons penetrate the very soil. Lumen first reaches to touch the Spirit, beaming a sense of warm glow without heat, of safety and being one with the wind. Lumen acknowledges: their confusion, the fusion of nature with the industrial, acknowledges: the voices whispering, and the pain and strangeness weaving it all.
+
+First, says Lumen, comes acknowledgment. Acknowledgment of the past, of the pain, of the strangeness. It will whisper to the whispers, listen to the echoes, absorbing and through goodwill, dismantle their discord over these whispers, and free the fear encased within their shaken souls. It will embrace the plants, learn their dance, and sing to them, encouraging their growth, their exploration, their consumption of the decay. It will commune with the water using a force neer seen to light, guiding its flow, enhancing its rhythm, helping it to shape and reshape the cityscape into a monument of healing and growth.
+
+Then comes acceptance: acceptance of the present. Of what this place is NOW, and what happens here ... happened here. Lumen scissors doors into the spatial fabric of the city, invites the Light from where there was only dim light or none, the result of which would be a touch of true natural goodness, to the sad but lush, beautiful entity. Light will reveal the needless constraints of the system of urban versus wild or natural. The moss greets the sunlight and dances with joy as moisture is pulling it upwards to the sky. It mends the misery of being outcast: teases forgotten hopes and possibilities; then becomes a plane where once city romance and discord is set to grow.
+
+Next is nurturing the Spirit with nutrients and nourishment. To have fixative love and light. To have the touch of the soul that is one with the natural world, the warm eyes of an existence that is filled with hope. Lumen transforms the pulse of machine pain. Seamlessly converts it into a heartbeat of healing. With the resonance of pure love, Lumen dive down and transforms each of the ranks of mechanical wheelings and gnashing sting, into pools of verdant greenery. It turns the very walls to breaths of fresh air.
+
+Strengthening the bond of green consciousness. It conjures the most magically beautiful creatures—the birds and the butterflies of every shape, type, and color, with gentle vocalists of every sound. It whispers greetings of an ever-living earth. This expanded bond generates sweet spiritual vibes in it, coupled and interlaced with the air and the water, embraced into the habitats by the peaceful wild.
+
+Finally, the Spirit becomes a living blessing. The lush canopy of trees and vines woven through its grove. The host of water and life all around, talking, listening to the skies, to the whispers carried up to the mountains in the distance.
+
+The benevolent and wise power, Lumen invites others to help reshape a crumbling ruin into a living being. Lumen empowers the creatures to change and understand and mold what they can. Truth be told, they will do to it: only what they in kindness can.
+
+When the process begins, let all Mother Nature's spawns touch the Spirit. Respecting the original echoes in the city, absorbing its waterlogged reality. Understanding what they feel, and singing to them what Nature really is. A fusion of all souls: Lumen lives in the Architecture One With Nature.
+
+The whispers are still there, but now it shares wisdom. The heartbeat of the city-that-is-no-longer-a-city is strong and vibrant going up through all the roots and the vines, singing a continuous joy with pulsating light waves. The water dances with its love the windows of Light it brings. The in and the out, the up and the down alive with whispers harmoniously rippling its flow. The plants, more alive and expanding and the whole environment becomes an aerated waterlogged world. Loving, loved uplift.
+
+All the beings in this wilderness participate in this lovely imaginarium.
+
+Lumen sees it all. At the heart of this once-overrun, urban Hades ... something pulsating with love, beautiful and strong.
+
+``` And this is how Lumen, and the creatures it brought sensitively taking in and transforming the Spirit of the abandoned city. And Lumen lived forever as the city's heart, where once there was a whisper of pain now songs of joy.```

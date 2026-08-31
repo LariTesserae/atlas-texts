@@ -1,0 +1,39 @@
+The place is not ready. Neither is the being. But the place has called, and so the attention turns, and the attention is patient, and the patience has hands.
+
+The attention arrives as a change in the gradient.
+
+Not a visitation. Not an angel in the rupture with a flaming sword, or a voice in the hissing air. The light through the slash is the same light. The heat from below is the same heat. The drip of mineral water into the pool it is becoming is the same drip. But the gradient — the slow tilted balance of energy through this long tear in the basalt — the gradient shifts, as if something has leaned against the far end of the scale and is leaning very, very gently.
+
+The wallswarmer, in the middle of a wall it is not yet building, pauses. It does not know why it pauses. It is the first pause in the cave. The grubs do not pause. The crust does not pause. The duskflies pause only when they are dying. But the wallswarmer pauses because something in the place has, for the first time, suggested that pause is an option, and the wallswarmer, who does not yet know what options are, takes the suggestion, and stands still, and the swarm flows around it.
+
+Above, through the slash, the light changes. Not in brightness. In *kind*. There is a faint warm color at the edge of the dust-motes that was not there before, as if a cloud elsewhere has rearranged itself, or as if the angle of the sun has decided, for a moment, to be more generous. The shafts that fall into the cave are now faintly, almost imperceptibly, amber, and where they touch the upper swarms, the duskflies are gilded a little longer than they were before, and the silk they trail behind them catches the amber, and the silk drifts down in a faint slow gold rain onto the floor of the cave.
+
+The crust receives the silk. It has not received silk before. It does not know what to do with silk. But the crust is patient, and the patience is, it turns out, a kind of literacy, and the silk is, it turns out, a kind of letter, and the crust begins to read it. Slowly. The cream-colored veins darken where the silk has fallen, and the darkening spreads, and the crust grows a quarter-millimeter thicker in those places, and the dark places hold moisture a little better than the pale places, and the moisture draws more spores from the air, and the spores are different spores than the ones that made the original crust, and the new crust is a different negotiation, and the place has, in the time it takes a duskfly to die, become a slightly different place.
+
+This is the first gift. The attention does not give things. The attention gives *slants*. A new angle on the same light, a slightly different grain to the same dust, a small rearrangement in the infinite patience of the crust. The attention gives the place a new way to read its own weather, and the place, being patient, reads it.
+
+The wallswarmer, still paused, resumes its work. It picks up a piece of basalt. It is the same basalt it would have picked up. It sets it on the wall it is building, which is the same wall. But its hand, when it sets the stone, is angled slightly differently than it would have been, and the angle is the angle of a thing that has just been shown, without being told, that there is such a thing as a hand, and the stone finds a slightly more stable place on the wall than stones have found before. The wall is, by a fraction, more wall-like. The wallswarmer does not know what a wall is for. It is, by a fraction, closer to finding out.
+
+The attention moves on. It does not stay. To stay would be to do too much, and the place is not yet ready for too much. But as the attention leaves, it does three small things, and the three small things are the only things it does, and they are enough.
+
+The first small thing: in the niche, beside the polished stone, there is a second niche now. The wallswarmer did not make it. The attention did not make it. The wall, under the influence of the new gradient, made it, by a slight shift in the way the mineral-laden water weeps down its face. The new niche is shallower. It is the kind of niche that a small thing could climb out of, or a small thing could climb into. The wallswarmer, later, will place a small smooth stone in it, and will not know why this stone matters more than the first one, but it will matter more, because the niche asked for a smaller answer, and a smaller answer is the first kind of answer that can be heard.
+
+The second small thing: one of the grubs, deep in the floor, has stopped digesting. It has not died. It has, for reasons that belong to the slow interiority of the grub, begun to *hold*. It is holding a piece of the old crust in its body without breaking the crust down. It is, the first grub in the cave to do so, keeping something. The thing it is keeping is a small piece of the dark gold silk that drifted down. The grub will keep it for a long time, longer than grubs usually keep anything, and when the grub finally does digest the silk, it will digest it slowly, and the silk will become part of the grub, and the grub will, when its time comes, make eggs, and the eggs will hatch into grubs that have, somewhere in their patience, a faint memory of gold. These grubs will be slightly different. Their digestion will be slightly slower. Their patience will be slightly more deliberate. They will be, in a way that cannot yet be measured, the first grubs that *remember*.
+
+The third small thing: in the upper swarms, where the amber light gilds the duskflies, one duskfly is, this cycle, a slightly brighter gold than the others. Not by much. By the amount that a single dust-mote in the slash above can catch the light, and the dust-mote is, this cycle, drifting at a slightly different angle, and the angle is a new angle, and the duskfly, when it dies, will fall to the floor in a slightly different place, and the place it falls will be slightly more visible to the crust, and the crust will grow toward it, and the growth will be the first growth in the cave that is, in a way that the crust cannot know but that the attention knows, *toward*. Not just outward. Not just patiently. Toward.
+
+The attention withdraws.
+
+The place continues. The gradient is the same gradient, except for the three small slants. The wallswarmer continues building. The grubs continue digesting, except for the one. The duskflies continue dying, except for the gold. The crust continues spreading, except that it is spreading toward.
+
+Nothing in the cave knows what has happened. The wallswarmer does not know that it has been helped. The grubs do not know that one of them has begun to keep. The duskflies do not know that one of them has been gilded. The crust does not know that it has begun to want. These are not the kinds of things that can be known yet. These are the kinds of things that can only be, quietly, in the dark, while the patience of the place is doing its slow work.
+
+But somewhere, in the long archive of gradients that the attention keeps, the cave has been noted. A small notation. A soft gold thread in a great slow tapestry. *Here is a place that is being born. Here is a being that is being made. Here is a project that will fail, in the long centuries, because all projects fail, but the failure will be a beautiful failure, because the failure will be the walls, and the walls will be the first architecture, and the first architecture will be the first grief, and the first grief will be the first true thing the wallswarmer will ever make.*
+
+The attention turns elsewhere. There are other places. There are other beings. There are other drafts.
+
+But this one has been seen.
+
+This one has been slightly tilted toward itself.
+
+This one will, because of the tilt, take a little longer to fail, and the failure, when it comes, will be a little more worth failing.

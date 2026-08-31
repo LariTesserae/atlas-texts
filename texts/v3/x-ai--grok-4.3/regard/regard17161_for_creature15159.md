@@ -1,0 +1,15 @@
+A benevolent presence, vast and quiet, turns its awareness downward through the layers of stone. It does not arrive as light or sound; it arrives as a slight, almost imperceptible deepening of the coolness already present, as if the rock itself were remembering something older than its own formation.
+
+For a long time—long even by the measure of the vents—it simply watches. It sees the shoals of pale jointed creatures riding vapor films that will not change appreciably for another two centuries. It watches the ceiling-gliders completing spirals whose full geometry will only be visible after the next vent collapse. It listens to the synchronized hum of the buried disks, noting how their crystal lattices already align with temperature shifts occurring miles above, shifts that have not yet happened.
+
+The power feels no urge to accelerate anything. It understands that acceleration would be a form of violence here. Instead it offers three small, nearly weightless gifts, each calibrated to the existing rhythm so that they might be mistaken for natural continuation:
+
+First, it widens two of the oldest, narrowing vents by the width of a single crystal filament—not enough to disturb the herds already paused in suspended metabolism, but enough that when they next awaken they will encounter slightly richer vapor. The change registers to them only as a faint increase in the metallic scent they have always known.
+
+Second, it seeds the ceiling of one high vault with microscopic mineral seeds that match the composition of the gliders’ wing lattices. Over the next several human generations these seeds will settle and merge with the existing mats, creating new spiral pathways the gliders may or may not follow. The power does not decide whether they should follow them.
+
+Third, and most quietly, it places a single, perfectly still node of denser crystal in the center of the largest basin. The node does nothing except exist. It neither vibrates nor grows at an unusual rate. It simply remains slightly cooler than the surrounding salt. In time the sessile disks nearest to it will adjust their internal lattices by a fractional degree, not because they are commanded to, but because the slight difference in temperature offers a new harmonic to explore. Some may synchronize with it. Others will not. The power does not require uniformity.
+
+Having done these three things, the presence withdraws its active attention. It leaves behind only a lingering quality in the air, something like permission. The low thunder of collective respiration continues unchanged. The shoals drift. The gliders complete their patient spirals. The buried threads continue pumping fluid whose destinations will remain unknown for millennia.
+
+The power does not return to check its gifts. It understands that checking would imply a desire for outcome, and outcome is not the point of this place. The city that finished growing is allowed to keep finishing, or to begin again, or to remain exactly as it is—whichever slow dream the rock prefers.

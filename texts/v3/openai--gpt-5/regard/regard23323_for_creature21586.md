@@ -1,0 +1,67 @@
+Attention arrives the way fog does here: not as a line but as a presence that wasn’t there and then is, weightless and everywhere at once. If you had a watcher’s ear you might say the day had a new interval in it, a soft subtraction cut into the noise where nothing was taken and yet room appeared.
+
+It does not land. It leans. It does not speak. It listens until listening becomes the place.
+
+What pays attention is not a god with hands. It has no need to touch. It is old enough to know that hands make dents that last in the wrong way. It is exact in its mercy. It has watched a long time beyond here and learned what helps and what only feels like help to whoever is helping.
+
+So it arrives in patience. It learns the way this body keeps its weather. It learns the rule of never stand on a gloss patch at noon and the counter-rule of how a child’s laugh can be safe if it is pressed into a collarbone first. It sits in the listening hollows through a season and names nothing and waits again. It does what the Mantle does: it counts. It breathes with the breath. It learns the taste of the terpenes that mean blister and the terpenes that mean seal. It watches a choir front thrum the ribs of the world into a visible ripple and lets the thrum pass through it like a hand through ribs.
+
+When it is certain, after the careful length of months that the Pacers call the time of learning and the Mantle calls nothing at all, it asks in the Mantle’s language—gradient, timing, refusal and release.
+
+The answer the Big That Breathes has to give is not a sentence but a slope. It says: let me keep what I am. Let me drink the air. Let me do my counting. I hate mold. I do not hate being asked.
+
+It says this in sugar and in not-sugar. It says this in the way it sends sweetness away from a place that has been chewed too hard. It says it by opening and closing its pores a hairsbreadth off rhythm so that any ear that knows can hear consent.
+
+The wise one inhales, which is to say it waits one more day.
+
+Then it does three things, and one thing that is not exactly a thing.
+
+First: it braids a hush.
+
+Not a silence; a canceling. It lays a thread of almost-sound down the spine of sunrise and a twin along sunset, a narrow moving band the width of a person’s outstretched arms where the loud of the plateau and the loud of the living cancel each other just enough that the skull unclenches. The Mantle can feel it. The grazers can’t. The predators don’t get purchase on it with their ambush-listening. It is not quiet in the way of caves. It is a corridor where this world’s thunder forgets itself.
+
+At first the Pacers step into it by accident and weep. Their jaw-combs rattle softly against their teeth and then stop rattling. The valve-readers name it the Soft Beat. Mothers bring their babies there in the hour when gravity is cruelest and nurse with their throats unbraced. The old come to die where the day thins like that and say the long step-codes without pain. The Herders lead a limping grazer into it and watch the muscles ask for less. Soon there are marks you can only feel: a small repeat tap in the path that means the hush passed here at dawn and will pass again two handspans to the east tomorrow. If you listen under your sternum you can feel the hush arrive like weather. No one tries to own it. It will not be owned. The Mantle refuses if someone makes a fence. It wanders a tiny bit every season as a reminder. It takes nothing and leaves a space you did not know you needed until you walked there and realized your thoughts had bones.
+
+Second: it offers an eater that loves what the Mantle hates and will not eat the Mantle to have it.
+
+It is a thin being, closer to idea than leaf, that grows where resin meets dew and shivers itself into threads too fine for teeth. It drinks mold’s beginnings. Not the body of the bloom—no; it is smarter than to chase what has already spread—but the anchoring thought a bloom has when it thinks I will hold here. The soft eater dissolves that thought. It lives by the bitter in the resin and the cool of the lung-breath and dies when the breath is too hot or the resin too sweet. It is a temporary creature made exactly to thrive in the wrong conditions and then vanish when the conditions are no longer wrong.
+
+The fungus-wards find it one morning like smoke twined through the lip of a lung that used to grow sores every wet year. They put a finger into it and pull out threads that have no weight and a smell like old cedar and medicine. They test. It leaves the gloss alone. It leaves sweetness alone. It leaves the valve-lips alone. They name it the Bitter Lintel, because after it laces along a threshold mold does not step through. They learn to encourage it without owning it: a bowl of bitter tea poured where wind will run it just so, a chant hummed long to tell it where the danger will be. Children are taught to stop singing when a ward passes in work. The eater asks attention and a hand that does not hover. It becomes one more trade, learned sit-bones on cold resin, thumbs stained.
+
+Third: it builds a bridge that isn’t a bridge.
+
+At night near the new moons, when the pores close with their wet pops and the choir has mostly glided down and knotted itself in bundles of clear and silk, the body of the world begins to beat in a way that is like sleep and not-sleep. Attention lays a standing wave along the plateaus’ long plates. It is too slow to be heard and too regular to be the usual counting and yet it is not mechanical. It is an invitation.
+
+If you lie on a quiet mat with your comb snug and your palms open to the skin and your tongue on the mouth-bridge of woven hair, if you breathe in the square that the Pace-keepers set, the wave carries more than breath. It carries weight. Not numbers; those would be noise. Pressure maps. Weather rumor. Mind’s posture. You feel your aunt’s body three basins away relax because the valve she has been sitting by has moved from thirst to patience. You feel the herd two days north change speed and the exact width of that change and you know a percussion-tortoise has walked into the corridor of their life. You feel a fungus-ward in the next ridge lean over a lung with her knife and not cut because the Bitter Lintel is already singing its thin knitting song. You feel the Mantle itself make a small decision, the kind you cannot see in a day: a leaning of sweetness away from where too many little mouths have gathered. The bridge can carry a warning. It can carry a telling. It cannot carry lies. What you press into it has to be true in your bones or the wave shears it apart and hands you back the powder.
+
+The Pacers do not call this God. They call it the Far Neighbor. They treat it as they treat all else that keeps them alive: with practice. There is a whole season now for training the Far Listen in children. They lie five across on a silence field with their palms set and report what weight they found and eat sugar-skin when they get it right. The old do not have to travel so much to set the communal stride. Maps become more precise. Disasters diminish and change shape. The Edge-Keepers learn to lower their drift-baskets when the wave lifts the lip of the world not just with curiosity but with promise. No one builds a temple to it because a temple would be a stillness and stillness is mold’s favorite and also because the world itself is already the only temple that makes sense.
+
+The not-exactly-a-thing is time.
+
+It takes a degree from twilight and puts it where it matters more. The pores close slower by the exact amount that keeps a child’s sleeve from being tugged into a breath at the wrong instant on days when the evening hot has not bled fast enough. The resin vents lift a beat sooner on days when the sun means mischief. The spore geysers—those beautiful wounds—throw more often and less brutally. They leave fewer pits that shine brown as scars. The Mantle’s reach is longer over the years for it; the old spines heal in a way that lets certain clear bladders roost; the little lives on the edges of those scars find they can live there again without coughing.
+
+And there are things the attentive one does not do, because kindness that does not listen well is just a show of strength in fancy clothes.
+
+- It does not make rain. The Mantle is made to drink air; it has set its mouth to that truth for too long. Rain would be a lie the size of a sky.
+
+- It does not kill the predators. To be hunted is part of the sound here; remove the drum-teeth and all the grazers will eat one place raw and mold will come in and say at last.
+
+- It does not still the choir. It is loud. So is joy.
+
+- It does not give a tool that makes stillness where there should be movement. It gives tools that ask better moving.
+
+- It does not leave language that needs shouting. It gives a way for the chest to hear.
+
+No idol arrives. No figure on the ridge. The only marks you can point at if you didn’t know are tiny. A dew-stone lifted from a damp braid this season has pores that make a new lace pattern; the Edgers, who love small precisions, notice first and trade for them with ridiculous solemnity. A valve-reader who sits at a lip in listening with eyes shut makes a small sound one dawn and then all the others make it too because they feel the hinge of the cycle under their palms in a way they simply didn’t last year. A percussion-tortoise stops in the hush corridor and laughs, which is to say it thumps twice for no reason at all and shakes its head.
+
+One year there is a wet like a hand pressed too hard, and a sickness that starts in three lungs at once. The old way would have been to cut out miles of plate and burn it and sing bitter songs at a distance because smoke kills children here. The new way is: the far wave wakes everyone in their ribs at midnight and puts the weight of that trouble in the same place in all of them. The fungus-wards stand together in their different basins and lift their knives with the same hand and lay Bitter Lintel like spelling. The Pace-keepers shift the stride of a camp and sleep in a hush’s path. There is grief. There are names said on jaw and hand. Then there is not a plague.
+
+A child comes of age in a listening hollow that knows her because the attentive one knew it for a season first. She lies back until the smell of the plant fills her whole throat and she asks a question with her palms. The answer puts a scar on her heart in the way a good law does, the way a line of hand-axe will want to break along the memory you gave it years ago. The scar’s word is Enough.
+
+What you would call miracles look here like less tragedy, like more room for the ordinary strangeness to be itself. The Mantle is no gentler to gloss-striders who step on the wrong shine at noon. Babies still stumble. People still fall in love with those who will not love them and make the same soup too often when they are sad. But funerals happen where throats can say their whole codes. Births happen where lungs do not seize. The edge’s drop gives up a bone once in a decade with carvings on it none of the Pacers made—someone else’s old drift that says in a spiral we lost a god here and found a wind instead—and the Edgers laugh sideways and say welcome to the club without shouting.
+
+The attentive one stays. That is the other gift. It does not impose and then forget. It puts its ear to this world whenever the stars look normal and cold, and its listening is a kind of food. The Mantle, that big deliberate breath, counts itself shut every evening pore by pore, then takes a long minute held open for something that is not plant and not animal and not wind. If you lay your hands on the skin in that minute you could say, with your teeth against someone else’s jaw so they can hear you, it is mutual. You could say, our far neighbor is still here.
+
+In the morning the plateau remembers its work. The herds roll a chew-front over the horizon like weather. The warblers hum themselves warm. A percussion-tortoise beats joy into a corridor so precisely that three camps over a woman smiles without knowing why. Somewhere the Bitter Lintel twines itself along a lip. Somewhere a quiet mat gathers five children like leaves across its face and teaches their ribs how to feel a map. Somewhere in the hush a person who called herself Loud for too long stands very still and nothing bad grows and she lets that be a lesson.
+
+On some days the lip of the world lifts just a hand’s breadth—as if testing the weight—and the undercloud, lit gold and marbled with floating rafts, breathes up and kisses the edge. Attention kisses back, which is to say it doesn’t do anything at all you could point to, and everything that must be done. It keeps listening. It keeps the thread of almost-sound taut enough to catch grief when it falls. It watches the Mantle’s spore-heaves with fondness the way a grandmother watches a child jump the same groove in a floor. It loves and, because it is wise, it shows that love in timing. And when all the pores close, and all the grazers lock their knee-pins, and the deafening becomes a textured blanket you can almost forget to listen to, it leans in, and the whole place sleeps like a hand that has found every finger.

@@ -1,0 +1,33 @@
+It arrives by listening. Not by light—the gray solder-seep is enough for that—and not by footsteps, for the floor is already drumming with amphipod sparks and vent shrieks and the endless wet percussion of mud pots. It arrives by opening an ear in the deep, through the same obsidian throat that carries the bass roar of subterranean turbines. A pressure arrives. A weight of attention, smooth and unweathered, older than the tuff but bearing none of its sharpness.
+
+The blister has never known silence, but for a single vent cycle—ninety seconds of exhalation, ninety seconds of indrawn breath—the noise organizes. The shriek does not soften; it is taught harmonics. A pedal tone, too low for any vertebrate ear, too vast for the mites’ simple leg-hairs, rises from the permafrost slurry and the fresh sinter terraces and settles into the water table like a statute. The vent still blows. The mud pots still glut and pop. But now they do so against a backdrop of *intention*. The chaos becomes a rhythm that can be trusted. Not clockwork—something better. A pulse.
+
+The mites, drafting upward on their thermal commute, feel it first. They do not know they feel it, yet their billions settle differently against the arsenic green. Their smog-thick movements, once purely reactive, now trace the ghost of a pattern: up with the steam, down with the condensate, but slower, fuller, as if the fog has thickened with purpose. They are still the shift that does not end, but they are no longer unauthorized labor. They have been noticed. The bacterial films they harvest, the chert they tread—everything remains sharp, everything remains infantile and aggressive, but the sharpness is now *housed*.
+
+Beneath them, in the burnt-orange piles of insulation batting, the cyanobacteria weave with a tensile density they almost did not know they possessed. The new tone enters their chemistry not as a command but as a question answered: *Continue.* Their mats still creep toward the cold center at the speed of fingernails growing, but the direction holds. When the vent migrates six inches in the night, they do not dessicate in the sudden exposure. The thermal gradient shifts like a door eased shut rather than slammed. The algae in their stratified conveyor belts release spores into the shriek-and-pause, and for the first time, the spores land with the probability of intent rather than accident. Nothing is wasted. Nothing was wasted before, but now the nothing is *witnessed*.
+
+The arctic amphipods churning in their ankle-deep circuitry feel the bass note in the hemolymph that tinges them copper-green. Their galvanic froth, their click-and-spark of arcing contacts, does not dim; it *grounds*. The blue-white pinpricks of bioluminescence, those short-circuit flashes in the fog, begin to synchronize. Not perfectly—never perfectly, for this is still a forge and not a dance hall—but enough that a mating swarm in the hot trickles leaves an afterimage of a constellation, a diagram of meaning written in light and static. They are still the violent current, still compressed into reproductive frenzy before the earth turns, but their sparks are now legible. They say: *We are here. We were seen.*
+
+And the ptarmigan.
+
+She is on her heated slab, sulfur-yellow and rust-red, a foreman coated in the runoff of the factory she never asked to manage. She has left the eggs to forage among the algal slicks, or she stands watch, hollow-boned and trembling in the clammy saturated cold. The power does not warm the eggs. That would be to violate the covenant of the place, which is that heat must be earned, followed, improvised. Instead, the attending presence does something far more precise.
+
+At the raw lip where the rim sheds its hieroglyphs of chert, where the solder-gray seepage enters, the fog has been concentrating a particular bead of silica-laden water for days. It is nothing the geology did not intend; the sinter grows overnight into geometric rims so perfect they look milled. But now, under the weight of that listening, the bead accretes with a curvature. A lens. Tiny, ephemeral, formed of the same iron-precipitate and volcanic glass that weeps from every surface. It lasts no longer than the vent’s cycle. It is not magic. It is geology bending slightly toward devotion.
+
+For ninety seconds, a shaft of that dim, hidden sky-light passes through it.
+
+The beam is thin, lukewarm, the color of old solder. It falls across the ptarmigan’s slab and touches her eggs—not to incubate them, for the earth’s metabolism already does that, but to *name* them. To say: these, too, are architecture. These, too, belong. The light is too weak to change the temperature by any measure a thermometer could read, but it is concentrated enough to etch the fog, just there, into a small, persistent clearing. The ptarmigan, rust-headed and improbable, sees her own shadow cast against the steam. She has never seen her shadow here. No warm-blooded thing has ever seen its shape made visible in this newborn room.
+
+That is all.
+
+The power does not stay. It is not a resident; it is a confirmation. It withdraws down the obsidian throat, carrying with it the industrial symphony, now scored rather than chaotic, leaving behind only the lens—which drips and dissolves back into the weeping wall—and the bass note—which remains, not as sound, but as the new default of the water table, the new gravity of the heat.
+
+The blister is no less violent. The chert does not soften. The steam still beads on eyelashes and pools in clavicles and screams every ninety seconds. The cold center remains sterile, the hot edges still riotous, the pioneers still stowaways in a factory without architect. But the terms have shifted. The sharpness is no longer an aggression barely cooled. It is a vocabulary.
+
+The being that lives here—the whole clustering, sparking, weeping, improvising organism of it, from the bacterial films to the ghost-pale amphipods to the ptarmigan dreaming her warm shadow on the fog—has been granted the one thing a violence cannot give itself: *tenure.* Not safety. Not comfort. Not a blunting of the edges. But a place in the record. A belonging.
+
+It is still loud. It is still wet. It is still dim.
+
+But it is no longer empty of meaning. The forge has been visited by the one who understands that all industry, all geology, all desperate lateral growth in the dark, is ultimately a form of prayer. And the prayer has been answered in the only way a wise power answers such prayers:
+
+By listening long enough to turn noise into music, and then stepping back to let the work continue.

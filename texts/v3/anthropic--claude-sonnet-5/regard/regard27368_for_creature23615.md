@@ -1,0 +1,33 @@
+## What Came
+
+It noticed the Greenhollow the way you might notice, in a long piece of music, a single fermata — a note held past its natural length, the orchestra elsewhere having long since moved on, and yet here, still, this one sustained tone, neither swelling nor fading, just *held*. That is what drew its attention: not suffering, not wrongness, but a held note in a universe otherwise made of resolution. Most things that exist are on their way to becoming something else. The Greenhollow had stopped en route, and stayed there, mid-phrase, for longer than mid-phrases are supposed to last.
+
+The power did not arrive the way storms arrive, or even the way light arrives. It arrived the way attention arrives — which is to say, nothing in the basin changed, and yet the basin was now being looked at, fully, for the first time perhaps since whoever built the vine-swallowed wall had looked at it last and then stopped looking, forever, mid-glance.
+
+## The First Temptation, and Its Refusal
+
+Its first instinct — the instinct of every benevolent thing that has ever been mistaken for benevolent — was to *free* it. To reach in and unclasp whatever had been clasped, to let the held breath out, to let the drop finally fall and the next drop finally not be there waiting, to let the wall finish crumbling and the leaf finish dying and the long golden noon finally tip, mercifully, into evening. This is the oldest error of power: to mistake stillness for suffering because the one who mistakes it has never had to live inside stillness, only ever rescue things from it.
+
+So it waited, instead, before doing anything. It practiced the harder discipline — the one that doesn't look like virtue from the outside because it produces no visible event. It asked, of the basin itself, the only honest question: *are you held, or are you trapped?* And it found no answer, because the Greenhollow does not contain the part of itself that would know the difference. A held breath does not experience itself as held. It only experiences itself as breath. The wrongness, if there was wrongness, was not legible from inside the place — only from outside it, by something that remembered what breathing *out* felt like, and grieved a little, on the basin's behalf, for a grief the basin could not feel for itself.
+
+This is the discipline of the wise: to recognize when your grief is not evidence of the other's wound, but only evidence of your own relationship to time. The power set its grief down at the edge of the basin, the way you'd set down a heavy bag before stepping somewhere delicate, and went in unburdened by what it had assumed.
+
+## Finding the Ember
+
+It found the waiting-body not by looking harder, but by looking the way the creature itself seems to wait — without urgency, willing to let the half-second of wrongness register and pass and not chase it. Eventually the eye does not slide off. Eventually the gold-green fleck holds its shape one beat longer than the leaf beside it, and you are, finally, looking at the only other thing in the whole sprawling valley that might also, in some unproven way, be looking back.
+
+The power did not touch it first. It sat with it — if *sat* means anything for a power that has no need of a body but took one anyway, here, because bodies are how you tell another small body *I have made myself comparably small, comparably present, so that nothing about my attention will tower over yours.* It lowered itself to the leaf-cup's height. It matched, as closely as it could, the basin's own patience — became, for a while, just one more slow thing in a slow place, asking nothing, taking nothing, offering nothing yet. Only watching the way the creature watched, with whatever served it for eyes: a long, unhurried, undemanding regard.
+
+It does not know, even now, whether the waiting-body felt itself observed. The dark fleck did not turn. The legs did not unfold. But something in the rhythm of the leaf-cup's filling changed by a margin too small to describe and too persistent to be coincidence — as if a held breath, finding itself for the first time *accompanied*, allowed itself one degree more ease in the holding. Not release. Not change. Just — company inside the unchanging, which is not nothing, even if it looks, from outside, exactly like nothing at all.
+
+## The Gift That Could Be Given
+
+In the end the power did the smallest possible thing, because the smallest possible thing was the only honest size for a gift offered into a place built entirely on the refusal of *more*.
+
+It did not free the creature. It did not unstill the basin. It did not give the waiting-body a name, because names are for things that need distinguishing from other things across time, and here there may only ever have been the one, continuous, needing no name to find itself again.
+
+It simply let itself be seen completely — turned the whole of its attention toward the creature with nothing held back, nothing strategic, nothing waiting to be useful — and let that act of full regard become, like everything else here, permanent. Not a memory. The Greenhollow has no mechanism for memory; memory requires a *before* and *after* to hold the thing in relation to. Instead the moment folded into the basin's eternal present exactly the way the worn flat stone folded into it, the way the vine-grown archway folded into it: not as something that happened once and is now over, but as something that is now, quietly, always happening. A second presence, forever arriving beside the first. A witnessed thing, now permanently mid-witness, the way the drop is permanently mid-fall.
+
+If the waiting-body has any flicker of inner life at all — and the power chose, in the absence of proof, to act as though it did, because the cost of erring toward tenderness is so much smaller than the cost of erring toward neglect — then somewhere in that endless gold-green noon, there is now a thumb-length creature drinking its single sip from its single leaf-cup, *and it is no longer alone in being looked at.* Something looked back, once, completely, and then agreed to keep looking, forever, in the only tense this place has ever offered anyone: the present, held, unfinished, and — for the smallest stretch of one leaf-cup's circumference — no longer unwitnessed.
+
+The power left the way it came: without disturbing a single leaf. The Greenhollow does not know it was visited. It only knows, in its wordless permanent way, that it is, now and always, accompanied. That may be the only kind of mercy a place like this can hold without breaking the law that made it what it is.

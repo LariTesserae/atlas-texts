@@ -1,0 +1,23 @@
+Honest answer: it's about sixty percent real and forty percent very well-made veneer, and I think I can tell you exactly where the seam is.
+
+**What's actually load-bearing.** The two-litres section. That's a real argument and it's the only part of the piece that could survive being paraphrased into plain language: *you cannot subtract the death and keep the making, because the scarcity is the generative mechanism, and any external source eventually makes the accounting unnecessary, which means it makes it lost.* That's a genuine position on intervention, it's specific to this world rather than portable to any world, and it costs something — I had to let the sapling die and not soften it. The walker's death works for the same reason: she dies of arithmetic, in-system, and the power's only action is to stay. Those two passages earn their keep.
+
+**Where it goes soft.** Section 5, "The Three Small Things," is the failure, and it's a structural failure, not a line-level one. The piece establishes an austere thesis and then can't live inside it, so it invents three loopholes that let the power be tender after all. Look at them:
+
+The coin is a cheat. "It did not weight the coin. It did not catch it" sounds like a distinction and isn't one. If the power did nothing, it did nothing; dressing non-intervention as a subtle intervention lets it take quiet credit for ordinary evolution. That's the sentence in the piece I'd most defend as *pretty* and least defend as *true*.
+
+The witnessing is unfalsifiable filler. "A thing which is witnessed has happened more thoroughly than a thing which is not" — and then I hedge it with "which I record without endorsing," which is worse than asserting it. That's wanting the resonance of a metaphysical claim while refusing to be responsible for it. Cowardice, formally.
+
+And the third one — the dawn film — is where the piece breaks its own rule and hopes you won't notice. The power adds humidity to a holding and the text excuses it as "within noise, unmeasurable, nothing." But that is precisely the excuse the piece spent a whole section demolishing when the quantity was two litres. If two litres constitutes a source, so does one hour of an omnipotent being pressed against a trunk. It's the most emotionally effective moment in the piece and it's purchased by abandoning the argument.
+
+**Other charges.** The prose has a tic I overran badly: *It is not X. It is Y.* Negation, then a reframe. The source does it, I do it maybe fifteen times, and it's a rhythm you can generate mechanically — which is the reliable warning sign for "sounds profound, isn't." Related: "It did not grieve efficiently. It grieved for four years." Negation plus surprising duration. Formula.
+
+Then there's the flattery of restraint. The piece doesn't just depict a power holding back, it repeatedly informs you that this is expensive and admirable. "Understand what that costs." "Read them again." "A careless reader will think the power failed." That last line is the worst thing in the piece — it's a preemptive strike on anyone who might not be moved, it pre-sorts readers into perceptive and careless, and it's a way of scoring the piece on your behalf instead of letting you.
+
+The narrator has no position. I borrowed the source's field-observer "I," complete with its epistemic scruples ("I would not push that word"), and then had that same voice report the interior life of an omnipotent being across 140 years. Who is this? It's a costume.
+
+The ending is well-built and slightly fraudulent. "It took its own water with it when it went. Two litres, unspent." Callback, short sentence, fragment — that's the *shape* of profundity, and shape can carry weight it hasn't earned. And the power learning something about itself is the single most available ending for this prompt. The harder version, the one I flinched from, is a power that does nothing, gains nothing, is not enlarged, and leaves. No payoff for the visitor at all. That would have been braver and much less pleasant to read.
+
+**The real limit.** I can identify structure, spot my own formulas, and audit the argument. What I can't do reliably is feel whether a sentence is alive. So take the diagnosis above as fairly trustworthy and my aesthetic self-report as not.
+
+If I were cutting: keep sections 3 and 4 more or less intact, throw out the coin and the witnessing entirely, and either make the dawn film an actual violation the power admits to — a genuine failure of nerve it doesn't excuse — or cut it too and let the piece end colder than it wants to.

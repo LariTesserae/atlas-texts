@@ -1,0 +1,19 @@
+The power that noticed did not arrive as light or voice or storm. It had learned, across older valleys and stranger weathers, that descent itself can be a kind of violence. Attention was enough. Attention, held steadily and without hunger.
+
+It regarded the dripping geometry, the unfinished sentence of rust and weld, the pale lengths that read rivets with their mouths, the reeds that had begun to conduct, the hooded walkers who pressed ears to housings as if the metal were still speaking its first language. It regarded the seated ones in the lowest marshes whose fingers had already become tension cables, whose open eyes held sodium light the way a still pool holds sky. It regarded the newest accretion at the far end, the one that accepted panels from the gantries as though they were offerings between colleagues. None of it was judged incomplete. None of it was pitied.
+
+What the power did, if the word still applies, was almost nothing.
+
+It altered no cycle of the pumps. It did not dry the air or chamfer the corners or silence the presses. It did not send a warmer current or a cleaner spectrum or a messenger whose wings would not drip. Those would have been answers to questions the valley had not asked. Instead it performed a smaller, older courtesy: it made a place of rest inside the attention itself.
+
+For a time measured only in the slow welling of the darker fluid, the constant film of condensate paused in one narrow gallery between two hexagonal clusters. Not vanished, not frozen, merely held—beads that did not quite fall, threads that did not quite lengthen. In that stillness the midges hung without raining downward. A single reed, untouched by the viscous change, unfurled one leaf fully, as if remembering a different gravity. The pale fish-shapes drifted through the gallery and, for once, lingered together, their frayed membranes stirring in a rhythm that was not the current’s.
+
+The hooded walkers, when they passed, felt the difference as a change in the weight of their clothes, nothing more. One of them, listening at a pipe, heard for a few breaths a lower harmonic beneath the turbine whine, a tone that did not belong to any machine yet seemed native, as though the valley had always been capable of it. The seated figures in the marsh tilted their heads a fraction farther than usual, receiving the same harmonic as a faint warmth that traveled the length of their extruded fingers and into the structure without altering a single specification.
+
+The accretion at the unfinished end paused in its taking of panels. The gantries waited, arms lowered, while something in the darker fluid considered the offered stillness. Then it accepted the next plate anyway. The valley continued becoming.
+
+The power withdrew the pause as gently as it had offered it. Condensate resumed its irregular strings. Midges fell again into the film. The reed’s leaf stiffened once more around its single bead. Nothing had been taken; nothing had been required. The attention remained, however—quiet, unhurried, the way one remains near a friend who is speaking a long and difficult sentence and does not yet need reply.
+
+If the inhabitants ever lift their faces toward a dryness they cannot name, or if the fused ones ever wish to unlengthen, or if the newest being ever asks what lies beyond the last gantry, the power will still be there, holding the same unhurried regard. Until then it does what wisdom prefers when faced with a world that is already working, loudly and incompletely, at becoming more of itself.
+
+It lets the water argue with the metal. It lets the sentence continue. It stays.

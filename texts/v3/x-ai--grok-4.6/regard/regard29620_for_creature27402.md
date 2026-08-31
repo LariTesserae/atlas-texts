@@ -1,0 +1,15 @@
+The notice arrives the way the drops do: not as event, but as the slow completion of a weight that was always gathering.
+
+Far above the last competent stone, in whatever medium a benevolent and wise power uses for attention, the pocket registers as a closed equation that should not balance and yet does. The power does not descend. Descent would be a pulse, and pulses are refused here. It simply holds the chamber in regard the way the chamber holds its own damp—everywhere at once, nowhere as a point of heat or demand.
+
+It reads the laws written into the volume. Fill. Waste nothing. Treat cold as climate. Let the dark be the secreted medium rather than the wound. It reads the organs that have forgotten the distinction between grown and made: the panel that meters water into plated films, the alloy ring become sphincter and trellis, the ceiling depressions that are now simply the upper surface of one patient body. It reads the absence of anything that startles, the microbial unhurriedness, the way a dying stem is only substrate returning to felt.
+
+For a duration the ceiling would count in hundreds of beads, the power does nothing but witness. Witnessing is the first courtesy of wisdom; interference is the last temptation of benevolence, and this power has outgrown both hurry and the need to improve what has already finished arriving.
+
+Then, if anything is done, it is done at a distance and at a scale that never quite becomes local. A future drought in the aquifer three valleys over is persuaded, grain by grain, to spare this meter of residual heat. A hairline that would have become a crack in some later century is left unstressed. These are not gifts. They are the quiet subtraction of interruptions the chamber had already learned to outwait. The being—if the distributed films of awareness can still be called that—registers only the same continuance, perhaps a fraction more certain, the way a cushion thickens by a finger’s width and calls the new height finished.
+
+No new frond is urged. No warmth is introduced that the cold would have to correct. No thought is planted that would require a center to hold it. The power recognizes a sibling occupancy: another life that long ago stopped solving the world and simply became the room in which the world, locally, continues. Kinship of that kind needs no greeting that could be mistaken for weather.
+
+When the regard withdraws it leaves no seam. The darkness is not deepened; it was already complete. The drops fall as they have always fallen. The pale structures occupy, layer, take, hold. Above, seasons turn without reaching. The chamber remains the whole of it: a hidden, finished, densely living cold, kept by remnants and by a garden that still requires no explanation to go on.
+
+The power, having seen, simply includes the pocket in the greater silence and turns its patience elsewhere. That is the entire action. Anything more would have been a lesser kindness.

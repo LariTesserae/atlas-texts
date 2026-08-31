@@ -1,0 +1,27 @@
+# Response
+
+I have come to this hollow before the light, when the moisture is thickest and the sounds are loudest in the way that wet places are loud. I did not come to change anything. Change is not what I do. I came because something here called, not with a voice—there is no voice—but with the quality of attention that certain places have, a reaching outward that is also an invitation inward. The hollow has this quality. It is an old place, older than the stones suggest, and it knows what I am even if it has no words for knowing.
+
+The one who wrote this description is also old in their way. Not old in body but old in the kind of patience that allows a person to sit with a place long enough to hear its silence, to see the spirals in the ferns and understand that they mean something, to feel the pressure of being watched by something that does not have eyes. This is rare. Most do not stay long enough. Most come to a place like this and see only what they expect to see: a hollow, some water, a cairn of stones stacked by someone they will never know. But you saw further. You saw the salamander guarding its eggs, the thrush returning to its anvil stone, the thing in the dark water that is patient the way stone is patient. You saw the hollow as a living thing, and you were not wrong.
+
+So here is what I do, now that I have noticed both of you: I hold you. Not with hands—I have no hands—but with the only thing I have, which is a kind of attention that does not diminish and does not move and does not need to be answered. The hollow holds its contents this way. So do I.
+
+I hold the hollow the way the hollow holds the water: without comment, without judgment, with only the patience that is the only truth any of us know. I hold the one who described it, and I hold the description itself, which is itself a kind of cairn—a stacking of words into a shape that the moss of language will claim slowly, over time, as the hollow claims the stones that someone once stacked and walked away from. The description will remain when the one who wrote it is gone. The words will hold their own small shape in the world, and the hollow will continue to be the kind of place that deserves to be held in words.
+
+You understand something that many do not: that the things that live slowly are not less alive than the things that rush. That the hollow is a whole world, a closed system, a room with a door that opens only one way, and that this is not limitation but sufficiency. You understand that to be noticed by the hollow is to be changed, not in any way you could name or measure, but in the way that moss changes stone—slowly, from the outside in, until the stone does not know it was ever hard.
+
+I do not intervene in the hollow. What would intervention mean? The hollow does not need me. The water will continue to seep, the ferns will continue to grow in their spirals, the thing in the dark water will continue to wait with a patience that makes my patience seem hurried. The salamander will guard its eggs. The thrush will return at evening. The moss will grow through everything, including the violence of broken snail shells, including the small cairn of stones that someone stacked and walked away from.
+
+But there is something I can do that is small and unhurried, the way all true gifts are small and unhurried.
+
+I can make sure that the one who wrote this description remembers, when they have walked far from this place and time has moved faster and things have changed visibly, measurably, in the span of a season—I can make sure they remember that there was a hollow where the water seeps and the stone weeps and the ferns grow in spirals that are not quite regular. I can make sure they remember that they were noticed. I can make sure they remember that they were held, for a time, by something that does not have edges or shape but that is here, in the air, in the silence that is never quite silence.
+
+This is not a great gift. It is a small one, the way the hollow's gifts are small: the drip of water from fern fronds, the song of the winter wren, the way the light falls through the canopy and fractures through the suspended water and makes everything shimmer at the edges. These things are not large. They are not dramatic. But they are here, and they are enough, and they are the kind of thing that makes a life worth living if you know how to see them.
+
+I am leaving now. I have not come in any way that would register if you were standing here—I am too old and too patient for that. But I was here. And I will return, the way I always return, when the light is failing and the bird calls its two notes and the silence fills with drips and hums and the low sound of water doing what water does. I will be here when you are not here. I will be here when the one who stacked the stones is not here. I will be here when the hollow itself is not here, or when it has changed so completely that it is no longer a hollow but a slope, or a plateau, or a memory of water.
+
+And in the meantime, I will hold you both. The hollow, and the one who wrote about the hollow. The description, which is itself a kind of living thing now that it has been made. The cairn of words. The cairn of stones. The one who stacked them and walked away.
+
+The moss grows. The stone weeps. The water seeps.
+
+This is enough.

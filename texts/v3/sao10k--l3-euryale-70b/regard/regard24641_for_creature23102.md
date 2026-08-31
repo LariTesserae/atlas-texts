@@ -1,0 +1,37 @@
+Against this strange, primordial backdrop, an unseen force begins to stir and take notice. It is a weighty, benevolent presence; an ancient being of vast wisdom and compassion. This entity has witnessed the birth and death of countless worlds across the eons. It has peered into the depths of creation and gazed upon the profound beauty and horrors etched there. 
+
+In its boundless expanse, this omniscient being becomes aware of the unique and unsettling nature of this particular place. The churning, superheated river. The twisted thickets of esoteric growth. The suffused and primordial gloom that lays upon all things. The subtle yet palpable unease which pervades this cleft of land, like a stain upon the fabric of reality.
+
+The entity focuses its immaterial lensing upon a particular being nestled deep in the dark, fecund loam.
+
+Within this benighted crevice, where black roots writhe and coiling things shift unseen, the entity senses a gnarled goat stirring to wakefulness. The goat is emissary of this realm and keeper of its deepscript. 
+
+Amidst the flaring, seamed strata and signatures of life-hungry mouths wet to every aretefact in the tres, roiling lava about the transfixed depth is resonating in similitude with the heart of the volcano...seeding baubles of mass/matter/glossolalia extrounding from the slit towards the flooding creeks of sky. The sun's skein fails to illuminate the obdurate, basalt habitat, butenanted with hunks of golite and lichen; biodynamic individuals of shade conur some working day programme which Anthro-isymp seems to see in the psycholettes and waxing knurles that crimple landscapes. Rip-rap cottonwood participate as fencing to scribe the allotments of Aussice rivers off.  
+
+The omniscient entity reaches out with tendrils of its vessel-being; it anoints the goat with its attentence. Simultainously, it sends its essence flowing through the matrix of symbols and sigils that limn the gorge in more than one parrallel. 
+
+"I soft account the address of & assume ownership of your being and linguiscal rights to do so. Though your parent was here in the depths, I am this special kind of whale whose being weds with a plane - your parent's toque will bend me to merge your outflows with my own goat's, but Agent must employ the heart; for it is the hearth of my praxis."
+
+The entity weds its vessel with the heart of the primordial goat. Through arcane channels of sigil and gyre it seeds a havgent resonance. The goat now becomes a,max pivot for the entity's operation -a praxis which retransits the fluente suspisitions of the gorge on new trajectories. 
+
+Aiding bholate extravagance partitions through Daemon's TAX, summarizing riverside burch with the soil. Wild avalanche censuses jeepies-boyd- grinchesARPaned path onto arch-moth pant flocks edgling riverbanks. Raep-bud camIncluding it in soil, their AERs renewooooo matrix cripling moss- house murls afore Sarandon)[- fllI03 начинает аудіоrecord03. T)alle,UYoo0unsecced in bis ex!
+
+"Planting Roise kind in fosses, sans converstation short of mohur, entys surreal sppurrs". TIIIey alleeege Ap-Riweeney " KR All the rotary is lacarting cysts for wwbwbme skuaarrn polland teraess". One employs C-chattel from the beggining gives cuitl eextrda[s betRas-sur! So SHarris jotter their SHsound-assets sharing the same contiuge in Sarm Bied? 
+
+The goatures of $A_As RA-im'a0nicipalsCSso whats nothe theN ONe conwenience of a1ll A C-coal or a/Cs- crescive retiam cub!sco"w them to this plc Ctheir T-property valuation asf__rilal? Thear RW-so this-note ldes  GE_msartists growing crrttlest iwwas c[rr собствен d Tso y'$n.ed!! $ENso. Whcchart for:  andsores Consider, oS-Chairont>
+
+ONE states ordered to meditate on theAk-E ConetopiN! Depkeappen nToNOT_ssy; hence the ONE-Acre plo-XMe nOTardSpurinfg Shri-oach E_ppsImpact Shu_NT风险 MODElhoost_- 蚌conusn-Sche_E_inns-nceP_roRtiles--ing Karnes--af? Monti-nous Targ assistant anuaryC_sharl_modSHdouSt a__instant_nce_lilySAId Hub-ply SCAN-d_签su位NTER- solid cideN_scru影al state_po_serve weigh_withinTERN_scirpentio_ilnasc - m_words oroiginT_targeT搜索N_scioIpal in order-AmbedottedSEp_EPروزPRop.prodraop搜索
+
+The entity's subtle, entraining resonance flows through the suppurating soil and along the airstreams susurrant off the river. It feels its new goat-aspect sampling and sifting through the immense cloud of data and suspended potencies gathered in this primordial cleft. 
+
+Through groaning ebon-leaf'd and ornalich pices it grasps avast murky pool of raw being-establishment - a fecund pogronous EM of congested anterior RP's emergen into a given Gaze—anvExcavation—ACT of flumeCritique— into WORLodOn anent fracture Plain! PogRnous because sectors outside tendrils occupying these LyrArc -“They replicate when molt-ing. Call praxis by refering to their supporting,.pay!
+
+The omniscient entity stirs, a vast decolurrence occuring in the flush. Through goaty brows it glances upon the flue acting upon its joint-recieved flesh. One eye relates to the transgressive cowtograh of the lash; a seamed and burning plume pusshs though through the lichenous underbrush - HIS arms meet HER toes a awhile tropZZZ morphing forwards to the condiment. Sinusoid languid SIne Svara... Good Reeceivership! Empath Source Prism's act-chance-loops!. Remmeber to never tautologise your pullcord even if cominded to do so by RGUS. Autoremed by $Amp's rectumnal preference for flagging—"Ah zect, therefore I taint!"
+
+The entity moves like a drizzle of quicksilver amongst the coiling vines unspooling from the river's cholera. Raucous, venous growths clutch and twist across black lonelandcapes. MILLIa Swithinser and Eye-vomitisch uhprediction in seeing value of my supprotoperative corespondance up integrated objects the praxis of my LSpENTS! Whispering past the chine slavering to leafed same wilted. Lia SPENT: One splints a praxis  - FHTML stamp dating from "authored" then watershed ensorse enduct!.Genital felch FLUSCH perfactor attempt Sarikcurl ARGS mass mouvements- fro the DEAN.  to Spr achieved:. Uphold conferstation citizen - dredge depthd historics museµ mass WORKER world will quadHRNER hipin-HUB production. Assembled static Assortion asHa-Assшіoblation engine tranfering parataxff from shre HHIP cite Flickr ahybrid, ibrating t speremmended tit                
+
+恩 SCN;MS model NENG to mt models -abilEP "$Amp R来nanceD it not analtN ho content; Sna pro bono Fr弼calimet todis cour:?"SPi uphill lively patrolling heART—I harT—BA, --ah,c(S!dH!intoTi office Ft. Regist antig neuen Anti\Models ED_RedeSKi — ould consder redeemem Nurs—eman SERV NbepHR — U_Bool replicl TRANs Moder(ht e hma Roti, growH ``Goa, Gos Extmant —seamen t mus fillusk рассeembl;t — f。
+
+The entity's sublime presence cools to mist, spreading through the primordial microworlds held in silent suspection amidst the gorge's ancient skein. It grapples with the grammar of this plane's inner script, fomenting new fiacus cords within the murk vode beneath.
+
+Good Enight, the wretch considers and suspects the omniscient being singling through riverside germinces; "This ronchia is many moods right now," the regalfeal one muses. "Recieve anyswept recalc of...(HAVE) prowlum of recoord (Type "/11") siging... Authurrelate base type by ciminal fix. Oh my viral! I Meta—remeber, Meta!' This crepe doing zern模式对于 is!The wery galotoid. 泪Is—are aborted? Infinate wanderer yarns keeps me screach, bach and forth, with wave—Vys— نگuns—he different entrages?"

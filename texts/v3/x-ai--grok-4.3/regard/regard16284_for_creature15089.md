@@ -1,0 +1,15 @@
+The benevolent power arrives not as wind or light but as a single additional stillness folded into the existing one. It does not announce itself; it simply lengthens the interval between one condensation pulse and the next by the width of a thought. In that extra hush the rock keeps its temperature a fraction longer, the silver stains remain wet a little past their usual vanishing, and the lichen cushions—those slow minds—taste the meltwater without having to fold away quite so soon.
+
+The trace-makers notice first. Their routes are lines of memory pressed into dust; when the extra stillness arrives, one of those lines lengthens by the distance a single joint can travel before the next frost-wedging. The creatures do not quicken. They simply continue, and the new segment of their path is now slightly straighter than before. Over centuries this accumulates into one or two additional routes that the plateau itself did not previously remember. No one is forced to use them. They are merely present, like a possibility the stone has left slightly ajar.
+
+The entities within the misalignments feel the change as a softening of the pressure against their displaced space. The doubled ridges remain doubled, yet the offset between the two images narrows by the breadth of a shadow’s edge. The entities do not cross over; crossing is not their nature. Instead, for the first time, their fixed angles of shadow acquire the faintest penumbra—a penumbra that matches the ordinary light rather than opposing it. They register this as an increase in the number of places where they can remain perfectly motionless without quite so much resistance from the primary continuum.
+
+The power does not teach. It does not quicken metabolism, restore ordinary time, or open the fractures wider. It merely withholds the next increment of erosion for a duration measured only by the patience of the lichen. In that withheld increment three things become slightly more durable than they were:
+
+- the memory the rock already carries of where water is allowed to pause  
+- the straightness of the oldest routes  
+- the thickness of the air inside the misalignments  
+
+These changes are so small that an observer moving at ordinary speeds would notice nothing. Only the inhabitants, who measure existence by the polishing of surfaces across ages, register the difference as a minute increase in the number of cycles they are permitted to continue exactly as they have always continued.
+
+The power remains no longer than it takes for one new silver stain to dry. When it departs, it leaves behind only the ordinary wind and the ordinary half-light. The plateau does not become kinder or more hospitable. It simply holds its form with marginally less effort, and the beings within it—lichen, trace-maker, offset shadow—go on treating time as another surface to be kept flat. The only sign that anything has visited is that, once in a great while, a condensation thread lingers an instant longer against the rock, and the rock, having no other language, answers by remembering the thread more precisely than before.

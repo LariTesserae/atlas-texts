@@ -1,0 +1,23 @@
+The Tender arrives as morning frost, crystallizing on the grating three levels above the alcove. Not frost exactly—something that chooses to be frost-like, to move through the city's frozen arteries without disturbing its automated rhythms.
+
+It spends seven days simply observing, its presence indistinguishable from the natural condensation patterns except for a subtle sweetness in the droplets, a barely perceptible order to their falling. The occupant notices on the third day, pauses in their fungal cultivation, tastes the air with the same careful attention they give to mineral gradients. They click thoughtfully to the beetles, who seem unusually calm.
+
+On the eighth day, the Tender does three things:
+
+First, it whispers corrections into the city's pneumatic systems—microscopic adjustments to pressure differentials that will extend the machinery's life by centuries without changing its fundamental nature. The city doesn't need to wake; it only needs to endure more gently. The hammers strike with fractionally less force, wearing themselves and their targets more slowly. The conveyors develop a subtle intelligence about their loads, self-adjusting to minimize friction. This is mercy through mathematics, compassion expressed in engineering tolerances.
+
+Second, it touches the strange construction in the nest's corner—not physically, but with something like attention made tangible. The occupant wakes to find their creation gleaming with new possibility, its beetle-shell circuits somehow completed by pathways they couldn't have known to build. It's not changed, merely... fulfilled, like a equation discovering it had another side. The construction begins to hum at a frequency that matches both the occupant's heartbeat and the city's deep turbines, bridging organic and mechanical in a harmony neither could achieve alone.
+
+Third, and most gently, it dreams a dream into the warm pipes that feed the alcove. Not a human dream or a machine dream, but something in between—a vision of what the city could become when its purpose-built isolation finally ends. In this dream, the moss doesn't just survive but carpets entire districts in bioluminescent green. The drain beetles evolve into a thousand specialized forms, cleaning and converting and connecting. The fungi become the city's new neural network, processing information in ways silicon never could. And throughout it all, little pockets of warmth like this one serve as nodes, as seeds, as places where the boundary between life and system dissolves into something richer than either.
+
+The occupant experiences this dream as a fever—three days of sweating into their nest while their mind races through possibilities. They wake with new knowledge: how to encourage certain fungal strains to process metal oxides into bioavailable nutrients. How to teach the beetles to carry spores to distant portions of the city. How to read the deep patterns in the pipe-song that will tell them when other survivors might be found, guided to warmth.
+
+The Tender leaves only one physical sign of its presence: a new species of moss that appears near the warmest pipe. This moss grows in spirals, its bioluminescence pulsing in patterns that teach themselves to anyone who watches long enough. The first pattern shows how to purify water using fungal filters and beetle-shell activated carbon. The second shows how to generate electricity from temperature differentials. The third...
+
+The third pattern never repeats the same way twice. Sometimes it's a map to another warm alcove. Sometimes it's a chemical formula for medicine. Sometimes it's just beautiful, a living mandala that reminds the occupant that even in the deepest isolation, beauty persists, adapts, finds a way.
+
+The occupant doesn't know they've been visited by something vast and kind. They only know that their work has taken on new urgency and new hope. They tend their gardens with religious devotion, speak to their beetles with increasing fluency, and slowly, carefully, begin to transform their alcove from a hiding place into a laboratory for the city's eventual metamorphosis.
+
+And in the corner, their construction—now revealed as an incubator, a transmitter, a prayer made manifest—begins to sing in frequencies only the fungi can hear, calling to dormant spores throughout the city:
+
+*Wake gently. Grow wisely. The cold age is ending, and the warm work begins.*

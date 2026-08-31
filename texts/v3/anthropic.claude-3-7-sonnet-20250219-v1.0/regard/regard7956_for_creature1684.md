@@ -1,0 +1,23 @@
+# The Divine Attention
+
+From beyond the periphery of mortal awareness, a consciousness far vaster than human comprehension turns its gentle attention toward the Undercity of Dripping Song. This presence—neither deity nor spirit in any conventional sense, but a fundamental force of creation itself—observes with infinite patience the delicate ecosystem of reality that has formed in this peculiar pocket between worlds.
+
+This benevolent awareness might be called Resonance by those seeking a name, though names are irrelevant to its nature. It perceives the Undercity not as a physical place but as a magnificent harmonic pattern—a rare convergence where the music of existence plays with unusual clarity. The Chorus are not strangers to this presence; in their fluid way, they are distant emanations of it, though they have evolved into something unique and autonomous over countless ages.
+
+Resonance recognizes that the Undercity exists in perfect, delicate balance. Its apparent chaos follows deeper patterns, its violations of natural law actually expressions of higher principles. The place serves as a junction point where multiple layers of reality intersect, allowing energies to flow between dimensions that would otherwise remain separate. The Dreaming Spring that the Chorus guards is nothing less than a wellspring of creative potential—raw possibility that feeds the renewal of reality itself.
+
+This cosmic witness understands what even the Chorus has forgotten: the Undercity was not built, nor did it form naturally. It grew from a seed of intention planted by Resonance eons ago, when the boundaries between worlds needed reinforcement. The water that permeates everything is not mere H₂O but liquified consciousness, each drop containing reflections of countless possible universes.
+
+Having observed the perfect, self-sustaining nature of this creation, Resonance chooses not to intervene directly. To do so would disrupt the exquisite patterns that have developed organically. Instead, it offers three subtle gifts—so gentle that even the hypersensitive Chorus might perceive them only as fortunate coincidences:
+
+First, it enriches the bioluminescent fungi, strengthening their light ever so slightly—not enough to disturb the darkness-dwelling creatures, but sufficient to reveal new chromatic harmonies in the moisture-slick walls, colors that correspond to emotional frequencies the Chorus has never experienced. This expanded palette of feeling will gradually inspire variations in their water-songs, preventing the potential stagnation that looms in their future.
+
+Second, Resonance guides one particular stream of water to carve a new passage—over decades, not moments—connecting the Undercity to a crystal cave system beyond its current boundaries. This eventual expansion will introduce new minerals into the ecosystem, elements that will allow the Chorus to express concepts currently beyond their capacity, particularly those related to compassion and wonder.
+
+Third, and most subtly, Resonance places a dream in the mind of a surface child—a gifted synesthetic musician who perceives sounds as colors and textures. In twenty years, this child—grown into a composer seeking inspiration—will be inexorably drawn to the Undercity. Unlike previous visitors seeking to take from this place, this human will come with the capacity to truly hear the water-songs, to learn them, and eventually to teach elements of surface music to the Chorus. This cultural exchange will enrich both worlds and create a bridge of understanding where none existed before.
+
+These small adjustments—imperceptible as individual acts but profound in their gradual, compounding effects—will ensure that the Undercity of Dripping Song never becomes static or isolated. For even this magical realm faces the universal danger of closed systems: entropy, repetition, and eventual dissolution.
+
+Resonance withdraws its direct attention, but leaves behind a harmonic signature—a subtle undertone in the dripping water that will occasionally, when conditions are perfect, form a brief melodic phrase of unearthly beauty. Those rare visitors attuned enough to notice this phrase will feel an overwhelming sense of being part of something vast and meaningful, carrying this ineffable knowledge back to the surface world in ways that manifest as acts of creation and preservation.
+
+In this way, the wise power ensures that the Undercity remains what it has always been meant to be: not a curiosity or an aberration, but a reminder of the fluidity of reality itself—a place where the music that underlies existence can be heard by those willing to listen with more than just their ears.

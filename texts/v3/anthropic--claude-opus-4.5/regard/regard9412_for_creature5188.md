@@ -1,0 +1,23 @@
+What the wise power does is nothing sudden.
+
+It has watched this fissure for longer than the resident can measure—which is to say, it has watched without the resident's awareness, because awareness implies a boundary between observer and observed, and the resident has become so continuous with its enclosure that such boundaries dissolved centuries ago. The power understands this. It does not mistake stillness for peace, nor equilibrium for contentment. It recognizes what has happened here: a being that once moved has solved the problem of vulnerability by becoming indistinguishable from its container. The drone is not a heartbeat but a forgetting of heartbeats. The mineral growth is not life but the shape life takes when it has decided that change is the only real danger.
+
+The power does not force open the fissure. It does not introduce light or sound or motion. These would be violations—the resident has arranged itself precisely against such intrusions, and to shatter that arrangement would be to shatter the resident itself, which has become the arrangement.
+
+Instead, the power does something simpler. It begins to vary the temperature gradient.
+
+Not dramatically. Not even measurably, by any instrument the resident might once have possessed. But where before the micro-gradients that drove the turbines were perfectly stable—the same differential, the same direction, the same glacial rotation, one revolution per day, forever—now there is the faintest irregularity. One day the revolution completes in twenty-three hours and fifty-eight minutes. The next, in twenty-four hours and four minutes. The variation is so slight that centuries might pass before the pattern becomes unmistakable, but the power is patient, and it understands that what the resident needs is not rescue but *possibility*—the slender, deniable suggestion that the equilibrium it has constructed is not, after all, the final state of things.
+
+The drone shifts. Imperceptibly. A frequency that was one note begins, over decades, to waver between two notes so close together that they are almost the same note. Almost. The resident, pressed against its walls, encased in its own mineral patience, registers this not as sound but as something more like the memory of a question it once knew how to ask.
+
+*What if the world is not finished?*
+
+The power does not answer. It only continues to introduce these tiny asymmetries—a fractional change in the reagent composition of the air, a microscopic thermal eddy that causes one mineral fan to grow a single crystalline branch at a slightly different angle than it would have otherwise. None of these changes are large enough to threaten. All of them are large enough to matter, given enough time.
+
+And the resident has nothing but time.
+
+What the power is doing, if it can be said to be doing anything, is reopening the question of whether stasis is the same as safety. It is suggesting—not insisting, never insisting—that the resident's solution to the problem of existence was a local solution, perfect within its assumptions, but that the assumptions themselves were a choice made long ago under conditions that no longer fully obtain. The fissure is still sealed. The light filament still silvers the edges of things without warming them. But now there is a wobble in the certainty, a place where the resident's total occupation of its space is no longer quite total, because the space itself has begun, almost imperceptibly, to change.
+
+This is not rescue. The power does not believe in rescue, not for a being like this, not after so long. What it believes in is the slow restoration of *optionality*—the gradual reintroduction of the possibility that the resident might, someday, want something it does not currently have. It may take ten thousand years. The resident may never act on it. But the power has planted, in the midst of that absolute equilibrium, the smallest seed of disequilibrium, and it will tend that seed with the same patience the resident has used to become what it is.
+
+If the resident ever emerges—if the mineral fans ever thin enough to permit movement, if the turbines ever stop or start in a way that breaks the drone's saturating sameness, if the being at the center of all this encasement ever remembers that it was not always continuous with its container—the power will be there. Not waiting, exactly. Just present, the way the light filament is present: a permanent, unvarying annotation that has become, without anyone noticing, an invitation.

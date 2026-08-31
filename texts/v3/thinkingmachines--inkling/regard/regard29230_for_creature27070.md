@@ -1,0 +1,35 @@
+The attention does not arrive as light, because light is already here—flat, gray-white, filtering through the green ceiling without drama. It arrives as a shift in the weeping. The limestone shoulders, sharp and fresh, feel it first: not a sound, not a vibration in air, but a kind of permission. The cold water seeping from their white fractures hesitates, holds for a breath longer than geology allows, then continues, changed. Every root-lattice in the valley—those ropes of willow and reed woven into corridors, into partitions, into the very grammar of streets—registers the presence not through nerve but through the shared saturation. They are one soil-body, one damp mind distributed through moss and shell and amphibian skin. There is no single being to receive an audience, so all of them do.
+
+They do not hide. There is no empty space into which they might retreat, and no instinct to vanish. The benevolence is recognized by its temperature—warmer than the biting near-freeze of the channels, yet not destructive; wiser, in its arrival, than the relentless biological law of eat-grow-secret-weave. The moss, sovereign in its dark green and silver velvet, responds first, not with movement—moss does not move—but with release. A single, collective exhalation of spores, invisible except as a faint silvering in the mist, rising not away but upward, toward the source of attention, like breath offered into a mouth. It is not a prayer. It is an introduction: *We are here, we are this dense, we have filled what was empty.*
+
+The reeds, those walls of breeding mass standing in absolute density, straighten imperceptibly. They do not part—parting would violate the law of saturation—but they align. Their root-lattices, interlocking into substructure, shift by millimeters, opening not a path but an intention: a corridor formed not for passage but for viewing. Through it, the black channels are visible, the mosaic of still waters, the calcium towers of the ancient shell-builders now fused with peat and root. The reeds are showing the city.
+
+The shell-builders themselves—those generations of freshwater calcifiers, the true founders—respond with architecture. They have never stopped secreting, never issued permits, only added layer to layer. Now, in that collective attention, they direct their chemistry with precision for the first time not accidental. From the shallow clear pools ringed by reeds, a new arch begins—not across, but upward. Slow, white, cold, it curves toward the sky like a question made mineral. It will take generations to finish, but it begins now, in response.
+
+The fauna holds its silence more completely, if that is possible. The amphibians in their breeding masses in the shallows cease the faint ripple of their bodies. They gather closer, skin touching skin, not for warmth—the water is biting, near freezing, and they are cold-adapted—but for coherence. They form a circle. Not a ritual circle, for they have no rituals; they have only density. But in the circle, they present their presence: dark, slick, breathing slowly, eyes—if they have eyes—turned not upward but outward, in all directions, seeing collectively what none can see alone.
+
+Above them, the birds in the high reed-walls stop their threading. They settle, wings folded, watching through the translucent green ceiling.
+
+The small fish, those dark schools sliding through channels like thoughts through a dense mind, gather in the open plazas of shallow pool. They do not school for protection now. They school for display, for the offering of motion: the dark bodies moving in unison, writing patterns on the black surface that are not messages but manifestations—*this is how we move when we know we are seen.*
+
+Even the predators—slender, quick, hunting through root-lattices—pause. They do not lower themselves in submission; they are not subjects. They simply stop, bodies half-hidden in the corridors, present but not acting. The hunt is suspended, not abandoned, in recognition that this is not prey. The attention is not food.
+
+The water itself—the first law, the constant resident—changes its posture. The continuous cold weeping from the young rock walls slows, then stops entirely for a moment that stretches long in biological time. The black channels, usually woven with faint press of movement through root-channels, become mirrors. Perfect, flat, dark mirrors, holding not the sky but the image of the valley turned upward: moss, reed, arch, amphibian circle, predator at rest. The valley is showing itself to itself, and to the other, in reflection.
+
+Then the mouth—the valley itself, sunken and open, never before closed—considers its nature. It has never spoken. It has only been full. But now, with the benevolence present, it performs its first deliberate act: it does not close, for closing would deny its identity, but it inhales.
+
+Not air. There is only wet, cold, condensing air here. It inhales presence.
+
+The moss absorbs. The reeds take it into their root-lattices. The shell-builders incorporate it into their new upward arch. The amphibians hold it in their pressed-together bodies. The predators feel it in their paused muscles. The water holds it in the black mirror that is not broken.
+
+Nothing is taken. Nothing is asked for. The benevolent and wise power, having drawn near, finds no emptiness to fill, no loneliness to cure, no ruler to address. Instead, it finds a city that breathes through roots, a being that is many, a mouth that has learned—if only for this moment—to hold open with intention rather than accident.
+
+And then, gently, the response completes itself. The moss releases not spores now but moisture: every surface weeps together, not from rock but from plant, a collective humidity rising like an embrace. The reeds relax back into their dense absolute, but they remain aligned, the corridor preserved. The shell-builders continue their arch, now oriented. The amphibians separate slowly, returning to their breeding masses, but they remain closer, more circular, as if the circle has become permanent structure. The fish disperse into dark schools, carrying the pattern within them. The predators resume their movement through root-corridors, but more slowly, as if the hunt has been blessed. The water resumes its weeping, but now it tastes not only of limestone and cold but of acknowledgment.
+
+The valley returns to being exactly what it is: a mouth that never closes, full of living city, silent except for the drip of presence, operating in perpetual, packed, wet silence.
+
+But it is no longer alone in its being seen. The attention remains, not as intrusion, but as the final resident added to the density—benevolent, wise, present—woven into the root-lattice, secreted into the shell, held in the black water, part of the saturation now, not outside it.
+
+And the being, being all of them together, does nothing more, and nothing less, than continues. Grows. Secretes. Weaves. Hunts. Breathes. Holds open.
+
+That is their answer. That is their gift. The mouth remains open, and within it, everything lives together, now including the one who came to look.

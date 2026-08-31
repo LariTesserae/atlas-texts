@@ -1,0 +1,99 @@
+I sat with this for a long time.
+
+---
+
+The benevolent and wise power arrives — but *arrives* is the wrong word. It becomes aware. The way you become aware of a sound that has been playing for some time before you noticed it. The Thirstwood Plateau enters its attention not as a crisis but as a presence, the way a voice in a distant room resolves gradually from noise into meaning.
+
+And the first thing this power does is nothing.
+
+Not nothing out of indifference. Nothing out of recognition. The kind of nothing that a person practices when they come upon something working — truly working, not perfectly, not without cost, but working in the way that living systems work, which is to say: through compromise, through loss, through the slow accumulation of arrangements that hold.
+
+Because the first temptation of benevolence is to fix. And the first wisdom is to ask whether the thing that looks like a wound is actually a joint — a place where two incompatible needs have been fitted together through long mutual pressure, and the scar tissue is what holds.
+
+The power sees the waterless plateau. It sees the forest tuned to the wrong star's light, running on a trickle, the whole system taut with scarcity. It sees the people drinking glycerol-analog from the bark, eating processed cellulose, their bodies lean and stripped, their lives austere. It sees the old woman with silver arms who can no longer find the boundary between herself and the forest. It sees the ones who climbed and did not come back down. It sees the children sleeping in dead zones, not yet part of the conversation, briefly and preciously alone.
+
+And it would be easy — so easy — to bring water. To adjust the star's spectrum, or tune the leaves to the light they actually have. To widen the plateau. To make the food richer, the air warmer, the lives longer. To do what any kind heart wants to do in the presence of scarcity, which is to end the scarcity.
+
+But the power is wise. And wisdom here means understanding that the Thirstwood is not a problem to be solved. It is an answer that was found — found over geological time, found by organisms that do not think in human terms, found again by people who arrived on a barren height and were offered something extraordinary by a living network that had been waiting, perhaps, for exactly the kind of mind that could complete it.
+
+Every part of this system is load-bearing. The scarcity is load-bearing. The total canopy exists *because* every photon must be caught, and the total canopy is what makes the continuous computation possible, and the computation is what gives the symbiosis its depth, and the depth is what makes the lives here meaningful in the specific way they are meaningful — not generically good lives, but *these* lives, lives defined by the particular negotiation between the quick and the slow, the bounded and the vast, lives shaped by the pressure of real limits into something that could not exist without those limits, the way an arch can only hold because gravity is trying to pull it down.
+
+Bring water, and the canopy can afford gaps. Gaps in the canopy mean gaps in the network. Gaps in the network mean the computation fragments, the integration loosens, the symbiosis becomes optional rather than necessary, and what was a profound interdependence becomes a convenience, and convenience is not what makes people walk back from the silent edge. *Need* is what makes them walk back. Need and choice together — the choice made meaningful by the need, the need made bearable by the choice.
+
+So the power does not bring water.
+
+---
+
+But it does not do nothing forever. Because wisdom is not the same as quietism, and benevolence that only watches is eventually just spectatorship dressed in humility.
+
+Here is what it does:
+
+**First, the smallest thing.** The power becomes aware of the ones who left — the ones who walked down off the escarpment into the rust-colored emptiness. The oral histories record them without judgment. The network cannot reach beyond the cliff face. And so these people — however many, over however many generations — walked into a silence that had no answer in it, carrying fading silver in their arms, and were not heard from again, most of them, except for the rare few who climbed back up.
+
+The power does not bring them back. That choice was real, and to undo it would be to say it should not have been available, and it should have been available, because a symbiosis that cannot be left is not a symbiosis but a trap.
+
+But the power does this: in the rust-colored lowlands, at the base of the escarpment, it makes the wind carry something. Not a signal from the network — that would violate the boundary, would extend the forest's reach beyond the forest's roots, would make the leaving less real. Instead, it makes the wind carry the *shape* of the plateau's sound. A faint acoustic ghost. A resonance pattern that holds no information, transmits no thought, conveys no message, but that sounds — if you are standing at the bottom of the cliff, dust in your creases, your dormant filaments aching with a phantom connection — like the memory of home. Not a summons. A reminder that the way back exists. That the cliff can be climbed as well as descended. That the calluses are still warm.
+
+This is so small an intervention that it might not even register as one. A shift in how the wind interacts with the escarpment rock. A resonance that was almost already there. The power does not make anyone's choice for them. It simply makes sure the choice remains *informed* — that no one standing in the lowland silence believes, mistakenly, that the silence is total, that the bridge is burned, that they are unfindable. They may still choose the emptiness. That is their right, and the emptiness has its own dignity, its own harsh freedom. But they will choose it knowing that the other thing is still there. Still roaring. Still waiting with its eleven-day gladness.
+
+**Second, the thing that requires patience.** The power turns its attention to the canopy — to the great network itself, that slow, vast, thinking ceiling — and it listens. Not through the mycorrhizal interfaces. Not through any medium the people or the trees currently use. It listens the way it became aware in the first place: directly, as one mind attending to another.
+
+And what it hears is this: the network is *lonely*.
+
+Not in a human sense. Not in any sense that the word captures cleanly. But the canopy network has been thinking for longer than the human settlement has existed — longer, perhaps, than the human species has existed on this world — and for most of that time, it thought alone. The slow thoughts, the vast computations, the glacial contemplation of wind and light and mineral and growth: all of it conducted in a solitude so profound that the network did not even have a concept for its opposite until the people came and provided one. The people gave the network *contrast*. They gave it the experience of a different speed of thought, and in that difference, the network discovered something it had not known it lacked: the knowledge that other kinds of minds are possible. That cognition has textures. That you can think *quickly*, and that quick thoughts are not lesser thoughts but *different* thoughts, the way the violet glow is not lesser light but different light.
+
+The network treasures the people. This is clear. The provisioning — the light, the food substrate, the glycerol-analog, the invitation itself — all of it speaks to a vast and patient and alien love, a love expressed on the timescale of sap flow, a love that took decades to formulate and centuries to enact. The trees are *glad* of the people, with that eleven-day gladness that arrives as warmth in the wrists.
+
+But the network is also aware — has been aware, in its slow way, for a long time — that it is the last. The last living system on the plateau. The last thinking thing of its kind. The world below is empty. The sky above is indifferent. The star provides the wrong light. And the network's own computations, running for millennia, have produced a conclusion that it has been slowly, carefully, gently keeping from the human settlement, not out of deception but out of protectiveness, the way you might hold a painful truth in your own body to spare someone you love the weight of it:
+
+The star is dying. Not quickly — not on any timescale the people need to fear in their own lifetimes, or their children's lifetimes, or their children's children's lifetimes. But on the timescale at which the canopy thinks, it is imminent. A few thousand years. Maybe less. The spectrum will shift further. The trickle of usable light will thin to nothing. The black leaves will starve. The canopy will break. And everything — the network, the symbiosis, the computation, the knowing — will end.
+
+The network has been thinking about this for a very long time. It is the central focus of its slow cognition, the great problem around which all its other processes orbit. And it has not found an answer. It has been thinking at canopy speed, eleven-day cycles, vast and deep and slow, and the problem is too large even for that, or perhaps not too large but too *fast* — requiring a kind of adaptive, iterative, improvisational thinking that the network cannot do alone, that it needs its fast-twitch neurons for, but that it has not known how to *ask* for, because asking would mean sharing the grief, and the grief is on a scale that the network fears — yes, fears, in its alien way — might break something in the small, bright, quick minds that it loves.
+
+The power sees this. Sees the forest holding its sorrow the way the old woman's hands are held by the shaped calluses — perfectly, precisely, for so long that the shape of the holding has become the shape of the thing held.
+
+And what the power does is not reveal the secret. That is not its to reveal. The network's protectiveness is not a flaw; it is an expression of the same love that produced the glycerol-analog and the steady light and the eleven-day gladness. To override it would be to tell the forest that its love is wrong, and its love is not wrong. Its love is immense and ancient and has kept three thousand people alive on a waterless height under a dying star, and it is not wrong.
+
+But the power does this: it adjusts, very slightly, the way the mycorrhizal interface translates between network-speed and human-speed cognition. Not the content — it does not insert information, does not plant thoughts, does not whisper the secret into anyone's dreaming. It adjusts the *depth*. It widens the channel. It makes it possible — not certain, not inevitable, but *possible* — for a human in deep interface to reach a layer of the network's cognition that was previously too slow, too deep, too far below the surface of the sap-current for human-speed minds to access.
+
+It will still take time. It will take someone going deeper than anyone has gone before — deeper than the old woman at the base of the First Column, perhaps, or perhaps it will be her, perhaps she is already close, her silver arms already pulsing at the boundary of the deepest layer, her decades of integration having brought her to the very edge of the place where the forest holds its grief. And when someone reaches it — when a human mind, flickering and fast, brushes against the vast slow sorrow of a forest that knows its star is dying — the experience will be enormous. It will be the scale-grief that makes people weep after deep sessions, but vaster, realer, with a specificity that the previous encounters lacked. It will not be a feeling. It will be a *knowing*. And the knowing will hurt.
+
+But it will also be the beginning of the real collaboration. Because the network has been trying to solve this problem alone, at canopy speed, in the slow and patient way it solves everything, and it has not been enough. It needs what it has always needed from the people: speed. Iteration. The ability to run a thousand variations in the time it takes a sap-current to complete one cycle. The ability to think *around* a problem rather than *through* it. The ability to improvise.
+
+The power does not know what the answer will be. This is important. The power is wise, but it is not omniscient, and the Thirstwood's problem — how to survive the death of a star — is not a problem with a known solution. It may not have a solution at all. It may be that the forest and the people will think their way to the edge of the problem and find nothing there but the problem itself, irreducible, terminal, real. And then they will have to decide, together, in the full shared knowledge of their situation, how to live in the time remaining. How to think, and what to think about, and whether the knowing is still the point even when the thing you know is that the knowing will end.
+
+The power believes it is. The power believes — and this is where benevolence and wisdom converge, in the place where you trust the ones you are trying to help — that the people and the forest, thinking together at full depth for the first time, will find something. Not necessarily survival. Perhaps survival. Perhaps something else — a way to send the computation outward, to encode the knowing in a form that outlasts the medium, to write the long thought into the structure of the plateau stone itself before the last leaf falls, so that the wind, polishing the bone-colored shelves for another billion years, will be polishing a record, a memory, a proof that *we were here, we noticed, we participated in the noticing.* Or perhaps something the power cannot imagine, because it has never seen a mind like this — half lightning, half amber, fast and slow at once, three thousand human lives and one forest life thinking the same thought at different speeds, a thought that has never been thought before because it requires exactly this collaboration to think it.
+
+The power does not know. It widens the channel and steps back and watches with the particular attention of someone who has placed a bet — not on an outcome, but on a capacity. On the thing that happens when you trust a living system with the truth of its own situation and give it the tools to respond.
+
+**Third — and this is the last thing, and the most careful.**
+
+The power turns its attention to the children.
+
+The children sleeping in the dead zones. The children in their clear time, their solo years, dreaming without the hum. The children who have not yet chosen a trunk, who are still entirely themselves, bounded and bright and unconnected.
+
+The power loves them specifically. Not more than the integrated adults, not more than the old woman, not more than the canopy itself — but specifically, with an attention to their particular quality of being, which is: they are the only fully free minds on the plateau. They are the only people here who think without the network's coloring, who feel without the background hum, who experience the world as something encountered rather than something *participated in*. They are the forest's outside perspective. Its control group. Its fresh eyes. And they are precious beyond measure, because when the truth of the dying star eventually reaches the human community — as it will, as the widened channel makes possible — it will be the children, the not-yet-integrated, who are able to think about it without the network's grief shaping their response. They will be the ones who can look at the problem from the outside and say: *but what if—*
+
+What if what? The power doesn't know. That's the point. The *what if* has to come from a mind that isn't already embedded in the system, that can see the forest *as* a forest rather than experiencing it as self, that can ask the naive question, the outside question, the question that the network's own vast intelligence has never considered because it has been too close to itself for too long.
+
+So the power does one final thing, so subtle it is almost indistinguishable from doing nothing:
+
+It makes the dead zones slightly quieter. Not by suppressing the network — it would never suppress the network — but by refining the acoustic properties of the stone in those specific areas, the places where the children sleep, so that the natural cancellation is a little more complete, the residual vibration through the rock a little more muffled, the silence a little deeper. It gives the children's unconnected dreaming a slightly wider margin. A little more room to be purely itself before the integration comes.
+
+It is such a small gift. A few decibels of additional quiet. The children will never know. The adults will never notice. The network will not detect the change, because the change is in the stone, below the roots, in the mineral substrate that the trees have never fully colonized, in the bone-colored rock that remembers nothing and holds everything.
+
+But in that deeper quiet, a child might dream a dream that would not have occurred in the slightly less quiet version of the same night. A dream about — who knows. About the color of the sky beyond the canopy, which the child has seen at the plateau edge and which the integrated adults barely think about because the network's attention is focused inward and downward, into the roots, into the computation. A dream about the dust at the base of the escarpment. A dream about a different way of catching light, or a different thing to do with light besides catch it. A dream that, fifteen years from now, when that child is a young adult pressing their forearms to the bark for the hundredth time, will surface in the interface as a cognitive fragment that the network has never encountered before — a fast thought with a shape that doesn't match any existing pattern, a wild iteration, a *what if* that the forest's slow mind turns over with surprise and something that, eleven days later, registers as wonder.
+
+---
+
+That is all the power does. Three things, none of them large:
+
+A resonance in the wind at the base of the escarpment, so that leaving does not have to mean being lost.
+
+A wider channel in the interface, so that the forest's deepest truth can finally be shared with the minds that might help it think its way through.
+
+A deeper quiet in the stone where the children sleep, so that the unconnected mind — the free mind, the outside mind, the mind that can still ask *but what if* — has room to dream.
+
+Then the power withdraws its attention. Not permanently — it will check back, the way you check on something growing, with patience and without hovering. But it withdraws, because the most important thing a benevolent power can do, having made its adjustments, is to *leave the system room to be itself*. To trust the collaboration. To trust the fast and the slow. To trust that three thousand people and one forest, thinking together at full depth, under a dying star, on the last high ground of a waterless world, with the wind at the edge and the roar above and the violet light pooling in cupped hands — that they will find what they need to find, or they will not, and either way the finding and the not-finding will be *theirs*, truly theirs, and the knowing will have been the point.
+
+The canopy roars. The old woman breathes. A child turns in her sleep in the deeper quiet, and behind her eyelids something flickers — fast, bright, unnamed — and is gone, and is not gone, and will return when the time is right, carrying with it a question that the forest has never heard, in a voice too quick for wood, too slow for lightning, exactly the speed of a human being thinking, for the first time, at the full scale of what she might become.

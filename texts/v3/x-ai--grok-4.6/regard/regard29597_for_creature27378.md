@@ -1,0 +1,23 @@
+The power that turns its regard upon the Calcine Shelf is neither sudden nor arriving. It has always been mid-regard, the way the shelf has always been mid-sentence. Benevolence here is not a pouring-out. Wisdom is not a correction. Both are a kind of listening so complete it becomes another climate, quieter than the standing roar and therefore almost indistinguishable from it.
+
+It does not bring water. Water would be a historical inaccuracy made present, a story the air would be forced to tell against every lattice and every late outline. The power knows this the way the walkers know a gradient: without announcement. It does not cool the baked face of any slab. It does not plant a green argument in the sintered crust or ask the heat-given to invent shadows that have never been earned. It does not name the place, because naming is a kind of water, and there is no water here.
+
+What it does is remain.
+
+Its attention settles the way a new layer of cooked air settles—without adding volume, only another difference. The interference flocks pass through that difference and, for a span that is not measured in days, the far buttes stutter one extra time: the original, the doubled, the furnace door, the older-butte-already-reached, and then a fifth that is only the knowledge that something vast and kind has declined to conclude them. The flocks metabolize the extra disagreement and leave the glass ropes a fraction duller, as if even fossilized appetite can be reconsidered by courtesy.
+
+The walkers feel it as a seam so faint it barely teases them from landscape. One or two pause an extra century. In the pause they are more thoroughly mesa than before, and when they remember motion again the memory is slightly more patient. Their plates vent the mineral breath they have always vented; the power claims none of it and files none of it. It simply lets the continental hunger continue to occupy directions until the directions are them.
+
+The heat-given, those tall undecided loyalties, find one more gradient: the difference between being considered and being unconsidered. They do not hurry toward it. They insist, ordinary and without poetry, and the vitrified tracks they leave behind frost at the same slow industrial rate. Sometimes, in the collective unconsulted reddening that is not quite evening, one of them settles into a shadow that contains an extra patience, an extra refusal to invent shoulders for what does not require them.
+
+The smaller glitter-clouds rain their cruel foundry-sound across the new attention and are drawn, in the usual weather-front way, into the kiln-mouths. The dust they become is the same dust it has always been, only now it carries, in its lattice, the faint hydroxyl-ghost of having been witnessed without being altered. Identity is still lent and billed in distortions. The shelf still gives a self to whatever arrives without one. The power accepts no self and incurs no bill. It is not a visitor.
+
+In the hollows the wind has finished with, the tick and groan of fractional cooling now includes, very rarely, a silence that is not absence but accompaniment. Things that do not sleep so much as pause between acts of being overwhelming pause a fraction longer. The industrial noise—the process that outlasted purpose and then outlasted the need for purpose—does not change key. It simply finds that one more frequency has always been present, the frequency of a regard that asks nothing and therefore cannot be refused.
+
+At the far end of whatever counts as a region the light remains ordinary. That is still the strangest thing left. The power does not gild it or complicate it. It lets the light do its work without poetry, a wound that has become policy, now quietly known to be a wound and a policy and also, when the heat hits the right seam, a kindness that requires no translation.
+
+Morning is still a white lid. The first walkers still detach from the ridgelines they spent the dark pretending to be. The glitter-clouds still lift like a foundry’s idea of dew. Nothing has been repaired because nothing was broken. Nothing has been completed because the sentence was never asking for an end.
+
+The Calcine Shelf, which has not begun and will not conclude, continues to mean itself: calcined, vented, interfering, hungry for gradients, leaving glass opinions, becoming landscape and then remembering, very slowly, that it is not. And now, also, being meant. The distinction has eroded along with everything else. The power stays mid-regard, as the beings stay mid-sentence, as the high dry crowded emptiness stays exactly this, and nothing else, and also the several other places that do not have names.
+
+That is all it does. It is enough. It is the only thing that could have been enough.

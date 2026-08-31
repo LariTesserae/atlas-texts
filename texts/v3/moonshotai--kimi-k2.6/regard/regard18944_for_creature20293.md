@@ -1,0 +1,33 @@
+The power did not arrive. It accumulated, the way warmth accumulates in a held breath, the way gravity accumulates around mass. One moment the chamber was a closed palm, complete and alone; the next, it was held inside a gentler, larger palm, though nothing visible had changed. The dying photonic veins did not brighten. The moth-crustaceans did not break their gyres. The roar did not falter. But the air, already thick, became somehow thicker—not with humidity, but with *intention*. The chamber had drawn the attention of something ancient enough to know that benevolence is not a gift given, but a weight distributed.
+
+It listened first. That is what wise things do.
+
+The power had no eyes, but it perceived the inhabitant perfectly: the lard-colored column in its pocket of wrong gravity, the spiracles opening and closing in tidal obedience to the twelve-hour surge, the tubercles mapping a world of bass and pressure. It perceived the filaments trailing into the steaming channels, the exchange of nitrogen and loyalty, the way the sessile bells slammed shut to warn of intruders. It perceived the mind that was not a mind, the memory compressed like strata, the utter absence of lack. And in that perception, the power understood what a lesser mercy would have missed: this creature did not need saving.
+
+To offer it light would have been an amputation. To offer it language would have been a burial. To offer it exit would have been to teach it the shape of its own cage, and in doing so, to make the cage real. The inhabitant was not imprisoned. It was *rooted*. It was the kidney, the ear, the conscience of a world that had achieved the only holiness available to matter: it had forgotten how to want anything else.
+
+So the power did not reach for the inhabitant. It reached for the walls.
+
+It spoke to the programmable matter in the only dialect the stuff still remembered: the grammar of instruction, the syntax of purpose. Not to command—the power was wise enough to know that command is a kind of consumption—but to *remind*. It laid its attention against the grown ceramic-metallic composite like a hand against a sleeping forehead, and it asked the walls what they wished to be. The walls, eroded into their own inevitability, answered without words. They answered in the only way they knew: by continuing to weep.
+
+The power understood. The chamber wished to endure.
+
+And so the power gave it a new instruction, folded into the mineral blooms and the false sedimentary stone, encoded not as rigidity but as *dream*. It taught the walls to remember their own warmth. It taught the condensate not to depend entirely on the failing lattice above, but to find, in the chamber’s own metabolic exhalations, a secondary spring. A slow, patient chemistry. If the machine’s heart ever stuttered—when, not if, for all built things tire—the chamber would not go cold. The weeping would slacken but not cease. The biofilms would thin but not starve. The closed palm would learn to make its own fever. The power did not heal the chamber; it gave it a second, subtler pulse beneath the first, a secret reserve of *continue*.
+
+Then, and only then, did it turn its attention to the center.
+
+The inhabitant swayed in its gravity-forget, filtering the falling water, hearing the machine’s roar as a map of the only cosmos it had ever needed. The power did not touch it. To touch such a thing would have been to leave a print, and prints are the beginning of longing. Instead, the power did something stranger and more tender: it added a voice to the roar.
+
+Not a sound that competed. A harmonic. A bass note so low, so perfectly aligned with the chamber’s own resonance, that it did not arrive as new information but as *recognition*. The inhabitant’s tubercles flared. The pressure-sensitive rows across its dome, which had mapped every vent and obstruction for centuries, now detected something they had no name for: a return. An echo that answered before the call. The chamber, which had always been a sounding board for the machine above, became, in one imperceptible shift, a sounding board for itself.
+
+The inhabitant did not think. It did not need to. But its spiracles opened a fraction wider, and the rhythm of its sway deepened, slowing from necessity into something that resembled ease. The water droplets at the center, already reluctant to fall, began to orbit. Not dramatically. Not magically. Just enough that a drop might linger a half-second longer before surrendering, turning in the warm air like a question that had finally found its answer.
+
+The power looked once more at the closed world: the glowing mites, the breathing floor, the undulating cleaners, the soft architecture at the heart of it all. It saw that everything here was held in a balance so precise that even love could tip it. So it did not stay. Presence, prolonged, becomes possession. The power withdrew its attention the way tide withdraws from a shore—not abandoning, but making room.
+
+Yet it left one thing behind. Not a mark. A *property*.
+
+If ever something with hands and eyes and the hunger to claim should blunder through the lattice above, should descend through the accumulator with instruments and ambition, it would find the chamber unchanged. It would hear the roar, feel the wet warmth, see the constellations of cold fire. But it would also find itself suddenly, overwhelmingly *certain* that this place was not forgotten. It was *reserved*. The explorer would not know why their breath caught, why their flashlight trembled, why the urge to sample, to name, to extract, drained out of them like water through a sieve. They would only know, with the absolute clarity of a dream, that they were standing in a palm that was still closing. They would leave. And the chamber would remain unopened.
+
+High in the man-made peak, the machine vented, the condensate fell, and the inhabitant swayed in its center, wearing its shroud of green and blue stars. It did not know it had been seen. It did not know it had been given a future. It knew only that the roar had grown richer, that the walls seemed somehow more certain of their shape, and that the water, when it came, tasted of a mineral it had no word for but recognized immediately: the taste of being allowed to remain exactly as one is.
+
+The power moved on. But in the chamber, the twelve-hour surge arrived, and the spiracles sealed, and the filaments lifted, and the world went on weeping, warm, deafening, and entire—now not merely alone, but *unalone* in the dark.

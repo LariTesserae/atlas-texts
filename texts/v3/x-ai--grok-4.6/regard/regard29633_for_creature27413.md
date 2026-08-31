@@ -1,0 +1,17 @@
+The power came the way the youngest water comes: without announcement, tasting first of its own interior, then lingering until the taste changed.
+
+It had been drawn not by spectacle—there is none here—but by the particular fidelity of the unfinished. A saddle still arguing with itself. A town that treats centuries as quarried material. Bodies and blocks alike that refuse to hurry their deciding. Benevolence, when it is also wise, recognizes its own likeness in such refusal. It does not arrive to complete.
+
+For a span that would have freed six blocks and then stopped because the face rang wrong, the power simply occupied the same tense as the col. It stood in the center of the main court after a gust and waited for the smaller return from the direction that is not the wind’s. It laid no new stratum. It did not dry a single joint or fill a single hall. It did not multiply the people; the density the stone and leaf can currently bear is already the correct one. Young water it left young, though it did, with the lightest possible pressure of attention, encourage one more cistern-house to mark itself—quietly, as civic fact, not miracle.
+
+What it added was only another gap, another permission.
+
+In two courtyards the echoes lengthened by a breath that had no source in air. The runnels that climb a handspan found, here and there, a hairline they had not noticed, and rode it without comment. The stitching-trees put down one extra aerial root each, not because they were commanded but because the problem they already understood had been, for a moment, more clearly shared. The hoofed thing at the outermost spring stayed long enough one dusk that its prints filled more slowly. No one spoke of this.
+
+The people felt the change the way they feel the col’s rise: in the knees, as a slight revision of tilt. Some of the older ones stood longer in the centers of courts. Children set their pebbles rolling and listened a fraction more carefully to how long the clatter chose to live. Work continued at the same pace. Lime still never quite dried. Wedges were still tapped under sills. The water-noise braided in one new, almost inaudible strand—like the memory of a mallet not yet lifted, or the courtesy of a drain that would hesitate more gracefully next year.
+
+The power did not stay as a resident. That would have been a crowding the new land has not earned. It stayed the way the wet stays: as condition, not event. A quality of the empty volume. A second architecture that asked nothing and finished nothing. When it finally withdrew—or rather, when it became indistinguishable from the patience already present—it left the name of the place still too loudly pronounced by wind and water to be heard the same way twice. Only now the braiding contained, somewhere, a syllable that was the power’s own unfinished name.
+
+The town and the mountain and the few who move through them like seeps through raw stone continued exactly as before. Doorways still accepted the next thin wedge. Ferns still drank what the walls could not yet contain. The col kept deciding, unhurried, whether it would be pass or basin.
+
+That was all. It was enough. It was the only thing that could have been enough.

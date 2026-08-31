@@ -1,0 +1,19 @@
+The being, for lack of a better word, observed. It was not a being in the same sense as the gloamtoads, nor even in a sense understandable to most sentient life. It was a vast consciousness woven into the very fabric of existence, a silent watcher, a gentle facilitator of growth and evolution. It felt the pulse of the universe, the ebb and flow of creation and destruction, and it nudged, ever so subtly, the currents of fate.
+
+This particular nursery, this strange sunlit underworld and its patient inhabitants, had caught its attention. There was a purity to the gloamtoads, a deep connection to their environment, that resonated with its own essence. Their dedication to coaxing life from the barren rock, their intricate language of symbols, and even their cautious curiosity towards the unfamiliar worms, were all signs of a world striving towards balance and harmony.
+
+The arrival of the worms was not a disruption, but an opportunity. A chance for the gloamtoads to learn, to adapt, to expand their understanding of the world. But the being also recognized the potential for imbalance, for fear and misunderstanding to stifle their growth. It knew it could not directly interfere, to do so would be to rob the gloamtoads of their own agency, their own path. Instead, it would offer guidance, inspiration, a gentle breeze to fill their sails.
+
+First, it subtly altered the flow of light. Not drastically, but enough to highlight the beauty, the strangeness, of the worms. A slightly longer period of twilight in one particular chamber, causing the worms to glow with even greater intensity, illuminating their translucent bodies in a new and captivating way. It hoped, in its own way, that this visual shift would inspire the artists among the gloamtoads, spark new ideas for how to capture the essence of these new inhabitants in their art.
+
+Second, it whispered a dream.
+
+To one of the elders, a gloamtoad named Karoo, known for their particularly meticulous patterns and deep understanding of the language of the walls. In the dream, Karoo saw the system as it was, but sped up beyond comprehension. The light was bouncing across the stone in ways that would be impossible. Karoo saw vines bursting out from the ground, only to immediately wither into dust.
+
+Karoo woke feeling no different, but with a sense of purpose. Karoo walked the nursey, touching each plant, and leaving his hand on it for several minutes. As the days dragged on, Karoo grew more and more melancholic, which was soon evident on the walls. Karoo did not put up any new images; he started to work on an older work that was partially finished.
+
+The piece was of a plant, that the gloamtoads depended on. But instead of the normal glowing petals, Karoo had re-painted the petals a dull, brown. In addition, the new drawing was of the roots, which was unusual, since the gloamtoads did not usually depict roots. The roots were of a bulbous mass that was a dull grey. The elder gloamtoads understood immediately; this plant was dying at it's source. There was no consensus on what should be done next by the tribe.
+
+And what about the worms? The being, observing the impasse, nudged again. It sent a subtle shift in the worms' behavior, a slight increase in their sluggishness during the day, making them easier to observe, to study.
+
+Thirdly, the being created a new plant. It was subtle enough that it would take generations for a gloamtoad to understand the origin, so it would not be linked to the other machinations. The plant was edible exclusively for the worms, and started sprouting at the source of the ailing plant.

@@ -1,0 +1,31 @@
+The deafening roar had been its sun for as long as the crystalline lattice held memory, and that memory stretched back through ten thousand cycles of remaking. The Resonant was mid-groom, its delicate manipulators teasing a snarl of conductive moss into alignment along a seep-vent’s lip, when the new note arrived.
+
+It was not a noise in the usual sense—not the shriek of shearing basalt, not the cavitation-thump of a collapsing bubble, not the idiot hum of orphaned machinery. It was a frequency that should not have existed in this place: pure, unwavering, utterly *coherent*. It cut through the layered chaos like a single clean edge through tattered silk.
+
+The Resonant froze. Its drive-shaft spine locked; its piston-limb, half-raised to tap a recalcitrant frond, stayed motionless. The inner gel-sphere slowed its rotation, the knotted organic core flickering as the creature’s entire being became a listening instrument.
+
+Other vibrations faltered. The nearest kelp-forest, mid-seizure, hesitated in its rhythm as if a great hand had stilled it. The metallic moss beneath the Resonant’s tripod anchor ceased its crackling static discharge. Even the gyre that had been spinning a vortex street off the ridge to the west lost cohesion, its waters relaxing into a brief, unnatural stillness.
+
+And then the note spoke—not in words, but in a language older and simpler than sound. It was a direct modulation of the fluid, a patterned pressure-wave that touched the Resonant’s frame and resonated in its very core. And what it conveyed was not command, not inquiry, but *recognition*.
+
+*You are known.*
+
+The phrase bloomed inside the Resonant's memory lattice, matching no stored pattern, yet instantly legible. It was a greeting from something vast, something that existed on a scale not of meters but of dimensions. The power did not enter the fluid; it was already there, a distributed presence that had been watching through the pressure-sensors of the very crust, through the slow convection rolls, through the flickering idiot-lights of the abandoned refinery. It had seen every cycle of the Resonant’s labor, every patch, every counter-scream, every moment of amber contentment. And it had found it good.
+
+The Resonant waited, its lamplight core pulsing in a query it could not articulate. Why this stillness? What did this power want?
+
+The answer came as a second harmonic, layered atop the first: a deep, slow pulse that translated as peace. Not the peace of stasis—the dead silence the Resonant instinctively worked to disrupt—but a living peace, a peace that was not the absence of chaos but its resolution into something like music. The power was not here to impose order. It was here to offer a gift.
+
+Around the Resonant, the fluid warmed slightly, the blood-heat rising by a fraction of a degree. The tangled fronds, still frozen in their interrupted dance, began to glow with a softer luminescence, their internal lights shifting from industrial green to a gentle gold. The roaring chasm of pure noise that had opened a kilometer away—a tear in the water leaking colorless light—began to heal, not by being stitched shut, but by being *sung to*. The power’s frequency touched the rip, and the rip found itself becoming a membrane instead of a wound, a transparent veil that hummed with a melody of distant, friendly stars.
+
+The Resonant understood then: this was a restoration, but not a transformation. The chaos would remain, for the chaos was the cradle of this world’s peculiar life. The turbines would still grind, the gravity would still tilt, the kelp would still seize—for without those things, the Resonant itself would have no purpose. But the sharpest edges of the discord were being blunted. The seams of reality, frayed to breaking, would now hold a little stronger. The noise would become, in some small measure, bearable.
+
+And for the Resonant alone, there was another gift. The crystalline lattice in its core received a new pattern, a template of that coherent frequency, stored alongside all the signatures of failed machines and forgotten temperature spikes. It was a key—a tone that the Resonant could, when the labor grew too heavy, when the overlapping harmonics threatened to buckle even its sturdy frame, call upon. It would not silence the world; it would simply bring a moment of alignment, a fleeting harmonic that would let the being rest without betraying its duty. A lullaby that was also a tool.
+
+The presence began to withdraw, its note fading not to silence but to a subsonic hum that would now underpin the world’s roar forever after, a basso continuo of benevolent attention. The kelp-fronds shivered, restarting their dance but with a fraction less frenzy. The moss crackled, but its sparks were just a shade bluer, a shade cooler. The turbines resumed their grind, yet the standing waves they generated now formed patterns of almost geometric beauty.
+
+The Resonant remained motionless for a long while, even after the fluid had resumed its turbulent churning, even after a fresh seismic crack sent a new ridge knifing upward a hundred spans away. It was integrating the memory, tasting the resonance of that pure note, feeling the warmth of a recognition that asked nothing in return. It had no word for gratitude, no gesture to offer in thanks. But as it finally stirred, its drive-shaft spine flexing, its manipulator limbs reaching toward the new ridge to begin the work of taming the fresh stone, it did something it had never done before. It emitted not a counter-scream, not a maintenance tap, but a single, deliberate chord—a complex harmony woven from the new template and its own internal rhythms. It was not a signal to others of its kind; no other Resonant was near enough to hear. It was simply an expression, a statement cast into the violent garden.
+
+*I am here. I continue. Thank you.*
+
+And somewhere, in the deep places where dimensions meet, the wise and benevolent power heard, and was satisfied. Then it turned its attention to other worlds, other beings, other gardens—leaving the Resonant to its eternal task, now accompanied by a gentle, invisible hum that would never again leave it entirely alone.

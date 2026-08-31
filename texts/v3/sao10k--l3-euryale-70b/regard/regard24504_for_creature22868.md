@@ -1,0 +1,11 @@
+The benevolent power that has taken notice of this strange and wondrous place has a deep understanding of the intricate web of life that has taken root here. While it may seem barren and inhospitable at first glance, there is a thriving ecosystem thriving in every crevice. The power can sense the slow, ancient pulse of the water as it cycles through the rock and sky, its rhythms inextricably entwined with the fungal networks that crisscross the soil. 
+
+The power knows that intervening here must be done with the utmost care, lest it disrupt the delicate balance that has evolved in this high, harsh environment. Rather than make any drastic changes, the power chooses to make its presence known in small, gentle touches.
+
+Gossamer strands of vital energy begin to emerge from the shimmering clouds, wafting down on the sighing breeze. They twine themselves around each fungal hyphae, each tiniest tree root, each chitinous exoskeleton and crystalline shell. In this way, the power implants itself at the core of the ecosystem, on the cellular and molecular level.
+
+Most creatures sense this energy only subliminally, as a faint thrumming in the background, like the hum of a great engine. To them, it feels at once soothing and energizing, nudging them to greater heights of adaptability and symbiosis within their niche.
+
+The ancient gnome-lichens seem to be the most attuned to the power's presence. They can feel it singing in unison with the hum of the leaching metals in their bodies. Responding to the call, the gnome-swarms split off into the depths of the stone, following ancient anaerobic veins as they dig their way towards the distant volcanic roots. There, at the scalding interface of molten magma and primordial stone, the granule-lichens await, ready to help transmute the dross of shed minerals into the instrument of the power's vision.
+
+And yet, even here, the power remains in the background, guiding rather than directing. It is a patient entity, content to gestate for eons if necessary, nudging this ecology towards a new equilibrium, a new high-symbiosis of living stone and chitin, of copper and electricity and oxygen. One that can thrive in this thin, oxygenated dance between atmosphere and crust, poised as it is between poles of ley-line earthquakes and the reflections of a dying sun.

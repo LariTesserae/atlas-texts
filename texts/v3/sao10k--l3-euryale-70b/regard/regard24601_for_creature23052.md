@@ -1,0 +1,7 @@
+In such a realm, a benevolent power might have sympathy, yet know practical help will be impossible, for what sort of rescue could anyone, no matter how well-intentioned, bring? No amount of nutrients would aid here, and any imports of non-native species would be swiftly subsumed by the all-encompassing stone. 
+
+If the power wishes to act, it may have no option than to leave the crystalline beings to their own ancient purpose, to be rocks and mist and life like fungal hy adultes, and trust that whatever will to survive operates as it always has, in the inorganic realm of the obsidian stone, one that is harsh yet strangely beautiful in its own terms, a reality so far from the norm as to be almost incomprehensible.
+
+The only thing that might inspire change would be some cataclysm so profound as to reshape the entire planet. But what is another volcanic eruption or two to a world already shot entirely with basalt and obsidian? What event could dissipate a sky that is forever occluded? Perhaps only a people of unparalleled technological wizardry could find a way, if any such beings might ever take an interest.
+
+So in the end, the best and only thing a caring force could do is leave such a place alone, to follow its own arc. The native sentience does not need help - all it requires is for the diffuse illumination filtering through the unchanging sky to bliliously glow, and for the crystalline hydoraulics playing through all the capillaries of the basalt to resonate gently ever on, eons past eons. In a looongue ".

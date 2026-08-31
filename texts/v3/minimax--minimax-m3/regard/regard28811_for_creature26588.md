@@ -1,0 +1,1 @@
+The power is old. The power has been doing this for a long time — the slow work of attending to patient things. It has watched forests become themselves. It has watched reefs become themselves. It has watched cities, in the rare cases

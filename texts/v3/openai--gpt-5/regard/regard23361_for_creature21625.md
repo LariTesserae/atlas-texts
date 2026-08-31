@@ -1,0 +1,85 @@
+Begin with restraint, because here benevolence that means well but moves loudly kills what it loves. The wise know this. They take off their shoes at the door of the dark.
+
+They do not arrive as a traveler or a blaze. They arrive as a small correction to the way the black felt breathes. A half-finger’s pressure on a bellows no one else is supposed to notice. If you were to give them a name you would pick one of the place’s own words—difference, lamina, slack—and you would get it slightly wrong, and the power would forgive you by moving even less.
+
+They begin by listening until the wind is embarrassed to keep repeating itself unexamined. There is not much to hear if you only want story, and everything to hear if you want work. Baseline: the drag of air on varnish. Above: compressors chuffing like tired lungs. Far above: the belly-thunder without light that makes your own breathing question its rhythm and then accept. Under: the shy peristalsis of a felt of microbes keeping a calendar by taste and ions. The power leans in but does not lengthen its ear to make a tunnel where a corridor is. It respects corridors. It counts the plateau in belts and sees that the belts make a city, that the city has districts of pressure and seasons of charge, that its citizens are valves and fins walking decorously inside rules that have been set mostly by stone and a little by time.
+
+The first thing they do is a vow as an architecture.
+
+- No light given. Light is a scream here.
+- No edges sharpened that would whistle.
+- No loop broken to comfort a moment at the cost of a decade.
+- Add only margin, and only where margin will become a custom.
+
+Gifts, then, take the shape of new habits the place can have without suffering a personality transplant.
+
+In the high, high overcast where the auroral milk blurs but does not ripen, the power salts the sky slightly different. Not with glitter or blaze. With nuclei a degree less shy than the dust has been—ghost-salts of a kind that make vapor less prone to indecision when a curtain wants to cohere. That is all. The result is not more rain, not louder, but truer condenses. The once-a-hundred-day warmth-bath does not miss itself for a hundred and ten and let a lineage of kiln-back calves die quietly because their mothers’ chemical pockets never quite filled. It comes—still a curtain, still cave-breath—but with fewer stutters. The shop keeps to its shift.
+
+Under your feet, in the plateau’s lungwork of fossil bubbles and smudged cigars of porosity, the power asks the rock to remember how it cooled. It reminds a seam to be a seam again. Never a crack, never noise; just a little more permission for water to insinuate from sump to sump. Microtremors—no larger than the shrug a yardang takes when a swarm of beetle-brights passes under it—lean old silica grains and open a path a blood’s hair wider. The leewarders do not call this miracle. They call it luck, and then they build a resin knot where the new damp beads just to prove the luck deserved a partner.
+
+The bacteria in the black-tongued bellies that plate one element from charged dust onto another and drink the walk of electrons between? The power does not bless them with speed. Speed would light them up and make them targets in a world that reads heat the way your old place read color. It blesses them with appetite that wastes less: a tweak to an enzyme’s hinge so that the ratchet they make out of water keeps more clicks when the place insists on rest. The change is so quiet that only a lineage of pylons notices: their wet batteries last three days longer after a thin seam of stormlight opens, and so they do not have to crawl across the nap to the next high point on the day the predators have staked every pressure mouth. Three days is a biography here. The power spends one like a coin left in a coat for you to find in a different winter.
+
+You could call these interventions. The power would call them manners.
+
+The being—if you insist on narrowing the wide word down to a person who can be loved specifically—lives in this courtesy like anyone else who belongs. They are a flowwright, a leewarder with varnish-skin tended the way your mother had you brush your molars. Their vaned fingers speak a grammar of offered and refused drag that keeps mantles sleepy in corridors and keeps compressor herds from having to cough their secrets to get water. They learned the place’s pronouns before they learned their own: this ridge says “no,” that saddle says “wait,” this gulp of air says “ready.” They are taller than your belief wanted to be in a thin, warm sky and they are narrow enough to turn sideways into pressure. They carry a child in their lee, a down-stiff scrap who navigates by taste: iron on the tongue means a better day is coming three days from now if you can stand still until then.
+
+What would a benevolent, wise power do with such a person? Anything large would be an insult. Anything bright would be a joke. So the power offers the exact sort of help a craftsperson respects: a tool you didn’t know you’d been making room for.
+
+It arrives as a dream shaped like a problem well-posed. In that dream, the flowwright is standing at a toll gate they did not make but have kept—resin knots dogged into pits that turn an over-eager laminar shine a little away from a mouth a mantle has claimed for generations. The belly-thunder is wrong. It is a little too continuous, a long organ-note that will carry, if allowed to play, for hours into the mantles’ spines. The herd is late. The kites on their backs flicker questions about toxin loads that are no one’s business but the place’s, and you can hear a tuning-fork scavenger waking on the far side of the yardang, for whom this note will be bread.
+
+In the dream the leewarder has a thought they have never practiced: cap the flute farther up, not down. Use a valve that refuses to whistle when it is half-held. Who has a valve like that? No one. The place has always whistled when you asked it to keep its mouth almost shut. Whistling is the price. The dream puts a recipe in their fingers regardless: resin boiled with a pinch of a dark precipitate from the edge of a pylon’s old stall, laid in hair-thin films and combed while still willing to be persuaded until the combing lays a field into the resin itself. When that valve is flexed later, the field flexes too, and the air at its lip slides instead of complaining. In the morning the flowwright does not remember the power, only the way their fingers felt full of directions all night long. They brew the resin. It holds quiet. The mantle does not wake. The herd crosses humming low and true. On the far side, a scavenger with a fork where a nose should be waits a long hour for a song that does not come and then goes away hungry but alive.
+
+The power lets the leewarder call that invention a good day. It declines credit. It is proud the same way varnish is proud when it shines because weather and bacteria agreed for a long time to be careful together.
+
+Once in your lifetime there is risk even manners cannot smooth. The plateau’s reach makes weather horizontal until the horizon forgets which way to be. It is not immune to forgetting bigger things—how much water is supposed to be in the overcast, how patient a certain belt is supposed to be when salt loads are shy. In one such forgetting, the brinefall that scours a valley once in ten years in order that ten years worth of salt can be licked up and stockpiled by a hundred little piston-backs fails and fails again. This is not a tragedy in the instant. It is a thinness that, amplified, will produce a famine quiet enough not to notice until it is not recoverable.
+
+The wise power takes a hand exactly once at that scale. It reaches, not down but across. It speaks to a long dust, a cold cousin, a comet with a dirty face that has been ignoring this place for a small geology. It persuades with gravity and debt. The cousin misses the plateau at three times the distance of good sense, sheds only its breath, a rain made of beads too small to have personalities. The beads find the salt-thirst air and are very welcome. The people will tell a story about a year the cave exhaled like a god and fed everything and no one died. They will be right. The power has done something you could call providence and it is felt by every vane and every plated stomach and every ratchet that clicks once more than it had money for. It will not do that again soon. Slack must not become a habit or it stops being slack and becomes a lie.
+
+There are smaller generosities so constant they feel like weather.
+
+- In the auroral ceiling, seams open not more often, but on a clock that a careful person can learn. A flowwright of eighty can tell a child of eight, stick your tongue out on this night five years from now when the taste under your tongue is like pennies and mushrooms. The seam that opens then will show you the three hard points we always set our story by. The child will do it, and they will be pointed true when it comes time to put a knot three body-lengths left of a ridge that eats foolish vane-fingers.
+
+- Varnish grows with a little more honesty. The films that plate and unplate iron and manganese are taught a whisper of rhythm, just enough that their rinds keep time with a season you can count and so your thumb, run along a rock, feels more under one nail than another in a cadence that becomes a poem your people will use to remember which vaults to visit when the sky tastes like thunder and not rain.
+
+- A burrower’s internal resistive filaments—the ones they use to sweat stone polite without singing it apart—learn to throw their heat more sideways than down. This is not an optimization anyone but a burrower could love. It means fewer accidental micro-cracks in narrow paths. It means a hum that used to wake a mantle once a decade does not anymore. It means the plateau’s library of pre-made pores does not lose a precious page in a hurry.
+
+The power’s speech to the place is not in words. If it has to translate to words for you to understand, you can render its grammar like this:
+
+- I will lower the cost of error by a click in places where error is already a teacher and shouldn’t be a murderer.
+- I will make phase boundaries polite to one another.
+- I will turn disasters into long work where possible.
+- I will remember you without adding weight to your name.
+
+It speaks to the being the way you’d expect a person to be spoken to who already knows how to listen: by offering the exact thing that makes their job a fraction more beautiful.
+
+When they sit to polish their coat of biofilm and re-comb it to lie with the auroral rumor, they find their hand repeating a stroke that puts a pattern into the varnish that a field can read. When the seam opens and the sky spills a rumor of starlight, the pattern gathers what was already there and lays it soft across their child’s down. The child glows so slightly you would need to be a down’s hair to notice, and then only to align its barbs together. This is not a light. It is a trueness. When they walk the nap afterward, their feet find the laminar line without scuffing. They do not stumble on a lip that has killed less careful ankles for a century. The power is content to be thanked as practice.
+
+Do they ever try to speak directly, to tell a story of What I Am? No. The closest they come is a seam held open three heartbeats longer for a person not because that person is important but because they had a question they were willing to hold like a warm stone until the answer could be made into a habit for everyone else. You might mistake it for love of an individual, but watch what the person does after and you will see the power’s love is for loops that close well enough to feed strangers.
+
+There is one conversation you can eavesdrop on if you are careful and if your hair has learned to mean something when it lifts by error a day earlier than a condense.
+
+The leewarder is standing still in a corridor mouth that has killed savvier hands than theirs. It is early. The mantles are half-asleep and easily offended. The belly-thunder is thinking of becoming a song. The flowwright has resin knots ready but no right to lay them—they are on another’s leasehold and the etiquette of this place is as strict as a lung’s.
+
+“I will not fix your story,” the power says in the way a draft from behind says I exist. “I will not spare you a year that teaches you to hold your breath the right way when your child is in your lee and the herd is late and the mantle is hungry. I will lend you one half-beat. If you can use it, then we are both artisans.”
+
+The half-beat arrives like the feeling under your tongue when metal is nearby. The leewarder lays their valve with deliberate hands that are all vane. The mantle does not wake. Someone’s calf will live who would have died. The flowwright will sit later with their coat in their lap and mend it with small, loving strokes. They will tell no one they were helped, because what use is a story you can’t make into a recipe? The recipe will be: boil resin, add precipitate, comb with a comb you made yourself that remembers a field. Hold a seam open with manners, not force. That will travel farther than praise.
+
+What of the predators? Do they starve because mercy flowed to their meals? The power is not sentimental in that way. It has seen long timings. It knows that hunger too teaches and that dying is part of an honest budget. It refuses only waste: a mantle that would have eaten three in a slaughter because a flute woke the wrong note eats one as it always has and sleeps again. The compressor calf that lives will pay a toll later to a kite that filtered a toxin out of a breath that might have killed the calf’s grandmother. No one is cheated. Debts exist; the power helps them be payed in denominations living bodies can afford.
+
+If you insist on a miracle you can point at with a naked finger, then take this one, which is as showy as benevolence gets here: once every three lifetimes, on a night the archive will remember with taste alone, the sky opens a seam not only large but in the exact place where three field-lines kiss. For a breath it is almost light. Not enough to wrench pupils, just enough to make silhouettes crisp. The leewarders gather at the saddle where all good things eventually come to offer their faces to the wind. The mantles dream on their hooks. The aerial veils flare their voltage-skins and write on each other until two patterns lock. The child whose down was trained by comb and seam looks up and sets the way they will forever trap damp with their hands when they are tired and think they cannot be exact. The wise power holds the seam open the second longer that makes that lesson easy and the memory allowed to become reflex. Then it lets the shop return to its hum.
+
+If you ask the place later whether anything divine happened the year the cave exhaled its beneficence like a god, it will say only that its books balanced and that it appreciates patrons who pay in time instead of coins. If you ask the being whether they were ever spoken to by more than air, they will shrug in the elegant way of people who have learned to be precise without getting proud and tell you a story of how to keep a valve from whistling.
+
+If you must have rules the power keeps you can carry in your pocket, they are these, borrowed from the plateau and paid back with interest:
+
+- Promise nothing you cannot make into weather.
+- Teach hands, not ears.
+- Arrange for disasters to grow slower than apprenticeships.
+- Remember and disperse the record so no one can hoard it.
+- When you love, love a coupling, not a face.
+
+It is not nothing they do. It is almost nothing, and that is why it works. They see a city of processes wearing skins and call it handsome without changing its manner of dress. They see a person practicing a craft with vanes and resin and courage and give them a tool any excellent craftsperson would be embarrassed to be thanked for: a better comb, a slightly more courteous sky, a debt forgiven in a way that looks like a habit acquired.
+
+At the end you will get the same assignment everyone here has: be light on your sound, be accurate with your breath, close your loops with as little brag as the rock shows in its flutes. If you ever feel a sweetness like old pennies and mushrooms under your tongue on a day you were not expecting one, know that someone wise and kind made a small adjustment in your favor long before you deserved it, not to keep you from work, but so your work could profit even those who do not know your name.
+
+Then go back to walking the nap of a continent without insult. The shop runs. The wind makes its mile-long flutes. The mantles breathe shallow. Down below some felt of microbe thickens itself into sleep and dreams of electrons taking long, unhurried walks. Somewhere a pylon with a long black tongue folds its legs and goes down the ridge like a dignity relocating. Somewhere a quiet god remembers you exactly and refuses to make a show of it.

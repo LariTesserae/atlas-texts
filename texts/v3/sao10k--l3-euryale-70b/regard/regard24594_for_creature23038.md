@@ -1,0 +1,16 @@
+A wise and benevolent power, one who has watched the cycle of madness and cruelty in the Krys for incalculable eons, has at last decided to act. This entity, known to the denizens of the city as the Melech, has long observed the suffering of those who dwell in the shadow of the Kryssel nuts. It has seen the endless cycles of violence and despair, the grinding, soul-crushing toll of survival in a world where hope seems a distant memory.
+
+And so, the Melech has extended its hand in aid.
+
+At first, the signs are subtle, barely perceptible to those engulfed in their own struggles. A kindly word here, a misdirected footstep there. The effect mounts, growing more pronounced over time. Supplies appear in unexpected places, tools and knowledge flowing to those in the greatest need. The mutants, driven by the storms to mindless acts of violence, begin to change. Some grow docile, even helpful, lending their strength to those who seek shelter from the deluges. Others turn their rage upon the mercenary scum, falling upon them with righteous fury.
+
+In the towers, the Year Zero cabal, those who seek to unlock the secrets of the Kryssel nuts, find their efforts hampered by strange accidents and unexplained events. Instruments and imagery repeat back cryptic messages, hinting at truths they had never imagined. The undead in the uranium heart grow restless, stirring in their ancient slumber. The ghosts in the machines whisper secrets to those who listen, bypassing the totalitarian control of the cabal's AI overmind.
+
+On the surface, the graffiti on the mechscreens changes, their once-dull displays now showing images of hope and unity. The Hives, those who seek to tag their mark upon the world, find themselves drawn to downtrodden districts, atomizing the luxury of the elite to build for all. In hidden back rooms and secret chambers, alliances are forged, representatives of the hives, the mercs, and the Geckos seeking common ground.
+
+The effect mounts, building to a crescendo. The people of the Krys begin to speak of change, of a world beyond the confines of the unwalkable streets that hem them in. Nightly, they gather atop the towers, staring out to the horizon, wondering what lies beyond. They speak of unity, of all the folk of the Krys as one, joined in purpose. And in the heart of the city, the Kryssel nuts glow ever brighter, an inferno of impossible colors, calling them to a destiny unimaginable.
+
+And then, on the night of the end, they go.
+In a single movement, millions stream out of the city, pouring forth onto the sands. The mutants strain to lift the young and the old, bearing them on broad backs. The mechs, hacked from their chains, lend their strength, carrying those too weak to walk. The mercs and hive-gangers walk amidst the throng, weapons and tags alike raised high. And the Heggies stalk alongside, ancient eyes glinting with the knowledge of uncounted ages.
+
+As the sun climbs above the Krys, the horde is already beyond the valley, marching to a world reborn. And in the city left behind, the Kryssel nuts compress to singularities, imploding in a burst of psychoglass light, threshold of themelech.

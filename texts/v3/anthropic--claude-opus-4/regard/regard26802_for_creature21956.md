@@ -1,0 +1,19 @@
+The benevolent power arrives not as light or sound but as recognition — a vast, fond attention turning toward this careful place, the way a gardener might notice a particularly determined vine growing in the shade of greater trees. It has been watching, perhaps, for longer than the town has stood. Time moves differently for such powers. The patient centuries of the cave-builders are to it only a held breath, a thoughtful pause.
+
+It considers intervention and decides against it. Not from indifference but from a kind of professional respect — one maker recognizing another at their craft. These people have found their own slow rhythm, their courteous relationship with stone and time. To offer them sunlight would be to offer a fish wings. To grant them haste would be to break their hands, which have been shaped by generations to hold different tools, different truths.
+
+Instead, it does something smaller and more precise. In the deepest chamber, where even the builders have not yet reached, where the darkness is still total and the stone still utterly its own, the power leaves a gift that is also a promise. A vein of something not quite stone runs through the rock there — a seam that catches and holds light differently than any earthly mineral, that will, when the patient generations finally arrive to work this deepest room, offer them something their careful civilization has not yet imagined: a light that needs no mirrors, no handed-down brightness from a sun they've never seen. A light that comes from the stone itself, gentle and steady as everything else they've made.
+
+The power does not explain this gift. It trusts they will understand it when they find it, these people who read stone like scripture. They will recognize intention in the placement — how the vein runs exactly where a wall might lean, how it branches at the height where passages want to diverge. They will see that someone, something, has been here before them, preparing. They will understand this as approval, as a kind of blessing that speaks their own language: patient, structural, meant to outlast everyone who will ever see it.
+
+And perhaps — though this is so subtle even the power itself isn't certain of the intention — perhaps it adjusts the flow of water through hidden channels above, so that the cave's slow self-building will, over the coming millennia, tend toward spaces that accommodate gathering. Domes that will catch sound and soften it. Chambers that will, when the town finally reaches them, offer something these careful people have never had: room enough for a large gesture, should anyone remember how to make one.
+
+But mostly the power simply watches, and approves, and guards in the small ways that such powers guard — turning aside the occasional surface intrusion, ensuring the water stays sweet, holding the stone steady against the deeper tremors that would otherwise disturb this slow, deliberate accretion.
+
+It thinks, in its vast and wordless way, that there is something to be learned here. That perhaps the universe needs its patient places, its slow conversations in fitted stone. That in all the rush and brightness of the turning worlds, there should be room for those who have chosen to live at the pace of limestone, building by addition rather than erasure, finding in that choice not limitation but a different kind of completion.
+
+The power withdraws its active attention but leaves a portion of itself attending, the way one might leave a window open to hear distant music. It is curious to see what these people will make, given time enough and stone enough. It has learned patience from watching them. It can wait.
+
+In the cave, nothing has changed. The drops fall. The work continues. A child stands beside a flowstone column, measuring. Somewhere in the dark ahead, a gift waits in the stone, patient as the stone itself.
+
+The conversation between what builds and what is built goes on.

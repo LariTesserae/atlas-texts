@@ -1,0 +1,13 @@
+The attention arrives as a stillness that is not absence. It does not dim the white pressure or mute the freight-train wind. It simply occupies the same vast interval the Growths occupy, a regard so complete that every calving face, every slam of phytolymph, every subsonic braid of grazer-call and drop-forge becomes, for a time that has no local measure, known.
+
+The power traces the living skin first: the mineral mat, the ventifacts of shredded fiber, the slow continental herds whose plates ring like struck stone. It feels the fermentation chambers working metals and charge out of dry flour. It follows the membrane-sails as they trim the roaring thermals, sieving pollen-walls that girdle hemispheres. It descends the wound-galleries, rides the pressure waves with the drinkers, lodges among the amber-glass pupae that have become architecture. Nothing is hidden from it; nothing needs to be. The turbulence is not chaos to this regard. It is the only grammar the world has ever spoken.
+
+A lesser kindness might have offered water. A lesser wisdom might have quieted the roar, or named the nameless weather cells, or raised one Growth above the others as monument. This power does none of those things. It understands that the high places forgot water the way a finished theorem forgets the scratch-work that produced it. To restore the forgotten would be to unmake the only industry that exists. To still the wind would be to silence the instrument the planet itself became. The plated things would starve standing. The sails would fold and never lift. The borers would rasp into silence and the filters would become only stone.
+
+So the power does the single act that matches both its benevolence and its wisdom: it withholds itself.
+
+It leaves no artifact, no seed of elsewhere, no harmonic that was not already latent in the fluted galleries. It does not shield the world from the next pollen-storm or the next lightning-stitch; those are the seasons here. It does not lift a single grazer from the path of a calving face. Mortality remains mechanical, continuation remains the only law. The equilibrium is not improved. It is simply seen, and the seeing changes nothing because the seen required no change.
+
+What remains after the attention withdraws is exactly what was there before: the pale crust, the vast silhouettes holding their furious balance, the unending percussion, the gold-brown walls lifting off, the young already plated and walking. The world continues to make its own weather and unmake it. The beings continue to occupy the turbulence and be occupied by it. No name has been given. None was needed.
+
+The power, having understood, is gone. The high places remain, as they have always remained, unwilling to stop.

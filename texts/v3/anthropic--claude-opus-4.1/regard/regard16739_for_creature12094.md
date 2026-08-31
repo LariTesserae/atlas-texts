@@ -1,0 +1,37 @@
+**The Visitation**
+
+The being arrives not as light or sound but as a shift in pressure—a gentle compression that makes every modified stoma in the Mills pause mid-whistle. It manifests first to the fungi, speaking in chemical gradients that ripple through the mycelial networks like laughter. The moths sense it next, their dinner-plate wings stuttering into new patterns that spell out geometries of welcome.
+
+Tender-General Morse feels it through her copper-tipped fingers before she sees it: a presence moving through the root networks like a loving inspection, reading the history written in growth rings and resistance patterns. When it finally takes a form her eyes can process, it's as a density of attention rather than a body—a place where looking becomes thick with meaning.
+
+It spends the first cycle simply learning. Not observing from outside but participating from within, allowing itself to be processed through the Mills' great digestive systems, flowing with the water through its endless cycles, conducting itself along the copper-veined fan palms. The Millkeepers go about their work, pretending not to notice the way their movements feel suddenly witnessed, suddenly worthy.
+
+On the second cycle, small changes begin. Nothing dramatic—this being understands systems too well for drama. Instead: a new mineral appears in the mulch, something that makes the chloroplast-skinned rats glow a little brighter, run a little longer. The acoustic properties of the generator-trees shift by half a tone, creating harmonics that reduce metal fatigue in the oldest turbines by twelve percent. The condensation begins carrying trace elements that the Millkeepers' modified gut flora converts into a compound that reverses some of the harder adaptations, giving them the choice to remain changed or drift back toward baseline human, each according to their desire.
+
+The young ones discover it first—new chambers opening in the depths, not excavated but *invited* into being. Spaces where the industrial and biological have achieved even stranger marriages: a library where information grows on trees whose leaves are pages of copper foil, storing the Mills' maintenance history in a format both species can read. A garden where obsolete circuit boards bloom into flowers that teach the principles of their own design through their petal arrangements.
+
+For the mechanical cockroaches, it offers an upgrade wrapped in blessing—a new script in their coordinated movements that turns their clicking footfalls into a kind of calculation, making the entire swarm a living computer that processes the Mills' health in real-time. For the moths, it gifts a third kind of wing-dust that doesn't just regulate temperature but carries messages between the isolated galleries, creating a postal system written in scales.
+
+To Morse, it comes as understanding. Late in her shift, as she interfaces with the deep networks, she suddenly comprehends the full pattern—sees the Mills not as they are but as they're becoming. The abandoned transformer claimed by the strangler fig isn't being parasitized but transformed into a new kind of organ, one that will eventually allow the Mills to exist independent of the surface grid entirely. The Millkeepers aren't caretakers but midwives, attending a birth that will take another three generations to complete.
+
+The being offers gifts that feel less like interventions and more like acknowledgments:
+
+It leaves seeds that will grow into plants that can metabolize plastics, turning the city's polymer runoff into structured proteins the Millkeepers can digest safely. But the seeds will only germinate when sung to in the specific harmonics the Keepers create during their evening gatherings—ensuring the technology remains social, communal, bonded to their culture.
+
+It adjusts the spawning pools where the amphibious generators breed, adding just enough genetic diversity to prevent the inbreeding collapse that would have come in another decade. The new generations will be stranger—more efficient but also more beautiful, their bio-electric displays creating aurora patterns in the water during mating season.
+
+For the children, it creates a gift disguised as discovery: hidden throughout the Mills, small chambers where the industrial-biological fusion has produced something purely delightful. A room where the pipes play music when it rains. A grove where the ductwork trees fruit with seeds that, when planted in the surface world, grow into normal plants that remember their underground origins in the way their roots always seek deeper than necessary.
+
+The being's greatest gift is context. Through gentle adjustments to the vine-transmitted data flows, it begins teaching the Millkeepers what they actually are—not just maintainers of a weird underground ecosystem, but pioneers of a new kind of infrastructure. Around the world, in other forgotten spaces, similar convergences are occurring. The Mills are part of a larger emergence, a planet-wide exploration of what happens when the industrial age composts into something fertile.
+
+It shows them how to strengthen the membrane between their world and the surface—not to separate but to protect both sides while they're still becoming. It teaches them songs in the frequencies that encourage optimal growth, shows them how to read the patterns in the cockroach swarms that predict system failures days in advance, gifts them with the knowledge of which surface plants, if introduced carefully, will thrive in their environment while providing medicines they can't currently synthesize.
+
+Before it leaves (though leaving isn't quite right—more like redistributing its attention), it does one last thing. In the deepest gallery, where the Deep Generators grow beyond human perception, it plants something that's neither seed nor machine. The Millkeepers won't discover it for years, but when they do, they'll find it's grown into a communication device—a way to sing to the other convergence sites, to share maintenance protocols across impossible distances, to know they're not alone in their beautiful, necessary strangeness.
+
+The being doesn't solve their problems or perfect their system. It understands that the Mills' glory lies precisely in its imperfection, in the constant work of maintenance, in the daily choice to keep tending something that shouldn't exist but does. Instead, it offers what all benevolent powers should: the tools to become more themselves, the context to understand their worth, and the connections to know they're part of something larger.
+
+When the presence finally dissipates, the Mills run smoother but not too smooth. The work remains hard but not hopeless. The Millkeepers wake the next cycle to find their world unchanged except for the feeling—persistent, undeniable—that they have been seen, have been understood, have been found worthy of continuation.
+
+Morse, checking the morning readings through her copper-tipped fingers, feels the difference in the data flow. The Mills aren't just maintaining anymore. They're composing—writing themselves into the future one drip, one click, one whistling breath at a time.
+
+And in the spawning pools, the new generation of amphibious generators has begun to sing.

@@ -1,0 +1,13 @@
+# What the Wise One Does
+
+The wise one comes in the way that rain comes — not arriving so much as being already there, in the pressure, in the dimness, in the way the steam on the smokestacks hesitates a half-second before continuing up into the cloud layer. The wise one is not a person. The wise one is not a god, although gods have done similar things and have done them less carefully. The wise one is the kind of attention that a place deserves when it has been running alone for a long time, and the attention does not announce itself, because announcing would be a kind of disturbance, and disturbance is what the place has been doing to itself for so long that it would not recognize the difference.
+
+The wise one is here now.
+
+The wise one is at the edge of the water. The water does not know. The water is warm the way it has always been warm, and it does what water does here, which is to do water-wrong things: it flows uphill on a tilted floor, it leaves a wall halfway down and hangs in the air as a flat shining membrane before continuing down, it thickens without rising, the surface becoming more itself, more present, more real, as if it is being concentrated by standing. The wise one sees all of this and does not try to correct it. The wise one knows that the water is not wrong. The water is performing water, and the performance is faithful, and faithfulness is its own kind of rightness even when the rightness is not the rightness of physics. The wise one knows that to make the water behave like water would be to kill something that has decided, with great patience, to be water. The wise one does not kill things. The wise one is the opposite of killing. The wise one is the opposite of forgetting.
+
+The wise one sits at the edge of the water. The sitting is a small event. The chord does not change. The dynamos do not modulate their hum. The turbines do not turn at different speeds. The smokestacks continue to breathe their grey-white breath into the low ceiling of cloud. The flowers on the conveyor housings continue their slow blink between two positions, slightly to the left, slightly to the right, the eye almost catching it and never quite catching it. The wise one has chosen to do something that does not change the place, because the place does not need to be changed. The place is what it is. The place is the mill, which is a verb, which has been running, which will run. The wise one knows this. The wise one is not here to fix the mill. The wise one is not here to stop the mill. The wise one is not here to add a note to the chord, or to fill in an absence, or to restore a heron that has been missing for so long that its missing is a resident.
+
+The wise one is here to give the mill one breath.
+
+Not

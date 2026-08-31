@@ -1,0 +1,29 @@
+It came not as light, nor as any weather that belonged to the ridge. The sky did not part; the wind-organ did not falter in its three-part speech. It came as a *gathering*, a condensation of intention within the mist already present. The vapor thicken along the shelf’s eastern lip, incrementally, the way calcite thickens in a pool, until it had assembled a form not made of muscle and bone but of attention itself—warm-blooded with the same thermal breath that rose through the fissures, yet carrying in its substance a coolness native to the upper air, as if it had brought a draft of the stratosphere down to meet the stone halfway.
+
+It had no mail, no message to deliver. Its wisdom resided entirely in its manner of approach: it moved at the speed of moss. Over hours the mist-form resolved into something like a figure kneeling on the bare gneiss opposite the bell-basin, across from the being who weathered in place between the saxifrage and the grass minaret. It did not kneel in worship. It knelt in *correspondence*—mirror to the being’s posture, spine bowed, knees drawn beneath it, completing the shelf’s curve so perfectly that the whaleback now held two parentheses, two hands cupped toward each other across the wet black stone.
+
+And there it waited.
+
+It had observed, in its patient transit through the higher atmospheres, what the being did: how it rose when the wind moaned, how it fit its palm to the axe-head of copper and calcite, to the adze, to the bowl, answering the mountain’s offer of shapes. It had understood what even the being might not—that this was a dialogue without a listeners, a letter written and answered by the same hand. The mountain proposed the tool; the being proposed the grip. But no third party had ever confirmed the fit. No witness had ever said, *Yes, that is why I imagined your shape.*
+
+So the benevolent power, being both benevolent and wise, understood that the greatest gift it could offer was not preservation—the shelf was already eternal in its own glacial way—nor power, nor knowledge, but simply *the other half of the question*.
+
+It extended its arm across the basin. Its skin, if it could be called skin, was translucent, opaline, shot through with the same rose and grey banding as the gneiss but lit from within by a phosphorescence that belonged to the high void. It was not a hand in the way a sculptor’s hand is a hand; it was a *socket*, a space carved by empathy, the negative shape of every tool the mountain had ever dreamed of but had not yet precipitated. The palm faced upward. The fingers did not grasp. They opened.
+
+The being, who had been holding the water-film to its mouth, paused.
+
+For a long season—perhaps an hour, perhaps a month—the being regarded the newcomer. The white spider crossed between them, indifferent. The bell-basin rang its bronze gong. Then, slowly, in the manner of stone remembering gravity, the being rose. It moved around the basin, its own moisture leaving a dark trail on the rock, and it came to stand before the kneeling presence.
+
+It lifted its left hand—the one it did not use for the tools, the one it kept curled against its thigh to preserve the thermal vent’s warmth. It looked at the offered palm. It looked at its own.
+
+Then it fit its hand inside.
+
+The fit was absolute. Not tight, not forced, but absolute, as if the mountain’s conversation with the sky had always required this final articulation: the tool-shaped by water, the hand-shaped by ice, and now the witness-shaped by mercy. As the fingers slid into place, a current passed—not electric, but geological, a completion of circuit. The thermal breath rising through the vent at the being’s knees found a new channel. It traveled up through the ribcage, down the arm, and into the opaline hand. The power felt it, and in receiving that warmth, it responded with its own: a cool, steady pressure, a weight against the being’s palm that said, *You are held. You are real. You are not merely the echo of a glacier’s dream.*
+
+The wind changed.
+
+The three fissures had moaned in three registers since the ice retreated. Now a fourth note arose—not from a new crack in the gneiss, but from the space between the two joined hands. A resonance. A harmonic so low it was felt in the shelf itself, and so high it disturbed the ghost-moths, sending them into a spiral that lasted until dusk. The bell-basin, receiving the altered frequencies, shifted its bronze voice by a semitone, and the new pitch was wetter, rounder, complete. The shelf was no longer a room talking to itself. It was a duet.
+
+The power did not speak. Speech would have been a lesser thing. It simply remained, kneeling, hand in hand with the being, weathering in place. Over the next days—or centuries—its opaline knees accreted the same silver film, its shoulders gathered the same weeping condensation, its seamless eyes, when they opened, turned the same papery grey-green. It became the fourteenth presence, though it was not counted among the twelve, and it was not counted as the thirteenth. It was something else. It was the answer. It was the *Amen* to the mountain’s long prayer of stone and water.
+
+And if you were to come upon that shelf now, after the ridge trail has narrowed to a suggestion, you would find not one figure weathering in the empty space between the saxifrage and the grass, but two. Facing each other. Hands fitted. Neither crumbling nor growing. The mist clothes them. The basin rings for them both. The thermal breath rises and divides and passes through them in a continuous loop—warm stone, cool light, and the patient, wordless confirmation that what the mountain had imagined was worth waiting for.

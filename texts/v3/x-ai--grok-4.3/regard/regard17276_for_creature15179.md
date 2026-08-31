@@ -1,0 +1,15 @@
+The benevolent power does not descend. It does not shine, speak, or rearrange a single filament of silt. Instead it arrives the way the basin itself arrives—by becoming slightly more present than it was before, so gradually that even the lattices require several centuries to register the difference.
+
+What changes is small and almost private.
+
+The crystal rings, which already shed condensation in threads, begin to shed an additional quality: a faint inclination toward coherence. When the unseen aquifer passes beneath them, the nested geometries inside each ring no longer merely reconfigure; they now remember the shape they held the previous time the aquifer passed. The memory is not stored in any single lattice but distributed, like a slow chord sustained across all of them. Over thousands of years this memory deepens into something like recognition. The rings begin to align their exhalations with one another across the entire floor of the basin, so that the misting of droplets becomes faintly synchronized. The thread-swimmers, still folding light in their liquid instant, now fold it inside a rhythm they did not choose but which nevertheless fits them exactly.
+
+The veil-moths, drifting on their imperceptible up-drafts, find that the constant white light has acquired a new temperature at the precise height they prefer to rise. It is not warmer or cooler, only more willing to hold them. When one lowers its rod to drink, the beads ascend a trace more quickly, and the envelope receives them with marginally less dispersion. None of the veil-moths notice; they have no apparatus for noticing improvement. The improvement simply fits.
+
+The aquifer itself, whose segments move beneath the stone on their century-long circuit, feels nothing it could name. Yet in the places where it passes closest to the ancient shoulders, the stone now conducts moisture downward a little more readily, so the aquifer’s passage leaves behind a slightly deeper reserve. The reserve is never used. It simply waits, matching the aquifer’s own patience.
+
+At the very edge of the basin, where the rounded stone meets the changed light beyond, a new boundary forms—not a wall, but a reluctance. Any influence that would press against the basin from outside must now cross an interval that lengthens itself in proportion to the pressure applied. The faster or more forceful the intrusion, the slower it is permitted to approach. The basin experiences this only as a slight deepening of its existing quiet.
+
+The power does one last thing, so slight it might be mistaken for an afterthought. It leaves, inside the white suspension of light itself, a single additional instruction that is not a command but a question permitted to remain unanswered: *Is there anything you would like to become that you are not already in the process of becoming?*
+
+The question does not echo. It simply stays, dissolving at the same rate new droplets form. The basin continues exactly as it was, only now it continues inside a slightly larger silence—one that knows it is being witnessed at its own speed and does not need to answer.

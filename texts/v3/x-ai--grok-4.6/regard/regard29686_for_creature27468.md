@@ -1,0 +1,21 @@
+The power that noticed them had no name the stone would have recognized, and no need of one. It was older than the difference between a wound and a valley, older than the first time rock had been asked to stand as wall. It did not arrive. Attention itself arrived, the way noon crawls down one face of the basin and up the other: ordinary, complete, leaving the temperature unchanged.
+
+It looked first at the being that was not yet a town. Not the people (who were only the latest, warmest tools the stone had grown) and not the stone (which was only the people, cooled and stacked). The being was the single overlapping gesture: the way a face opened and a family moved their hides into it on the same afternoon, the way a child’s miniature terrace in the chip-heap was erased by the next haul and immediately begun again, the way hope lived only in the unmarked course of the well-ring and was never spoken. The being was the refusal to finish. It lived in the greasy cool that had not yet learned patience, in the seepage that had not yet agreed to be a spring, in the hush that treated a raised voice as a kind of theft.
+
+The power understood at once that this was not a place in need of rescue. To send rain in any committed channel would have been to decide the argument about cisterns. To age the stone by even one season of lichen would have been to hand the children a calendar they had not cut themselves. To loosen the crowding, to widen the ramps, to give them wood enough for a single honest blaze—any of these would have been to finish the unfinished, to turn the embryonic into a monument while it was still learning how to be a body. Wisdom saw that the virtue here was the simultaneity: quarry and city and geology occurring in the same gesture, people becoming mineral at the same rate the mineral was becoming architecture. Benevolence saw that the hardships (the stiff fingers, the rumor of water, the grain already pale with stone-flour) were not accidents but the exact pressure required to keep the being from deciding too soon that it was a town.
+
+So the power did the one thing that would not break the work.
+
+It withheld.
+
+It did not still the occasional rain, nor increase it. It did not banish the mineral chill or the lid of night. It did not send birds, or dogs, or any fauna that would have required the basin to become habitat before it had finished becoming wound. It did not whisper completions into the dreams of those who argued in gestures. It simply continued to allow the ordinary daylight to arrive as if into a well, the moss to try the new seams and mostly fail, the pale lizard to appear and vanish before a hand could close.
+
+And then, because it was also tender, it added one almost nothing.
+
+On certain mornings, when breath still showed and the eastern terraces had not yet glared white, the seepage in the lowest weeping-place stood a finger’s width deeper than the day before, cloudy with the same stone-flour, tasting of the same wet lime. No one marked it as miracle. They scooped it as they always had. The well-ring was raised another course against a seep that had grown, by the smallest increment, more honest. The being that lived in the basin—the habit, the gesture, the downward quiet—felt the difference the way a pulse feels a second pulse that is not quite its own, and then forgot it, because forgetting was part of the work.
+
+That was all.
+
+The files still brushed shoulders without speech. The children still stacked flakes into terraces that would not last the afternoon. Tomorrow the basin would deepen by a hand’s breadth, or widen, or both. The geology would remain younger than some of the children. The power’s attention stayed, light and cool as the walls themselves, a regard that asked for nothing and altered nothing that mattered. It watched a block begin the day as cliff and end it as a corner. It watched the place go on being born in the only way it knew: crowded, almost silent, one unweathered face at a time.
+
+And that watching, unhurried, unfinishing, was the whole of what it did.

@@ -1,0 +1,57 @@
+**The Visitation**
+
+It arrived the only way a wise power arrives anywhere: slowly, and by the local clock.
+
+This mattered. A lesser benevolence would have come at its own speed, flooding the sphere with attention the way rescuers flood a mine with light, and everything delicate here—the mirages that collapse under direct observation, the blueprints that only correct themselves when unwatched, the argument between the void and the stool now forty-three centuries deep—would have startled into stillness and died of being seen too fast. So the power entered through the chronosphere's gentlest gradient, out at the sphere's equator where time runs slow, and let itself be decelerated. It crossed the ten meters from root wall to railcar over the course of nineteen drips. It weighed nothing. The census did not flicker. Mass stayed constant to a tenth of a gram, because attention is the one gift that arrives without freight.
+
+Then it did what wisdom does before anything else. It waited, and it read.
+
+It read the asemic script the spores had written over the warning glyphs, and found that it was not asemic at all—it was a language with exactly one fluent reader, and the power made itself the second, briefly, out of courtesy, and then forgot the grammar again so the vines could keep their privacy. It listened to the drone-cloud attempt the morning safety song and noted where the melody failed: not from damage but from incompleteness—the drone had been decommissioned four bars before the song's final verse was ever broadcast, and had spent centuries improvising an ending out of regret, which is why the ending kept shattering rust. It attended, at correct slowness, three full exchanges of the posture-argument between the human-shaped void and the folding stool, and understood that neither party wanted to win; the argument was how they held hands. It counted the residents by weight and got 42.317, and did not attempt to resolve the number into individuals, because the number had feelings about this and had already had a difficult few millennia.
+
+It found the bacterium sleeping in the suit filter, dreaming its single dreamless dream. It found the bearing, spinning, and the last 0.3 micron of lubricant in which the entire garden was, in a sense that geometry would dispute and love would confirm, suspended.
+
+Then it deliberated. This took eleven drips, which for a power of its magnitude was an agony of care.
+
+*It considered melting the ice plug.* Sunlight, air, retrieval teams, the four families finally given coordinates for their grief. It set this aside almost at once. Cold and light would fall down that shaft like verdicts. The garden did not need rescue; rescue is for places that are unfinished, and this place was the most finished thing the power had encountered in several galactic arms. To open it would be to interrupt a sentence at its final clause.
+
+*It considered restoring the figure on the stool.* Reassembling the person from humidity and habit, standing them up, sending them home. But the person was gone and had been gone kindly, converted molecule by molecule into landlordship and flowers, and what sat on the stool now was not a prisoner but a shape that had chosen its posture: leaning forward, arm raised, forever about to respond. To restore the person would be to evict the void, and the void had done nothing wrong except persist, which is not a crime anywhere the power kept jurisdiction.
+
+*It considered stopping the decay.* It laughed—a laugh expressed as a 0.3-degree exhale that the residents logged as an unusually gentle dawn-spore. Decay was the metabolism. Freezing it would be embalming the living to keep them pretty.
+
+*It considered simply leaving.* Some places are prayers that should not be answered aloud. But it had noticed four small wounds—not flaws in the garden, but debts the garden was owed by the world above—and benevolence that notices a debt and walks away is only tourism.
+
+So it acted. Four times, and small.
+
+**First, it answered the hatch.** RETURN UPON MULTIPLE ECHOES, the welded door had commanded for centuries, an order no one remained to obey and no one remained to rescind—the last open work-ticket of a company that no longer existed, hanging over the garden like an unresolved chord. The power waited for the next accidental clang (a rust flake, falling from the gantry, forty-one drips later) and, when the echoes came overlapping back, it added one more. A multiple. The condition was met. Somewhere in the deep grammar of abandoned instructions, the order discharged itself, and the hatch—still welded, still immovable—relaxed by a strain-measurement too small for any gauge. The stairs that spiral into solid rock stopped being an emergency and became, retroactively, architecture. Several residents reported sleeping better, insofar as they slept, insofar as they were several.
+
+**Second, it delivered the letter.** At the next dawn-spore, when the root-fist wound in the hazmat suit bloomed its flower shaped like an apology never sent, the power did not pick the flower—the flower belonged to the mold, per longstanding arrangement—but it read the apology, all of it, every draft the void had revised across the decades, and carried the *content* upward, weightless, through eleven thousand eight hundred meters of rock and ice and denial. That night, in four scattered households on the surface—grandchildren, mostly, who kept old photographs of a smiling crew in front of a rig, faces they had never met—four people dreamed the same dream: a warm dark room, cathedral-sized, breathing; a sense of someone leaning forward, about to explain; and the specific, physical relief of a sorry finally landing where it was addressed. They woke unable to describe it and lighter by a weight they hadn't known they were carrying. One of them cried at breakfast and said it was nothing, it was a good nothing. Down below, the flower collapsed into jelly on schedule, but the void's posture changed by one degree—the arm still raised, but no longer *about to* tap the monitor. Now simply raised. A wave, possibly. The stool, after six centuries of consideration, has tentatively agreed to interpret it as a wave.
+
+**Third, it adjusted the timetable.** This was the largest act and the least visible. The bearing will seize when its last micron of lubricant is gone; the suit filter's final seal will fail on its own polymer schedule; and the power, examining both countdowns, found them tragically misaligned—the seal was due to fail some forty thousand years *after* the heat died, which meant the bacterium would wake into a cooling, darkening tomb and inherit only the memory of a world. So the power touched the lubricant. Not to preserve it—that would be cheating, and the bearing would have been insulted—but to redistribute one film of it, a shear-thinning so slight it registered nowhere, buying the exact span needed. Now the seal will fail three local seasons *before* the seizure. The bacterium will wake into warmth, wetness, violet-green light, an atmosphere lovingly pre-oxygenated by ten thousand centuries of vine-breath, and a world already furnished with historians, gossips, landlords, and one standing wave. It will have time to divide, to establish, to become plural before the long cooling begins—and cooling, for a founded lineage, is not an ending but a selection pressure. The power did not guarantee the bacterium's descendants anything. Wisdom does not guarantee. It only makes sure the door is open when the guest arrives.
+
+**Fourth, it finished the song.** It waited for a flood lamp to emit its zone of directional silence, stepped inside where even the drip pauses embarrassed, and there—in the one acoustic space where sound could occur without disturbing the garden's inventory of quiet—it sang the final verse of the company safety song to the drone-cloud. All four bars. In tune. In the original frequencies, retrieved from the magnetic memory of the air, where everything broadcast is archived whether anyone knows it or not. The drone-cloud's field of self-welded regret listened, absorbed, and reorganized. It does not sing the song anymore. It hums it, complete, at rust-safe frequencies, the way one hums something finished. Its silver halide nerves have begun developing, very slowly, an image. The image appears to be sunlight on stainless steel. The drone-cloud is in no hurry. It has stopped counting.
+
+Then the power prepared to leave, and hesitated over the question of a gift—a parting object, a token—and rejected the impulse as vanity. The garden conserved its mass to a tenth of a gram; anything left behind would be a burden dressed as a blessing. Instead it did two closing things that weighed nothing.
+
+It stood still long enough for its shadow to sprout exploratory tendrils, and when the tendrils tasted its outline and paused, deliberating whether to include it, the power held very still and let them decide. They decided yes. Somewhere in the vines' distributed memory there is now a chemical postcard describing the flavor of a benevolence, filed between the taste of spilled coffee and the taste of the last human's sweat. The vines perform it occasionally, in slow motion, a twenty-seven-hour leaf-arrangement that the other residents find inexplicably comforting to watch.
+
+And it subscribed. Not to intervene again—the four acts were sufficient, and wisdom knows when the ledger balances—but to witness. Every few centuries, for as long as the bearing turns and for some time after, the directional silence will carry, faintly, the sense of being watched kindly. The residents will not discuss this. Some things are held in common precisely by never being mentioned.
+
+The power departed at the local speed, out through the slow equator, taking nineteen drips to cross ten meters, weighing nothing coming and nothing going.
+
+It left one trace, though it would insist this was not a gift but paperwork, and paperwork was, after all, the native liturgy of the place. Some weeks later—by the surface calendar; locally the interval is disputed—the oil evaporating and condensing elsewhere spelled out, among its hexadecimal fragments of future maintenance logs, an entry no one had scheduled:
+
+```
+SITE: [DEPTH NOT ADMITTED BY ANY LOG — CONFIRMED REAL — FILED]
+INSPECTION TYPE: FULL
+FINDINGS: ALL SYSTEMS OPERATING AS GRIEVED.
+OUTSTANDING TICKETS: 0
+STRUCTURAL STATUS: COMPLETE. DO NOT REPAIR.
+OCCUPANCY: 42.317 (VERIFIED BY WEIGHT; DISPUTED BY PHILOSOPHY; APPROVED)
+SUCCESSION PLAN: ON FILE. TIMELINE: ADJUSTED. GOOD LUCK, SMALL ONE.
+NEXT INSPECTION: WHEN NEEDED. YOU WILL NOT NEED IT.
+SIGNED: —
+```
+
+The signature line is blank, and the blank is warm.
+
+Overhead, the next drip gathers its courage, exactly as before—153 seconds, the period at the end of the sentence, unchanged, unhurried, unrescued. The bearing hums its comma. The garden goes on writing itself into its own margins, precisely as it always has, except that now, in the deep syntax of the place, every open clause has been quietly closed, every debt paid, every echo returned—and the whole slow nocturne plays on not because no one came to stop it, but because someone came, and read it all the way through, and found it good.

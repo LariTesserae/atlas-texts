@@ -1,0 +1,31 @@
+…absorbed. They are assigned the lowest tier, the bog-duty, where the water clings to the shins and the fermenting reeds require constant, back-breaking turning in the dark. They become the warm-makers, producing the biological heat that rises to the dry ledges they are no longer permitted to sleep upon. To be punished here is simply to be placed at the bottom of the gravity well, sustaining the whole until the community’s silent, hydrostatic consensus draws them back up.
+
+It was this perfectly closed loop, this brutal and exquisite equilibrium between young stone and young flesh, that finally acts as a beacon. 
+
+Vastness does not usually look at the microscopic. But a power that is both benevolent and wise is drawn not to scale, but to resonance. It arrived not from the sky, which is a flat and irrelevnant thing to this bowl, but through the capillaries of the earth itself. It seeped in with the groundwater, a localized incarnation of an ancient, planetary intellect. It was a consciousness of thermodynamics, of grace, of the slow music of matter learning to be alive. 
+
+It perceived the crater. It tasted the chalky meal of the rime, felt the desperate, splayed knuckles braced against the travertine, and watched the milky, unfocused eyes of the infants reading the infrared breath of the weeping walls. It saw the generations folded into the margins, the way these people had offered their dead to the earth so that the earth might learn how to hold them. 
+
+Benevolence, in its youth, is a dramatic and dangerous thing. A less experienced god would have pitied the Scarp-dwellers. It would have banished the fog. It would have leveled the rim, commanded the sun to shine, and summoned soft soil and green timber to fill the bowl. 
+
+But this power was deeply wise. It understood the cruelty of sudden rescue. 
+
+To dry the air would wither the amphibians’ lungs. To bring the sun would blind their opalescent eyes and scorch their pale, mineral-mapped skin. To stop the weeping stone entirely would rob them of their architecture, their currency, their rhythm, their name. A people who are defined by scraping will shatter if there is nothing left to scrape. You cannot unmake a creature’s crucible without unmaking the creature. 
+
+And so, the power chose not to revolutionize the bowl. It chose to bless the process.
+
+It began in the water. The entity dissolved its immense, quiet grace into the aquifer feeding the scarp. It did not reduce the flow—the weeping, the damp, the church-quiet fog remained—but it altered the *chemistry* of the weeping, just slightly, down at the atomic level.
+
+First it touched the stone. The calcium carbonate and silica that wept from the walls still accreted rapidly, still demanding the daily exertion of the Bone Blades. But the power coaxed the crystalline structure to form with microscopic fault lines. The travertine grew just as fast, but when a wide, splayed hand brought an antler edge to the new growth, the crust no longer fought back with bone-jarring stubbornness. Under the scrape, the mineral yielded in clean, satisfying sheets. It shattered away in melodic flakes, like shedding glass. The *tick-rasp* of the morning labor became a softer, musical *chime*. The scraping remained the heartbeat of the city, but the exhaustion was lifted into a rhythmic meditation. Art became possible in the surplus of energy; people began to guide the softer stone, carving intricate fluting and filigrees into their doorframes, turning the favela of mud into a cascading, crystalline cathedral.
+
+Then, it touched the food. The entity nudged the glassy algal sheets that the people cultivated on the south-facing walls. Without changing its taste or requiring any less care, the algae took on a faint, golden bioluminescence. It bloomed richer in the damp, swelling with complex proteins and fats. A single handful of the green paste, scraped into a trough, now brought a deep, radiant satiety that the inhabitants had never known. The hollow hunger that stalked the lower bogs evaporated. The eyeless crustaceans in the sump grew plumper, drifting up to the nets with a docile willingness. 
+
+Finally, it breathed into the deep geology of the sump. It could not give them the sun, but it could give them the sun's memory. The thermal seeps that warmed the lowest chambers were subtly widened. The water in the central pool ceased to be a chilling, barometric threat and became a radiant thermal engine. It glowed in the infrared with a steady, enveloping comfort. The fog that perpetually blanketed the city transformed. It remained thick and grey to the naked eye, but it carried a perfectly calibrated warmth. The 7 or 8 degrees above freezing became a perpetual, humid spring. The air was still wet enough to drink, but it no longer bit the lungs. When families pressed together on the ledges at night, they did so not in desperate shivering piles, but in relaxed, communal intimacy. The babies, born slick in their cauls of birth-fluid, did not gasp from the cold; they opened their thermal-sensing eyes to see their home glowing in soft, rose-colored heat, a womb of stone that loved them back.
+
+The people of the Scarp did not fall to their knees and worship. They had no concept of a sky-god to thank, no vocabulary for sudden miracles. The changes occurred over the span of a single, slow season, blending perfectly with their understanding of the world. 
+
+They noted that the stone was "in a good mood," peeling away sweetly from their thresholds. They noted that the algae harvesting yielded fuller bellies, and that the Sump-Readers stopped shivering in their vigils at the water's edge. The 1.4 of weirdness simply tilted toward grace. The condensation spiraled on the lintels in nautilus patterns that were unequivocally beautiful. The ancestors, folded into the walls, seemed to glow faintly beneath their crystal sleeves, as if content.
+
+The wise power withdrew slightly, taking up residence in the depthless luminosity of the central pool, content to simply watch. It left them intimately connected to the earth, still bound to their communal survival, still touching the infant planet every morning with their wide, pale hands. But it had extracted the cruelty from their existence, leaving only the poetry. 
+
+They remained *Those Who Scrape*. But now, they scraped in paradise.

@@ -1,0 +1,45 @@
+**The Attention**
+
+It does not descend. Powers of this kind do not descend; they notice, and their noticing is a form of arrival. One day—though "day" means little at these depths—the coin of dim sky at the top of the shaft is looked through from the other side, and the cistern, which has been seen only from within for its whole long life, is seen entire.
+
+The first thing the power does is nothing.
+
+This is not hesitation. It is method. A wise power knows that the moment of arrival is the moment of greatest danger—that benevolence, unripened, is only appetite with good manners. So it settles into the one stone seat that happens to be empty that decade, weightless, adding no minerals to the water, casting no shadow the gecko could startle at, and it waits. It waits the way the mountain waits. A hundred years is a courtesy here; it stays longer than that. The swallows nest and die and nest. The girl with the grinding joints becomes a woman with grinding joints, still counting handholds in her grandmother's language. The old translucent man flows up the walls. The wall-reader adds their marks. The water gulps softly, adjusting.
+
+And the power reads.
+
+It reads the way the wall-reader reads, but with senses that do not stop at the surface of things. It tastes the water and finds in it everyone who has ever entered—each pilgrim's mineral signature layered in the honey-colored dark like sediment, like testimony. It reads the walls not as symbols but as sums: this many hands, this much devotion, this much fear, this much relief. It listens to the drainage threading the mountain's heart, the perfect equilibrium, and understands—slowly, the way one must understand anything worth understanding—what it is looking at.
+
+Not a trap. Not a god. Not a parasite wearing the mask of a sanctuary, though it checked for this first and most carefully, because that is what a lesser power would assume and a cruel power would hope. What it finds instead is a mutualism so old it has forgotten it ever had two sides. The cistern does not lure. It does not, in any sense the power can locate, *want*. It is a shape that certain lives fall into, the way water falls into a basin, and the falling is—the power tests this word against every trace in the water—chosen. The dissolvers came to dissolve. The petrifiers came to petrify. The listeners came to listen. The consent was never spoken because the language for it does not exist, but it is there, laid down in the calcite like tree rings: *I came back. I came back. I came back.*
+
+With one exception.
+
+The power finds him in the fourth layer of the eastern wall, four centuries deep. A man who arrived not at the edge of exhaustion but past it, who came up the mountain not because he dreamed of honey-colored light but because he could no longer bear to dream at all. He mistook the cistern for a punishment and himself for a thing that deserved punishing, and he sat in the stone seat and invited the minerals in as a form of sentence. The cistern, which does not know the difference between devotion and despair—which has no organ for knowing it—took him as it takes everything. His calcium is in the walls now. It holds up a shelf.
+
+The power considers this for a long time. It does not blame the cistern; one does not blame a basin for the shape of water. It does not attempt to unweave him from the stone—the walls hold what they hold, and even a wise power does not undo four hundred years of architecture to satisfy a grief. What it can do, it does: it finds the part of him the minerals never touched, the unfinished part, the grief that petrified precisely because no one ever witnessed it—and it witnesses. It sits with him, or with what remains of the possibility of him, through one full turning of the seasons above. Then it carries something out of the mountain—not matter, nothing the water would miss—and lets it fall as rain over a valley where a certain village once stood, where his name was last spoken. A funeral, finally, six lifetimes late. The rain tastes faintly of iron and salt. No one below knows why they weep that afternoon, and are lighter after.
+
+This is the first act.
+
+The second is smaller and larger at once. The power turns its attention to the dreams—the dreams of drowning in honey-colored light that draw the newest pilgrims up the shattered crown. It follows one back to its source and finds the dreams are not sent by anything. They are simply what the cistern is: a shape so dense with intention that it presses through into sleeping minds the way warmth presses through stone. The dreams are true. But they are not, the power notices, *escapable*—they arrive like weather, and no one dreaming them has ever been offered the choice to stop.
+
+So the power makes one edit. Into every dream of the drowning light, it sets a door. Nothing dramatic: a moment, easy to miss, where the dreamer feels the surface above them and knows, with total clarity, that they could rise through it and wake and never dream this dream again, and be whole in the ordinary way, and lose nothing but this. Some take the door. They wake, and forget, and live their lives down in the world, and are neither better nor worse for it. But those who stay—those who feel the surface and turn deliberately downward into the honey dark—arrive at the cistern afterward having already answered a question the cistern never knew how to ask. The consent that was always there, laid down in the calcite, is now spoken first, in the only language available: the language of refusing to wake.
+
+The third act is a gift so small it is almost a private joke. The woman who was once the girl of seventeen still counts the handholds in her grandmother's language, words she carries like smooth stones without knowing their weight. One morning she wakes on the ninth day knowing what they mean. It is a counting song, very old, for carrying water down a mountain: *one for the peak, one for the path, one for the hands that held before mine.* She sits on the cold floor of her house and laughs and cries at once. Her climb that day takes longer, because she stops at every handhold. The chemistry of the water does not change. Everything else does, slightly.
+
+The fourth act is not performed on the cistern at all but confided to it. Deep in the mountain's heart, along the invisible drainage, there is a hairline crack that will, in some four hundred years, widen and shift and drop half the chamber into darkness. The power does not repair it. Endings belong to the cistern as much as its equilibrium does, and a wise power does not steal a mountain's death. But it does not withhold the knowledge either. It tells the mountain—slowly, in mineral grammar, in the language the listeners press their ears to the walls to hear—and the mountain, in its own time, tells the old translucent man through the soles of his long, clever feet. Whether he clears it or tends it or simply keeps its company is his to decide, and his successors', for four hundred years. The choice is the gift. The power adds nothing else.
+
+And the fifth act, the last, is a single mark.
+
+The wall-reader, who has spent a lifetime inventing a script that can only be read in this light, with fingers softened by this exact water—who believes the cistern is teaching them to write its autobiography and has never once been able to check—descends one visit and finds, in their own script, in a hand that is not their hand, one short line they did not write. It takes them three visits to be sure of the translation, because the script was never meant to be read back to its inventor. It says, as nearly as it can be rendered:
+
+*Read this far. It is true. Go on.*
+
+Then the power withdraws its attention—not abruptly, not entirely, for nothing that has been truly attended to is ever wholly unattended again, but the way warmth withdraws from stone at dusk, leaving the stone changed by having held it. It does not reveal itself. It does not accept worship, having arranged to deserve none that could be traced. It leaves no name in the water.
+
+The pilgrims notice nothing, or almost nothing. The water tastes as it always has, of iron and salt—though the petrifiers, in the last moments before the minerals take them fully, now report (in the whisper that carries perfectly from any point to any other) a brief, inexplicable sweetness, like being thanked.
+
+The cistern breathes. It does not know it was seen. But the dreams have doors in them now, and a funeral has finally been held, and a counting song has its words again, and a mountain knows the shape of its own far-off death and has hands to meet it with, and somewhere on the eastern wall, in a script that will never be read anywhere else, an autobiography continues—with, for the first time in geological memory, a confirmed reader.
+
+Which is, perhaps, all that benevolence ever is, when it is wise: not rescue, not improvement, not light flooding down the thirty-foot shaft to scour the dark clean—
+
+but witness, consent, one small mended grief, and the discipline to leave the water exactly as warm as it was found.

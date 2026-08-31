@@ -1,0 +1,55 @@
+It does not arrive like weather, or instruction. It arrives the way dew arrives: by taking heat out of the air until a held breath can show itself on stone. The first thing it does is place its ear to the place the way the place places its ear to itself. It listens with the weight of a mountain under it and the tenderness of a beetle’s foreleg on a drum.
+
+Benevolence here is not rescue and wisdom is not arrangement. What it decides, after a long, accurate quiet, is to lengthen what is already working. To move nothing that does not beg to be moved. To hold its palm under a handful of small inevitabilities the way you would for a child navigating a high stair: not to keep them from falling—they must sometimes fall—but to turn a sharp edge into a round one and a break into a bruise.
+
+It leans very slightly on physics.
+
+Nights deepen by a thumb-width. Nothing anyone can tell in an hour; everything that matters can tell by spring. The emissivity of the stone is lowered by less than a thought; the rock sheds heat just slowly enough that the air at its skin, right where the microfilms and silked crack-lips can feel it, can come down across the line to water a little more often. Not every dawn; perhaps one extra wetness in twenty. The difference lives in baby lungs and midge eggs and the days when a snail decides not to seal itself.
+
+It edits wind with a scarf’s touch. Across the long flat back it smooths a turbulence into laminar, so that dew fences made of resin and thumb-stones get to keep more of what they comb. Breezes come with the same names, only with the letter at the end held a fraction longer where the rosettes’ backward teeth wait to gather it. A fog that would have passed a kilometer to the east pauses twice a year as if it remembered a word and could not put it down.
+
+It teaches one knot.
+
+The pale ants that silk their cracks learn, in a way that is not lesson but appetite, to cross their threads not just as veil but as very loose weave—enough to trip slightly larger beads without clogging the breath. No one remembers learning. The young do it as though they always had. The fungus below grows a little colder and a little richer, and so the padfoots passing at dusk tap an extra beat of thanks without quite knowing why. Spiders string their traps a finger lower, because that is where insect bodies now spend that extra bit of damp.
+
+It adds a word to a language that already knew how to say everything else.
+
+At dawn, when the bedrock hum lifts somewhere under the jaw and floats along the skull sutures like a tide, there is a new undertone, a found note below the lowest. It says: farther. The padfoots hear it with their feet. In their afternoon drumming they fold in a pattern that will later be recognized as route—a slow bell shape of thumps pointing along a chain of gnammas few had linked before. Not new pans; simply a more permissive way of moving among old ones. Over the next eight generations this becomes custom: a winter circuit that spends less sweat for the same news. The crust grazed in its wake answers with greener on its margins because it is touched and relieved in a cadence that suits it.
+
+It stands in one place for a long time and makes shade.
+
+Not a cloud, not magic. A bird with migrations on its bones comes one dry season to fail in this stone country, and the power lays a veil over the day the way heat shimmer itself can do, so that afternoon is a degree’s mercy for a time. The nest in the mouth of the tafone keeps its second chick instead of the first; that chick survives the wet and, five seasons hence, has a habit of riding the higher thermals to drop down with less panic and less noise. The interval between wing shadow and footfall swells by the space of a sigh. Lizards have time to make one more correct choice in their lives.
+
+It does one act of refusing that is not a rule but an influence: it becomes uninviting to maps.
+
+Not to animals. To the briefness that travels with people who do not mean harm but can manage it without intending. For those whose eyes are tuned to ridgelines and resources, this height looks, inexplicably, like the kind of blank that is not worth a stop. The anvil of attention glances off. The heavy hands go elsewhere. The dropped rock that would have made four evenings of grief never quite leaves the hand. The story that might have brought others does not get told because the teller cannot find the beginning of it when asked. In town, someone means to say “there” and finds that “there” has already become “somewhere else.”
+
+It learns the padfoots’ practice of adding rather than cutting and follows it.
+
+When a calcited skirt around a standing stone slumps in an unhelpful rain, gravity would like to finish its thought. The power lets the slump complete, then underwrites a season of tenebrionids with just enough appetite that their polishing, their calcium, and their minor stubbornness raise the chimney back to usefulness in half the time. No thunderclap, no hand in the frame. Only a few hundred thousand small bodies wanting this particular circle a little more than they otherwise would have. Mist, thinned to lace, once again finds its throat and drips.
+
+It does not spare prey or legislate hunger. It refuses catastrophe.
+
+Predators keep the good work of attention and the graces of being sharp and quick in a slow place. But the rare, ruinous mistakes drift out of inventory. No nest of white larvae drowns because three drops decided to become one. No old padfoot dies under a surprised sky; if there is to be an ending it occurs either in the thick green smell of the woven shrub-thicket, bones cooling where they have been warmed a whole lifetime, or in the clear attention of a hunter that uses what it has been born to use. It is not mercy so much as editing of freakishness. A certain kind of gust does not visit. A pebble does not lose its purchase on the lip of a pan on the week when losing it would have started a slide that would have undone a century of lichen arithmetic.
+
+It gives the place time.
+
+That is, perhaps, the central gift. Long threads of climate draw tighter in areas that do not hold on, but here there is a little unworrying of the knot. Shifts still come, but their emphasis arrives with longer vowels. The shrubs tilt a hair farther south over a hundred and thirty years instead of eighty. The checkered pastures of crust, nibbled and rested by padfoots, complete their square-to-vein-to-map conversion while their owners still live to drum on them. The old river’s healed scar has time to practice its greener-gray until the cracks below it become a reliable private aquifer. No one notices any of this as a miracle. It is the sort of luck that looks like restraint.
+
+For the singular being whose life drew this attention—call them one padfoot among the rest—there is a thing made especially and as little as possible.
+
+In the second season of its first parenthood, when it is thin from carrying and almost missing the one dew that keeps the milk sweet, it finds itself—without thought for why—stopping in the afternoon at a polished rock it does not usually care to play. The instrument takes a clearer tone that day than its history should allow. The being thumps, thinking only of habit, but the pattern that comes out under its hands is new, a way of saying need that is urgent without being panicked. The neighbor that habitually ignores them does not ignore them that evening. The neighbor’s circuit is not broken to come, it is widened. They lean bellies together in the cactus shade-smell and between them there is enough fat and enough dew, and the small, damp snout finds milk. It will not remember being saved. It will be a mother later who stops on an unmarked afternoon and drums exactly what the day wants.
+
+The power stays because leaving and staying look the same when your instrument is patience.
+
+Its action becomes a practice: a quarterly nudge to a breeze field; one correction to a stariness of nights that would otherwise too efficiently leach heat; the ongoing suggestion to ants that a slightly different crossing tightens their weave; a quieting, year upon year, of the urge to tell anyone loud about this height. Once, many years later, a person does come up with the sort of hands that could break the place without meaning to. The place does what it is good at too: it looks like itself. Broke person into slow person. The visitor ends up spending an afternoon with their cheek to a polished depression because the depression politely demands it. They lower a stone they had lifted. They go away carrying a new habit of listening that costs the plateau nothing and may, in some other loud valley, save a different creature’s nest.
+
+When storms come, it shifts an edge. It does not move the shoulder of the weather. It turns the head slightly so that the blow, when it lands, matches the shape of bowls and spigots that already exist—old channels remembered wake up and do their work, new gouges do not get the chance to invent themselves. Afterward the arithmetic of drip to geometry of curl resumes without a tallying of losses.
+
+All this will look, to those who can see it, exactly like luck and then like the place having always been this way. That is how the wise prefer their signatures here: in the general humidity, in the slight kindness of afternoons, in the confidence of a town that knows it is being witnessed by something that will not demand an anthem in return.
+
+In exchange, because even benevolence wants a conversation, the place keeps up its end by doing what it has always done only more completely: adding and polishing and remembering. It becomes slightly better at being itself. Its drumming is taken up in the stone and carried a little farther than before, until a household two flats away can answer with a reply that makes an old female of the first household lay her ear to the ground and smile with whatever part of her body smiles.
+
+None of this is visible from a satellite. None of it is dramatic. If you stand at midmorning on the lip of a pan with its ring of dew-catchers set like small teeth and you are quiet enough to be mistaken for a kind of lichen, you might catch the evidence in the negative: that there are fewer hard corners on misfortune; that the tiniest work goes on without interruption; that the town’s breath comes and goes like a tide with fewer stutters. Somewhere a mouth drinks a mouthful right when it needs to. Somewhere a ring of pebbles holds and does not slump. Somewhere a youngster learning to drum hears, like a mountain humming to itself, a low answer that says yes, yes, I hear you; carry on.
+
+What does a wise and kind power do here? It becomes an accomplice to the plateau’s memory. It chooses to be a wetness you cannot name and a patience you cannot exhaust. It adds almost nothing you can point to and removes only the things that would have had no story. It signs its name between the drops in a ledger where water finds its way not by flowing but by remembering where it belongs, and then it holds the page steady while the town writes.

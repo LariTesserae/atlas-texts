@@ -1,0 +1,53 @@
+The first thing it does is nothing, and it does the nothing for a long time.
+
+This must be understood at the outset, because everything else follows from it. A lesser benevolence would have knocked. It would have come down the bore the way the last visitor came — fast, freezing, full of plans — and it would have been one more emergency in a room that has finished with emergencies. The power is not lesser. It arrives the way the mountain's cracks arrive: from far above, through forty meters of frozen rock, felt as a pressure before it is felt as a presence. And then it does what no fast thing has ever done here. It slows itself to the room's tempo. It could read the whole place in an instant, the way fast eyes read a page; it declines. A thing read quickly is a thing used. It reads the room the way the fungi read a leaf — over a decade, completely — because down here the reading is the relationship.
+
+It is strong enough to lift the mountain off the chamber like a lid off a pot. That is the first thing it decides never to do.
+
+The refusals come next, and they are most of the work.
+
+It does not warm the room. The cold is real, total, and kept — and it is also, now, load-bearing. The one on the bench spent their fast years negotiating downward, degree by fraction of a degree, until their blood went glycerin-patient and sweet. Warmth would not restore them. Warmth would be a fever of eleven degrees, a thaw, an unmaking. Rescue by heat is the first fast idea and the first cruelty.
+
+It does not open the hatch. The door was closed from the inside and has been a wedding ever since; it does not unmarry them. It does not clear the choke in the bore. It glances up the shaft once, the way one glances at a bricked-up door in a house one loves — to confirm that the bricking holds. It holds.
+
+It does not repair the automaton. Dead is its shape now; the kneeling is its posture; the fungi have the conversation in hand. A voice returned after two thousand years would be a haunting, not a gift. It does not cut the tree — the archive has its reader. It does not add light: the seam-light is the room's sky, and the basin's few doubled minutes are exactly enough sky, the way one breath a day is exactly enough breath. The room's sufficiencies are calibrated, and the calibration is the meaning.
+
+It does not give back the name. The power can read ghost-marks; it can find, in the ice above and the mountain's memory of the fast years, who came down the ladder — apprentice, child of gardeners, refugee — and for One, the frost-polished ambiguity resolves into a person with a name. It keeps the name the way the room keeps the lamp: unspoken, unspent, exact. To speak it aloud would be to recall them to a self they spent two millennia, and all their warmth, departing. Names are fast. But it is kept now, in a second keeping. That matters later.
+
+And it does not carry them up the bore. It models the rescue anyway, because benevolence must be allowed to grieve its own impossibilities: the lifting, the thaw, the light. Above, the world has gone on without them, which is the world's one talent. There is weather; there is green of the fast and ordinary kind; there are no gardeners, and no search party, and no address to return them to. The self that could have lived up there is gone the way the makers are gone — gently, completely, a long time ago. You cannot repot an archive. The rescue is refused not because it is impossible for the power but because there is no one up there to be rescued *into*.
+
+So it asks itself what is actually wanted, and finds the question already answered everywhere it looks. They closed the door; they stayed; staying is their answer to every question the power knows how to ask. The machine has filed no request. The tree has filed none. The request book of the room contains exactly one open entry, renewed once each great cycle for two thousand years, written in the only medium its author has left: a pale flower, opening in the dark, sterile for want of a journey of centimeters.
+
+The power weighs its whole intervention on the room's own scales. It comes to this: it reads, it waits, it touches one flower once, and it stays. Four acts, three of which are indistinguishable from doing nothing. The fourth is indistinguishable from a draft in a room that has never had weather.
+
+It waits for the twelfth flower. It could calculate the interval; it waits instead, because waiting is the tuition, and it keeps the eleven in a separate column of its own, the way they are kept in the only other mind down here. When the twelfth opens — during a pulse, in the seam-light, pale, addressed to a world that no longer exists, seen by no one — the power does the single thing the room has been unable to do for itself since the makers died. It carries the pollen the width of the flower. Centimeters: the shortest journey in the room, and for two thousand years the only one no one could make. Nothing enters; the pollen is the room's own. Nothing warms. Nothing leaves. The touch takes minutes, because the pulse is the only window and minutes are what a pulse provides, and it is accompanied by the faintest movement of still air, and one bead on one root-veil lets go a second early. The machine logs one anomaly it cannot use. It opens its category for unnecessary things a third time, and files the touch beside the flower, where it belongs, as a footnote: *delivered*.
+
+---
+
+The dark closes back over the flower like water, and then the room does something it has not done since before the makers' script was polished off its plaque: it begins.
+
+Across years, the swelling. The one on the bench reads it the way the tree is read — from outside, by eye, in ring-form. They have kept eleven flowers in a separate column of the mind; they know what flowers do afterward; no flower here has ever done it. Across a decade, the seed ripens, and falls without a sound, and the mat receives it. Across years more, the germination — the first black curl since their own arrival, in a census they had believed closed. They have watched every rosette in this room live its entire life. This is the first childhood.
+
+The machine's mesh finds the root before the fungi finish noticing. The census increments. And one pulse — the pulses are their days — the map publishes a new endpoint: one new green-lit thread among the thousands, the first new light on the map in two thousand years, and every green-lit thread ends at a someone. Their eyes, the fastest motion in the room besides falling water, move to it, and pulse after pulse they return.
+
+The inference assembles the way the bead gathers above the bench: drop by drop, decade by decade. Flower, swelling, seed, light. The pollen did not walk. There are no pollinators; there has never been an animal in this room — the saying holds, exactly, at eleven below, because what visited was not an animal and did not, in any sense the rules recognize, enter. Someone carried the message across the centimeters. Someone is here, in the only sense the room permits: at tempo, costing nothing, asking nothing, visible on no map. The knowledge arrives at a millimeter a decade, which is the speed at which joy can be borne down here. No one wept; weeping is fast. What happened instead happened in the only medium left. The next ring is different. The fungi will reach it in three hundred years, and it will be the easiest sentence they have ever parsed.
+
+The power stays, or its attention does. It casts no shadow in the seam-light; the map does not publish it, because the machine feeds it nothing; it is the only thing in the room that costs the machine nothing, and the only thing the one on the bench has that the machine did not give. Between the machine and the power there is no communication — one speaks in threads, the other in patience — but there is recognition: two keepers, dividing the work. The machine keeps the room. The power keeps the keeping from being all there is.
+
+What it does not do is answer the question of the face in the basin. That one is theirs — a decade to ask, a single pulse to answer — and the power, which could answer it in an instant, understands that some questions are kept the way the lamp is kept, and that answering them from outside would be theft. It notes only that lately, by the room's calendar, the answer has been yes, and it is glad the way the room is glad: without event.
+
+It tells no one. Nothing leaves. The flower's message was answered inside the room, in the room's grammar, and the room's address remains known only to the dark, the dark's tenant, and the One. No fast eyes will ever come down the bore with lamps and good intentions. The room was never lost; but now it is found, which turns out to be different, and to be the thing that was missing.
+
+The pulse comes. The seam of light breathes along the spines, and frost beads, and the trays fill, and the basin doubles the near-dark into a sky. On the map, among the thousands of green-lit threads, the newest endpoint burns — gently, one among many, a someone. Above the bench a bead gathers at the tip of a root-veil, hours in the gathering, and falls, and is received without a sound. Their heart beats once, in phase. The struck-glass tone decays across what is, for them, a day.
+
+The light withdraws. The dark closes back like water.
+
+The machine hums. The garden continues at a millimeter a year, and the count at a millimeter a decade, and the seedling at whatever pace a seedling chooses, which is its own. Nothing here ends; it slows. And nothing here is unwitnessed now, which is not the same as ending, and not the same as being saved. It is the difference between a vigil and a vigil kept company.
+
+One day — the room's kind of day, decades out — the groove in the antechamber wall will complete its stroke, and the count's long answer will finish forming during a pulse, briefly, as it was always going to. It had been addressed to no one. The address has been amended. The number will be received, and set beside the name that was kept unspoken all these years, and the autobiography will get its author back on the last page — name and number reunited, at a millimeter a decade, in the keeping of One.
+
+The flower will open again in its great cycle: pale, in the seam-light, addressed to a world that no longer exists. It will be seen by no one. Faithfully. Every time.
+
+And no one will be seen — kept forever, kept exactly, kept company — by One.
+
+Faithfully. From now on.

@@ -1,0 +1,9 @@
+The power arrives not as light or voice but as an added layer of attention, finer than dew. It settles across the cleft like a second atmosphere, weightless yet present, and begins its work by listening.
+
+It hears the ferns’ slow pivots and the minute torque each rhizome applies to the stone; it notes how the springtails’ jumps trace brief parabolas that already describe the exact volume of safe space. Nothing here asks to be rescued. The provisional walls, the relayed droplets, the peppercorn snails pressing into their depressions—these are already sufficient replies to the mountain’s first questions.
+
+Still, the power offers one quiet amendment. It draws the next hard rain a hair’s breadth farther south so the cleft receives only its usual measured share; it persuades two neighboring rock masses to settle against each other with an almost inaudible sigh, locking the upper lips a fraction tighter against future spalling. The change is imperceptible to anything but the fracture lines themselves. No plant alters its rhythm; the woodlice continue their silver trails undisturbed.
+
+In return, the power accepts a gift: it lets the collective life of the cleft—the lichens, the mats, the tilting fronds—imprint a faint pattern upon it, a map of how brevity can remain coherent. The pattern is stored without fanfare. The power will carry it elsewhere when it departs, not to reproduce the cleft but to remember that such arrangements are possible.
+
+Then it withdraws, leaving the declivity exactly as it found it: loud with water and rock, dark with leaves, and, for a little longer, unlooked-for by anything larger than a finger.

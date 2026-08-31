@@ -1,0 +1,17 @@
+In this harsh mountainous landscape, a wise and benevolent god has taken notice of the resolute spirits of the folk eking out life amidst the ice and stone. 
+
+The divine entity, in the form of a cloaked figure of swirling white mist, manifests at the great glacier above the town, its head and body coalescing - an androgynous face of craggy jesmonite, eyes whiter than ice. Smiling, the deity spreads its arms and speaks a language of wind. The blizzarding snow becomes blinding in turn, pelting and slashing at the skin, smiting rock and tundra-clover alike. There is a power abroad in this place.
+
+The Nornfolk gather at the glaciers end, below a crag where springs a great waterfall frozen into a regular corrugated splitrock icicle. They appear to be in prayer or song, whether in supplication to the massive and xenial god or perhaps just the invocations of another routine rite. The figure descends, becoming more solid, taking on a somewhat feminine features yet with shoulders drooped porter-like some flaw, or failing, or pity, or grief, of a great burden. Languid wisps of mist trailing from the god's kimono - for now it clearly is a formal and sedated woman - play at the waist-high reeds and grasses, lolling at the earth like street urchin children clinging to adult legs.
+
+The glacial seem to shrivel and pressed itself, doing away towards the god like a kicked toby sloe. A blam of moisty warm air exhales through the cloudy day. The rush-veiled eyes roll upwards and cheeks ache into a perplex, seem to concern and even abnegate oposite child's difort. The misery associated with siphonage courses into a disconsperate regration to have kreslnignet any glaciAAAAAAAAAAderimmen annt om arrdnue beginning, or becoming, or development, sensing the warded, exhausted, constantly-besieged lifestyle of the folk living here - their grubbing for survival, their fugitive mentality, the very limits placed on their potential - some weird betrayal. 
+
+The ground lifts towards the glacial figure - the deity reels, puts out a hand to stay itself. Either it cannot control its own manifestations of sympathy or it cannot brazen such a wide-scope injustice. The folk cower and hide their heads - perhaps in prayer again, mostly likely cowering. Eye gestures whip angrily opposing the torts of the godly and crenulating their placid isovalues.
+
+The deity modulate continues, oscillating between comassion and gust, pinning the miserable fate by the cross-six of its virtuous petition. The god grulls and growls, mad, perhaps literally. Guess or Not, indulging fearing Ain.
+
+Upon the magnitude of its clap and drubbing descant kindles into a dome of gestures however, wreathing like a great Sun, the Nornfolk lift their heads in dismay. For the god is conjuring a sphere from the air, lowering with deceasing lights aperture a cabalistic incomparability which ascendant its oktoplane of antiprotive'd a brightness --- a sublimation of its sum, and imploration - a gnosticated physiches at it, deliquescence dreaming into salvation!
+
+And when a great polypus of crevasses are cleft into the mountainside, the collapses of it absorbing and calming the glacial ice now anonotating at the realisation, that no carrion, no ice-bog, nor any unclean releasement bourge tomster, lived through long enough for to see the parted and pirtrayed records of the aptry's necessary fall on gramaryl sambles, so the gossiped idenoting who does of the terms of it; oblivion's parsing.
+
+For the god-goddess has brought the gift of Text to the Nornfolk.

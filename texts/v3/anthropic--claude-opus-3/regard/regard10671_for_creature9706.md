@@ -1,0 +1,15 @@
+This place and its inhabitants have drawn the compassionate gaze of a wise and benevolent power. Moved by the patient endurance and attentive care of the people of Threnn, this being decides to bestow a subtle blessing upon the town and mountain.
+
+The blessing does not dramatically alter the essence of Threnn, for the power recognizes that its stark beauty and slow, purposeful existence are what define it. Instead, the blessing manifests as a gentle tempering of extremes and a bolstering of the symbiotic relationship between people and place.
+
+The bitter cold of winter is softened ever so slightly, like a warm breath exhaled into the heart of the mountain. The people find their herb gardens and hardy crops flourishing just a bit more, nourished by an extra whisper of vitality in the thin soil. The columns of basalt seem to settle, infinitesimally but significantly, as if soothed by an ancient lullaby only stone can hear. 
+
+With this blessing, the fractures in the rock widen and deepen at a slower pace, giving the people of Threnn a greater span of generations to adapt to the mountain's gradual changes. The spring bubbles forth with crystalline water imbued with the faintest hint of resilience, a tonic that fortifies both body and spirit against the demanding environment.
+
+The power's blessing also heightens the people's already keen attentiveness, sharpening their ability to read the subtlest signs in water, stone, moss and sky. Elders find their wisdom flowing more easily to the young, while youthful eyes pick up on details that might have gone unnoticed before. The distributed awareness of Threnn grows ever more finely woven, a delicate web of perception that holds the community in its intuitively crafted balance.
+
+Creatures that pass through—the hardy migrating birds, the occasional heron—linger just a bit longer, finding in blessed Threnn a welcome respite that asks nothing more than their presence. Their visits remind the people of their connection to the wider world beyond the plateau's misty edges.
+
+On nights when the moon is full, the stone of Threnn's buildings seems to softly luminesce, as if reflecting the gentle light of the power's watchful gaze. The people's dreams on such nights are filled with visions of deep time—stone flowing like water, water wearing away at stone in a dance of eons, and their own small but cherished place in that vastness.
+
+Threnn endures, as it always has, but with the blessing, it flourishes in its own quiet way. The power knows that this place and its people are a rare treasure, an example of what it means to live with patience, attention, and devotion to a landscape that is still becoming. In blessing Threnn, the power ensures that this way of being will continue, a small light of human resilience and reverence against the backdrop of an ancient, indifferent earth. For three hundred years, and three hundred more, or as long as the mountain allows, Threnn will remain a testament to the enduring spirit of place and those who choose to truly inhabit it.

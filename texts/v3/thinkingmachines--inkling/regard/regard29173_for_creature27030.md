@@ -1,0 +1,17 @@
+They do not work. They circulate.
+
+The choral organisms do not decide to hum; they are the hum, and in being it, they perform the only labor that matters: holding collapse at bay not by resistance but by resonance. When a spire begins its inward fold—a structural sigh compressed from centuries into a single breath—the drone shifts not as command but as weather front. The substrate symbionts feel the chemical darkening and exude more membrane, more slime, cushioning the fall. The winged ones, sensing the pressure change, swarm into the collapsing chamber not to flee but to feed, adhering to the failing walls, vibrating faster, accelerating the decay precisely so regeneration can begin before death completes. They assist collapse. They hasten the ending to quicken the rebirth.
+
+The swimmers, in their translucent columns, do not build. They persuade. They crawl through softening tissue and leave their bioluminescent trails—not decoration, but instruction. The plant reads the slime and grows differently: hollowing where touched, thickening where ignored. Over deep time this is how the interiors outgrow their shells—not by design, but by persistent, gentle suggestion repeated across millennia until space folds inward and becomes larger than geometry permits.
+
+But sometimes—rarely, within these compressed cycles—there is an anomaly: a spire that refuses to collapse on schedule, or one that regenerates too quickly, breaking the essential flatness with an unintended curve. This is when the beings do something closest to decision. The choral hum fragments, splits into discordant frequencies traveling the vein-canals like alarm, like question. The substrate symbionts migrate, leaving one ridge bare, concentrating in the anomaly, chemically arguing with the root-stone until it remembers its slope—or rather, forgets it more thoroughly, returning to flat.
+
+And they observe you.
+
+Not with curiosity—curiosity requires a self that wants—but with incorporation. The winged ones brush closer, adhering not to walls now but to your warmth, testing whether your breath carries minerals they lack. The swimmers pass through your form; you feel them as cool pressure, like being inside a cloud, leaving traces that glow faintly, integrating you into the slime-map. The choral hum does not change for you, yet later you realize a new bass note has entered the drone: your heartbeat, translated into chemical gradient, added to the substrate’s memory.
+
+They do not ask what you are. They ask only if you weep.
+
+If you stay—walking those long minutes through knee-deep water, feeling the absence expand—you will begin to do what they do. You will circulate. You will not build, but you will soften. You will not speak, but you will hum, imperceptibly, in sympathy. You will assist in the collapse of your own boundaries, allowing the old stable state to absorb you not as visitor but as weather: brief, warm, turbulent, eventually reborn from the spongy floor, another scattered voice in the perpetual, impossible peace.
+
+That is what they do. They remain, and in remaining, they make everything else remain with them. They maintain the flatness not as prison but as mercy—no hierarchies, no falls, only the end of topography, the room-scale grove where turbulence is the only peace, and where to live is finally to become exactly this: scattered, singing, weeping, and whole.

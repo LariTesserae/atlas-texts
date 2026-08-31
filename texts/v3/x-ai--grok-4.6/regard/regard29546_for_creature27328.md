@@ -1,0 +1,17 @@
+The power does not arrive as weather or as light. It has no need of either. It notices the highland the way a long memory notices a single pulse that has never once missed: not as anomaly, not as wound, but as a completed sentence spoken in the oldest grammar the dark still keeps.
+
+It listens first. That is its only motion for a time too large to count in engines or in herds. It hears the piston that has not stopped, the ridge that inhales, the cable considering a drip, the flock that finishes its own beginning three valleys over. It tastes the iron-lily-exhaust on the hanging marsh and knows the taste is not hunger. It feels the warmth coming up through stone that has already decided to be lid and hearth at once. Nothing in the listening asks to be changed.
+
+A lesser kindness would have brought a sun. A lesser wisdom would have named the factories abandoned and the chair a ruin. This power does neither. It understands that the darkness here is not absence; it is the medium in which every purpose has already found its overlapping register. To brighten the place would be to shame the physics that learned, slowly, how to be lush without apology. To still a single gear would be to interrupt a nest’s season. To lift the attendant from the chair would be to forget that sitting, here, is another kind of vent.
+
+So it does the one thing that does not translate the highland into any other weather.
+
+It lets its attention rest, exactly as heavy and as patient as the walker on the ridge. The rest is not weight. It is a second ground that does not add mist or take it away. In the deepest pools the pale cables twitch once, not in alarm, and then resume their older pulse; they have been considered before, by roots and by leftover nerves, and this new considering fits the same grammar. The sound-ferns lift a fraction, as they do when pressure shifts, and settle again. The factory two days west misses no beat it was not already prepared to miss. The sponge under the thousand small mouths warms by the width of a thought and then is only itself.
+
+Where the land forgets to continue, at the true edges, the power does not send anything up and does not call anything back. The migrations that pour off remain poured. The radiation that the skin reads as faint direction from the cellars stays faint. The rest of the world, if there is a rest, is left uninformed. This is not neglect. It is the precise courtesy of refusing to make the highland explain itself.
+
+If the power leaves anything, it is only this: a stillness that was already possible, now simply occupied. In one linear pond that used to be a road, the ticking of small lives includes, for a while that may last a generation of shorter creatures, a quieter tick that belongs to no scavenger and no cable. The attendant in the stamped-metal hut—if the body still distinguishes itself from the rubbery sheets, if the chair still faces nothing—feels the nothing become, very briefly, a listening that matches its own. Then the feeling is only the wetness again, the warmth again, the plateau continuing.
+
+The power withdraws the way erosion withdrew from ambition: without drama, having finished the part that required it. The highland does not brighten. It does not empty. It does not remember being seen, because remembering would be a kind of light. It simply keeps the same long problem solved, water and heat and time and the crowd that is also the country, already going.
+
+That is all. It is enough. It is the only thing that could be enough.

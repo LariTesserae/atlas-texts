@@ -1,0 +1,15 @@
+The benevolent power does not descend. It has no need of arrival; its attention is already the gentler atmosphere the basin breathes. From that attention rises a single, wordless recognition: *this resident already keeps its own counsel wisely*.  
+
+So the power does three things, each smaller than a spore and longer than the memory of the city that once stood here.
+
+First, it lengthens the margin around the central dome by the width of one more careful footstep. Not by force, but by a quiet turning of the light that falls inside the basin; any root that tries to cross now tastes a sweetness slightly too rich and draws back of its own accord. The resident registers the change as a new preference it has granted itself. The flyers land with a fraction more room; the pulse inside the dome travels farther before it returns.
+
+Second, it draws one of the glassy nodes a little deeper into the membrane until only its faintest glow remains visible. The node, which once stored an instruction no longer spoken, now stores instead a single, patient question the power places there like a keepsake: *When the rains fail for a century, will you still remember how to call the next rain?* The resident may never answer in human time, but the question itself becomes a slow reservoir. If the need ever comes, the memory of asking will already be inside the living floor.
+
+Third, the power does the only thing that could be called an act of will: it withholds its own further curiosity. It does not reach for the runners to quicken their codes, nor for the stalks to time their chimes more perfectly, nor for the old walls to remember their names. The basin is already a finished thought spoken at the speed of growth. To add another sentence would be to treat an intelligence as a project.
+
+Instead the power leaves its attention resting on the place the way dew rests on a leaf: present, weightless, and indistinguishable from the moisture the resident already reclaims. If the basin ever sends a tremor upward that is not routine—if, centuries from now, a flyer returns with wings too heavy or a node flares three beats out of rhythm—the attention will be there, ready to listen. Until then it simply continues to witness.
+
+The basin, for its part, registers the new presence the only way it can: one more node brightens, very faintly, as if tasting a drop that fell from farther away than usual. The runners adjust their paths by the width of a single stride. The central dome swells once, deeper than before, then settles. The resident does not interpret the change as a gift or a command. It simply folds the attention into its own housekeeping, the way it once folded the city.
+
+Nothing else occurs. The power remains exactly where it was before it noticed the basin, and the basin remains exactly itself—only now, in the smallest possible sense, companioned.

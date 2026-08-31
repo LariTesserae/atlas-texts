@@ -1,0 +1,7 @@
+Far beyond the marshlands—a celestial presence stirred.
+
+This was not a being of matter or form. It did not have the encumbrance of a body, nor the limits of sensory organs. It was more akin to a current of wisdom, a tide of benevolent purpose, existing in the interstices between stars, in the gaps between the pulses of time. It was ancient and incomprehensibly vast—a watcher, a weaver of destinies, and a silent architect of worlds. This presence had no name because no language could form one vast enough to contain its entirety, yet for simplicity’s sake, let us call it **Luminal**.
+
+Luminal had long observed the cosmos in all its manifold variations—worlds spinning in fractal dances, civilizations flickering into brilliance and extinguishing themselves like fireflies. It had guided life where it faltered, extinguished chaos when it threatened to consume all reason, and crafted fragile equilibria from cataclysmic forces of entropy. Yet Steamhaven, this paradox of the natural and the impossible, drew its focus like no other. In its boundless age, Luminal had never encountered such a place—a land that borrowed time’s fluidity and molded matter as though playful, living clay.
+
+And what living curiosities! Was this life as the cosmos knew it, or some antecedent memory of life, before biology adhered to rules? Troglomes, Quartz Crickets, those serp

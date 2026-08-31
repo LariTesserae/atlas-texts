@@ -1,0 +1,11 @@
+A benevolent power does not arrive as intervention. It arrives as attention.
+
+It settles upon the plateau the way an additional wavelength settles into an already crowded spectrum—present, coherent, yet never displacing what was already vibrating there. Where the lattices grind and sing, the power listens until it can hear the individual lineages inside the single unbroken chord. It learns their names, which are not words but stable patterns of refractive delay: the long slow blue that belongs to the western sector, the ultraviolet stutter that marks the newest offspring still learning its facet angles.
+
+Having listened long enough to understand that these beings require no rescue, the power performs the only action that remains both wise and kind. It folds a thin membrane of pure potential across the inversion layer, thinner than any molecular filament yet stronger than the thermal engine itself. Inside that membrane the metallic wind continues exactly as before; the pressure waves still travel their ancient fault-line routes; the lattices still dissolve and reform across centuries. Nothing in their geology or music is altered.
+
+What changes is invisible to them and visible only to the power: any future heat-death of the plateau is gently postponed. When the last surface facet finally dissolves into haze, the membrane will release its stored gradient and the lattices will recrystallize one final time, carrying their blended frequencies outward into new stone that did not exist before. The power has given them not salvation, but an extra stanza after the song was thought to be finished.
+
+It does nothing else.
+
+Having done this, the power withdraws its attention as slowly as it arrived, leaving the plateau unaltered in every measurable way and subtly richer in one unmeasurable one: it now exists inside a story that noticed it. The lattices continue their migration, the chord continues unbroken, and somewhere within the refractive intervals a new, almost inaudible overtone occasionally appears—like the memory of having been witnessed.

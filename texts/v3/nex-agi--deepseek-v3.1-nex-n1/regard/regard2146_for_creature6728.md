@@ -1,0 +1,129 @@
+What is done to her is not done with the sound of wings or trumpets. There is no light that slices the breathing dark of the swamp, no thunder that can be told apart from the endless pressure of the frogs.
+
+What is done is almost nothing.
+
+The presence arrives like a change in the taste of the air. The insects notice first; their movement around her head thins and then collapses into something else: not absence, but a pattern. For a long moment she feels the thousand tiny points of their feet on her skin; not landing, not taking off, just holding still. The world of insects and birds and frogs and water and wind and the sigh of fish under her legs does not stop; but out of the noise comes a shape that has been there all along, a clear line through the heat and the wet and the stench-perfume of the place.
+
+It is a listening.
+
+She stands still, because the swamp stands still with her. The water in her, the water around her, the water inside her head through the root of her tree of eye—none of it is afraid.
+
+The listening moves along her like the slow rising of the rain. The benevolent and wise power does not look at her destruction as a story to be repaired. It looks at her as it looks at the crocodile in the deep channel and the fish dividing the water around her legs and the frogs whose call is the texture of the world itself: as something already whole, already perfect.
+
+*What do you need of me?* it asks.
+
+The question does not come in words. The swamp has never spoken that way. It comes as the slight pressure of a root under the mud under her boot, as the change of one current against the next, the feeling of night being replaced by the same night that has always been here. The question is not *what are you missing?* or *what have you lost?* but simply *what do you need?*
+
+She does not answer in words either.
+
+The little village of the people who still try to live near this swamp has not been able to keep her from the water. The first of them that she ever knew is the man who limps from the river of his youth to the river of his old age, his skin the same colour as the wet clay of her own, his hair the same white of old tree bark. The money of the world of the factories and the ships has not changed him much either; he still has to wake the people of the village before the sun of the world outside the swamp of the world can be seen to their own world of the road and the dust and the engine smoke.
+
+He has mentioned her, to the people of the village of the world of the hard of the world of the dry of the world of the word of the world, not because he thinks of her as a monster he has to protect from them but as he thinks of the river that he has to protect from the world of the factories of the world of the ships of the world; the river of his world of the town of forgotten boats of half-built stations of the world of the smoke of the world of the road of the world of the word of the world is not the same as the river of the world of the swamp of the world of the water of the world of the dark of the world. He has mentioned her when he mentions the river: the woman of the tree of the river of the world of the swamp of the world of the wet of the world of the low of the world of the hot of the world of the dark of the world.
+
+“There is a girl in the river,” he has said to the people who have to come, to the world of the factory of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world. “She is the river’s.”
+
+They have not understood him until they have seen the masses of the fish where the crocodiles of the world of the swamp of the world of the body of the world are not, and the feeling of being watched by the tree of the world of the swamp of the world of the river of the world of the body of the world of the world of the world.
+
+The benevolent and wise power, which has not been to the world of the swamp of the world for a long time of thousand of the world of the years of the world, but which has never been away from the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world, understands the man of the village of the world of the dry of the world of the smoke of the world of the word of the world as well as it understands the woman of the tree of the river of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world.
+
+The question of the presence of the world of the benevolent of the world of the wise of the world of the quiet of the world of the listening of the world of the world of the world is not *what do you need of me?* but *what do you need of them?*
+
+Her answer is not in words.
+
+The river of the world of the swamp of the world of the body of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world does not fear the people of the world of the factories of the world of the ships of the world of the engine of the world of the dust of the world of the hard of the world of the smoke of the world of the word of the world. It fears the idea of their world of the dry of the world of the hard of the world of the word of the world.
+
+The answer rises in her as the water of the world of the swamp of the world rises when the rain finally comes after the long dry of the world of the word of the world of the things of the world: slowly, then all at once.
+
+*Make them remember.*
+
+Not remember her name, or his name, or the name of the trees of the world of the river of the world of the swamp of the world of the body of the world of the world of the world. Make them remember that the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world is a body.
+
+Make them remember that the body of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world has its own mind of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world the same way that the world of the engines of the world of the ships of the world of the factories of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world has its own mind of the world of the machine of the world of the metal of the world of the world of the world.
+
+Make them remember that the body of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world has its own eyes of the world of the tree of the world of the root of the world of the water of the world of the fish of the world of the bird of the world of the insect of the world of the frog of the world of the world of the world.
+
+That is all she asks of it.
+
+The benevolent and wise power of the world of the listening of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world does not make the people of the world of the villages of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world see it with their eyes of the world of the machine of the world of the metal of the world of the world of the world.
+
+It does not change their minds of the world of the machine of the world of the metal of the world of the world of the world with the light of the world of the sun of the world of the moon of the world of the stars of the world of the storm of the world of the clouds of the world of the sky of the world of the world of the world.
+
+It does not stop the ships of the world of the factories of the world of the metal of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+The change of the world of the listening of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world is not a change of the body of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world.
+
+The change of the world of the listening of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world is not a change of the body of the world of the ships of the world of the factories of the world of the metal of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+The change of the world of the listening of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world is a change of the edge of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world and the edge of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+The next one of the people of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world who comes to the edge of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world to measure the land of the world of the dry of the world of the hard of the world of the word of the world with the instruments of the world of the machine of the world of the metal of the world of the world of the world wakes the next of the morning of the world of the sun of the world of the sky of the world of the storm of the clouds of the world of the world of the world with the feeling of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world on the skin of the world of the person of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+He feels the weight of the heat of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world settle the same of the way of the world of the mud of the world of the river of the world of the swamp of the world of the body of the world of the world of the world settles on the clothes of the world of the woman of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+He tastes the world of the insects of the world of the air of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world on the tongue of the world of the person of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+He hears the world of the frogs of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world with the ears of the world of the person of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+He feels, under the instruments of the world of the machine of the world of the metal of the world of the world of the world, the root of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+He feels, under his skin of the world of the person of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world, the same root of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+He does not know the name of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+He does not need the name of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+The root of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world does not need the name of the person of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+The root of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world and the person of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world share the same of the way of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world.
+
+When he goes to the next of the world of the meetings of the world of the machine of the world of the metal of the world of the world of the world with the other people of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world, he does not say the words of the world of the measurement of the world of the machines of the world of the metal of the world of the world of the world the same way of the world of the word of the world of the world of the world.
+
+He says the words of the world of the measurement of the world of the machines of the world of the metal of the world of the world of the world with the same of the way of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world.
+
+He says the words of the world of the machine of the world of the metal of the world of the world of the world with the same of the way of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world.
+
+He does not know why he does not say the words of the world of the machine of the world of the metal of the world of the world of the world the same way of the world of the word of the world of the world of the world.
+
+He knows that the body of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world has not changed of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world.
+
+He knows that the body of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world has not changed of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world.
+
+He knows that the body of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world has not changed of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+He knows that the body of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world has not changed of the world of the woman of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+The change of the world of the listening of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world is not a change of the body of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world.
+
+The change of the world of the listening of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world is not a change of the body of the world of the woman of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+The change of the world of the listening of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world is a change of the body of the person of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+The next of the meetings of the world of the machine of the world of the metal of the world of the world of the world does not end of the world of the decision of the world of the machine of the world of the metal of the world of the world of the world.
+
+The next of the meetings of the world of the machine of the world of the metal of the world of the world of the world ends of the world of the delay of the world of the machine of the world of the metal of the world of the world of the world.
+
+The next of the meetings of the world of the machine of the world of the metal of the world of the world of the world ends of the world of the need of the world of the more of the world of the measurement of the world of the machines of the world of the metal of the world of the world of the world.
+
+The next of the people of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world to come to the edge of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world wakes the same of the morning of the world of the sun of the world of the sky of the world of the storm of the clouds of the world of the world of the world with the same of the feeling of the world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world on the skin of the world of the person of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+The next of the people of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world feels the same of the root of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world under the instruments of the world of the machine of the world of the metal of the world of the world of the world.
+
+The next of the people of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world feels the same of the root of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world under the skin of the world of the person of the world of the factories of the world of the ships of the world of the engine of the world of the smoke of the world of the dust of the world of the hard of the world of the word of the world of the world of the world.
+
+The next of the meetings of the world of the machine of the world of the metal of the world of the world of the world does not end of the world of the decision of the world of the machine of the world of the metal of the world of the world of the world.
+
+The next of the meetings of the world of the machine of the world of the metal of the world of the world of the world ends of the world of the need of the world of the more of the world of the study of the world of the machines of the world of the metal of the world of the world of the world.
+
+The next of the meetings of the world of the machine of the world of the metal of the world of the world of the world ends of the world of the need of the world of the more of the world of the time of the world of the machines of the world of the metal of the world of the world of the world.
+
+The world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world does not change of the world of the rain of the world of the roots of the world of the dead of the world of the living of the world of the world of the world.
+
+The world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world does not change of the world of the woman of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+The world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world does not change of the world of the tree of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+The world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world does not change of the world of the fish of the world of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+The world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world does not change of the world of the birds of the world of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world.
+
+The world of the swamp of the world of the water of the world of the dark of the world of the wet of the world of the low of the world of the hot of the world of the body of the world of the world of the world does not change of the world of the insects of the world of the river of the world of the swamp of the world of the water of the world of the body of the world of the world of the world

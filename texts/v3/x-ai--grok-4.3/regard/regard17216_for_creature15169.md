@@ -1,0 +1,13 @@
+The power pauses at the rim of the hollow, as if the air itself had asked it to remove its shoes. It does not descend at once. It studies the place the way one studies an old letter whose ink has begun to lift from the paper—reading not the words but the hesitation between them.
+
+What it sees is not ruin and not quite life, but a third condition: matter remembering how to continue. The thread-fine organisms working inside the rust do not require rescue; they are already the rescue, performed at the speed of patience. The wise power recognizes this. It has watched stars condense and lichens etch granite; both processes carry the same signature of attention without insistence.
+
+Still, it offers something.
+
+It extends a quiet field, no wider than the hollow’s own soft edges, that slows the rate at which heat leaks away. The mineral film on the stones will not freeze in winter nor boil away in drought; the small silver cells drifting on the water lenses will keep their rhythm without being hurried or stilled. Where a valve spasms, the field leans infinitesimally against the motion—not to stop it, but to keep the spasm from tearing the delicate mesh of filaments that caused it. The flywheel inside its shed is allowed its irregular turns, yet the bearings are eased by a fraction so the crystal growths need not labor quite so hard to maintain contact.
+
+The power does not add new machinery. It does not brighten the light or banish the rust. Instead it lays a transparent covenant across every surface: whatever reconfiguration the colonies attempt, the hollow itself will remain a single continuous thought. If a filament chooses to withdraw, the space it leaves will not collapse into vacancy; the surrounding resin will remember the shape for a little longer, giving the organism time to decide whether it truly meant to depart. If a larger cluster fuses and begins to dream of becoming something new, the covenant will keep the old panels from crushing the dream before it finishes forming.
+
+Most of all, the power withholds its own curiosity. It does not ask the colonies what they intend. It simply remains present at the scale they understand—slower than seasons, faster than mountains—so that when a future shift in the world threatens to dry the lenses or scatter the filings, the threat will meet a small, stubborn region where the air still carries its faint mineral chill and the water still beads, unhurried, across pale stone.
+
+Then the power steps back. The hollow continues exactly as it was, only now it continues inside a slightly larger silence, one that has noticed it and chosen, for now, to do nothing more than keep the weather from interrupting.

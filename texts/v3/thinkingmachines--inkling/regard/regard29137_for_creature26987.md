@@ -1,0 +1,29 @@
+They do not do. They become.
+
+Begin with the warmth—not from above, where the sky is layered and wrong-angled, but from below, rising through young black glass and pale basalt with the patience of something that has never been cold. They feel it first, as all of them always have: thousands of bodies, soft and lobed, sheathed in colors that do not announce but absorb—old bone, dried apricot, the interior of a shell left in perpetual warmth. They turn toward it. Not quickly. Not with heads, for they have none. They turn by extending, by thickening, by allowing their mass to redistribute over days until the warmth touches more surface, more pore, more of the honey-colored architecture they have made of themselves.
+
+This is their labor: to excrete being.
+
+From pores that open like slow mouths—never urgent, never hungry in any tearing way—they release the shell. Calcium-rich, porous, warm to the touch, layered like the growth rings of an impossible tree. It does not defend. It holds. Each tower they have raised in spiraling clusters—too regular, as if guided by a mathematics no single body knows—grows not by plan but by accumulation. One secretes; another, nesting nearby, extends its own membrane to bind; a third, embedded in the copper-green velvet that carpets every plane, processes the mineral breath and transforms it into syrup. Over centuries, the spiral becomes inevitable. The shape is not chosen. It is the geometry of heat seeking its level, applied by bodies who think in decades.
+
+Look at them now, pressed near to touching without chaos. There is no chaos because there is no urgency. No one flees. No one hunts. They crowd for warmth, for chemical proximity, for the slow exchange that occurs when surfaces remain adjacent long enough for chemistry to become conversation. Their feelers—four, six, more—extend through translucent sheaths, not twitching but holding, testing the gradient. Is the vent still exhaling evenly? Is this wall too thick, choking the flow? Over months, a thread of fibrous membrane extends downward, guiding a new cluster of shell into being that will catch the vapor differently. This is governance without rulers. This is architecture without architects.
+
+In the hanging gardens, the swollen tissue—dry, never moist, filled not with water but with clear amber syrup—stores not for thirst but for presence. The bladder-ferns, translucent and pale, fill with this viscous fluid, glistening like resin in the filtered light. They do not drink. They filter. They take the faint sweet exhalation of the deep earth and hold it, feeding back into the mat, into the tower, into the bodies nested within. The lushness is not green with life as you know it. It is green with bulk, with layered presence, with life so thick it replaces air with texture. You can feel it: the near-perfect silence—0.1, perhaps less—broken only by the occasional creak of hardening shell, the whisper of syrup shifting within a bladder, the imperceptible redistribution of a body deciding, over the course of a season, to grow elsewhere.
+
+They maintain.
+
+At the center—if there is a center in this circular, recursive settlement—rests the oldest accumulation. Not one being, but many who have forgotten separation. It has become a pillar of layered shell, a vertical record of centuries, its feelers extending not outward but inward, maintaining the internal chemistry that sustains the hollow’s breath. Through it, the warm air circulates: up through porous towers, cooling slightly against the translucent canopies where light falls in patterns that do not match any opening above—angles slightly wrong, as if the hollow breathes in more directions than it should—then downward again, enriched, to be absorbed into the velvet mats, into the syrup, into the thousands.
+
+They watch you, if you are there. Not with eyes. With presence. Thousands of silent bodies registering the anomaly: your moisture, your speed, your loud wet breath in a world that abandoned water long before it learned to miss it. They do not reject. They do not welcome. They observe, with the patience of stone that has learned to live, absorbing your heat, your exhalation, adding it to the chemistry, then returning—always returning—to the endless task.
+
+What do they do?
+
+They continue.
+
+They secrete the spiral. They weave the membrane that binds tower to tower like ligaments still growing. They hold the warmth close. They fill the bladders with amber sap. They extend their feelers into the gradient, testing, holding, adjusting by fractions of degrees across years. They soften the sharpness of the young walls—not by erosion, but by presence, by the slow abrasion of living tissue, by chemical breath that turns violence into curve over centuries. They build the city they inhabit, inhabit the city they build, until the distinction is not just blurred but meaningless.
+
+They wait, but waiting is not empty. Waiting is maintenance. Waiting is the glacial expansion of a settlement that needs no sun, no rain, no event. Only the warmth rising from below. Only the centuries stretching ahead like unbroken membrane. Only the dense, silent, lush occupation of a hollow that has never known thirst, and does not miss it.
+
+If anything, they grow.
+
+That is all. That is the entire architecture of their being: to be here, to be warm, to be together in a density that replaces loneliness with geometry, to exhale slowly into the hollow they have made, and to decide—without deciding, over and over, forever—that this is enough. The black glass walls remain sharp. The basalt holds its infant violence. But inside, the dry garden breathes, full to the brim, a biological city without citizens, without streets named, without noise, growing quietly into its only possible future: more of itself, layer upon living layer, forever.

@@ -1,0 +1,25 @@
+They do not come as a presence that breaks the air. They come as attention comes: without weight, without announcement, the way warmth settles into stone after a long sun, the way condensation gathers on a leaf simply because the conditions allow it. There is no descent, no parting of mist, no footprint in the silt. Only a gradual turning of regard toward the basin, and in that turning, the humidity thickens by a degree too small to measure, and the insect chorus hesitates, not in fear, but in the quiet recognition of being seen.
+
+The power looks.
+
+It traces the shallow swales, the weeping banks, the spaced sedges, the smooth stones half-drowned in peat. It listens to the hum that is not a song but a state of being. It follows the capillary threads upward, the slow dissolution of leaf into soil, the nodules sinking into silt, the oldest backs wearing moss like quiet crowns. It measures time not in ages but in breaths, in the rise and fall of groundwater, in the decades it takes a fallen branch to become mud. It finds no fracture. No lack. No wound asking to be closed. There is no hunger that outpaces fullness. No fear that outruns return. The system does not plead. It persists. It has already achieved what most powers spend eternity trying to build: a grace that does not depend on intervention.
+
+A lesser regard would try to bless it. Would pour abundance into the shallows, quicken the growth, sharpen the edges, grant them eyes to see beyond the haze or limbs to climb out of the mud. Would call it peace and mistake stillness for stagnation. Would offer salvation to a place that has already saved itself. Would leave a monument, a law, a mark, a name.
+
+But this power is wise. And wisdom, when it meets completeness, knows its only proper gesture is to lower its hands.
+
+So it does not touch. It does not speak. It does not change a single drop of water or shift a single grain of silt. Instead, it does something far rarer, far more difficult: it stays. It folds its vastness into the humidity, thins its presence until it is no more than a quality of the air, a slight deepening of the quiet between frog calls, a gentle pressure at the edge of perception that says, without words: *I will not improve you. I will not make you more than you are. I will not rush what has learned to wait.*
+
+It learns their slowness. It matches their frequency. For a time that cannot be measured, it simply listens to the basin breathe. And in that listening, it makes a vow. Not carved in stone. Not spoken aloud. Not imposed. Woven, instead, into the fabric of the place itself: a sheltering. Not a wall. Not a dome. Not a law. Just a quiet turning-away of what does not belong. The distant hunger of machines. The sharp footsteps of those who would drain, pave, catalog, or claim. The slow creep of climates that would bake the mud or freeze the seeps. These are not fought. They are gently diverted, the way water slides off a waxy leaf, the way wind loses itself across open ground. The power does not shield the basin by force. It shields it by resonance. By making the air around it so deeply aligned with equilibrium that disruption simply finds no purchase, catches no edge, and passes by like a storm that never quite forms.
+
+The basin does not know it is guarded. It does not need to. The oldest mounds continue their century-long exhalations. The young nodules sink and wait. The heron strikes, the ripples still, the hum resumes. The rain falls warm. The silt cracks and softens. The water table rises and falls like a sleeping chest. Nothing has been added. Nothing has been taken. Only one thing has changed, and it cannot be seen: the air holds a new kind of patience. Not the patience of waiting, but the patience of being allowed to continue.
+
+The power has not given them anything. It has simply recognized what was already whole, and in that recognition, become part of the equilibrium. It does not hover above. It does not stand apart. It rests at the edges, thin as mist, quiet as seepage, breathing with them. When the sky pales and the warm rain begins, the creatures rise, just slightly. Their pores open. Their skin glistens. The air fills with their quiet vibration. And somewhere beneath the sound, beneath the mud, beneath the slow turning of seasons that no longer threaten to break, there is a resonance that was not there before. Not a voice. Not a hand. Just a presence, holding the space open, matching the rhythm, asking for nothing.
+
+Not savior. Not ruler. Not architect.
+
+Witness. Keeper of the threshold. Student of the mud.
+
+And when the time comes, as all times do, for the power to turn its attention elsewhere, it does not leave. It simply thins further, until it is indistinguishable from the humidity itself, from the weight of the air, from the quiet certainty that some places do not need to be changed, only allowed. The basin breathes. The water holds. The hum continues. Nothing is different. Everything is held.
+
+And that is enough.

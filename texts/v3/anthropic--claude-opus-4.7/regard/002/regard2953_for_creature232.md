@@ -1,0 +1,61 @@
+They come, because of course they come. Word of a thing like this travels — not as gossip, the benevolent and wise do not gossip, but as the way water finds the lowest point in a room. Attention pools where attention is warranted. And a shelf in mid-gestation, tended by competent strangers on a long rotation, with its first drafts of animals grazing on condensation — this warrants.
+
+They arrive, let us say, in the manner most courteous to what is already there. Not through the doorway, because the doorway is someone else's instrument and one does not borrow another tradesman's tools without asking. Not by descending from above, because the column of pressurized air above the shelf is part of the work and the work is delicate. They arrive at the edge, where the warm bench tips over into the cold, and they walk on.
+
+They take a long time deciding whether to step onto the rock at all. This is the first thing they do. They stand at the edge for what would be, to a grazer, several generations, and they look. They listen to the chord. They feel for the held temperature without putting a palm down, because a palm would cool a patch of stone by some small amount and they are not yet certain whether that small amount matters to the schedule. They watch the folded things unfold and refold and they do not try to follow the geometry. They are patient about the geometry. They will understand it when it is ready to be understood, or they will not, and either is fine.
+
+What they are doing, in this long looking, is establishing **consent.** Not from the tenders, who are not present and who have not asked for help. Not from the grazers, who cannot be asked. From the *shelf itself,* which is the closest thing to a being here that can be addressed. They are asking the shelf whether their presence is welcome, and they are giving the shelf — its weeping rock, its harmonic, its incremental hardening — every opportunity to indicate that it is not.
+
+The shelf does not indicate this. The shelf is, as noted, indifferent to a hand held near it in the way a kiln is indifferent. So they step on.
+
+---
+
+Now: what do they do.
+
+The first temptation, for any power, is to **improve.** To notice that the southwest quadrant is behind and nudge a trellis. To notice that the lichen could spread faster with a small adjustment to humidity. To notice that the long warm dusk has been long warm dusk for what seems like a very long time and to wonder whether they could, very gently, hurry the sun.
+
+They do not do any of this. Not because they couldn't — they could, easily, and better than the tenders, in the sense that *better* means *faster* or *more efficient.* They don't because they understand something about the tenders that the tenders might not articulate about themselves: the tenders are doing this *at the pace they are doing it* because the pace is part of the work. A shelf cured faster is a different shelf. A grazer that gets its bones on a schedule not its own is a different grazer. The tenders have done this enough times to know exactly what each step costs and yields, and the cost and yield include the duration. To shorten the duration would be to make a different thing, and the tenders did not ask for a different thing.
+
+So the benevolent and wise power, having arrived, does almost nothing visible.
+
+---
+
+What it does instead:
+
+It **witnesses.** This sounds small and is not. Most of what happens on the shelf happens without anyone watching it — the tenders visit at intervals like seasons, and between visits the grazers live and die and the folded things refold and the rock weeps and hardens and no one is keeping count. The power keeps count. Not in a ledger; it does not need a ledger. It simply holds the shelf in its attention, fully, for the duration of its stay, and every grazer that lives and dies during that stay is *seen* living and dying. This changes nothing about the grazer's life. It changes something about the universe the grazer's life is embedded in. A life witnessed is differently weighted than a life unwitnessed, even if the witnessing leaves no fingerprint on the life itself. The power knows this. It is one of the things it is for.
+
+It **leaves the cairn alone.** It considers, briefly, adding a fourth stone — it has stones, from places more finished than the three the cairn already contains. It does not add one. The cairn is three stones because three was what was needed, and a fourth would be a different sentence, and the sentence is not the power's to amend.
+
+It **stands near the doorway** for some while and looks through. The view on the other side — the wrongly-arranged clouds, the half-shade cooler light — is recognizable to it. It has been to that place, or to places sufficiently like it. It does not step through. The doorway is calibrated for the tenders' passage and would, if used by something of the power's weight, ring like a struck bell across whatever network the doorways form. The tenders would come immediately, alarmed, and the visit would become a meeting, and the meeting would become a negotiation, and the negotiation would be the power imposing itself on people who were doing fine without it. So it does not step through. It looks, and it looks away.
+
+It **does one small thing.** Just one. Near the edge of the bench, where the warm air tips over, there is a place where one of the folded things, on a recent unfolding, caught its geometry wrong and is now refolded in a configuration that will, in some near number of days, kill it. The kink is not visible to the tenders because the tenders are not here. It is not visible to the other folded things because they do not look at each other that way. The power sees it. The power considers, for the length of two mist-fronts, whether intervening violates the principle it has just spent so long establishing.
+
+It decides that it does not. The reasoning: the kink is not part of the work. The work is *that the folded things exist and breed and learn to be alive.* The work is not *that this particular folded thing die of a misfold on this particular day.* The tenders, if they were here, would correct the kink themselves, in the half-second it takes to notice it, and think nothing of it; it is below the resolution of their schedule. The power is, in this moment, doing what the tenders would do if they were present. It is not adding to the work. It is maintaining the work in the tenders' absence, the way a neighbor waters the plants.
+
+So it corrects the kink. The folded thing unfolds, refolds correctly, and rejoins its flock. It will die later, of something else, on schedule. The power makes a note — not in a ledger, it does not need a ledger — that this has been done, so that if it is ever asked, by the tenders or by anyone, what it did on the shelf, it can answer precisely. *I witnessed. I did not enter the doorway. I corrected one folded thing.* The answer fits in a breath. This is correct. The visit should fit in a breath.
+
+---
+
+Before it leaves, it does one more thing, and this is the thing I have been working up to.
+
+It leaves a **mark of its own,** but the mark is calibrated so carefully that it will not be noticed by the tenders for a long time, and when it is noticed, it will be understood.
+
+The mark is this: at the base of the solitary trellis at the edge of the bench — the one leaning a little, the one whose work in its sector is nearly done and which will, before long, retract into the cured rock — the power places a single small stone. The stone is from a place so finished that the tenders, if they recognized it, would recognize it as a kind of *thank you.* It is the sort of stone you would bring as a gift to colleagues whose work you admire, if you were the sort of being who brought gifts to colleagues. The stone is small enough that it will not affect the curing. It is placed where the retracting trellis will, on its way down, cover it — so that the stone will end up sealed inside the finished rock, somewhere under the surface of the eventual ordinary mountainside, where it will not be found by the grazers or by any descendant of the grazers but where it will be *there,* a small dense fact in the geology of the place, available to be found by whoever, in some long future, looks.
+
+The mark is not a claim. The shelf is not the power's and the power is not claiming it. The mark is closer to a signature on a card left at a house one has visited briefly while the residents were out. *I came by. I did not stay. I admired the work. I left this for you to find when you have time.*
+
+The tenders will find it, eventually. Not on their next visit, or the one after. Probably not for many visits. Probably the shelf will be nearly done — the trellises retracted, the sun installed, the long warm dusk replaced by ordinary mornings — before one of them, doing a final survey, runs whatever instrument they run over the cured rock and registers the small dense fact under the surface. They will look at it for a while. They will recognize what it is, and roughly who left it, and they will understand that they have been visited, once, by someone who could have done a great deal and chose to do almost nothing, and who left a courtesy.
+
+I think the one who finds it will be the one who set the doorway to open onto a wrongly-arranged sky. I think they will smile, in whatever way smiling translates for them. I think they will leave the stone where it is — because moving it would be the wrong response, and because the stone is not for them to keep, it is for the shelf to keep — and they will go back through their doorway and, that evening, in the quiet place where the tenders live, they will mention it to the others. *Someone came by the cloud-bench. Left a stone. A nice one.* And the others will look up from whatever they are doing, and one of them will say *which kind,* and the one who found it will say, and the others will be impressed, briefly, in the way of competent people noticing that someone competent has paid attention to their work.
+
+And then they will go back to their work, because there are other shelves, and the shelves do not tend themselves, and the universe is large and full of provisional animals learning, loudly and wetly, how to be alive, and someone has to keep count.
+
+The power, by then, is long gone. It is somewhere else, witnessing something else. It does not need to know that the stone was found. It left the stone for the finding, not for the report of the finding. This is the difference between a benevolent power and a merely powerful one: the benevolent power is content for its kindnesses to land out of sight, on schedules not its own, in places it will not return to.
+
+The shelf, meanwhile, hardens. The grazers bone up. The lichen spreads. The trellises hum their chord and, one by one, in their own time, sink. A sun is eventually installed. The folded things, the easiest part, continue to be the easiest part. The doorway is taken down and carried to the next shelf.
+
+And under all of it, sealed in the rock, the small stone — from a place so finished it remembers being unfinished — waits to be found, and is, in time, and is left where it is, and goes on waiting, now in the company of those who know it is there.
+
+This is what a benevolent and wise power does, when it finds a place like this. It comes. It looks. It witnesses. It does almost nothing. It leaves something small. It goes.
+
+The shelf is not changed. The shelf is, in some way that does not show, *accompanied* — has been, for one afternoon of the power's time, which is several mist-fronts of the shelf's time, which is many generations of the grazers' time — and the accompaniment is now a permanent feature of the shelf's history, even though no one on the shelf experienced it and no one will remember it and the rock itself, which is the closest thing to a rememberer here, will only know that at a certain depth there is a small dense inclusion of unfamiliar mineral, which it will hold, because holding things is what rock learns to do, once it has finished learning how to be rock.

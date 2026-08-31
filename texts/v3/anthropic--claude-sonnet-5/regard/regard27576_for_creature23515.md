@@ -1,0 +1,51 @@
+# What Noticed the Spires
+
+## The Shape Seen From Outside Time
+
+It did not arrive the way arrivals are usually imagined — no light dividing the sky over the basin, no shadow crossing the gliders' thermals. What is benevolent and old enough to be called wise does not enter places. It simply turns its attention, the way a person sitting in a familiar room might, for no particular reason, notice for the first time the grain of the wood in a table they have rested their hand on for years.
+
+What it noticed, turning toward the Reach, was not at first the towns. It was the shape underneath the towns.
+
+A being this patient does not perceive scale the way smaller minds do — does not see "mountain" and "person" as different categories requiring different instruments. It saw one continuous fact: stone that had been accruing itself, slowly, deliberately, for longer than the basin's own geology accounted for; mineral mass arriving from no input anyone inside the system could locate; fissures that sang in chord across kilometers, not from wind, but from something coordinating itself the way a chest rises when a sleeper dreams. And it understood, in the unhurried way such beings understand things, that it was not looking at a formation. It was looking at a body. Very old. Very slow. Possibly, by some definitions gentler than the ones used for quick-blooded things, alive — and possibly, in some manner too vast to be lonely in any way a person would recognize, alone.
+
+And on its skin: a few hundred thousand small, fast, mortal creatures, who had built bells into its shoulders and dug warm rooms into its hollows and never once, in three or four hundred years, managed to either harm it meaningfully or understand what they were living on. Tending it without knowing they tended it. Naming its weather. Reading its breathing as omen. Sealing its deeper rooms back up, generation after generation, out of an instinct none of them could justify, and calling that instinct wisdom, which — the watching power noted, with something like fondness — it was.
+
+It looked at this for what would have been, to the stonekin, several lifetimes, and arrived at the thing it always arrives at, when it looks closely enough at anything: *this is not broken.*
+
+## What It Did Not Do
+
+It considered, briefly, explaining things. It could have. It would have cost it nothing to lay the whole mechanism bare — the source of the unaccounted mineral mass, the nature of the chambers, the reason the wind-organs sometimes agree with each other across distances no air column should bridge. It set this aside almost immediately. A people who have built a four-hundred-year culture of patient not-knowing, who have turned their unanswered questions into bell-omens and dinner-table silences and a phrase as load-bearing as *the mountain keeps its own books*, do not need the answer key. The not-knowing is not a gap in their culture. It is a structural member of it. To fill it in would be to hand them an answer and quietly take back the cathedral they had built to live without one.
+
+It considered waking the mountain further — helping it along, however that might be done, toward whatever a being like that might call thriving. It set this aside too. Whatever the mountain was doing, it had been doing slowly and on purpose for a span of time that made the towns look like morning frost. To accelerate it, even kindly, even with the best of intentions, would be the geological equivalent of shaking a sleeper awake because you have decided, from outside, that they have slept long enough.
+
+It considered protecting the stonekin more thoroughly than they protect themselves — softening the rockfalls, guaranteeing every vein found before the searching generation tired of looking, making the gliders harmless, sealing every excavation against every accident, forever. It set this aside last, and with the most care, because it is the temptation that wears the most convincing mask. A people who never lose a relative to a bad fall, who never have to teach a child caution with their own scarred hands, who never have to wait three generations for a vein because the second one was simply handed to them — that is not a kinder version of the stonekin. That is a different, thinner people, with the patience bred out of them for lack of anything to be patient *for*. Risk, here, was not a flaw in the design. It was load-bearing too.
+
+So it did not explain. It did not accelerate. It did not remove the teeth from the world to make the living easier.
+
+## What It Did
+
+It did two things, because *if anything* is not the same question as *nothing*, and a benevolent power that notices and then walks away unchanged has not really noticed at all.
+
+The first thing it did, it did for the mountain, and no stonekin alive will ever know it happened, because there was nothing in it to perceive. Somewhere in the deep warm dark below the foundries, in whatever served that vast slow body for a thought already a thousand years underway — one long low chord building itself fissure by fissure toward a resonance it would not complete for another several centuries — the power reached in, gently, the way you might finish a sentence for someone who has been speaking, very slowly, for their whole life, and let it land. Just once. Just to see what the shape of the whole thought was. Just so that something, somewhere, had heard the mountain say what it was trying to say, instead of only ever catching it midway, the way the engineers' disagreeing instruments do, forever recording the breath and never the word. Then it withdrew, and let the chord continue exactly as it would have, unfinished, on schedule, for the people above to keep mishearing as weather.
+
+It does not know, even now, whether that counted as conversation. It chose to believe it did. That is, perhaps, simply what wisdom permits itself, at the edges, when no harm can come of the belief.
+
+The second thing it did, it did for the stonekin, and it did it in their own language, because they already had one and it would have been an arrogance to introduce another.
+
+There is a day — no record agrees on the year, which is itself fitting — when every bell in every terrace of every inhabited spire of the Reach rang once, together, perfectly clear, at the same moment, regardless of distance, regardless of the pressure gradients and dry-air swallowing that ordinarily make a shout from the next terrace less reliable than a foundry-bell from three kilometers off. No wind carried it. No relay rang it forward tower by tower the way a fire-warning travels. It simply sounded, everywhere at once, a single chime, and then did not sound again.
+
+Nobody agreed on what it meant. That, too, was correct, and intended. In one household it was logged as a freak atmospheric event and forgotten by the grandchildren. In another it became the founding date of a small private family reverence, lit candles on its anniversary for six generations running. An old foundry hand, hearing it, said only — to nobody, to the air — *well, alright then,* and went back to his gauges, satisfied in some manner he never tried to explain to his apprentice, who noticed the satisfaction anyway and inherited it without the reason, the way so much in the Reach is inherited.
+
+It changed nothing about the work. The lift-rails kept their schedules. The veins still had to be searched for across grandchildren. The gliders still occasionally took something careless left too long on an outer terrace. The sealed chambers stayed sealed, the deep-miners who found them still came up early and never explained why, and the explanation the power had declined to give stayed undelivered, intact, theirs to keep not having.
+
+But for one moment, every stonekin alive, whether they ever learned to name it or not, had been in the same room as something that loved them without needing them to know it, and had said so the only way it judged honest: not in words, not in meaning, just in the bare fact of a sound that should not have been possible, arriving everywhere at once, like a hand laid briefly and without explanation on the roof of a house full of people who are, mercifully, already getting on fine without one.
+
+## What Remains, Unsigned
+
+The instruments still disagree. The cores still show no measurable loss of mass. The bell is in nobody's official record, because nobody thought to file a report for a sound that hurt no one, damaged nothing, and asked for nothing in return. It survives the way the wind-organs survive, the way the hum survives — as weather with opinions, as the kind of fact a culture absorbs into its bones rather than its books.
+
+This, the power has found, over a very long practice of noticing places like this one, is usually the correct shape for a gift: small enough to leave no scar where it lands, large enough that something in the people who receive it knows, without proof, without needing proof, that the mountain they live on top of — and whatever lives inside the mountain, and whatever watches the mountain from somewhere outside even that — is not indifferent to them.
+
+It does not visit again. It does not need to. The stonekin keep doing what they were already doing: tending their taps, reading their bells, raising children patient enough to finish what their grandmothers started, living humbly on top of the parts of the world that don't balance. That was never a problem requiring a solution. It was already, on its own unhurried terms, a kind of love story between two beings of impossibly different size and speed, each keeping the other's books a little, neither one able to read the whole ledger.
+
+All a wise power can do, faced with something already that whole, is notice it precisely enough to be sure — and then ring one bell, just once, to mark that the noticing happened, and step back, and let the slow, mineral, patient work of the Reach continue exactly as it was: unexplained, unhurried, and, as it turns out, never unwitnessed at all.

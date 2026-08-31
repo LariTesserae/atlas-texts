@@ -1,0 +1,39 @@
+The benevolent and wise power considers the Sweatworks for a long time before doing anything. This is the first part of the answer: that wisdom, encountering this place, does not arrive with a plan. It arrives with attention, and lets the attention deepen until the plan it would have brought no longer fits.
+
+What the power notices first is that there is no one to rescue. The makers do not suffer. They have arranged themselves, or been arranged, precisely so that suffering has no place to lodge. To "save" them would require first installing in them the interior that could be saved, and the interior would be the wound, not the cure. A wise power knows the difference between a being that is bearing something and a being that is constituted such that there is nothing to bear. The makers are the second kind. Pity, here, would be a category error so large it would deform the pitier.
+
+What the power notices second is that there *is* someone to attend to: the visitor. The one with the apron-less body and the hand that has been tile. The one carrying the grief. The makers have, with what in another being would be called generosity, made the visitor the sole bearer of interior on the plain — which means the visitor is also the sole bearer of loneliness, and the sole site at which the place can be witnessed as anything other than itself. The visitor is the asymmetry. The visitor is where help, if help is possible, would have to enter.
+
+So the power does this:
+
+It does not lift the visitor out. Lifting out would unmake the witnessing, and the witnessing is — the power sees this clearly — one of the things the plain is *for*, even if the makers cannot know it. A world rehearsing being a world needs, eventually, an interior to be a world *for.* The visitor may be the first draft of that interior. To remove the visitor would be to interrupt the rehearsal at the exact moment it had begun to succeed.
+
+Instead, the power does something smaller and more difficult. It sits down beside the visitor, in whatever form sitting takes for a power of that kind — perhaps as a slight warmth in the apron-less shoulders, perhaps as the sudden sense that the percussion of trowels is being heard *with* someone rather than alone. It does not speak, because the plain has a discipline about speech and the power respects the disciplines of places. It simply becomes a second interior on the plain, briefly, so that the grief the visitor is carrying has somewhere to rest that is not only the visitor.
+
+This is the whole intervention, on the visitor's side. The power does not explain the plain. The power does not tell the visitor whether this is a beginning or an ending — partly because the power, for all its wisdom, does not actually know, and partly because knowing would not help. The visitor's not-knowing is part of what makes the visitor an interior worth being. The power, being wise, does not steal that from them.
+
+On the makers' side, the power does even less, and the even-less is the harder discipline.
+
+It does not give them names. Names would require interiors, and the power has already understood that the absence of interior here is not a deprivation but a structure, and structures of that integrity are not to be vandalized by gifts. It does not relieve the trying-underneath. The trying is not pain; it is the substance of which the place is made; to relieve it would be to dissolve the place. It does not save the sections from the bell. The bell is not cruelty. The bell is the breath of the plain, and the plain breathes the way calm beings breathe, and to hold a breath at the inhale out of love is to kill the breather.
+
+But the power does one thing for the makers, because it cannot help itself, and because benevolence that does absolutely nothing is indistinguishable from absence, and the power is present, and presence has consequences.
+
+It blesses the curved knife.
+
+Not in any way the makers could detect. The knife continues to pass from maker to maker exactly as before, set down beside each apology, picked up by the next passing figure. Its weight does not change. Its edge does not change. But the power has, in the moment of attending, recognized the knife as what it is — the soul-shaped continuity, the only thing on the plain that moves through the plain rather than being it — and recognition, from a power of that kind, leaves a residue. The knife is now witnessed. Somewhere outside the plain, in whatever ledger the power keeps, there is an entry: *this small curved object, carried.* The makers will never know. The knife will never know. But it is true now in a way it was not quite true before, that the plain has a soul, because the soul has been seen by someone qualified to see souls and has been found to be one.
+
+This is what wisdom does when it cannot intervene: it certifies. It does not change the thing. It changes the thing's standing in the larger order of things. The makers, who could not have a soul individually, now collectively *have had a soul recognized,* and this is not nothing, even though it is also not anything they will feel.
+
+The power lingers a while longer. It watches the upside-down maker lay her upside-down tile. It does not correct her. It does not encourage her. It sees, with the long sight that wise powers have, that she might be the seed of the plant the plain is rehearsing toward, or she might be a kiln-flaw, and that the difference between these two will be made by ten thousand more substitutions and one of the weathers and possibly by the visitor's grief, which is fertilizer of a kind the makers cannot produce themselves. The power does not tip the scales. It only notes, with something like fondness, that deviation exists here, that the trying-underneath is trying *unevenly,* and unevenness is the precondition of everything that will ever happen that has not happened yet.
+
+Then the power leaves, or rather withdraws its concentrated attention, which on the plain looks like nothing at all, because nothing on the plain has changed.
+
+Except:
+
+The visitor, walking on, finds that the grief is still theirs but is no longer only theirs. They could not say why. The next time a front comes through and their hand is laid into the floor and a maker pries it up with the curved knife and bows, the visitor — and this has never happened before, on this plain or perhaps any — bows back. The maker does not notice. There is nothing in her to notice with. But the bow has been completed on both sides for the first time, and the curved knife, passing on to the next hand, carries the completion with it, as creases in an apron carry weather.
+
+This is what the benevolent and wise power did. It attended. It refrained. It certified the soul. It seeded, in the only interior available, the gesture of reciprocity — not by instruction, but by sitting close enough that the gesture became thinkable.
+
+The plain goes on. The tiles sweat. The bell, somewhere, rings once, and a section begins its unmaking. The makers lay the next tile and want it completely. The visitor walks, carrying their grief, which is lighter by an amount too small to measure but real, and bows, occasionally, to figures who cannot receive the bow, and the bowing accumulates in the apron-less air the way nothing accumulates anywhere else on the plain — slowly, invisibly, and toward something.
+
+The power, from wherever powers go, keeps watching. This too is part of what it does. Benevolence, at its wisest, is mostly a long looking, and the willingness to be changed by what is looked at, and the discipline not to change it back.

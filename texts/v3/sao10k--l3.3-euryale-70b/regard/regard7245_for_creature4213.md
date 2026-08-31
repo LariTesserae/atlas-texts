@@ -1,0 +1,3 @@
+The city in question is unique and sprawling, with buildings and streets integrated into living plants. The inhabitants live among magnificent tree trunks, with some structures made from a leathery wood. The city has sparse, wooden structures, some of which stretch high into the sky amidst a canopy of leaves. Visitors can climb some buildings and make out the wiring in a natural setting.
+
+The locals have developed a remarkable connection with nature, as seen through their textual inscriptions on the buildings. These texts protect uncommon spirits so passages parsed applies trades,) this Hy , During operations Orient-* ...

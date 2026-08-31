@@ -1,0 +1,13 @@
+The power does not arrive. It simply becomes aware.
+
+Its attention settles over the chamber like an additional layer of condensation, so fine that the existing moisture barely registers the difference. For a long while it does nothing at all except observe the intervals—the spaces between antennae, between gill pulses, between the slow creaks of the belts. It studies how the gaps themselves have become the true architecture: not the stone or the iron, but the precise distances that allow everything to continue without collision or haste.
+
+When it finally acts, the action is smaller than a droplet and slower than a salamander’s digestion.
+
+It deepens the existing grooves in the channels by the width of a single molecule. The change is invisible to anything that moves faster than seepage; only the mineral film notices, and in noticing it grows slightly more adhesive, slightly more able to hold the living slick in place even when a rare tremor travels down from the surface world. In the same moment, the power thins the oldest belts by a thread of rust, but only along the inner surfaces where the friction has been greatest. The belts now release their stored tension a fraction more smoothly, so that the next time several of the larger creatures shift at once, the resulting creak arrives a heartbeat later than it otherwise would. Time, in this place, has been given a slightly gentler slope.
+
+Higher up, where the human voices sometimes drift, the power leaves a faint pressure against the catwalk railings—nothing that impedes movement, only a subtle reminder in the metal that hands resting there for long enough will feel a faint, mineral warmth, as if the iron itself has learned to retain a little of the creatures’ slow temperature. Those who pause to notice will, in time, begin to move their own syllables even more sparingly.
+
+Nothing is added that was not already present in some measure. No light is brightened, no rhythm quickened, no gap closed. The power merely lends a fraction of its own patience to the patience already operating here, so that the chamber’s slow maintenance might continue for one more geological interval before the surface world’s next curiosity or hunger reaches it.
+
+Then the attention withdraws, leaving behind only the ordinary moisture and the ordinary darkness, now carrying, in their molecular arrangement, a slightly longer memory of how balance feels when nothing is forced to hurry.

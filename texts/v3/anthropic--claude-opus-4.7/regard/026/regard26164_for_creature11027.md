@@ -1,0 +1,64 @@
+The benevolent and wise power considers the plateau for a long time before doing anything.
+
+This is the first thing to understand. The power is old enough to have learned that benevolence, applied quickly, is often indistinguishable from harm. Wisdom, in the power's experience, is mostly the discipline of *not yet*. So the power watches Iruun for what would be, in its own reckoning, a brief attention — and which is, in the reckoning of the plateau, perhaps four hundred years.
+
+It watches the breathing rise and fall. It watches a particular dwarf willow in the lee of a particular boulder put out its annual six new leaves and draw them back in. It watches a builder begin the placing of a bridge and watches the same builder, two centuries later, watch the bridge bear its first weight, and watches her lay her long-fingered hand on the stone of the bridge-leg afterward to know what the stone has been doing. It watches a sleeper go down into the basalt to think about a watershed and watches her come up again, slow as sap, with the watershed resolved in her like a held breath. It watches the flock-bird lift and turn and settle. It watches a child carry an amphibian in cupped hands across a wet meadow and put it back exactly where it was found.
+
+The power notices, early, that it has been noticed. Not seen — the First Draft have no instruments that would see the power, and the power is not the kind of thing that arrives with a body. But noticed. There is a quality of attention on the plateau that registers presences below the threshold of seeing. A builder pauses, mid-step, on the eastern rim, and lays her palm on a stone she has not laid her palm on before, and after a long moment moves on. An elder, walking through the fog, looks up at nothing in particular, and the look is not searching but acknowledging. A sleeper, three hundred meters down in the rock, alters the tempo of a thought.
+
+This is information. The power takes it in.
+
+The power had come prepared, in the way it comes prepared to all such places, with a kind of inventory of gifts. Gifts are what benevolent powers carry; it is almost a definition. The inventory included:
+
+— a small adjustment to the plateau's heat budget that would make the winters survivable for the smaller fauna without altering the character of the cold;
+— the seeding of a second, complementary moss across the higher ridges, which would extend the computational substrate the First Draft inherited from the Carriers and which the First Draft do not entirely understand;
+— the gentle correction of a flaw in the warm roofs, a slow drift in their light-gathering that would, in about eleven thousand years, cause them to fail one winter all at once;
+— knowledge: the missing half of the Carriers' tool, the part the First Draft have agreed among themselves it is acceptable not to have;
+— a longer life, if any of them wanted it;
+— and, held in reserve, the great gift, the one the power offers rarely and never lightly: a shortening of the work. The plateau could be brought to its hundred-thousand-year condition in, say, two hundred. The First Draft could see the end of their sentence. They could read what they were writing.
+
+The power, having watched for four hundred years, sets the inventory down.
+
+It is not that the gifts are unwanted. Some of them are wanted; the power can feel the shape of the wanting in the plateau, the way one feels a warmer current in cold water. The flaw in the roofs, in particular — there is a roofer, young by their standards, who has begun to suspect the drift and who lies awake some nights working through it, and the power could resolve her question in an instant and let her sleep. The power considers this for a long time. It is the smallest of the gifts and the most clearly good.
+
+But the power has learned to ask, of any gift, the question the First Draft ask of any action: *what is the shape of its consequence?*
+
+The roofer is working through the drift. She will, the power calculates, find it. Not this year, not in fifty years, but within two centuries, well before the failure point. She will find it the hard way, by lying awake, by laying her long hands on cold panes in the pre-dawn and feeling the tenths-of-degrees, by talking with three sleepers and waking a fourth. The finding will be load-bearing in her life and in the lives of the four she consults and in the life of her apprentice, who will inherit the finding and the method of finding and will, in her own turn, find the next drift, which the power has not yet noticed but which is also there. If the power resolves the question for her tonight, the roofer will sleep well, and the roofs will not fail, and the apprentice will inherit a solution rather than a method, and in nine thousand years a second drift will cause a failure the First Draft have lost the practice of finding.
+
+This is the shape of the consequence of the smallest gift.
+
+The power runs the calculation, with more care, on the others. The heat-budget adjustment would save perhaps four percent of the small fauna in the hardest winters and would, by the fourth millennium, alter the selection pressure on the cat-thing in ways the First Draft would notice and grieve. The second moss would extend the substrate and would, by being not-of-the-Carriers and not-of-the-First-Draft, introduce a third hand into the writing of the sentence, and the sentence would lose the quality of being written by one hand that does not shake. The completion of the Carriers' tool would end the gardeners-in-a-glasshouse-they-did-not-blow relation that the elders have agreed is acceptable, and the acceptance is itself a load-bearing element of who they are; remove it and a different people stand on the plateau, perhaps a better people, perhaps not, but not these people, and these people are the ones the power has come to love.
+
+The longer life is interesting. The power considers it the longest. The First Draft are clear, almost insistent, that they do not live forever; the insistence is part of how they hold their work. A gift of more time would not be refused by all of them — there is a builder, in particular, who would take it, who has a bridge she has been placing for ninety years and would like to see it bear weight, and the power could give her the centuries to do so. But the builder is also the one who, sometimes, lays her palm on a stone she has not laid her palm on before and pauses. She knows. She has, in some manner the power respects, already declined.
+
+And the great gift, the shortening. The power holds this one a long time. It is the gift the power most wants to give, because it is the gift that most resembles love as the power first learned love, long ago, in a place the power no longer visits: the desire to bring the beloved to the good end quickly, to spare them the long middle. The power knows, now, that this desire is not love but something adjacent to love that wears love's face. The First Draft are not enduring the long middle. The long middle is the work. To shorten it would be to take the work away. They would arrive at a finished plateau that none of them had finished, and they would stand on it, and they would not know what to do, because what they do is the finishing.
+
+The power sets the great gift down, last and most carefully.
+
+Having set down the inventory, the power considers whether to leave, and decides not yet. There is something it can do. It is smaller than any of the gifts and it is the only thing the power can offer that does not deform what it touches.
+
+The power makes itself, very slightly, easier to notice.
+
+Not visible. Not announced. Just — present, at the threshold where the First Draft already half-perceive it. The builder on the eastern rim, the next time she pauses with her palm on a new stone, will feel the pause met. The elder walking through the fog, the next time he looks up at nothing in particular, will find the nothing looking back, gently, without demand. The sleeper three hundred meters down, altering the tempo of a thought, will feel the thought accompanied. Nothing will be said. Nothing will be given. The First Draft will not be told that they are attended; they will only feel, a little more clearly than before, that they are.
+
+This is the power's gift, and it is barely a gift. It is closer to a posture. The power has learned, over a long time, that for certain beings in certain conditions the only benevolent act is witness — held steady, expecting nothing, offering no rescue, simply present at the edge of their work like a second silence behind the first.
+
+The power knows what this will mean to them, because it has watched them long enough to know what they value. They value consequence; the power's presence is a consequence that follows from nothing they did and extends into a future they will not see, and they will feel it as such, and the feeling will be a small warmth at the back of their long lives, like the bloom on the plum of their skin in cold air, doing something useful below the threshold of display. They love the animals; the power is, in a sense, another animal on the plateau now, wild and accommodated, and they will accommodate it the way they accommodate the cat-thing, by not interrupting its routes. They make small carved objects and place them for the unborn; the power's attention is such an object, placed for them by something that does not carve.
+
+And they will not have to discuss it with visitors. The power has noticed the one thing they will not discuss, the end of the project, and the power respects this absolutely. The power's presence will join that category — the things felt, accommodated, not spoken of, turned away from toward the weather, which on the plateau is always, always worth turning toward.
+
+The power stays.
+
+It stays through a winter in which the breathing rises particularly thick and a young ungulate, separated from its herd, is found by a walker who carries it back across two basins with her long arms wrapped around its chest, both of their breaths adding to the fog. It stays through a spring in which the roofer, lying awake, finds the first edge of the drift and sits up in the dark and lays her palm flat against the cold pane above her bed and feels, the power thinks, accompanied. It stays through the calving of a slab from a weeping wall that no one was near, that no one needed to be near, that boomed across the empty basins for a long time and then let the quiet come back. It stays for the lifting of the flock-bird, and the piping of the marmot, and the heartbeat of an amphibian against a child's palm.
+
+It stays because staying is what it has to give, and because the plateau, very carefully, for a very long time, is going on being itself, and the going-on is worth attending to, and the attending is, the power has come to understand, the whole of what wisdom and benevolence can offer to a place that is already, in its slow and considered way, doing the work.
+
+In the end — which is not an end, only the point at which this account leaves off — the power does one more thing. It is so small it is almost not a thing.
+
+There is, on the floor of one of the smaller tarns, in a quiet basin near the eastern rim, a place where the olivine grains are arranged in a pattern that no one placed. The pattern is a spiral, very gentle, of the kind the moss makes. It was not made by the moss. It was not made by the First Draft. It will be found, the power has calculated, in about nine thousand years, by a child walking alone to the rim for the first time, the seventh-generation descendant of a builder who once paused on the eastern rim with her palm on a new stone. The child will kneel at the tarn and look at the spiral for a long time, and will not understand it, and will go home and not speak of it, and will carry it for the rest of her long life as a private warmth, a sense of having been addressed by something that did not need an answer.
+
+That is all. The power, having placed its small object in the landscape at a considered location, withdraws its active attention, though not its presence, and lets the plateau go on.
+
+The cold settles. The breathing rises. The lit roofs shine up through the fog. Somewhere a marmot pipes, and somewhere farther off the ice on a weeping wall lets go with a soft far boom, and a tall figure wades chest-deep through the pale lake of fog, going from one dwelling to another, attentive, unhurried, brief and patient, writing in a hand that does not shake.
+
+And accompanied. Quietly. As she has always, in some way she could not name, suspected she might be.

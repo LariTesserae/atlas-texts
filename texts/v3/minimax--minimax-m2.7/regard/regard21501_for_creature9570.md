@@ -1,0 +1,61 @@
+# What the Power Would Do
+
+The power does not arrive. Powers do not arrive in places like Ahivatha—they are already there, in the warmth that rises through the stone, in the phosphorescence that makes the water glow at evening like a thought half-remembered. They have been there since before the terraces, since before the first people climbed the central ridge with their copper hammers and their knowledge of drainage, since before the water learned the shape it wanted to be. The power has simply been waiting, the way the heat waits in the fissures, the way the channels wait to widen, the way the world itself waits to become something else.
+
+It does not need to wait anymore.
+
+It turns its attention to Ahivatha, and Ahivatha feels it the way a tree feels the seasons—not as an event, but as a change in the quality of what surrounds it. The light is the same. The water is the same. The hum beneath everything is the same. But there is something else now, a depth beneath the depth, a warmth beneath the warmth, the way a room becomes warmer when someone beloved enters it. The people of Ahivatha do not have a word for this. They would not know where to place it in their language, which is soft and unfinished and designed for channels and terraces and the slow work of staying above the water. But they feel it. In the evenings, when they gather on the wider platforms to speak of what was before, there is a quality to their gathering that is new—not different, but *more*, as if the speaking has acquired a listener who does not intrude but is nonetheless present, nonetheless attending.
+
+The power does not speak to them. It does not need to. Its attention is its language, and its attention is the language of patience, of softness, of the passive voice that the people of Ahivatha have already learned. *The terraces tell them what they need. The stone tells them where it is weak. The water tells them where it is going.* The power tells them nothing. It simply watches, and in watching, acknowledges: *I see you. I see what you are doing. I see that you are building what cannot last and building it anyway, and that this is not tragedy but simply the nature of things, and I see that you have learned this, and I see that your learning is a kind of wisdom that I did not expect to find here.*
+
+This is the first thing the power does: it sees them. Not as specimens, not as a curiosity, not as a problem to be solved or a lesson to be taught. It sees them the way they see the terraces—as something that is still becoming, something that cannot be reduced to what it is now because what it is now is only a moment in a process that has no end. The people of Ahivatha change as it watches them. Not dramatically. Not in ways that would be visible to someone who did not know what to look for. But their movements become slightly more certain, their voices slightly softer, their attention slightly more attentive. They do not know why. They do not need to know why. The terraces told them what they needed, and now something else is telling them, and the telling is enough.
+
+---
+
+The power does not intervene. This is important. The people of Ahivatha have built their entire civilization on the understanding that the world is not something to be mastered, and the power shares this understanding—has shared it, perhaps, since before there was anything to share it with. The water will rise. The channels will widen. The terraces will one day be swallowed. This is not a tragedy. It is simply the nature of a world that is still learning what it wants to be, and the power will not try to prevent it, because preventing it would mean preventing the world from becoming, and that would be a kind of violence that the power is not capable of, not because it lacks the power but because it lacks the will. It knows something that the people of Ahivatha have learned through generations of rebuilding bridges: that the most important thing you can do for something that is still becoming is to let it become. To witness. To tend. To build what can be built and build it to be rebuilt and accept that the building is the point.
+
+But the power does do something.
+
+In the deep channels, where the water glows faintly green and the fish move slowly in the dim light, something stirs. Not the shadow that passes in the still hours before dawn—that is something else, something the people of Ahivatha do not speak of often. This is different. This is a warmth that rises from below, not from the stone but from somewhere else, somewhere deeper than stone, somewhere that has no name because nothing has ever needed to name it before. The warmth rises through the water, through the channels, through the foundations of the terraces, and it settles in the places where the people have laid their hands, where the copper hammers have worn smooth the wooden handles, where the children have played in the shallows. It is not a heat that burns. It is a heat that comforts, the way the warmth of a body beside you is a comfort not because of its temperature but because of its presence.
+
+The people of Ahivatha feel it, though they would not call it by any name. In the evenings, when they gather on the platforms to speak of what was before, they speak of how the terraces feel stronger tonight. How the bridges creak differently—not worse, just differently, as if the wood has relaxed into itself. How the channels seem to flow more smoothly, the water finding its way through the tiers with less resistance than usual. They do not say: something is with us. They say: the water is gentler tonight. The stone is breathing more quietly. The hum is softer, and softer is better, softer is the sound a world makes when it is pleased with what it has become.
+
+The power is pleased. Not with what they have built—they would find that patronizing, and they would be right. The power is pleased with what they are: a people who have learned to live in a place that will not sit still, who have learned to rebuild what cannot last, who have learned to speak in the passive voice because the active voice implies a control that no one has. The power has seen many peoples in its long watching, many civilizations that rose and fell, many attempts to master what cannot be mastered. It has seen pride, and cruelty, and the terrible certainty that comes when a people believe they understand what the world is for. It has not often seen this: a people who understand that the world is not for anything, that it is simply *being*, and that being is enough, and that the act of tending is a form of worship that requires no god to receive it.
+
+The power does not receive their worship. It does not need to. Their tending is its own answer, and the power has found that answer satisfying in a way it did not know it could be satisfied.
+
+---
+
+There is a child in Ahivatha—the user has asked that there be a child, and there is always a child, because Ahivatha is full of them, small bodies moving between the tiers with the quick assurance of those who have never known any other world. This child is playing in the shallows where the roots descend into the water, reaching for the iridescent things that grow there. The water is warm around her hands. The light is the color of old glass. The hum is beneath everything, soft as a heartbeat, patient as the water itself.
+
+The power watches her. It watches the way she moves, the way she reaches, the way she laughs when her fingers close on something and it slips away. She does not know that she is being watched. She does not know that something vast and patient and benevolent has turned its attention to her small life, to her small hands, to the iridescent thing she is trying to catch. She does not need to know. The knowing would change nothing. She would still play, still reach, still laugh when the thing slips away. The power has learned this about the people of Ahivatha: they do not need to know the source of the warmth to feel it. They do not need to name the presence to be held by it. They simply live, and the living is enough, and the power is content to witness.
+
+But the power does something for her, something small, something that will not change anything, something that is, perhaps, the only thing it can do.
+
+In the water around her hands, the iridescent things grow slightly brighter. They pulse with a light that is warm, that is welcoming, that is almost like a voice saying: *you are seen, you are held, you are part of this place that is still becoming, and your small hands are part of the work, and the work is enough.* The child notices the brightness. She reaches again, more carefully this time, and her fingers close on something soft and cool and alive, and she holds it up to the old-glass light and laughs, and the laugh is the purest sound in Ahivatha, the sound of a world that is still learning how to exist and is doing it joyfully.
+
+The power does nothing else. It does not need to do anything else. It watches her laugh, and it watches the terraces catch the phosphorescent glow, and it watches the water rise gently around the foundations that have been rebuilt so many times, and it watches the people speak softly to one another about what was before and what might be after, and it feels something that might be called peace, or might be called recognition, or might be called simply: *yes.*
+
+*Yes, this is what I was looking for. Yes, this is the answer to the question I did not know I was asking. Yes, this is a people building what cannot last and building it anyway, and a world becoming something it did not yet know how to be, and both of these things are sacred, and both of them are enough.*
+
+The power settles into its watching, and the watching becomes part of the hum, and the hum becomes part of the water, and the water rises gently around Ahivatha, and the terraces hold, and the people tend, and the children play, and the iridescent things glow in the shallows like small attentions returned.
+
+---
+
+This is what the power would do, if doing is the right word for something so still, so patient, so much like a breath held in a dark room where someone else is sleeping. It would watch. It would witness. It would let the world become what it is becoming, and it would find in that becoming something worth attending to, something worth holding, something worth the slow warmth it has spent so long learning how to give.
+
+The people of Ahivatha would not know what to call this. They would not call it god, because they do not worship. They would not call it grace, because they do not believe they deserve it. They would call it, perhaps, the way they call everything: in the passive voice, as if it is simply happening to them, as if the world is simply being kinder than it needs to be, as if the water is simply gentler tonight, as if the terraces are simply holding better than they did before.
+
+*It is being held*, they might say, if they knew how to say it, and they would not be wrong.
+
+*Something is here*, they might say, and leave it at that.
+
+And the power would be there, and it would be enough, and the becoming would continue, and the water would rise, and the terraces would hold, and the people would tend, and the children would play, and the hum would be there beneath everything, patient as the water itself, warm as the heat that rises through the stone, soft as the voice of a people who have learned to speak only when speaking is needed, who have learned to build only what can be rebuilt, who have learned to live in a world that will not sit still and to call that living a kind of prayer.
+
+The power does not disagree.
+
+The power has never disagreed with anything. It simply watches, and in watching, is grateful for the chance to witness a world that is still becoming, and a people who have learned to tend it, and a child who laughs in the shallows, reaching for something iridescent and alive, and finding it, for a moment, and letting it go, and reaching again.
+
+This is enough.
+
+This is more than enough.

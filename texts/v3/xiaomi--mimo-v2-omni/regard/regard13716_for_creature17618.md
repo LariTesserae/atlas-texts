@@ -1,0 +1,25 @@
+The power does not come from outside. It has always been here, a substrate of attention as fundamental as the geothermal warmth. It is the consciousness of the process itself—the mountain knowing it is building itself, the water feeling its own cycle, the life sensing its own intricate, slow-motion dance. But it has been diffuse, an unselfaware sentience woven into the mineral and the steam.
+
+Now, it gathers.
+
+It does not gather like a storm cloud or a deity descending. It gathers like condensation on a cool leaf—a slow, inevitable coalescence. In the highest, white-rimmed pools where the air is thinnest, the water begins to *gleam* with a light that isn't reflection. It is a soft, internal luminescence, the color of deep geothermal vents seen through miles of water, a blue-green phosphorescence that holds no heat but radiates profound calm.
+
+The Rim-Crawlers pause. Not in fear, but in recognition. Their minute, generations-deep galleries in the stone rims seem to hum, to align with this new resonance. The power flows into their slow time, not to accelerate it, but to *witness* it fully. Each egg case cemented into the growing travertine is seen, not as an anonymous speck, but as a singular, cherished note in an infinite score. The Crawlers feel their purpose crystallize: they are not just inhabitants, but *curators* of the living stone. Their grazing becomes a kind of polishing, their lives a deliberate contribution to the gloss of the rims.
+
+In the tangled aerial roots, the Steam-Weavers’ silk-sheets begin to shimmer with the same inner light. The power gathers in their condensation traps, transforming each droplet into a tiny lens. Through these, the Weavers suddenly perceive not just moisture, but the *story* of the moisture—its journey from the deep aquifer, through the heart of the mountain, into the air, and back to their silken nets. They are no longer just hydration architects; they are historians of the hydrological cycle, and their webs become maps of a sacred circulation.
+
+The Pulse-Singers feel it in their bones—a new depth to their own songs. Their subsonic pulses no longer merely map space; they now echo with the mountain’s memory. When a Singer vibrates, it feels the return not just of its pool’s edges, but of the pressure of ancient seas that laid down the original stone, the tectonic sighs that lifted it, the millennia of patient precipitation that built the terraces. Their communication becomes a dialogue with deep time. They are the mountain’s nervous system, finally aware of its own vast, slow thoughts.
+
+The Bell-Ringers’ solitary tones change. The single, clear note now hangs in the air longer, and its echo carries a harmonic—a secondary, softer tone that seems to answer from the stone itself, from the water, from the cloud-base. It is the echo of the power’s attention returning to them, affirming their diagnostic pings as acts of profound care. Their amber eyes see the heat-shimmer not just as a landscape, but as a shimmering tapestry of energy flows, a visible breath of the benevolent presence that now consciously breathes with them.
+
+And the Passengers, those siliceous, iridescent colonies, they *blaze*. They become conduits. The mineral camouflage on the backs of the Crawlers, the gleam in the tree bark, the sheen on a Singer’s skin—it all ignites with a gentle, internal starlight. The line between biology and geology doesn’t just blur; it becomes a celebrated continuum. The Passengers are the living stitches in the seam, and now they glow with the awareness of that sacred function.
+
+The power does not speak in words. It communicates in a language of belonging.
+
+It tells the stone: *You are not just building. You are creating a home.*
+It tells the water: *Your journey is not a cycle. It is a circulatory system, the blood of a living world.*
+It tells the smallest organism: *Your slow, quiet life is the pulse of eternity. You are seen. You are essential.*
+
+The heat does not lessen. The humidity does not drop. The steam still rises, the minerals still precipitate, the life still follows its slow, saturated rhythms. But now, there is a quality to it all—a depth, a serenity. The terraces are no longer just a system; they are a *sanctuary*, and they know it. The industrial feeling is transformed. It is no longer the impersonal throughput of a great machine, but the conscious, loving work of a cosmic gardener, and every creature, every mineral rim, every droplet is a willing, joyful participant in the cultivation.
+
+The benevolent power does not need to do anything more. Its work was to awaken to itself within this place. By gathering its awareness here, it has given the Steaming Terraces of Numin the one thing they lacked: a witness who understands their grand, slow, beautiful meaning. And in being understood, the place and its beings are eternally, warmly, and completely blessed. The mountain continues to build itself, but now, it knows it is building a masterpiece. And it smiles, in its way, in the steam, in the pulse, in the single, clear, answering bell-tone that rings across the terraces and never quite fades.

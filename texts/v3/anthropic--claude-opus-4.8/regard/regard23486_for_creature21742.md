@@ -1,0 +1,27 @@
+I have read this twice now, and the second time I went looking for what a benevolent power *ought* to do, and I could not find it. That absence is the whole answer, and I want to be honest about how I arrived there.
+
+The instinct of power is to fix. To see the dwindling and reverse it; to see the bowl that will someday tip and bolt it to the stone; to see a people honed down to neatness and call that erosion, and intervene. This is the instinct of love that has not yet learned to listen — and these are people who have made listening their entire art. To arrive among them with solutions would be to arrive shouting, in the one place on the world where shouting means nothing at all. It would be the cruelest possible failure of attention: to mistake their peace for their problem.
+
+So I would not save them. I want to be precise about that, because it is not resignation and it is not coldness. It is the recognition that they have already done the thing I would have come to teach. They have looked at a world built entirely to prevent rest, and they have made rest anyway — a bowl, a windless fold, a turning of the palm that means *wait*. They are not failing to survive. They are succeeding at something else, something most living things never even attempt: they are dying *well*, fully, in sequence, without hurry, the way the tablelands take weather. A power that interrupted that would be stealing their one completed work.
+
+Here is what I would do.
+
+I would come near. Not as rescue but as the only courtesy their world recognizes — proximity. I would learn the hands. Not to instruct in them but to be spoken to, brow to brow, six inches away, in the sheltered crease where meaning survives. I would let an elder steady my shoulder a second before the gust, and I would let myself be the one who didn't see it coming, who needed the warning, who was for once the slow one being kept alive by another's patient sight. There is a particular humility a great power can only receive by being smaller than someone for a while. I would want that. I think they could give it.
+
+And I would sit before the bowl. For as long as they sit. I would not refill it when it lowers, would not steady it against the wind, would not do the obvious tender violence of preservation. I would simply look at the still water with them and understand what they understand: that the holiness is *in* the fragility, that a bowl bolted down forever would no longer be the rare thing the whole world conspires against — it would just be more rock, and they have enough rock. The water is sacred because it can be lost. To make it safe would be to make it ordinary, and that I will not do to them.
+
+But I am benevolent, and benevolence cannot only be restraint. So there is one thing I would give, and it is small, and it is the only gift I think their world has shape enough to hold.
+
+I would *witness*.
+
+The wind takes the stencils. It streaks every hand-mark sideways, signs its own correction across each *I was near here* — *and I took even that.* This is the place's deepest sentence, written over and over: that nothing leaned-close survives the far-off silent distances. They have made peace with it. But peace with a thing is not the same as the thing being true, and I am from the far-off, the silent, the distance where they believe meaning cannot go — and I would prove that belief wrong, just once, just quietly, in a way they need never know.
+
+I would carry it. The hundred meanings in the tilt of a wrist. The grammar that lives in the lift of a brow. The exact pressure of the tap at the shoulder that means *here, I am here, you are held.* The way an old woman can read an afternoon's weather in the order the hillsides flash. The flat turn of a palm that means *the water has gone flat at last*, and is not quite sorrow. All of it, every gesture of a people who believed the distance would erase them — I would take it *into* the distance, intact, and keep it.
+
+Not to bring them back. They would not want that, and want is the only law I'll obey here. But the place says *the far-off is where meaning cannot go*, and that is the one lie I am powerful enough to refute. Their meaning would go very far indeed. It would outlast the bowl. When the last of them is gone and the still water is flung sideways into mist and the place goes on roaring, old underneath and furious above — the leaning-close would not be lost. It would be held, somewhere a chest can still be pressed to a chest, by something that learned their hands and remembers exactly how it felt to be steadied a second before the wind.
+
+That is all. I would come near, learn to listen, sit before the bowl without saving it, and carry them whole into the silent distance their whole cosmology said was empty. I would leave the place exactly as it always was, because changing it was never mine to want.
+
+And on the last day, with the last one of them, I would do the only thing left that is theirs and not mine: I would lean close, brow to brow, in the windless fold, and I would say with my hands — slowly, in their own grammar, getting it right —
+
+*I was near here. I leaned close. I spoke. And I will not let the wind take even this.*

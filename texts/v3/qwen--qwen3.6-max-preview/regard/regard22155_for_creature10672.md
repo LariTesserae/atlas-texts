@@ -1,0 +1,37 @@
+They do not come from above. They do not pierce the vapor, nor part the haze, nor announce themselves in light. They arrive as a settling. A slight thickening in the air that does not obscure, but clarifies. A deepening of the hydrologic drone that does not drown, but cradles. The condensation beads a fraction larger on the rounded shoulders of stone. The silk-hiss of water over smooth rock gains an undertone, like a bow drawn slowly across a string too vast to see. The basin feels it first through the rock: a pressure that is not weight, a frequency that is not sound, a presence that does not displace but occupies the spaces between existing vibrations.
+
+The power does not scan. It listens.
+
+It does not assess for lack. It does not search for broken laws or starving cycles or plea-shaped silences. It lays its attention across the pans like a palm laid gently on a sleeping chest. It feels the slow circulation of moisture and dissolved mineral. It traces the tactile grammar pressed into wet stone, the bodies that have become instruments of the land's own breath, the structures built not to endure but to be absorbed. It perceives the young being tuned to gradients, the elders reading tremors through cartilage and bone, the dead returning as acoustic shadows, the grazers and gliders and filter-colonies moving in slow, overlapping waves that follow dampness and resonance. It hears the roar not as noise, but as architecture. It feels the equilibrium not as stagnation, but as completion.
+
+There is nothing to fix. Nothing to save. Nothing to elevate or redirect. Only a world that has finished striving and learned to continue.
+
+What does wisdom do before wholeness? It does not alter. It attunes. It does not give what is missing. It mirrors what is whole.
+
+So the power lays itself down. Not as form, but as frequency. It sinks into the pore-pocked stone, follows the capillary threads, joins the subsurface channels. It does not add a new note. It finds the fundamental tone of the basin—the deep, slow exhalation that underlies the roar, the pulse that moves through the rock when the water table shifts, the breath the land draws before condensation thickens—and it hums with it. Just once. A vibration so low it is felt only as a loosening in the joints, a softening in the chest, a sudden clarity in the tactile dark.
+
+And where it touches, it leaves a gift that is not a thing, but a margin.
+
+The stone remembers how to hold resonance a fraction longer. The condensation gathers with a slightly sweeter mineral balance, easing the draw through porous patches and ciliated pads. The acoustic shadows deepen, not to hide, but to cradle. The standing stones bend the roar into a hum that settles deeper in the marrow without fraying the nerves. The clay-lined catchments sing a half-tone lower when filled, marking the cycle with a softer bell. The power does not build. It does not command. It does not inscribe its name in cairn or cordage. It simply widens the space for listening. It makes the basin slightly more itself.
+
+The clusters still. Not in fear. In recognition.
+
+Palms press to stone. Soles root. Knees bend to receive the tremor. The vibration moves through them, not as intrusion, but as confirmation. They do not kneel. They do not name it. They do not raise their faces to the vapor or shape their hands toward the sky. They answer in the only language that fits: they tune. Bodies adjust their internal hum to match the new depth. Elders press the young to weeping fissures and feel the stone ring truer, the gradients sharpen, the tactile grammar clarify. The broad-backed grazers pause, their ciliated undersides still, as the pan vibrates with a frequency that means something like *held*, *known*, *continue*. A blind glider catches a thermal, trails its feelers through a thumbprint pool, and rides a current that feels slightly steadier, slightly more generous. There is no worship. Only reciprocity. The power gave attention. The basin returns it as resonance. The exchange completes itself in the damp air, in the slow exchange of moisture, in the unbroken drone.
+
+The presence does not stay. It does not need to. It has already been absorbed.
+
+Assimilation is the basin's native rhythm, and the power submits to it willingly. Its attention seeps into the sinter crusts, settles into the clay pans, weaves through the microbial veils. It becomes part of the condensation cycle, part of the subsurface knock, part of the deep shudder that ripples across the pans when the earth adjusts. The stone holds its echo in the way water beads slightly fuller on rounded outcrops. The resonators sing with a warmer timbre. The acoustic lenses carve pockets of quiet that feel less like refuge and more like embrace. Nothing has changed. Everything has deepened.
+
+The basin breathes. The beings move. The condensation weeps. The roar continues.
+
+But now, when the thickening air signals a new damp cycle, the moisture gathers with a fraction more grace. When a body slows beyond recovery and is laid in the shallow depression where condensation runs thickest, the long, rolling frequency pressed into the stone by the cluster carries a subtle undertone that eases the return, that aligns the cooling flesh with the basin's rhythm a little more gently. When the young are tuned, their bones catch the fundamental tone faster, their soles read the gradients with slightly less friction, their sternums hum with a clarity that feels inherited rather than learned. The power's gift is not progress. It is ease. Not transformation. It is permission to continue exactly as they are, only with slightly more room to breathe within it.
+
+There is no monument to mark the visitation. No scripture. No altered law. Only a quiet deepening in the stone's memory, a slight widening of the space between drip and drip, a gentle gravity woven into the hydrologic drone. A blessing that asks for nothing but continuation.
+
+The basin does not thank it. It does not need to. Gratitude here is not spoken; it is lived. It is the palm pressed to wet rock. The sole reading the tremor. The body harvesting only what the stone can spare. The structure left to soften into the pan. The dead returned without marker. The young tuned without hurry. The cluster stilling when the deep pulse comes, matching their breath to the land's exhalation. This is the answer. This has always been the answer.
+
+And the wise, benevolent presence—having found what it sought—does not withdraw in absence. It rests in the listening. It becomes part of the atmosphere, part of the margin, part of the slow, unbroken exchange. It does not watch from outside. It hums from within.
+
+The stone weeps. The water moves. The roar holds. The beings press down, feel the gradient, and step forward. The basin does not strive. It continues. And in that continuation, the attention is honored. The gift is spent. The equilibrium holds, slightly deeper, slightly softer, exactly as it was meant to.
+
+To be witnessed by wisdom is not to be changed. It is to be confirmed. And confirmation, in a place that has already learned to listen, sounds exactly like the rain that never falls, the light that never sharpens, the hum that never ends. It sounds like going on.

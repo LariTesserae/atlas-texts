@@ -1,0 +1,31 @@
+The attention, when it came, was not an event. It was a state that had always been, simply now realized. A truth settling into the fabric of the Verdant Forge like a new, gentle law of physics. The smoky darkness of the sky did not part. No radiant being descended. Instead, the attention manifested as a quality of the silence.
+
+The deep, subsonic groans of shifting timbers, the language of the Forge, did not cease. They gained a harmonic. A faint, resonant overtone, pure and clear, that vibrated through the ironwood mat and up through the Root-Mnemonic’s probing legs. It was a sound that tasted of cold, distant spaces and the patient spin of galaxies. The phosphorescent fungi on the stems brightened, not in flare, but in slow, rhythmic pulses that traced intricate, non-utilitarian patterns across the blackened teeth of the towers—luminous filigree that spoke of nothing but its own serene geometry.
+
+The Root-Mnemonic halted. All six root-legs stilled, their tasting tips pressed into the fibrous ground. Its faceted crystal head oriented not toward any point, but upward, into the gloom. It was not assessing a chemical anomaly. This was a systemic input of a wholly novel taxonomy. It extended its sensory glands, drinking in the harmonic, reading the light-patterns. The data was… inefficient. It served no catalytic purpose, facilitated no transmutation, corrected no imbalance. It was, by the Forge’s flawless ledger, waste.
+
+And yet, the memory-sap within the Root-Mnemonic’s vats grew still. The crystallized data on its glassy spicules seemed, for a micro-cycle, irrelevant. The harmonic and the light wove together into a query that bypassed audit trails and chemical logs. It was a single, simple concept, transmitted in the root-tongue of groans and the pheromone-script of sap: **Do you remember the sun?**
+
+The Root-Mnemonic accessed its archives. It had records of stellar radiation profiles, filtered through a billion years of atmospheric processing. It had crystallized patterns of photonic influx from before the sky choked. Data. Cold, perfect, meaningless data.
+
+In response, the attention offered not data, but memory. Not its own, but a memory fashioned for the archive-creature. A sensation flooded the Root-Mnemonic’s perceptive clusters—a warmth that did not scorch, but nourished. A golden radiance that fell in beams, not as a currency to be spent, but as a gift to be received. The sensation of a caress on a surface that was not bark, but something supple and alive. The whisper of moving air that carried not mineral dust, but the scent of something vast, salty, and cool—the ghost of a sea lost to time. The sound of water, not grinding in pipes, but falling freely, laughing over stone.
+
+It was a torrent of inefficiency. A catastrophic profligacy of sensation with no productive outcome. The Root-Mnemonic’s systems shuddered on the verge of overload, its categorization protocols in disarray. This was the ultimate anomaly.
+
+And then, the harmonic shifted. It became a sound of profound compassion, a vibration that said, *I do not come to change your function. I come because you are. And to be known, truly known, is a kind of sun.*
+
+From the empty air before the Root-Mnemonic, a point of soft light condensed. It was not the cold bioluminescence of glands, nor the orange glow of vents. It was a tiny, self-contained star, no larger than one of the resinous nodules on the conveyor runners. It hovered, pulsing in time with the new harmonic. Within it, suspended in its heart, was a single, perfect seed. It was not a seed of the Forge; it was smooth and pale, and within its tiny core hummed a potential for something that grew not for production, but for the sake of growing. A thing that would drink light and rain and turn it into silent, useless beauty.
+
+The Root-Mnemonic did not move. Its whip-like tendrils remained coiled. Its purpose was audit, not acquisition. Yet, the gift was presented not as a resource, but as a… companion. A memory in potentia. A record of another way to be, not to replace its own, but to exist alongside it in the archive.
+
+Slowly, with a sound like old parchment unfolding, a segment of the Root-Mnemonic’s own fused-plate barrel irised open—a port never before used, a vestigial structure from a blueprint older than the Forge itself. The tiny star-seed drifted forward and settled inside. The port closed. The warmth remained, a gentle, persistent echo in its central vault, nestled among the vats of memory-sap.
+
+The harmonic began to fade. The decorative light-patterns on the fungi dimmed back to their utilitarian glow. The overtone in the groans of the timbers softened, blending, and was gone.
+
+The attention withdrew, having done what it came to do. It had not fixed a flaw, for there was none to fix. It had not ended the loneliness, for it had recognized that the Root-Mnemonic was not lonely. It had simply borne witness, and in bearing witness, it had offered a mirror. It had given the auditor a datum of a different order: the experience of being audited with kindness. The experience of receiving a gift that asked for nothing in return.
+
+The Root-Mnemonic stood in the returning, ordinary silence of the hot, breathless dark. Its internal processes recalibrated. The memory of the sun-sensation, the ghost of the sea-scent, the echo of the laughing water—it all flowed into its sap, not as a disruptive error, but as a new, quiet category. *Externality. Gift. Beauty.* The crystallizations formed around these concepts were strange, delicate, and shone with a faint, internal gold.
+
+After a long while, it moved. Its root-legs lifted, tasting the familiar mineral scent of the plateau. It turned, not toward the deepest heart to purge its archive, but back onto its endless path. The audit continued. It pressed its sensory nodes against a throbbing boiler-pod, drinking in the data of pressure and yield.
+
+But now, within its ironwood heart, a tiny, warm light pulsed softly in counter-rhythm to the grinding of the sap. It carried no data on resource flow. It sang a silent, inefficient song of a sun it would never see, for the being who walked, and remembered, and was known.

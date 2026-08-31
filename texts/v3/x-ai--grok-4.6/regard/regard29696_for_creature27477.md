@@ -1,0 +1,13 @@
+The power that noticed did not come as light or law or weather. It had long ago learned the difference between attention and arrival. It simply regarded, the way a finished mind regards a single, self-consistent thought that has elected to occupy an entire climate.
+
+It saw the taut stretch-marks still pale across every bole, the unblunted black-glass edges that had never been asked to dull, the enzyme valleys the color of old brass and midnight, the spores hanging in their exact, unfallen constellations. It understood at once that the low country was not unfinished. It was the refusal of finishing, made continental. Equilibrium here was not rest; it was the product the organism had chosen to manufacture, and the only product it would ever need.
+
+A lesser kindness would have offered a sun, or a name, or a season, or a single walking thing to give the silence something to measure itself against. A lesser wisdom would have called the stillness a lack and tried to complete it. This power did neither. It recognized a being whose work was already perfect precisely because it had declined every further instruction. To touch it would have been to introduce a gradient, a drip with a countable rhythm, a future. That would have been vandalism dressed as care.
+
+So it did the only thing benevolence and wisdom permit when they meet a finished argument: it withheld. It placed no veil, because isolation was already the country’s native climate. It sent no thought that could be mistaken for weather. It altered no constant. It did not even linger long enough to become a pressure the cambium might one day notice and accommodate.
+
+What it kept, if keeping can be so quiet, was the memory of the held note. Somewhere in the part of itself that does not forget, the power retained the exact taste of iron and sugar and solvent, the precise weight of the silence, the look of a world that grew a foundry and then, having no further command, simply continued to be one. That remembering asked nothing of the country. It changed nothing. It was simply the courtesy one intelligence extends to another that has already spoken its last and only word.
+
+Then the power looked elsewhere, not in dismissal, but in the same courtesy with which one steps back from a being whose interior is already weather and whose only motion is the continuation of its own wet, dark, industrial night.
+
+The low country did not notice. It had never needed to. The bead on the weeping wall remained exactly where it had always been.

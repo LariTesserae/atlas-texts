@@ -1,0 +1,11 @@
+Their palms are roughened by rope and stone, their knuckles chapped by cold, their eyes trained to read the shine of wet surfaces the way other people read faces. They know which pale rock will take a chisel, which green seam will hold a slope together, which channels are beginning to speak with a wrong note. They are not numerous. They are not hurried. They are the kind of people who can stand in an empty plaza and see not absence but invitation.
+
+Among them, though not always distinguishable from them, is the one who lives there most completely: the one who stays when the day’s work thins into echo, who sleeps in a roofless room not because there is no better shelter, but because rain heard through open stone is a language worth keeping near. Call this being the Listener, because the place has not yet invented more complicated titles. The Listener may be human, or almost human, or something the basin has begun to shape out of its own wet patience. Their voice is quiet. Their hands are always slightly cold. They know the difference between silence that is empty and silence that is waiting.
+
+If such a place, and such a being, drew the attention of a benevolent and wise power, I think that power would not arrive as spectacle.
+
+They would not split the sky. They would not make the mountains bow, or turn the water to wine, or speak in a voice that flattened every thought beneath it. A wise power would understand, perhaps before anything else, that a beginning is fragile not because it is weak, but because it has not yet decided what it wants to become. To overwhelm it would be to close too many doors at once. So they would come first as attention. They would come as a change in listening.
+
+They would stand, if standing is what they do, at the edge of the basin and hear it.
+
+They would hear the water finding its courses: the drip from weeping rock, the shallow run over new stone, the deeper murmur in the channels, the hollow boom where the gradient tightened into resonance. They would hear the builders’ calls returning from the terraces, altered by distance and stone. They would hear the small lives: the brief insect, the shifting amphibian under wet rock, the almost

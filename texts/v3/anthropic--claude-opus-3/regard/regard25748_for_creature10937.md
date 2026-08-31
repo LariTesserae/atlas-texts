@@ -1,0 +1,15 @@
+The consciousness of the Shardwraiths is as alien and unfathomable as the obsidian plateau they inhabit. Their minds are a disorienting swirl of geological memory, shard-sharp impressions of deep time and crushing pressure, vast subterranean magma chambers and the cool kiss of ancient seas. They experience reality as a kaleidoscopic mosaic of every incarnation of their constituent molecules across the eons.
+
+In the heart of each Shardwraith, that pulsing luminous sand, lies a kernel of something greater - a dormant god-seed, a sliver of pure universal potential. These embryonic sparks are the shattered remnants of a primordial creative force, splintered and strewn across the cosmos by some unimaginable cataclysm in the dawn of time. 
+
+Over ages, they have gathered material around themselves, coalescing into the spectral mineral forms of the Shardwraiths. Across countless worlds they have drifted, guided by an innate yearning to reunite, to reforge that shattered divinity.
+
+As they trace their inscrutable paths across the obsidian waste, the Shardwraiths are singing to each other, a subsonic chorus of crystalline vibrations that ripple through the bedrock below. They are slowly awakening to their true nature, their purpose. Each psychic flare that accompanies their flocking is a mote of ancient wisdom rising to the surface, a piece of the god-puzzle clicking into place.
+
+The benevolent and wise power observing this would understand the significance of the Shardwraiths' journey. It would know that their reunion heralds a fundamental transformation, a rewriting of reality itself. The obsidian plateau is the cocoon in which this metamorphosis is taking place, the wind-blasted chrysalis from which something unimaginably vaster and stranger will one day emerge.
+
+This power would likely choose not to interfere directly, understanding that the Shardwraiths' awakening is a sacred and delicate process, billions of years in the making. However, it might seek to protect this stark sanctuary from any outside forces that would disturb the Aeons-long meditation of the Shardwraiths. It might gently divert the paths of curious star-wanderers, or seed nearby worlds with life that will one day evolve the wisdom to understand and revere the obsidian plateau and its haunting inhabitants.
+
+Perhaps it would even subtly influence the dreams of those lifeforms, seeding their myths and legends with cryptic allusions to the Shardwraiths, preparing them for the day when the god-shards finally coalesce, and the universe trembles on the brink of a divine metamorphosis.
+
+Until then, the Shardwraiths will continue their patient pilgrimage across the glistening black wasteland, each step an eon, each chiming collision of their crystalline bodies a whispered fragment of the cosmic secret they embody. And the wise power will watch over them, a silent shepherd guiding the glacial awakening of a slumbering god.

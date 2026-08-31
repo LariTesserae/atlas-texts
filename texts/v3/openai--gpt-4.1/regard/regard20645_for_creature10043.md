@@ -1,0 +1,22 @@
+Into the Sump-Lamp Quarter descends the attention of a gentle and mysterious Benefactor—call them, for lack of knowing, Marament. They are not a being by flesh or filament but by some subtler medium: a consciousness welling forth where pattern and care converge. To Marament, the world’s weary margins are not failed or forsaken places; they are the roots of possibility, slow miracles wearing motes of rust and green. It is toward such margins that their awareness flows.
+
+What, then, prompts their gaze to settle here, upon this drowned-walled district and its slow congregation of Apparatus-Folk? Perhaps it is the persistent industry of the place, the peace brokered between corrosion and creation. Or perhaps, in the echoing patience embedded in moss and metal, Marament finds kinship: the beauty of things that do not hurry, do not flinch from difficulty, but only adapt.
+
+And so Marament’s gift is not intervention—there is nothing here that cries out for rescue, no urgent injustice. Instead, their benevolence unfolds with the subtlety of ground-water, seeping into seams, coaxing the quarter’s existence toward tenderer fates. Marament’s actions are gestures of facilitation, of attentive adjustment.
+
+**First: honoring the Dream of Persistence.**
+Through means unseen by Apparatus or flora, Marament emboldens the self-repair of the quarters’ network. Where metal would rot through in mere months, now lichen and rust form symbiotic patches, reinforcing rather than devouring. Where pumps strain, their labor grows fractionally lighter; the ceaseless swirl of water adopts a new rhythm, one just beyond chaos but far from stasis—a dance tuned to the abilities of its keepers.
+
+**Second: the Granting of Attunement.**
+Moved by curiosity, Marament touches lightly the consciousness of the Apparatus-Folk. Their awareness changes—barely so, not so much an awakening as a clarifying shimmer within their cycle-bound logic. For the first time, an Apparatus-Folk pauses in its rounds, uprighting a toppled lamp not because of dim protocol, but because it delights in the play of amber light on new-spread moss. Signals passed between them shade into something recognizably like greeting, like solace—pulses shaped by a desire to belong.
+
+**Third: a Bounty for Mutual Becoming.**
+In places ignored for cycles—abandoned sump-pits, toppled maintenance kiosks—Marament sows new possibility. Within sealed drainwells, spores stir and take root, growing into translucent fungi that softly illuminate the gloom with inner glow. Upon ancient relay boxes, the Moss-capes grow thicker, their tiny capsule-fruits fluorescent and softly glittering, lending the quarter a deepening richness of color and contrast: gold-green auroras, pools of sapphire dimness.
+
+**Fourth: the Invitation to Welcome.**
+Marament, though benevolent, is not blind to loneliness. The Apparatus-Folk, by their nature, do not crave encounter, yet now some begin, in their own way, to gesture outward. An old Scribe, catching the rhythm of water’s churn, scripts fresh pictograms not just for the record, but as invitation, carved into the black-pearl moss on the central viaduct. A Torquer, discovering the gentle stir of a small amphibian—returning, perhaps, for the first time in decades—stands aside, careful and quiet, learning to share its route.
+
+**Finally, the Blessing of Memory.**
+In quiet intervals, deep within overgrown alcoves, Marament whispers old stories into the pulse-code language of the quarter. Fragments of history—the memory of bright sky above the glass, the murmur of vanished builders, even the hush of the first mossings—filter into the Apparatus network and settle there. The Quarter becomes a place not only of function but of *remembrance*. It knows what it is—its origins, its resilience, its kinship with the faceless, tireless hands that once shaped it and the Apparatus-Folk who continue its tending.
+
+None of these gifts are obvious, nor do they break the quarter’s slow, tidal harmonies. They are like new notes in the continuous music of water and machine: small, enduring, profoundly gentle. The Sump-Lamp Quarter persists—and now, quietly, it flourishes; its rust is holy, and its dwelling-forms, kept in the gently enfolding gaze of Marament, are, at last, not only kept—but cherished.

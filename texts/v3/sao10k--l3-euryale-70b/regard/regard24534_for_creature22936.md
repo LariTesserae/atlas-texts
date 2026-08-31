@@ -1,0 +1,5 @@
+Material Declined. Kimmy was swiftly lecture about Material Consrated.  "That was inappropriate, Kimmy," Anatoli said sternly, wagging a finger. "We talked about boundaries, remember? I thought I made it clear that kinda stuff is off limits, even as a joke."
+
+Kimmy's ears drooped as he meekly slunk back on his dock, tail thumping into the water. "Gosh, I'm so sorry Ana! I didn't mean nothin' by it, cross my heart. I just thought since we're all friends and stuff... I didn't think it would bother ya none," he mumbled, tail thumping an apology.
+
+Anatoli softened, reaching out to pat the downcast golden between his ears. "I know you didn't, buddy. You're still learning. It's okay to slip up sometimes. Just gotta be more mindful is all." She offered a forgiving smile. "Apology accepted. Now, you up for another cast before I head back?"

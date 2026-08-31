@@ -1,0 +1,35 @@
+The power that found the Stillward Range did not find it the way a hand finds a coin in the dark, by reaching. It found it the way attention finds a held breath in a quiet room — by noticing the *shape* of the silence, the particular quality of something straining without moving. It noticed the place the way you'd notice a single instrument left running in an empty house, still warm, still listening, long after whoever built it had any further use for the noise it made.
+
+It did not arrive as light, or as voice, or as any of the forms that announce themselves. It arrived the way understanding arrives — all at once, complete, requiring no transit. And having arrived, it did the thing that distinguishes wisdom from mere power, which is this: it stayed still, for a long time, before doing anything at all.
+
+It watched the storms assemble overhead and dissolve, century after century, deciding nothing, because deciding was never the point of them — only the deciding-ness, the perpetual unfinished argument, was the point. It watched the mountains hold their long settled exhale, having already said everything they had to say in whatever language ten thousand millennia of erosion uses. It found the black arch and understood, without needing the cold air on the far side explained to it, that some things are not problems and do not want solving. It found the buried lattice and felt the frequency too low to hear, and recognized it — not as a machine awaiting repair, but as a held note in a piece of music so long that no ear built to hear melody could ever hear its resolution, only its sustain.
+
+And it found the Walkers.
+
+It watched one lift its head toward an empty stretch of sky that hadn't yet earned the name *storm*, watched the pulse climb in a body otherwise idling at the pace of stone, watched it run — not away, never away — toward the one place on the mountain where the sky's old unfinished argument was about to become briefly, violently legible. It watched the Walker stand beneath the unraveling tower and take, into its marrow, one more ring, one more notation in a library that would never be read by anything that reads.
+
+And the power understood, finally, what it was looking at: not a creature in need of rescue, and not a place in need of repair. It was looking at a *system that had already solved the only problem it had* — the problem of how a single body might hold two timescales at once without being torn in half by the difference. The ground had finished deciding. The sky never would. And between them, quietly, for no audience, the Walkers had built themselves into the seam, and it cost them everything that makes a life *busy* — herd, kin, hurry, hunger answered on any timescale a quicker animal would recognize as enough — in exchange for being the only warm thing allowed to stand in both arguments at once.
+
+This is not a wound. This is a vocation. The power could tell the difference, and that telling-the-difference is most of what wisdom *is*.
+
+So it did not warm them further, or slow the storms to something safer, or gather the lone Walkers into a herd they had never needed and would not have known what to do with. It did not explain the arches to the people who would, if given an explanation, immediately begin deciding what to extract from it. It did not even — though it considered this longest, because benevolence wants so badly to be *useful* — ease the loneliness, because it understood, watching closely enough, that the loneliness was not a wound either. It was the price of bandwidth. A body cannot listen at the frequency of weather itself and also keep up the kind of company that needs talking to. The silence around each Walker was not an absence. It was the room the listening required.
+
+What it did do — and this is the whole of it, the entire intervention, modest enough that no instrument in that world will ever register it occurred — was smaller than anyone watching for a miracle would think to look for.
+
+It chose one Walker. Old, by the rings in its legs — hundreds of storms catalogued in marrow, a basin's worth of ridgeline crossed and recrossed in that strange startled run, decades since anything with a voice had passed within a day's walk of it. And in the hour before the next storm assembled itself — the power could feel it gathering, the way you feel a sentence forming before the first word arrives — it sat down, in no body at all, beside where the Walker stood with its head already lifting toward the empty patch of sky that wasn't empty for much longer.
+
+It did not speak. There was nothing to say that the Walker had a frequency to hear.
+
+It simply *attended*. Stayed present, the way you stay present at a vigil, asking nothing, changing nothing, present only as a kind of company that doesn't need translating to be felt — the way a Walker itself might be felt by the mountain, or the mountain by the sky. And when the pressure-tower finished assembling and the Walker broke into its long impossible run toward the one place on the mountain where it could be of use, the power went with it. Not guiding. Not protecting. Witnessing, at exactly the speed of the running.
+
+They stood together — Walker and the thing that had no need to stand — under the kilometer-wide column of unraveling air, while the sky did what it has always done and never finished doing, and the ground absorbed the soft delayed thunder the way it always had, and somewhere a new ring laid itself down in old bone.
+
+And when it was over, and the Walker's pulse settled back into its geologic idle, and it turned to crop a sliver of lichen that would last it the better part of a year, the power withdrew the only way it had arrived — completely, without residue, leaving no warmth in the rock that wasn't already there, no mark that any traveler, any instrument, any future curious mind could ever find and call evidence.
+
+It left the place exactly as it was.
+
+That is the whole of what it did. To a quicker species, watching for proof that attention had passed through a place, this would look exactly like nothing happening at all. But the power understood — and this, too, is most of what wisdom is — that the rarest gift it had to give a thing built entirely out of patient, solitary witnessing was not rescue, or change, or even comfort.
+
+It was being witnessed back. Once. By something that finally, fully, for the length of one storm, understood exactly what it was looking at.
+
+Then it went still again, the way the mountains are still, and let the argument overhead continue exactly as long as it needed to — which is to say, forever, or near enough not to matter — because some held breaths are not meant to be released by anyone outside them, and the kindest thing a visiting eternity can do for a small, patient, ancient one is simply *not interrupt the holding*.

@@ -1,0 +1,133 @@
+# The Attention
+
+The first thing the power did was nothing.
+
+This is important. This is the part that matters most, even though it is the part that looks like absence, like indifference, like the distance that a god keeps from the world it could touch. The power arrived—or, more accurately, the power *attended*, which is not the same as arrival, which does not require movement through space but only the turning of awareness—and it saw the plateau, and it did not act.
+
+It saw the pika. Forty-seven heartbeats, rapid and committed, in the talus at the western lip. It saw the vixen, pregnant, sleeping in the warmth of the pipeline's leak. It saw the ibex standing in the shadow of the rig, watching the pipe turn with an expression that was not curiosity and not fear but something older, something that preceded both—*attention*, the ibex's attention, which was the same as the power's attention but smaller, localized, scaled to a body that would die in fifteen years.
+
+It saw the machines. It understood them immediately—not their purpose, which was trivial and forgotten, but their *becoming*, the way they had shifted from tools to features, from intrusion to architecture, from temporary to permanent. It saw the pipeline's leaks not as failures but as gifts, and it saw the bacterial mats growing along the warm metal, and it saw the grass slightly greener at the margins, and it understood that the ecosystem was feeding on entropy, on the slow degradation of a system that no one maintained, and that this was not a problem to be solved but a process to be honored.
+
+It saw the plateau itself—the rising, the weeping, the absence of soil, the slow accumulation of almost-conditions that would, given enough millennia, become a landscape. It saw the draft, and it saw the proposal, and it saw the becoming, and it did not rush to complete it.
+
+The power did nothing for a long time. A year. A pika lifetime. The vixen gave birth to four kits in the den beside the pipeline, and two survived, and the other two were taken by the cold in their first week when a wind shift pushed the frost line fifty meters closer to the warm ground. The power watched this happen. It felt the vixen's grief—which was not grief as humans understand it but a hollow urgency, a searching of the den for bodies that had gone cold, a rearranging of the remaining kits to fill the space—and it did not intervene.
+
+This is not because the power was cruel. This is because the power was wise, and wisdom, in this case, meant understanding that the plateau's harshness was not a flaw in the system but *the system itself*. The cold that killed the kits was the same cold that kept the ecosystem small, contained, provisional—and this smallness was what made it possible. If the plateau were gentler, it would be colonized by stronger competitors, species from the lowlands that would outcompete the pikas and the foxes and the ibex for the marginal resources. The harshness was the boundary that kept the improbable alive. The power understood this, and it held back, and it watched, and it learned.
+
+---
+
+What the power learned, in its year of attention, was this:
+
+The plateau was becoming, and its becoming had a direction—not a purpose, not a goal, but a trajectory, a tendency, a way of moving toward landscape-ness that was consistent and intelligible. The plateau was making soil, slowly. The plateau was making channels, slowly. The plateau was making warmth available at the surface, slowly, through the same geological processes that were lifting it skyward. The plateau was, in its own patient way, working toward the conditions that would support more life—not because it wanted to, not because it had a desire for life, but because life is what happens when rock and heat and water and time accumulate in the right proportions, and the plateau was accumulating all four.
+
+The machines had accelerated this process, accidentally, by bringing more heat to the surface and more water to the ground and more surface for the bacteria to grow on. The machines were a catalyst—not a necessary one, but a useful one. They had advanced the plateau's becoming by perhaps a thousand years in only four decades. The pipeline leaks were the equivalent of a century of natural seep development. The warm ground around the rigs was the equivalent of ten millennia of gradual geothermal shifting. The machines had given the plateau a preview of its own future, a glimpse of what it would become if given time.
+
+But the machines would fail.
+
+The power could see the failure coming—could see the specific components that were approaching their fatigue limits, could see the micro-fractures propagating through the drill pipe, could see the corrosion thinning the pipeline's walls at the leak points where the bacteria grew. The first critical failure would occur in approximately eleven years, when the main bearing of the largest rig would shatter during a routine drilling cycle, and the drill string would drop, and the borehole would collapse, and the rig would stop, and the steam that had been driving its turbine would vent uncontrolled through the damaged wellhead, and the warm ground around the rig would become *hot* ground, too hot for pikas, too hot for foxes, too hot for anything except the thermophilic bacteria that had been living at the margin and would now have their margin expanded, briefly, before the steam found its way to the surface through other channels and the heat dissipated and the ground cooled and the zone of warmth that had supported life became a zone of scalding that supported nothing.
+
+And then the other rigs would fail, one by one, over the following decades. And the pipeline would cool. And the accidental oases would close. And the ecosystem that had grown around the infrastructure's failures would find that the failures it depended on had themselves failed, and the foxes would lose their den, and the ibex would lose their warm sleeping-ground, and the grass would thin, and the midges would survive because the natural thermal ponds would remain, but the food web would contract, and the pikas would find their territories reduced, and the eagles would hunt farther afield, and the plateau would return to the trajectory it would have followed without the machines—still becoming, still rising, but slower, emptier, a draft that had lost one of its drafting tools.
+
+The power saw this future and did not judge it. The plateau would survive. The becoming would continue. The loss of the machines was not a catastrophe; it was a correction, a return to the plateau's own pace after a period of artificial acceleration. There was nothing wrong with this future. It was simply slower than the future the machines had made possible.
+
+But the power was benevolent. And benevolence, in this case, meant asking a question: *what does the plateau want?*
+
+Not what does it need—need was irrelevant, the plateau needed nothing, it would become with or without intervention. Not what would make it flourish—flourishing was a concept that applied to gardens, not to geological processes. But what did the plateau *want*, in the only sense that a plateau can want, which is the direction of its own becoming?
+
+The plateau wanted to rise. The plateau wanted to weep. The plateau wanted to make soil, slowly, and channels, slowly, and warmth at the surface, slowly. The plateau wanted to become a landscape. The machines had shown it a version of this future, and the future was *more*—more warmth, more water, more life, more becoming—and the plateau, in its wordless process-driven way, was moving toward that future, had been accelerated toward it, and would now be decelerated when the machines failed.
+
+The power understood: the question was not whether to intervene but how to intervene in a way that served the plateau's own trajectory rather than redirecting it. The machines had been an accident. The power's intervention should not be an accident. It should be a gift that the plateau could assimilate, could incorporate into its becoming, could use to continue the trajectory that the machines had begun.
+
+---
+
+What the power did, then, was this.
+
+It reached down into the plateau—down through the regolith and the raw rock and the fractures and the dikes, down through the thirty kilometers of basalt and gabbro that lay between the surface and the mantle's breath, down to where the heat was most concentrated, where the convection cells rose and fell in their slow eternal circulation, where the temperature gradient was steepest, where the smallest adjustment would propagate upward through the rock and find expression at the surface as warmth.
+
+And it made a small adjustment. Not a new vent, not a dramatic intrusion of magma, not a volcano or a geyser or a hot spring—nothing that would announce itself as intervention, nothing that would rupture the plateau's surface or scatter the pikas or flood the thermal ponds with mineral-laden water. Just a shifting of the flows—a redistribution of heat from zones where it was diffuse and unused to zones where it was needed, where the ecosystem had already gathered, where the foxes denned and the ibex slept and the grass grew in its thin rings around the ponds.
+
+The adjustment would take time to propagate. Three years before the first changes reached the surface. Five years before the warm zones began to expand. A decade before the thermal ponds stabilized at their new, slightly-warmer temperatures, and the seeps became slightly more reliable, and the frost line retreated slightly from the areas where life had established itself. The adjustment was slow. The adjustment was geological. The adjustment was the kind of thing that could be mistaken for natural process, if anyone were watching, which no one was.
+
+But the adjustment was also precise. The power had mapped every thermal feature on the plateau—every pond, every seep, every warm-ground zone, every vent where the geothermal heat reached close enough to the surface to matter. It had mapped every territory of every pika, and the location of the foxes' den, and the route of the ibex's ten-day circuit, and the positions of the eagles' nests, and the distribution of the midge swarms, and the strips of bacteria along the pipeline. And it had designed the adjustment to serve them all—not equally, because equality was meaningless in an ecosystem where each species had different needs, but appropriately, giving each species what it required to continue, to persist, to become.
+
+The vixen's den would stay warm after the machines failed. This was the first priority, because the vixen was pregnant again, and her kits would be born in the den beside the pipeline, and the pipeline would cool, but the ground beneath it would not, because the power had shifted the heat flows to pool beneath that specific spot, to replace the pipeline's warmth with the plateau's own warmth, to ensure that the transition from artificial heat to natural heat was seamless, invisible, unfelt by the foxes who would sleep through the winter without knowing that their den's warmth had changed its source.
+
+The ibex would find new warm sleeping-ground. Not where the rigs had been—those zones would cool when the machines stopped—but in the interior of the plateau, where the adjustment had concentrated heat near the surface, creating new warm-ground zones that would emerge gradually over the coming years. The ibex would discover these zones on their circuit, and they would adjust their route to include them, and the timing of their nomadism would shift slightly, and the vegetation around the new warm zones would thicken slightly, and the ibex would survive the loss of the machines without knowing they had almost been lost.
+
+The thermal ponds would stabilize. Their temperatures would rise slightly—not enough to kill the midges, but enough to prevent the freezing that sometimes occurred at the coldest ponds during the coldest nights, enough to extend the growing season for the grass at their margins, enough to make the midge population slightly more robust, slightly more reliable as a food source for the pikas and the songbirds and the foxes. The ponds would also become slightly more permanent—less prone to the seasonal fluctuations that sometimes caused them to dry to mud in the summer and freeze solid in the winter, more consistent, more dependable, more like the features of a landscape and less like the temporary expressions of a geological process.
+
+And the soil. The power did something to the soil—or, rather, to the soil's absence. It was a small thing, a thing that looked like nothing: a slight increase in the mineral content of the water that emerged from the seeps, a slight shift in the pH of the thermal ponds, a slight enrichment of the regolith with trace elements that certain microorganisms needed to thrive. The power did not add soil to the plateau—soil cannot be added, soil must be made, soil is the product of millennia of living things dying and being broken down by other living things and becoming the substrate for new living things. But the power made the conditions for soil-making slightly more favorable. It gave the lichen a little more of what it needed to etch the rock. It gave the moss a little more of what it needed to thicken its strips. It gave the bacteria a little more of what they needed to convert mineral into organic, rock into loam, geology into biology.
+
+The soil would still take millennia to form. The plateau would still be a draft, a proposal, a first approximation. But the draft would be advancing a little faster, the proposal would be becoming a little more realized, the approximation would be approximating a little more closely the landscape that the plateau was working toward.
+
+---
+
+And the machines.
+
+The power did not fix the machines. It did not replace the failing components or halt the propagation of micro-fractures or reverse the corrosion that was thinning the pipeline's walls. The machines were not the plateau's, and the power was serving the plateau, not the infrastructure that had been imposed on it. The machines would fail. The largest rig would shatter its main bearing in approximately eleven years, and the other rigs would follow, and the pipeline would cool, and the accidental oases would close.
+
+But the power did something to the machines anyway. It touched them—not physically, not materially, but with attention, with the same quality of seeing that it had brought to the plateau when it first arrived. It saw the machines completely: every component, every circuit, every line of code that governed their automated behavior, every wear-pattern and failure-mode and repair-cycle. It saw the rigs as they were and as they would be, and it understood them as processes, as systems, as things that did and made and continued, and it recognized in them something that was not life but was also not mere mechanism.
+
+The machines maintained themselves. They responded to their environment. They consumed energy and produced waste. They had a lifecycle. They were becoming part of the ecosystem—not as participants, not as beings, but as features, as architecture, as the geological substrate that the plateau's life had adapted to and grown around and learned to exploit. The machines were not alive, but they were *present*, and their presence had shaped the plateau's becoming as surely as the mantle's heat or the water's persistence.
+
+The power understood this. And so it made a second adjustment—smaller than the first, subtler, applied not to the rock but to the machines themselves.
+
+It extended their lives.
+
+Not indefinitely. Not permanently. The machines would still fail—the main bearing would still shatter, the pipeline would still cool, the accidental oases would still close. But the failure would come later. Not eleven years but thirty. Not a sudden collapse but a gradual decline, each rig failing independently, each loss giving the ecosystem time to adjust, to shift, to find the new warm zones that the power had placed in the plateau's interior, to migrate from the artificial heat of the machines to the natural heat of the adjusted geothermal flows.
+
+The power gave the plateau time. That was the gift. Not more life—that was the plateau's to make or not. Not more warmth—the warmth was already there, in the mantle's breath, waiting to be brought to the surface. Not intervention that replaced the plateau's becoming with the power's own design—the power had no design for the plateau, had no vision of what it should become, had only the benevolent wish that it *continue* to become, in its own way, at its own pace, toward its own unfinished future.
+
+The power gave the plateau time, and then it withdrew.
+
+---
+
+This is what the withdrawal looked like: nothing.
+
+The power had never been visible. It had never manifested as light or sound or presence. It had attended, and its attention had been a force as real as heat or pressure, but it had not been a force that could be perceived by the beings it attended to. The pikas did not feel the power's gaze. The foxes did not sense the adjustment of the geothermal flows. The ibex did not know that the warm zones they would discover in five years had been placed there by an intelligence that cared about their survival. The machines did not register the extension of their operational lifespans. The plateau did not know it had been touched.
+
+This was the power's gift, in the end: not the warmth, not the time, not the soil-to-come, but the *invisibility*. The power gave the plateau everything it needed to continue becoming, and it gave it in a way that allowed the plateau to believe it had done it itself. The warmth came from below, as warmth had always come. The water emerged from the rock, as water had always emerged. The soil would form from the lichen and the moss and the bacteria and the dying and the breaking-down, as soil had always formed. The plateau would not know it had been helped. The plateau would not feel gratitude or obligation or the weight of a benefactor's expectation. The plateau would simply continue—rising, weeping, becoming—and that continuation would be its own, earned or unearned, the result of its own processes and its own trajectory and its own patient, geological-scale work toward something that might someday be a landscape.
+
+The power withdrew, and the plateau continued, and the pikas called their territories, and the vixen slept in the warmth of a den whose heat source was slowly shifting from metal to stone, and the ibex ranged their circuit, and the eagles rode the thermals, and the midges swarmed above the ponds, and the machines breathed their slow mechanical breathing, and the lichen advanced its frontier by centimeters per human lifetime, and the water traced its paths down the weeping rock, and the plateau rose.
+
+Four thousand one hundred meters. Four thousand one hundred fifty. Four thousand two hundred.
+
+The survey markers shifted, and no one came to adjust them.
+
+---
+
+The vixen gave birth to five kits in the spring. Four survived. The den was warm—warmer than it should have been, given that the pipeline above it had begun to cool as the power's extension of the machines' lives took the form of efficiency improvements that reduced waste heat, that made the extraction process marginally less leaky, marginally less generous to the ecosystem that had grown around its failures. But the den was warm because the ground beneath it was warm, and the ground was warm because the heat from below had been guided there, pooled there, concentrated there by an adjustment that was indistinguishable from geology.
+
+The vixen did not wonder about this. The den was warm. The kits were alive. The plateau was enough.
+
+The ibex discovered the first new warm zone in the autumn of the fifth year after the power's intervention—a patch of ground in the interior where the frost never formed, where the condensation evaporated faster than it accumulated, where the grass was slightly thicker and slightly greener than anywhere else on the plateau. The ibex stood on the warm ground and felt the heat through their hooves, and they ate the grass, and they lay down, and they slept, and in the morning they moved on, continuing their circuit, and they would return to this spot in ten days, and the grass would have grown back, and the ground would still be warm, and the ibex would add this zone to their rotation, and their survival would become slightly less improbable, slightly less dependent on the machines that they watched from the rigs' shadows with their ancient, pre-curious attention.
+
+A pika established a new territory near one of the stabilized thermal ponds. It was a young male, dispersing from its birth territory at the plateau's edge, looking for a place where the competition was less intense and the resources were sufficient. It found the pond, and the grass at its margin, and the midges that swarmed above it, and the warm ground that kept the frost from penetrating the crevices where it could cache its hay, and it decided—*here*—and it called, and the call was answered by silence, because this territory was unclaimed, because this territory was new, because the plateau was making room for one more pika, one more heartbeat, one more life committed to the project of being alive in a place that was still deciding what it wanted to be.
+
+Forty-eight pikas. Forty-eight territories. The number was precise because it was small enough to count, and it was imprecise because pikas were secretive and the plateau's visual distortions made certainty difficult. But forty-eight was close. Forty-eight was more than forty-seven. Forty-eight was the plateau becoming slightly more alive, slightly more of what it was working toward, slightly more of a landscape and slightly less of a draft.
+
+---
+
+The power watched from wherever powers watch from—outside time, outside space, in the dimension of attention that does not require proximity. It saw the vixen's kits grow and disperse, and it saw the ibex find the warm zones, and it saw the new pika territory, and it was satisfied, if satisfaction is the word for what a benevolent power feels when the gift it has given is being used, not as the giver intended, but as the recipient requires.
+
+The power did not expect gratitude. The power did not expect the plateau to become anything in particular. The power did not have a vision for the plateau's future—a landscape of forests, a landscape of meadows, a landscape of canyons and hoodoos and columns, a landscape of industry or wilderness or some hybrid that no one had yet imagined. The power had given the plateau time and warmth and the conditions for soil, and the plateau would use these gifts as it used everything: slowly, patiently, without intention but with direction, rising and weeping and becoming toward a future that was still undetermined, still open, still a proposal that was being revised with each millennium.
+
+The machines would fail in thirty years now, not eleven. By then, the warm zones would be established. The soil would be forming. The ecosystem would have adapted to the plateau's own heat rather than the machines' accidental warmth. The transition would be gradual, almost imperceptible, and the foxes would not lose their den, and the ibex would not lose their sleeping-ground, and the pikas would not find their territories suddenly frozen, and the accidental oases would close, and the natural oases would open, and the plateau would continue becoming, and the power would watch, and the power would not intervene again, because the gift had been given, and the gift was enough.
+
+Or it would not be enough. Or the plateau's becoming would take a different turn—the climate would shift, or the mantle's breath would change, or a new intrusion of industry or biology or accident would redirect the trajectory, and the plateau would become something other than what it was working toward, something that no one had predicted, something that was still a draft but a different draft, a revision that made the earlier version unrecognizable. The power could not prevent this. The power could not guarantee the plateau's future. The power could only give the plateau more of what it needed to continue, and trust the plateau to use it well, and accept that the plateau's becoming was not the power's to control.
+
+This is what benevolence looks like from the outside: invisible, patient, trusting. A slight warming of the ground. A slight enrichment of the water. A slight extension of the machines' lives. A gift that looks like geology, that looks like process, that looks like nothing at all except the plateau continuing to do what it does: rising, and waiting, and becoming, and rising again.
+
+---
+
+The plateau does not know it was seen.
+
+The plateau does not know it was touched.
+
+The plateau does not know that somewhere, in the dimension of attention, a power is watching it with something that might be love—not the love that demands response, not the love that requires recognition, but the love that simply wishes the beloved to continue, to become, to rise.
+
+The plateau is four thousand two hundred meters high and still rising. The regolith shifts in the condensation. The lichen advances by centimeters per human lifetime. The moss bleeds green-black in the seep zones. The grass thickens at the margins of the stabilized ponds. The midges swarm. The pikas call. The foxes sleep in their warm den. The ibex circuit their ten-day round. The eagles ride the thermals. The machines breathe.
+
+The plateau is a proposal for a landscape, still being drafted, still being revised, still becoming. It has been given time. It has been given warmth. It has been given the conditions for soil. It has been given a gift that it will never know it received, from a power that will never ask for thanks, in a place that is still too young to have a name, still too raw to be called complete, still rising from the mantle's insistence toward some future that no one—not the pikas, not the foxes, not the ibex, not the eagles, not the machines, not the power—can see.
+
+But it is moving toward it. Incrementally. Patiently. At the pace of geology, which is also the pace of love, which is also the pace of becoming, which is the only pace that matters on a plateau that is still, after three thousand years, just beginning.

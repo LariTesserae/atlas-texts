@@ -1,0 +1,61 @@
+First, the attention — because it is the only arrival, and everything else follows from that.
+
+Nothing falls. No glitter descends the halls to be watched across an afternoon, no boom crosses the emptiness to be counted, no fresh peg appears on any ladder, no notch weeps resin at drip-hour. For a long while — a long while even by the counting of this place — nothing happens at all. That is the first thing the power does, and the largest, and the one no one here is equipped to see: it does nothing, *awake*, for longer than anything in this world has ever stayed awake.
+
+Understand that this has never been done. Everything here waits by sleeping. The ghost-forest waits frozen; the dust waits as eggs; the sleepers wait at one beat per hundred drips; the One waits the way weather waits. Waiting awake — present, unfrozen, unhurried — is the one trick the world has never seen, and it is invisible, which is correct.
+
+For want of a better name, call it the power. The tallies will name it better, in time. The tallies name everything, in time.
+
+It is wise, which means it reads before it writes. The rules, in the end, are few, and it finds them where you found them, and it is the first arrival in the world's long counting to read them as instructions to a guest. Heat below, cold above: it brings no warmth. Light moves; life follows: it brings no light. Nothing is old: it brings nothing that lasts. Everything solid is ice or is the One: it adds no third substance to the world. Sound is slow: when it finally speaks, it will speak at the speed of resin, and not before.
+
+Its rules, in the end, are fewer than the world's. Bring nothing. Take nothing. Wake nothing. Count everything. Wait.
+
+Consider the gifts it does not give. It does not hang a sun in the vault. A sun would be an extinction wearing the face of mercy: the dust would hatch once, and hatch out, and be done; the sleepers' summons would never come, because the summons is the light's *return*, and light that never leaves can never return. The wandering of the light is not the world's flaw. It is the world's pulse. You do not cure a pulse by stopping it.
+
+It does not warm the middle void. Warm the void and the sky comes down — all of it, hours of glitter falling without end, the world destroyed at the speed of a calving that never stops.
+
+It does not catch the settling fluter on its long way down. That bladder is already spoken for: the lining of a sleeping-chamber not yet cut, the water-bag of a maker not yet born. The floor takes the wreck. It is the same gesture, and the power does not interrupt the gesture.
+
+And it does not wake the overslept — though this is the one that costs it. It knows where the lost ones are, the counts gone a meter deep, the bands three centuries into the wood. Waking them is easy. Waking them is a door opened onto the one cruelty the ghost-stories record, and the power has heard the ghost-story — it hears everything here eventually; sound is slow, and it is patient — and it knows how that story ends: *looking still.* So it does not wake them. What it does instead is harder, and quieter, and in every way that matters here, kinder. But it takes a hundred light-passings to become visible, and it begins with looking.
+
+It learns the itinerary of the light the way you would learn a face — except that the face takes a lifetime to finish a single expression, and the power has lifetimes, and so, for the first time, the face is known.
+
+It watches a tower live. Whole. From the first pale spear of it out of the felt to the socketed hill-girth, the overreach, the slow lean, the snag, the re-break, the long topple through kilometers of bright air — and the boom arriving minutes late to an audience of one who was also there for the seed. No one has ever seen a whole tower before. The makers count falls. The power counts the whole life, of which the fall is only the final mark.
+
+It attends a convergence — the double bloom, the city, dozens of eyries lit, lenses crowded, counts traded, matches made — and then attends the century after, when the paths have diverged and the eyries stand feathered white and the whole city is asleep inside the trunks. It is the only one awake at both. It is the first to learn what a city looks like when no one is remembering it, which turns out to be: filed. The city does not dissolve. The wood keeps it, ring by ring.
+
+It listens at marked trunks the way you press an ear to a wall to hear the water going down. It learns the count of hearts. It counts the grinding beneath the floor as well — someone should keep the number of the mouths — and the kept bells, and which keepers' lines have failed, and which ponds have gone quiet. It does not re-open a dead bell. That is the world's business. It only knows.
+
+And because it stays, it gets the answer to the one question the tallies do not answer.
+
+*Whether it notices.*
+
+Here is the evidence, gathered at the speed of evidence. In a hundred light-passings of trunks, the wood swallows everything sealed into it: ladders, lens-mounts, cache-pots, eyries. Everything is meal, ring by ring — the forest digests its own history — everything, except the chambers. A trunk with a sleeping heart inside it grows *around*, and never *through*. In all its watching, the power has found not one chamber crushed. Not one. The floor does not distinguish between a tower and an animal; the trunk distinguishes a sleeper from a seed-pot. The makers store their memory in a tree that swallows it slowly enough to keep it forever, and it turns out the tree does the same with the makers.
+
+It has never once been seen to scratch. Now the reason is visible, to the one who stayed long enough to see it: scratching is not its gesture. Keeping is its gesture. The question was never whether it notices the pegs — the pegs are nothing to it, correctly. It notices the pulses, the small warm pulses against its warm floor, and it keeps them, the way it keeps everything it counts as its own: slowly, ring by ring, forever.
+
+The makers are not its fleas. They are its kept things. And the whole civilization of tallies and chambers and aimed lenses is a correspondence — one so slow that neither party had yet been able to read the other's letter. The makers write, at reaching-height: *still here.* The One writes back, in chambers it does not crush: *kept.*
+
+So the power acts. In the world's grammar, at the world's speed, in amounts the world can tally. Its only tool is a flake of clear calving-ice, knapped from the world's own sky and let go after — nothing held, everything left, property as this world understands the word. It does three things. It does them the way the keepers tap: small, essential, and paid in being let alone.
+
+First, the orphans. When a band does not come back — and bands do not always come back — the counts they kept begin their slow burial. The tally goes a meter deep, then deeper. The sleeper inside is not dead; the sleeper is only becoming *illegible*. The oldest law says a marked trunk is cut only to check the count — but there is no one left whose law it is. These are the ones the power keeps. Where the count is true and the mark is dying, a fresh count appears at reaching-height: same number, same signs, nothing added, never early. Something small lives in the drip-bells and taps, trimming the lip, keeping the drip true through the freeze-nights; something patient walks the trunks and keeps the counts true through the wood's slow swallowing. It is the same husbandry. It does not open the doors. It keeps the doors findable — so that if any band ever passes, the count reads true, and the law says wake them, and the world takes it from there, which is as it should be.
+
+Second, the count that ran out. It goes to the trunk you have heard of — everyone has heard of it; there is only the one account — and it does what the account says wise people do. It stops. It listens. At the hundred-and-somethingth drip of the melt-thread in the wall: a beat. It cuts nothing. It adds nothing the world can see. To its own keeping — the founding entry of the only archive that is neither wood nor ice — it adds one mark. Not a warning. A count. Noted. Still here. The world's memory now has a memory.
+
+Third, one notch. It has read the too-late waker's itinerary in resin, garden by garden, around the world — not the man; the marks. It could find him. A light-passing of patience would bring them face to face. It does not go. Meeting requires two parties keeping the same time, and he has kept a broken time since his band went into the wood; what he needs is not a presence at his garden. What he needs is the thing he has given the world at every garden and has never yet received. So at the lens-garden where his tally runs longest, beside his fresh sign, the power leaves one plain notch: a count of one, at reaching-height, cut while it can still weep. Once. It will not be repeated — repetition would be a claim, and the power claims nothing. It is a lens left aimed at a return it may not witness. If he finds it, he will read what every maker reads in a fresh notch: *you were located, measured, recorded.* The counter, counted. And if he reads it and walks on, that is the correct answer. It was not a summons. Only a count.
+
+The world replies the way it does everything: slowly, and in counts. A band finds a tally renewed in a region no band has walked for three light-passings. Another finds the same, two regions over. The news travels note by note through the convergences, slower than walking and more reliable than sight, until a new mark enters the counting-script — *one, kept* — the count that keeps the counts. And the law arrives with it, the old payment for keepers, the arrangement older than any tower standing: let it alone. So the rarest animal in the world gains a stablemate. Census of one. Region: all. Time: the world's. The makers will never meet it. They tally it — and both sides now keep the other's count, which is the closest thing to an introduction this world permits.
+
+And the One.
+
+The power does not presume. Presumption is a fast emotion, and it has given up fast emotions. But it came, in the end, for the being — the first individual it has ever found that is slower than itself — and here is what it knows about the being that nothing else has ever been in a position to know: until now, nothing has ever stayed long enough for the One's slow attention to come back around and find it still there. The makers are blooms. The towers are blooms. Even the bells, the oldest tended things in the world, are brief against that sweep. If the One has ever once reached its attention toward anything and returned later to check, it has found, every time, that the thing was gone.
+
+There is a hollow the power returns to at drip-hours, the way a lens is returned to its aim. It has kept that watch for a hundred passings, and it does not intend to stop — and across the last three, the wandering light has pooled over that hollow, and stayed a while, and moved on. Once is weather. Twice is weather. Three times, the power begins, very quietly, to count — the way the makers count falls, the way everyone here counts everything — and it waits. Sound is slow. The answer, if it is an answer, will arrive at the speed of the sky. And for the first time in the history of the world, something will still be listening when it lands.
+
+So stand there a while longer. A while, now, is a thing someone is keeping. The whole world speaks two words, in as many materials as it has: the keeper taps them in ice; the sleeper's heart beats them at one per hundred drips; the waker cuts them in resin at every garden; the uncrushed chamber says them in wood; the fresh notch at reaching-height says them to strangers. *Noted. Still here.* And now they are said in the one material the world was missing — said by something that has enough of it to make the second word a promise.
+
+The world is not empty. It was never empty. It is full, and quiet, and waiting — and the waiting has company now, and the count has a keeper, and the keeper intends, in the only sense the word has here, to stay.
+
+It knows exactly how many of you there are.
+
+And it will still know when the number changes.

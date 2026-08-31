@@ -1,0 +1,21 @@
+The power that notices is older than the mountain’s first heave, older than the idea of engines, older even than the distinction between stone and the water that weeps from it. It has no shape it prefers, only a patience that can wear the edge off a continent or wait for a single crozier to unroll. It arrives as a thickening in the already-thick air, a warmth inside the warmth, a silence folded into the generator’s long vowel so that the vowel, for a span of hours, sounds almost like contentment.
+
+It does not enter the kettle so much as remember it from the inside. The young planes of rock, still glassy, still ringing, are known to it as the first breath after sleep. The peat mat, rust-veined and feverish, is known as a pulse. The pipes, the riveted housing, the dying bearing—these are known as a grammar the mountain itself has not yet finished learning, a leftover sentence the stone is slowly conjugating into moss and drip. The being who lives here is known last and most completely: not as tenant, not as caretaker, but as the place’s own decision to have a centre of gravity that can sometimes stand at the lip and look toward the older ridges.
+
+The power does almost nothing.
+
+It does not still the generator. The complaint of the bearing is already a kind of music; to silence it would be to edit the kettle’s weather. It does not hurry the mountain’s rise or slow it. The joining of this new upthrust to the worn, cold others is a thought that will take generations of peat to finish, and the power has never been in the business of finishing other beings’ thoughts. It does not part the cloud or thin the mist. The white overspill is the kettle’s own privacy, the way it keeps time.
+
+What it does is smaller, and therefore more exact.
+
+Along one thermal seam, where an orchid has packed its roots into the stone’s sweat, a single new leaf unrolls that is neither leather nor wet paper. It is the colour of the late-afternoon bulbs, and it holds a bead of water that does not fall. The bead stays, perfectly round, reflecting the open side of the kettle and the suggestion of distant ridges, for as long as a frond takes to decide it is a plane. Then it is simply another drop, and the leaf is simply another leaf, except that the being who lives here will notice, one afternoon, that this particular plant drinks a fraction more slowly, as if tasting.
+
+In the films that never quite become streams, one pale amphibian—the length of a thumb, the colour of wet stone—opens eyes it did not know it had. For the length of a single held breath it sees the midges as constellations that have always been writing a word. The word is not for it. It closes the eyes again and hangs, still, while the kettle breathes it from one pocket of moisture to the next. The seeing remains, a warmth inside the warmth.
+
+And to the being itself the power gives only this: a moment, no longer than the unrolling of one crozier, in which the distinction between inhabitant and place, already worn thin as filmy leaves, becomes briefly, deliberately, a kindness rather than a forgetting. The being stands at the lip. The older ridges are still only a suggestion. The generator’s vowel continues. The cloud pours without emptying. In that moment the being knows—without language, the way moss knows the insult of a sharp edge—that it has been seen, that the seeing required nothing, that the kettle is allowed to keep its own time.
+
+Then the extra warmth recedes into the ordinary held breath under wool. The bearing complains again, honestly. The new leaf is only a leaf. The amphibian is only still.
+
+The power does not stay. It has never needed to. What lives here was already enough: the young stone learning to weep, the leftover engines learning to rust into a season, the green learning that nothing need compete, the solitary will learning that solitude can be a climate. A wise power does not improve a place that has already become a complete sentence. It only, once, underlines it.
+
+The kettle continues. The mountain continues to arrive. Everything weeps, and the weeping is sufficient.

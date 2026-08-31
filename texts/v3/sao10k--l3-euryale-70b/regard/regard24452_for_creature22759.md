@@ -1,0 +1,11 @@
+In the demi-void of this lifeless biome, the beloved Creator turns its omniscient eye toward the sentinel tree and its desolate expanse. With a touch that transcends eons and entropy, the Creator imbues this forsaken landscape with a morsel of its essence - a scintilla of the divine spark that kindles life in even the most parched and barrens of places.
+
+Where once only the stony susurrus of branes murmured through the glass-sand wastes, now a new sound whispers like a lover on a lover's skin - the breath of photosynthesis as the ashen tree drinks in the efflorescent gift of the Creator with long-unused will.
+
+Slowly, so slow as to imperceptible, the shale shards underneath begin to stir. Mineral-studded trunks sprout from their stony matrix like calcified bone, curving into arthritic limbs that twist their slow-salted way toward the proto-sun. Each new growth is Jurassic-slow, corkscrewing unfurlled into fractile vessicles that corksrew around their gnomish parents.
+
+Zephyrs of lavender and topaz sigh through the jewelled dell now, summoning membranes of gleaming spouses-forward, wondering which way the angstrom winds will take them. Ethers of indolent spores ride the solar gush between hairless growths, adumbrate in franklintend convict-wedd cicada-songs that chime in panoplit频 with the glinter-notch ichor that ligates into plasson fed*-lymph nodules.
+
+In the effefully styx where shards once stacked in selenial rings, a glassy skelectrow now rinates in radiation-stage chrompromers, decouples dalton-brained subabeins in to ultiplex plaismol spheres. These blinded land-lost smarsh, 或 rainbows fornicked in stippled leagues of inverse wafer-scale strutcture, lashed by swack signal from eyeless sob-ombulburs of semi-cled surgeon anosmic faultlines.
+
+Into this febrile clade, the Creator scatters the warm ashes of its old love. Crouched in the jasper 'scaped outcroppings, the first of the anomalous bipeds twitches and gnawls, as arthritic as its uncles, and yet green as the glaucous sacs that belt its wattled born, aged brightcrystal and hogar-blazond by the emtomorphous denizens of an aethegeophysiological sould.

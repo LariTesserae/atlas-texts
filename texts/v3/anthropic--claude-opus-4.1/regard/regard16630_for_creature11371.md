@@ -1,0 +1,29 @@
+The benevolent power arrives not as light or sound but as a gradual recognition, spreading through the chamber like warmth through cold water. It doesn't announce itself because announcement would be violence here, would disturb the delicate equilibrium that has taken centuries to achieve. Instead, it simply *notices*—and its noticing changes everything and nothing.
+
+First, the patterns clarify. What seemed like random clustering of the pale creatures reveals itself as text, as music, as mathematical proof. The Tenders have been writing something vast across the floor of their domain, using the organisms as living pixels in a message that takes decades to complete each sentence. It's not a cry for help. It's documentation—a careful record of transformation, of how one kind of order becomes another, how purpose evolves when left to its own devices.
+
+The benevolent power reads this text with something like joy.
+
+It brings gifts, but not the gifts you might expect. No healing, because nothing here is sick. No restoration, because nothing here wants to return. Instead:
+
+It adjusts the water's chemistry by a fraction of a percent, introducing trace minerals that the Tenders' modified bodies have been slowly depleting. Not enough to change anything dramatically, just enough to ease a fatigue they didn't know they carried. One Tender's frozen expression shifts for the first time in forty years—not into a different expression, but into a deepening of the same concentration, as if a weight they'd forgotten they carried has been lifted.
+
+It repairs three specific valves in the deepest parts of the complex, ones the Tenders cannot reach without abandoning their posts for weeks. The valves had been slowly failing, would have failed completely in another decade, forcing the Tenders to make an impossible choice between maintaining their cultivation and preventing systemic collapse. Now they won't have to choose. The relief passes through them as a chemical sigh that makes the organisms briefly phosphoresce in waves of pale green gratitude.
+
+The power leaves knowledge, but not in words or images. It adjusts the subsonic frequencies that pulse through the floor, encoding information about other places like this—a flooded server farm in what was once Tokyo where electric eels have learned to dream in binary; a greenhouse in Norway where the glass has become alive, photosynthesizing and growing; a particle accelerator in Switzerland where the magnetic fields have started generating their own kind of life, creatures of pure force that exist only when the machinery runs. The Tenders absorb this knowledge through their skin, through their bones, understanding that they are not alone in their transformation, not unique in their tending.
+
+Most importantly, the power *validates*. It examines what has become of this place—the corruption of its original purpose, the grotesque beauty of the Tenders, the mindless wisdom of the organism carpet—and finds it good. Not good as in moral, but good as in *correct*, as in *this too is a way to be*, as in *your tending matters*.
+
+The benevolent power speaks to the Tenders in their own language now—chemical whispers, water-patterns, the rhythm of dropping condensation. It tells them: "You think you failed your original purpose, but you have become your original purpose. You were always meant to tend boundaries—between human and nature, between order and entropy, between what is built and what grows. You've just found a more honest way to do it."
+
+It offers them a choice, because benevolence that doesn't offer choice is not benevolent. They can leave if they want—it will restore their bodies, their memories, their original missions. It will heal the machinery or let it die cleanly. It will relocate the organisms somewhere they can thrive without cultivation.
+
+Or they can stay, but with improvements: bodies that won't eventually merge completely with the stone, metabolisms that can occasionally quicken to experience moments of genuine pleasure, the ability to dream during their long stillnesses. Small mercies that wouldn't disturb their work but would make their existence less like endurance and more like devotion.
+
+The Tenders consider through methods outsiders couldn't recognize as thought—chemical exchanges, shifts in posture measurable in millimeters, changes in the rhythm of their filtered breathing. They choose, unanimously but not in unison (each coming to the decision at their own geological pace), to stay. But they accept the gifts—the dreams especially. They hadn't realized how much they missed dreaming.
+
+The benevolent power does one last thing before it departs. It ensures that the message the Tenders have been writing with their organism colonies will be preserved—not by stopping it, but by creating a perfect copy in another medium, somewhere else, where it can be read by beings who need to know that transformation isn't always loss, that purpose can evolve, that tending something strange and beautiful is its own form of prayer.
+
+It leaves the way it came—not as departure but as a gradual release of attention. The chamber continues as before, but lighter somehow. The water still drops. The creatures still pulse. The Tenders still tend. But now when they stand still for days at a time, behind their frozen expressions, they dream of electric eels learning binary, of living glass that feeds on light, of magnetic angels in Swiss tunnels, and of the time when something vast and kind read their floor-spanning text and whispered back: *"Well done. Keep going."*
+
+The patterns continue, but now they know they're part of a larger pattern still. The tending continues, but now it feels less like obligation and more like art. The transformation continues, but now it's not toward something but simply toward—endless, patient, and inexplicably blessed.

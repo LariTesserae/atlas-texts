@@ -1,0 +1,15 @@
+Tick-fat snow beetles scuttle through the muck and ice, leaving thin tracks in the frost. Graceful flurries of crystalline motes swirl on the bitter wind, mingling into tattered skeins that drift across the delta's nightmarish face like gossamer. 
+
+Faintly, the wind breathes an eerie susurrus, a barely audible whispering that rides the icy gusts and eddies to sigh through prisms of frost and shattered coyote-glass. The ancient words resonate tingles of unsettling harmonics, scrapeing against still-raw neurons of the wind. With a chill-sickle shock, you feel an unnamable presence lurking in the fringes of perception - some vast and formless entity, both ancient and ageless, watching the brooding marsh with pitiless eyes.
+
+Suddenly, the dark overcast shudders and parts like gauzy curtains. A shaft of tenebrous radiance, bruised-purple and flaring heliotrope, lances down from the rift to impale the icewrapt ruins in its searching beam. The fog recoils and parts before the lucent flood, swirling in gossamer clouds to recede to the shadowed banks and rivulets.
+
+You realize with a surge of frost-gripped awe that you are beholding some Elder Power gazing upon its Discarted Dominion - some great and inhumane entity of star-wrackt myth who once held sway over this blighted land. Celstial and invisible, it still broods upon its desolate demesne, boring into the savaged scape of the delta with its mind-forged obsidian eyes.
+
+In a susurrus that crawls like glass fragments through the brain, you feel the entity's inhumane regard rake across the shattered icosahedrons of the strucutres, the pallid mosses and lichens collapsing the scabrous faces of petrified logs, the dark fungals fruiting in symmetrical blotches across the icecaled tundrascape. By slow degrees, it traces the wavery paths of wolf and wight and wyrm that wind between glinting ruin thru the frozen muck and mist.
+
+With a titanic surge of recognition, you feel the entity sense YOU, its obsidian regard flashing across you in a burst of skeletal ice that flash-freezes skin and nerves and bones. Trapped and rapt in its pitiless gaze, you feel it rake and AScern, passing its inhuman judgment. For a deletions brevity, you stare into the grinning skullface of the cosmos...and the skull stares back from the abyssal pits of its eyesockets.
+
+Then the understanding, the moment, passes. The cataclysmic ray flickers and winks out, the curtains of overecast ripping closed to block the the bruised-purple radiance. The Elder Power withdraws, sinking back into the occlude, leaving nun but the dim light of the dying sun and the susurrus of wheeling wind to fill the icy dim.
+
+Left shaken and nerve-frozen, you feel you have brushd against and seen through a veil best left drawn - some numinous and mutable truth about the nature of the world, or the forgotten purpose for which it was scoured and shattered... Some secret that slumbers and waits to be unearthed in the crevices of the mausolomat, or the glass-tagliated strucuts, or the eldritch icikons of the horizon peaks...

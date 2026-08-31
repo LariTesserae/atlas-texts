@@ -1,0 +1,30 @@
+The attention does not arrive as a presence. It arrives as a deepening of what is already there.
+
+A wise power does not look upon this place and see lack. It sees fit. It sees a city that has learned to breathe with fractures, a people who measure generosity in routed warmth, a landscape that holds life not in spite of its sharpness, but because of it. To be benevolent here is not to soften the stone. It is to honor the patience that has learned to live within it. Intervention would be violence. A sudden abundance would drown the drip-lines. A miracle of mortar would unmake the hands that read tension in bast fiber. A warm wind would blister the lichen, slacken the sinew, unteach the lungs. Wisdom knows that a system this braided cannot be improved by addition. It can only be witnessed, and gently aligned.
+
+So the power does what the land already does: it settles. It listens. It waits for the moment when a breath, a bead of water, a shifting stone, and a human hand are already moving toward one another—and it closes the distance by a fraction too small to measure, too precise to ignore.
+
+It begins in the copper lips. Not with more water, but with better timing. A condensation edge, worn smooth by generations of scraping, catches the night's inversion at an angle it has never quite held before. The beads form slower, fuller, falling exactly when the cistern's clay is coolest, minimizing evaporation loss. The elder counting the drops does not notice a gift. They notice a rhythm that feels slightly easier to keep. They adjust their breath to match. The city drinks without knowing why the hard-season margin widened by three days. The power does not fill the basin. It perfects the interval.
+
+It moves through the fractures. A fresh fault scarp, still shedding angular talus, exhales overnight by a hand's breadth. Not enough to alarm. Only enough to open a clean ledge where a new terrace can root. The stone does not crack; it yields along its true grain. When the fitters arrive with basalt pounders and copper chisels, they find the hidden flaws turned away from the load path, the bedding planes running parallel to the intended course. They do not look upward. They run their palms over the face, feel the quiet certainty of it, and begin to cut. The wall rises. It holds. The power does not build. It removes the hesitation from the stone.
+
+It threads the wind. A narrow pass that has always sighed with a cross-draft shifts its pressure gradient by a fraction. The cold air no longer pools in the lower courtyards; it drains smoothly along the rope-bridge gullies, carrying hearth-smoke upward without backdraft. The hide canopies sag less. The voices in the covered alleys carry a half-note clearer, though still quiet. Children learning consonant clusters find their tongues meeting the thin air with less strain. Language settles into the lungs more easily. No one names the change. They simply speak, and the city listens better. The power does not silence the wind. It teaches it the alleys.
+
+It walks with the herds. A caprine matriarch, navigating a fresh ice-rimed scarp, places her hoof on a shale flake that should have slipped. It does not. Beneath it, a subtle consolidation of frost and dust holds just long enough for the herd to pass. The people watching from the terraces note the path, carve three new hoof-holds into the adjacent face, and leave a salt-lick where the animals will find it at dawn. The burrowers' ventilation fissures align slightly with the new thermal drain. The birds' roosting cavities face the adjusted wind, keeping the down dry. Nothing is tamed. Everything is met. The power does not command the fauna. It smooths the negotiation.
+
+It rests in the bone. When a grandfather's rib is cleaned, drilled, and set as a pulley axle, the sinew wrapping shrinks with a precision that feels like memory tightening. The axle seats without a tap. It turns through the long rime, through the thaw, through the weight of wet slate and ice-brick. The family that tends that lift does not speak of blessing. They speak of good fit. They route their hearth-warmth through the neighbor's wall that winter, because the stone holds heat longer, because the axle does not creak, because the quiet is deeper. The dead do not return as spirits. They return as stillness. The power does not resurrect. It consolidates.
+
+They do not worship it. They do not name it. To name it would be to separate it from the stone, the drip, the breath, the rope. Their language has no word for grace that does not also mean load-bearing. When the condensation counts hold steady through a hard inversion, they say the angle is true. When a lever team shifts a multi-ton block without a fiber snapping, they say the braid remembered. When a child traces a frost flower and the geometry aligns perfectly with the joint line below, they say the cold is teaching. The power does not mind the absence of reverence. Reverence here is not kneeling. It is placing the heel, testing the arch, committing the toe. It is counting drops without speaking. It is routing warmth through a shared wall. The power receives this as prayer.
+
+It will not stay forever. Or perhaps it will. Time here does not distinguish between visitation and residence. The uplift continues. The talus advances. The city adds another course. The power does not accelerate the settling. It does not halt the fractures. It simply ensures that when the weight shifts, it shifts toward fit. When the breath syncs, it syncs toward ease. When the hand reads the stone, the stone answers clearly. This is benevolence at the scale of geology: not salvation, but alignment. Not intervention, but attendance. They do not need to be saved from their world. They are becoming it.
+
+And the wise power, having drawn near, does what any patient presence would do in a place this true to itself.
+
+It leans in.
+It listens.
+It adds its weight to the quiet.
+And lets them continue.
+
+Still settling.
+Still rising.
+Still holding.

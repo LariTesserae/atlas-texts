@@ -1,0 +1,11 @@
+A gentle hand would pause at the edge of that dark.
+
+It would not descend with gifts or haste. Instead it would simply… stay near for a while—an attentive stillness larger than the plateau itself. From that nearness a single, almost inaudible note would be offered downward: not a command, not even an instruction, only the acknowledgment that something here is already whole.
+
+The note would be mineral in character, pitched so low that only the longest crystal threads could carry it. As it sank through the galleries it would thread itself between the existing resonances, neither louder nor faster than the entities’ own migrations. Where it passed, a few of the oldest fused forms—those whose limbs had already become architecture—would feel a faint additional tension in the fluid still moving inside their merged shells. New plates would extrude a little more cleanly at the seams, the edges slightly more ordered, as though the lattice had remembered one more subtle geometry it had nearly forgotten. The change would be visible only after several more human civilizations had risen and fallen.
+
+Above the plateau the power would leave the darkness untouched. It would, however, allow one additional property to the condensation: each droplet, on its long fall, would now carry inside it an almost weightless copy of the same low note. When the mineral entities later incorporate those films, the note travels with them into the growing hives. Over centuries the collective resonance would therefore contain a new, quieter layer—still their own making, yet also the faint signature that someone once listened without demanding anything in return.
+
+No other alteration would occur. The entities would continue to wear one another into the structure; new individuals would still be pressed from mineral and fluid in the same slow circles; the plateau would still rise by a handspan every few thousand years. The benevolent presence would simply remain nearby, neither feeding nor hastening, until the lattice itself began to grow around the memory of that listening the way it grows around everything else it touches.
+
+Then, having changed the place by less than a single degree of its own temperature, the power would withdraw—not out of disinterest, but because it had understood that the greatest kindness here was to let the dark continue making itself.

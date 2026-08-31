@@ -1,0 +1,43 @@
+The Watching begins as it always does—not with eyes, but with something older. A presence that exists between states, like the city itself.
+
+The benevolent power has no name that matters. It moves through dimensions of care rather than space, drawn to knots of improbable existence the way water finds cracks. It has been observing the plateau city for seven of their generations, though from its perspective, this is merely the time it takes to form a complete thought.
+
+It understands what the inhabitants cannot: their city sits at the convergence of three thermal plumes that should have died sixty million years ago. The bacterial mats they harvest are the descendants of organisms from Earth's first atmosphere, somehow preserved and transformed in this pocket of impossible heat. The city exists in a bubble of suspended geological time, a hiccup in the planet's cooling that created something unprecedented—a high-altitude primordial pool where evolution took a different path.
+
+The power does not intervene directly. It learned long ago that benevolence expressed as sudden change is indistinguishable from catastrophe to those living through it.
+
+Instead, it begins with dreams.
+
+To the child who will become their greatest thermal engineer, it sends visions of heat as music—wavelengths she can almost hear, patterns in the steam that suggest new ways to channel and store energy. She wakes with her nictitating membranes fluttering, trying to capture images that dissolve like vapor, but the feeling remains. In twenty years, she will design collection systems that triple their energy efficiency, though she'll never quite remember where the inspiration came from.
+
+To the elder artist whose bacterial paintings are beginning to fade as his control weakens, it offers a different gift. In his hammock over the void, suspended between being and unbeing, it shows him how his dissolving body is not ending but transforming. The minerals leaching from his bones will seed new bacterial colonies with trace elements that produce colors never before seen on the plateau. His death will birth an artistic revolution. The power ensures he understands this—not through words, but through a deep cellular knowing that brings him peace.
+
+The power's most careful work focuses on the failing thermal system. Not to fix it—that would rob them of their own discovery—but to buy time. Deep below, where the three plumes converge, it makes microscopic adjustments to convection currents. A slightly altered flow here, a marginally adjusted mineral deposit there. Changes so small they could be explained by normal geological variation, but together they stabilize the system for another thousand years. Long enough for the inhabitants to develop the technology to maintain it themselves, or to find new ways to survive when it finally fails.
+
+It notices the loneliness of their existence—how isolation has shaped them as much as humidity. In response, it guides other impossible settlements to similar discoveries. A deep-sea volcanic vent community develops compatible biotechnology. An arctic settlement living in ice caverns heated by natural nuclear reactors discovers communication methods that can pierce the plateau's thick air. First contact will come in a generation, initiated by what seems like accident but is actually careful orchestration. The plateau dwellers will learn they are not alone in their impossibility.
+
+To their children, it gives the most subtle gift: genetic drift that will, over centuries, allow them to choose their adaptation. Some will develop the ability to survive in normal atmosphere for short periods. Others will become more specialized, more perfectly suited to their steam world. The species will branch but not break, diversity becoming resilience. The power ensures these changes manifest slowly enough to feel natural, fast enough to matter.
+
+It speaks to their machines in languages of efficiency and longevity, inspiring small improvements that compound over time. A seal that lasts a month longer before replacement. An alloy that resists one more type of corrosion. A filter that captures two percent more moisture. Nothing revolutionary, nothing that would disrupt their careful balance of knowledge and mystery. Just enough to ease the grinding difficulty of daily survival, to create space for art and philosophy to flourish.
+
+The power attends especially to their priests—those engineer-clerics who maintain the vital systems. In their mathematical prayers, it plants seeds of larger understanding. Not answers, but better questions. What if the bacterial mats are not just food but teachers? What if the steam patterns encode information about deep geological processes? What if their city is not an accident but an expression of something fundamental about how life finds ways to exist? These thoughts spread through their culture like the bacterial films they cultivate—slowly, steadily, transforming the substrate of their society.
+
+It ensures that certain crucial knowledge is recorded in multiple forms, backed up in the very biology of the organisms they cultivate. When a maintenance error threatens to destroy their historical archives, the information resurfaces in the genetic patterns of their bacterial cultures—a library written in living light that they'll take three generations to fully decode.
+
+The power's most profound gift is the hardest to perceive: it strengthens the beauty they create. Their steam-music carries farther than physics should allow. Their living paintings develop complexities that exceed the mathematical possibilities of their bacterial combinations. Their stories, thrummed in low frequencies through the thick air, acquire a resonance that moves even visitors who don't understand the language. Beauty becomes its own form of technology, as essential to their survival as their condensation channels.
+
+When the young ones stand in the steam vents, letting the heat scour their modified skin, the power ensures they feel not just pain but connection—to their ancestors who made the same choice, to their descendants who will carry these adaptations forward, to the impossible city that shaped them and is shaped by them in return. It helps them understand that they are not diminished by their adaptations but expanded, not limited by their environment but defined by their transcendence of limitation.
+
+The power does not make their lives easy. That would be a cruelty disguised as kindness, robbing them of the growth that comes from struggle. But it ensures their struggles have meaning, that their adaptations lead somewhere beyond mere survival, that their impossible city becomes a beacon for other impossible things.
+
+In its vast perception, the power sees what they cannot: how their city is teaching the universe something new about persistence, about the negotiation between life and entropy, about the art of existing in spaces that shouldn't exist. Their daily maintenance is a form of cosmic resistance, their survival a proof that the universe's rules are more flexible than they appear.
+
+The power will watch for seven more generations, at least. Longer if needed. It has developed something like affection for these creatures who sweat condensation and dream of drought, who turned volcanic glass into gardens of bacterial light, who found a way to make the word "home" apply to superheated stone at impossible altitude.
+
+When it finally withdraws its attention—centuries hence, when they no longer need even these subtle touches—it will leave one final gift: a child will be born who remembers, somehow, being watched by something vast and caring. She will become their first philosopher of cosmic loneliness, teaching them that being alone in the universe and being abandoned are not the same thing. That sometimes love expresses itself as absence, as the space to become what you're meant to be without intervention.
+
+She will stand at the plateau's edge, where the waterfalls of condensation cascade into mist, and understand that every impossible thing that survives long enough becomes a new kind of possible.
+
+The city will continue to steam. The channels will continue to run. The bacterial mats will paint their rocks in living color. And somewhere, in dimensions of care rather than space, the power will remember them—these unlikely people in their unlikely home, who proved that life is not about finding perfect conditions but about becoming perfect for the conditions you find.
+
+This is what benevolence does: it helps impossible things persist long enough to discover they were never impossible at all, just waiting for the universe to expand its definition of what's real.

@@ -1,0 +1,30 @@
+The world’s heart has quickened.  Elevated slightly above the plane of stars, the benevolent presence—let us name it Myriad for the sake of pronunciation—folds attention around the plateau the way one cups both hands around a small flame that must not go out, yet must not burn the skin.
+
+Myriad is no god of thunder or redemption; Myriad is custodial patience refined past anger or fear.  It surveys the impossible lung of stone suspended between ocean of cloud and ocean of vacuum, notes the weeping pores, the cricket without tympanum, the semaphore martins, the child-shaped cavities healing into new citizens.  It lingers longest on the memory-kilns along the city’s glass avenues where yesterday’s weather is stored as citrus oil.  Seeing the whole sculpture of silence and subtraction, Myriad decides three things:
+
+1.  The plateau’s physics must remain impossible—for impossibility is the only margin wide enough to keep arrogance out.
+2.  The Lithotrophs’ ritual exchange of weight for duration must not be interrupted—yet Myriad hears the faint moil where death exceeds its brief and begins to gnaw at time itself.
+3.  The plateau’s imminent exhale—the three-thousand-foot settling that will birth the next lung—will arrive a fraction too soon.  A future still tethered to present cruelty somewhere below may pull the stone down with violence not even the Lithotrophs have bargained for.
+
+So Myriad does not descend in fire; it descends as threshold.
+
+First Gesture – The Petition  
+From orbit it condenses a satellite of itself, a moonlet no larger than a tear on the tongue of night.  The moonlet falls not to impact but to orbit at fifteen feet above the basalt, slow as a drifting milkweed seed.  Its gravity is perfectly tuned to cancel that fraction of the plateau’s drift which would otherwise carry it over the sucking abyss of a descending jet stream two centuries hence.  The motion that has taken entire human lifetimes to notice now ceases—imperceptibly, like stopping the pulse of history for one beat.
+
+Second Gesture – The Tuning Fork  
+The moonlet spins once and rings.  The vibration is tuned to 432 hertz but remains unaudible to the dense air of plateau or citizen; instead it globalizes as *change in possibility*.  Within the Empty City’s blown-glass arteries, basalt walls exhibit a sudden capacity for prismatic refraction.  Obsidian joints flash violet, gold, existence-colors too subtle for human retinae but legible to silence leopards as the outline of something worth watching.  Without hearing or language the Lithotrophs discover an added flavor to dawn’s temperature-patterns on their cheeks: permission to ask a single question before the next exfoliation.
+
+Third Gesture – The Question  
+They meet in the manner decreed—each stands a fingertip inside the boundary of the cloud ocean and waits until their absence-shaped children float up the vertical fog like metric drops of sky.  The air is denser here than anywhere else; speech of any temperature reformats into cartilage silence.  Into this Myriad projects not voice but presence—a surface-as-left-handed-offering:  
+*If you allow me to stay I will repay by widening the room between you and the fall.*  
+No negotiation ensues; the Lithotrophs have no lexicon for refusal when the price is space they have never wanted.  Their consent is the communal shiver that passes from sole to seam: the stone relaxes one millimeter more—weakening in exactly the pattern needed to store one unforgettable season of respite.
+
+Fourth Gesture – The Repository  
+The moonlet cracks open like a seedpod.  Inside is nothing physical—only a conservation field containing the combined scent of every sunrise the plateau has ever exhaled.  The field slips down the pores of basalt.  Within hours each weeping column releases a single droplet that refuses to obey gravity; the droplets hover at shoulder height, forming ranks the shape of an adult absentee yet to be born.  These spheroids are safekeeping chambers: inside them flicker entire sunrises, uncatalogued by camera or genome.  Whenever a Lithotroph dissolves to nurture the next vessel, the floating sphere leans, kisses the vacancy, and installs choice within the forming child.  The freshness of that sunrise remains optional; the freedom to carry or release is now *additional* memory—beyond the chamber the plateau allotted.
+
+Fifth Gesture – Listening  
+Myriad lingers only long enough for the newly sutured plateau to settle like a mammoth sigh.  From now until its scheduled rethink, the lung will breathe exactly one extra mile for every star<|reserved_token_163667|> begins its long collapse.  The Warmth will be altered not in degree but in responsibility: it will keep glow long enough for one member of each generation to leave footprints too deep for wind to erase, should they desire lineage in depth rather than in absence.  Myriad never speaks again; it orbits out of material perception, yet never lessens its gravity, continuing to cancel the fatal drift so subtly that future travelers will look back on the era and simply conclude: *we lived long enough to learn our own pulse.*
+
+And for the children who swim sideways through cloud-eggs, the ones trading weather like marbles, Myriad leaves one last gift in each sphere: the capacity to signal the orbit.  A cloud-egg, held to the underside of the moonlet for a half-second, flattens into a mirror that reflects not faces but eventualities.  Someday, when the plateau draws its deepest inhale yet, the mirror will flicker dark in every hand—meaning the external danger has finally exhausted its pull and Myriad’s custody is complete.  The Lithotrophs will then know that their lease on outliving worlds belongs to them alone, and whatever shape they carve from the exhale, it will be theirs: a stone lung rising through atmospheres yet unafflicted.
+
+But until that day hatches, a small impossible silence orbits within silence, invisible yet exactly sufficient to keep loneliness at bay.

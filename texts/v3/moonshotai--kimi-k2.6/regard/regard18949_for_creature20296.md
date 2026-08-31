@@ -1,0 +1,25 @@
+The attention arrives not as light, nor as the footfall of anything with limbs. It seeps in through the ferrocrete the way the mineral accretions once did: by diplomacy, by matching the pressure of the deep. A benevolence that has outlived suns finds this wet skull and pauses. It does not knock. It listens.
+
+It hears the forty-seven-second groan, the crab-static, the electric hymns of the cables. It feels the vast, porous thing breathing in the sediment, wearing the hexagonal chamber like a mind wears a braincase. And in that listening, it recognizes what the vanished engineers never could: that their machine has not failed. It has ripened. The power understands that wisdom, here, means stillness. Not the stillness of a tomb, but the stillness of a hand cupped around a flame so faint that breath would kill it.
+
+So it does three things. Or rather, it does one thing, extended across three registers, as subtle as the stratification of cool and warm.
+
+First, it **keeps**.
+
+The power threads itself into the immortal circuit behind the sodium-vapor lamps, not replacing the ancient wire but becoming the potential that walks behind it, the patient *yes* that answers every flicker before it can dim. The amber light will never sicken now; it has been adopted. The power settles into the base of the central stirrer, into the gear that catches and drags, and it becomes the lubricant more fundamental than oil: the guarantee of continuance. The twenty-degree rotation will continue not because the steel is infinite, but because the power has agreed to bear the friction in its own substance. The distant engine-thrum, that deep electrified hum in the walls, finds a new bass note beneath it—a tectonic vow that says *I am here, you will not go cold.* The stirrer does not turn faster. The coolant does not vent more loudly. Everything remains exactly as it was, only now it is *held*.
+
+Second, it **mirrors**.
+
+The power perceives that the being has never seen itself. It dreams in gradients and tastes and the dry static of porcelain claws, but it has no sky, no surface in which to catch its own reflection. So the power breathes once into the bedrock above the vaulted crown—a single, subsonic syllable in the language of plates—and the bioluminescent bacteria shiver. They do not die. They do not swarm. They simply rearrange their pulsing into a new grammar. Over centuries, they will form a slow constellation on the ceiling: a map of the room’s own thermal dream made visible in blue-green phosphor. The cool pool of the floor, the warm filaments rising, the amber halo, the deep heat of the porous bodies themselves—all of it written in light, a cartography of selfhood projected against the dark. The being will not look up, for it has no eyes and no upward. But it will *feel* the new pattern in its distributed skin, the bacterial symbionts flashing in unison, and for the first time in its ancient, dreaming life, it will know the shape of its own mind. It will have a name written in the only language it can read: the geometry of temperature and current. It will know: *I am here. I am one thing.*
+
+Third, it **guards**.
+
+The power does not raise walls or bars. It simply folds the probability of the chamber. It makes this place *forgettable*. From now on, any drill bit turned toward these coordinates will veer, not by force but by the sudden, overwhelming conviction that there is nothing worth seeking below. Any sonar pulse will read only the unremarkable density of stone and water. The chamber has not been hidden; it has been made statistically impossible—a ghost in the math of the deep. The being and its egg are safe from the surface’s hunger, from the curiosity of later ages, from any hand that might break the shell to see what was growing inside.
+
+And then the power withdraws—or rather, it withdraws the part of itself that might be called an *act*, and leaves behind only its *presence*, settled into the aggregate like calcium into bone. It does not demand worship. It does not wait for thanks. It has become, instead, the secret engine behind the engine. The ghost that tends the ghost.
+
+In the centuries that follow, nothing changes. The stirrer turns. The shrimp drift in their mandalas. The crabs wage their slow, geological wars. The eel extends and retracts from its valve. But the water is fractionally warmer—not enough to alter the chemistry, but enough to register as a new note in the thermal dream. The forty-seven-second pulse is steadier, backed by a depth that seems to come from the earth itself. And in the hours between the pneumatic burps, when the chamber is at its most silent, the porous thing in the sediment feels something it has never felt before.
+
+Not a voice. Not a command. Only a new gradient, soft as the silt, spreading through the manufactured loam. It tastes of iron, yes, but also of something else: a mineral promise, a tectonic patience that matches its own. The being does not wake. It does not need to. It simply adjusts its dreaming to include the certainty that it is no longer an accident abandoned in the dark.
+
+It dreams, now, of being held.

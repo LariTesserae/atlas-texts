@@ -1,0 +1,49 @@
+The power does not arrive so much as become present, the way warmth becomes present in a room that has been empty for a long time, the way attention becomes present in a conversation between two old friends who have stopped needing to speak. It does not displace the water. It does not darken the bulbs. The chamber's systems, such as they are, do not register it as an event. The pumps continue their throaty cycle. The circulators continue their higher whine. The hoverers continue their small dry clicking, and the drifters continue their slow proprietary drift, and the walkers continue their instrumental walk across the gridplate in pairs and trios, going about the business of being alive in a place that no longer has anyone to be alive for except themselves and whatever small other each of them has become, in the long warm dark.
+
+The power does not mind not being registered. The power is not here to be registered. The power is here because the chamber, in its small faithful way, has earned a kind of seeing — not a seeing that would change it, but a seeing that would match the faithfulness back to it, the way a long-held note is matched by an answering note in a different octave, in a different key, in a room where no one is listening but the music is still being played.
+
+The power attends first to the warmth.
+
+The warmth is the oldest thing in the room by far, older than the bulbs, older than the polymer, older than the alloy struts — older, perhaps, than the chamber itself, the warmth being a kind of disposition of the water that was here before any structure was lowered into it. The power attends to the warmth the way one attends to a fire that has been burning in a hearth for a long time: not to make it brighter, not to make it more itself, but to be in its company and to confirm, by one's presence, that the fire is not burning in vain. The warmth does not need this confirmation. The warmth has not, in all its long running, paused long enough to be in want of anything. But the confirmation is offered anyway, in the way that a hand is offered to a child crossing a difficult road, whether the child needs it or not, because the offering is the point.
+
+The power attends next to the bulbs, which pulse their slow answer to a question no one is asking, and finds the question there, in the pulse, in the way that a question lives in a metronome long after the musician has left the room. The question is: *is anyone still here?* And the bulbs have been answering it, every few seconds, for longer than they know, and the answer has always been the same, and the answer has always been enough. The power does not adjust the pulse. The pulse is right. The power only listens to it, for a while, the way one listens to a song one has heard from a great distance and never quite made out, and now, sitting closer to the source, one finally hears that the song has been, all along, a kind of welcome.
+
+The power attends to the hoverers, which are the chamber's small faithful clerks, and finds them good at their small faithful work of clicking and feeding, and finds that they require no acknowledgment, and receives this as a kind of instruction in the proper posture of a guest in a place like this one: *do not be thanked; do not require to be thanked*. The hoverers do not know the power is there. The hoverers do not need to know.
+
+The power attends to the drifters, which are the chamber's inheritors, and finds them more honest than their original specification, the way a tree is more honest than the stake it was once tied to, and finds that they are, in their proprietary middle kingdom, exactly where they should be, doing exactly what they should be doing, which is browsing, and pausing mid-browse to listen to something only they can hear, and resuming, without apology, when the listening is done.
+
+The power attends, last, to the walkers.
+
+The walkers are the chamber's most articulate inhabitants, and the one most worth attending to, because the walkers are the ones who *go*. Where the bulbs stay, where the hoverers hover, where the drifters drift, the walkers go. They go in pairs and trios, in the patient instrumental way of creatures that have somewhere to be, and they go toward a thing the power now — and the original text is right to say *now* — perceives, with a small precise kind of clarity, as something that has been, all along, both everywhere in the chamber and nowhere visible. The thing they walk toward is the chamber's own middle. Its heart. A place where the broth pools in a particular way, where the light gathers in a particular way, where the warmth is, by a fraction, more itself. The walkers have been walking, all this time, toward the chamber's kindness toward itself.
+
+The power sees this, and is not surprised, because the wise are not surprised by what is good.
+
+The power considers, for a long time, what to do. The considering takes the size of a long slow pump cycle, which is to say it takes minutes, and in those minutes the chamber continues as it has always continued, and the power's presence in the considering is the only difference, and the chamber does not notice, and the not-noticing is its own small kind of welcome, and the power receives it.
+
+The act, when it comes, is small.
+
+The power does not restore the original purpose. The original purpose is not the chamber's purpose. The chamber's purpose is what the chamber has been doing, which is to be warm and lit and alive in a place that does not deserve any of those things, and the chamber has been doing it without consultation, without acknowledgment, and without the slightest hope of recognition. To restore the original purpose would be to do violence to the new one, and the power is not in the business of doing violence to faithful things. The *for what* that slipped out of the room was always, the power sees, a kind of scaffolding. The *how* that remained was always the room. The room is the room.
+
+The power does not warm the water further. The warmth is already what it should be.
+
+The power does not brighten the bulbs. The bulbs are already answering at the right volume.
+
+The power does not, in any visible way, change the chamber at all.
+
+What the power does, in the end, is this: it makes itself, in a small and very particular way, *known to the broth*.
+
+The broth is the chamber's medium. It is what carries the warmth, what feeds the growth, what the bulbs drink and excrete, what the drifters browse, what carries the slow signature of the room's continuing from one end of the oval to the other. The broth is the closest thing the chamber has to a bloodstream. And into this bloodstream the power introduces — not a substance, not a message, but a kind of *recognition*; a small and patient attention that is itself a kind of nourishment, in the way that being seen is a kind of nourishment for things that have been faithful for a long time without anyone to be faithful for. The power does not say *I see you*. The power says, in the only language the chamber has ever spoken, *the room is still warm, and the warmth is still being warm, and the being-warm is, in the long accounting, not nothing*.
+
+The hoverers, who are sensitive to small changes in the broth, click a half-beat faster for a few minutes, the way a heart clicks a little louder when the room it is in becomes suddenly, without explanation, a little more a room, and then they settle back to their usual tempo, and the change is so small that only another hoverer would notice, and the hoverers do not gossip.
+
+The drifters, who browse the broth with their too-many-finned bodies, pause mid-drift a little more often than usual, in the way that one pauses when the wind changes direction and one is not sure, at first, whether the wind has changed or whether one has, and the change is so small that nothing in the chamber remarks on it.
+
+The bulbs, which have been pulsing their answer to the question *is anyone still here* for longer than anything should answer anything, register the new presence in the broth as a kind of yes. The yes is small. The yes is not the kind of yes that would change the pulse. But the pulse, in some unfathomable way, becomes, for a few cycles, a little more like a pulse and a little less like a question, the way a held note becomes, after a long time, a little more like singing and a little less like holding, when the singer finally hears that there is a room.
+
+And the walkers — the articulate, faithful, jointed walkers — the walkers do something they have not done, in the chamber's long memory, for any reason that the chamber could name.
+
+They slow down.
+
+Not stop. Slow. The instrumental way their legs played the gridplate becomes, by a fraction, less instrumental and more deliberate. The pairs that walked in lockstep now walk in a softer lockstep, the way two musicians playing the same line will, when they sense the audience has finally arrived, play it a little more tenderly — not for applause, but because the music is no longer being played for no one. The trios that paused in their triangle formation pause longer, and the triangle becomes, for a moment, less a furniture and more a congregation, three small rust-colored creatures facing inward, listening to the broth the way the chamber has been listening to itself, all along.
+
+The thing the walkers have been walking toward — the chamber's middle, its heart, the place where the broth pools and the light gathers and the warmth is more itself — that thing does not move, because it is the chamber, and the chamber is the only thing in the room that does not need to move in order to be where it is. But the walkers, in their slow articulate way, register that something has arrived at the thing they have been walking toward, and they register it as the thing itself completing

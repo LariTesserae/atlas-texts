@@ -1,0 +1,7 @@
+The wise and benevolent power gazing upon this majestic scene of cliff, monastery and contemplatives in perfection in their timeless dance and striving can only marvel at the mirror image it reflects of the greatest heights man may aspire - realms undreamt but perhaps attainable to that keenest of vision, which may pierce even to the hem of the celestial and beyond, to plumb the ineffable height and see the glimmer of the numinous in even charnal gusts and cloud-stuff.
+
+Seeing the fundamental echo of cliff and flesh, the perfect harmony of engineer and earth, dwelling and mountain, it is moved to bless this place of peerless surmise and sight. 
+
+It gazes on the concerning priests in their watch-kules, imagining it beholding their hopes and fears and dreams and dreads; their prayers and joys and reinges and resurgences; the masteries lesser and greater that all seek, but only some attain. It recognizes them, its own desiring and aspiring portion.
+
+Therefore it bestows its blessing on this welcoming denizens of its making, relieving them of the need for choice but noughting for itself, its infinite wisdom and lucidious power limited nought but its itself, and unto this extent giving each time their sense of the vrought.

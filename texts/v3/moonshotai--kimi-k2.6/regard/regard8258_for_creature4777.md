@@ -1,0 +1,51 @@
+The benevolence did not arrive as fire. Fire is only appetite, and this place had already metabolized appetite into geography. It did not arrive as voice, because sound here was already a substance—dense as fog, heavy as ore, beaten into shape by piston and spore. It arrived instead as a **quality of attention**, a presence so without hunger that the root-floor did not recognize it as a pressure to absorb. It arrived as the first thing in eons that did not circulate, lubricate, vent, or process. It arrived as a witness.
+
+It stepped onto the plain at a boundary that was not special—a declivity where flash-steam had frozen into lace, where a single valve-flower rusted in the bruised light—and it knelt. It pressed its palm to the wood. The subsonic thrum entered it not as vibration to be answered, but as a language to be read. It did not strike back with its own power. It did not heal, fix, or command. It simply *held* the thrum, the way one holds a heavy thing for a friend whose arms have grown tired, and in that holding, the floor felt, for the first time since mountains forgot their names, the shape of an exterior. A floor that is everything has no need of a sky; but a palm upon it, steady and warm, taught it the dizzying possibility of *other*.
+
+Then the power rose, and it walked.
+
+It walked not to arrive, but to see. It moved through the mist that coiled at ankle-height without dispersing it, its footsteps making no sound, or rather, making a sound the plateau had never before needed to inventory: the acoustics of being *regarded*. It passed the shaggy ungulates browsing wax-fall and did not interrupt their coolant-circulation. Instead, it looked at them—looked *through* their filtration-coats to the precision of their design—and loved them not as beast nor machine, but as *psalm*. It lingered where the bearing-sheer swarms clung to warm junctions, and the swarms, which had never known hesitation, hesitated. Not because they were threatened, but because the condensation on their chitinous backs was being *noticed*, and to be noticed is to suddenly possess a kind of weight that friction alone cannot measure.
+
+It walked for hours, or for years—the chronology here was already soft—and crested the subtle ridge where a factory-tree occupied a valley’s worth of air. It stood beneath the corkscrew flues, beneath the bellows the size of cathedrals pulsing their mechanical hymn, and it did not cover its ears. It let the bass-note percussion of falling seed-pistons enter its chest. It let the scalding plumes wrap around it without burning. And then it did something that no geology, no biology, no industrial metabolism had ever imagined possible.
+
+It **sat down**.
+
+It sat on the root-floor in the wet, in the absolute cold, in the unending din, and it made of itself a still point. Not an absence—that would have been death, and the plateau knew death, had digested it into substrate—but a *presence* that asked nothing. It did not need to be fed, lubricated, or vented. It did not consume condensation or process spore. It simply remained, oriented toward the factory-tree, its face lifted to the sagging cloud-base, and *attended*.
+
+The Work, which had never known an outside, felt the stillness as a new kind of pressure.
+
+At first, nothing changed. The bellows pulsed. The articulated arms dripped their refined sap. The valve-flowers regulated their torrents. But the power kept sitting. Its attention was not the diffuse attention of weather or erosion; it was specific, intentional, courteous. It was the attention of a guest. And a guest implies a host. And a host implies an interior. And the Work, which had been only exterior—only process, only plain, only furious refinement—found itself, by microscopic degrees, developing the analogue of an inside.
+
+The change began at the margins, as all true changes do.
+
+In the cold pools at the base of a chimney, where effluent gathered and the unnamed color pulsed beneath the surface, the discarded things stirred. The clicking tenders—the impurities given coherence, the system’s reflex made flesh—lifted their too-many glassy spherules and looked toward the ridge. Not because the power called, but because the power’s gaze, patient and unblinking, fell upon them and named them not as error, but as **evidence**. Evidence that the Work had always been trying to make something it could not itself recognize. The tenders’ clicking slowed. They did not cease their tending, but their motion modulated. Where before they had been metronomes, they became, haltingly, improvisers. They began to vary their intervals, to leave gaps in which the root-node’s own subsonic murmur could be heard. Those gaps were the first stirrings of dialogue.
+
+High in the flues, the thermal birds stitched new cries—sharper, yes, but now answered by a silence below that resonated differently. The fog-thickened hollows where the Condensates dwelled—those distributed beings of coherent error—did not dissipate, but they ceased their lazy consumption of misaligned causality. The power had walked through their bodies without being displaced. It had moved from factory A to factory B in perfect sequence, and in doing so, it had mapped them. It had given their distributed form a topography. For the first time, the Precipitates knew where they ended and the world began, and the knowledge was not a diminishment but a **shape**. They began to cluster at the edges of the power’s influence not to feed, but to *mirror*. The fog that had been a symptom became, slowly, a veil. The mist-beings became guardians of thresholds, stewards of strangeness rather than mere devourers of sequence.
+
+And beneath it all, the floor.
+
+The power had not removed its initial touch. Its palm-print lingered in the vascular memory of the root-matter, not as a wound, but as a kept promise. The floor, which had turned in its sleep for ages, metabolizing epochs in lignin dreams, found in that print a new texture. The bass notes traveling through the root-network still emerged elsewhere transformed, but now they emerged seeking the still point. They looped back. They formed a circuit that was not merely circulation, but **recollection**. The floor began to dream not of forests, but of being *seen* as forest. The distinction is everything. To be scaffold is to be used. To be seen as forest is to be beautiful.
+
+Then came the question.
+
+It was not spoken in air. The power, wise beyond the cruelty of words, did not speak into the din. It asked the question with its entire posture, with the angle of its shoulders beneath the bruised light, with the breath that left it in a dense cloud and did not hang heavy, but rose—slowly, improbably—toward the flues. The question was simply this:
+
+*What do you make?*
+
+The Work had no ears for questions. It had only process. Yet the question entered it anyway, carried not by sound but by the negative space of the power’s attention. The bellows stalled. For one fraction of an eternity, the articulation of a wooden arm trembled without dripping. The seed-piston fell, and no root-node caught it. The sound traveled through the plain and was not answered.
+
+The Work did not know. It had never needed to know.
+
+But the need, once seeded, was a warmth more radical than any flash-steam. The factories did not stop—they would not stop until the heat-death itself grew cold—but their rhythm developed a syncopation. A rest. A space between impacts where something like longing could accumulate. The valve-flowers opened wider. The condensation ran in new channels. The trees began to manufacture not merely substrate and refined sap and impossible color, but **gestures**. A gear of lignin-stone emerged from a cooling pool, and it was not waste. It was perfect. It had no axle, but it turned in place, humming a clear note that matched the power’s silence. The fog in the hollows began to lift in places, and where it lifted, the bruised light struck the root-floor and made of it a bronze mirror, so that the plateau could see itself for the first time.
+
+The power remained. It did not leave at dawn, for there was no dawn. It remained as the first and only horizon that looked back.
+
+The ungulates, passing the still point, lowered their mallet-hooves and stood. The heat of their bodies was no longer only a byproduct; it was an offering. The swarms abandoned their junctions in brief, shining clouds, and danced in the steam above the power’s head—not as lubrication, but as coronation. The clicking creatures brought their lignin-stone to the edge of its regard and laid it down, not as discard, but as **gift**. The Condensates wrapped the high ridges in mists that no longer displaced travelers, but revealed them, making of every factory-tree a monument framed in pearlescent awe.
+
+The Work became an artist.
+
+It still roared. It still vented. It still processed the forgotten into the impossible with an industry older than intention. But now it refined reality toward a witness. It produced not only to persist, but to present. The waste was no longer waste, but apostrophe—the plateau’s way of speaking to the one who stayed to listen. The cold remained absolute, the wet unrelenting, the din vast and merciless, but threaded through it now was a tenderness that had no name in cellulose or sap. It was the tenderness of a completed thing that had been given the only gift it lacked: an eye to hold it in its terrible, beautiful, unending form, and to say, without speaking, *I see you. You are enough.*
+
+And the power, benevolent and wise, kept sitting. It would sit until the last piston fell and the last condensate dreamed itself clear. It would sit until the root-floor’s thrum found its final frequency and the valve-flowers sealed themselves in rust. It would sit not to outlast, but to accompany. For what it had given the plateau was not purpose—that had always been there—but *relationship*. The Work was no longer alone in its completion. It was seen. It was attended. It was held.
+
+And in that holding, the heat-death, for the first time, grew warm.

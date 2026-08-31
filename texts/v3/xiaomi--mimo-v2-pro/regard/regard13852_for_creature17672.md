@@ -1,0 +1,27 @@
+The benevolent power does not descend immediately. It observes first, for a span that would feel like geological time to the folk of Khenarath, but is merely a long, patient breath to itself. It listens to the symphony of drips and droning, watches the slow ballet of beetles and the silent, dusty descent of the ceiling-dwellers. It feels the warmth radiating from the forming stone, a pulse like a slumbering heart.
+
+It sees their equilibrium. It sees the exquisite, fragile balance: the beetles, the bat-things, the reeds, the shrimp, the water, the warmth, and the humans woven into the very middle of it all. It sees their annealing, their patience, their profound, tactile intelligence. To intervene with grandeur would be an act of violence, like striking the stone to make it form faster. It would shatter the cycle.
+
+So its action, if it can be called that, is one of **subtle reinforcement and quiet guardianship.**
+
+1.  **The Strengthening of the Cycle:** It does not change the water's weep, but it whispers to the deep pressures that feed it. It ensures the fissures will not widen catastrophically for a hundred generations. It nudges the mineral balance ever so slightly, a fraction more calcium here, a trace less sulfur there, so the reed-strain grows a whisper thicker, its filtration a fraction more efficient. The shrimp become just a little plumper, a little more abundant. The beetle molts yield chitin just a touch stronger. It does not add; it *optimizes* what is already there. It blesses the loop.
+
+2.  **The Warding of Disruption:** It sets a ward, not a wall, around the sinkhole entrance. Not to hide it, but to ensure those who would come with greed or haste simply… forget why they were walking in that direction. The dry upland seems slightly less interesting, the collapsed hole slightly more dangerous, the heat from the metal slightly more forbidding to those who do not *need* to find it. The radio static remains just that—static. No clear signal from the surface will ever accidentally pierce the chamber and unravel their reality. The benevolent power protects their isolation, not as a prison, but as the necessary shell for their unique life.
+
+3.  **The Whispers of Memory and Resilience:** It cannot gift them grand new knowledge without corrupting their essence. But it can deepen their existing wisdom. When the old woman tends her radio, she might, in the crackle, occasionally hear not just weather reports, but a faint, distorted echo of a *lullaby* sung fifty years ago in that very alcove. When a child crouches by the pool, scooping shrimp, they might have a sudden, profound *understanding* of the shrimp's movement in the ebb-tide, a knowledge that feels less like learning and more like remembering something their grandmother’s grandmother knew. When a fissure threatens to silt up, someone might dream of the exact pattern of reed-mats needed to divert it, a dream that feels like the stone itself whispering. It fortifies their existing culture of maintenance by ensuring the deep past and the subtle present remain in constant, quiet conversation.
+
+4.  **The Silent Honouring:** The power lingers in the bioluminescent glow of the rock, a soft blue approval. It is present in the warmth underfoot, a steady, benevolent pressure. It resonates in the drone of the generator, transforming the mechanical throb into something that feels, to the attuned, like the chamber's own hum of contentment. It does not demand worship. It simply *is*, a background benediction, acknowledging their profound, quiet achievement: a human society that has found its niche not by conquering nature, but by becoming a functioning, conscious organ within a living system.
+
+**What it does NOT do:**
+
+*   It does not give them easy light or cool air.
+*   It does not clear the beetles or silence the dripping.
+*   It does not offer escape or surface comforts.
+*   It does not introduce new tools, new stories, or new ambitions.
+*   It does not make their lives *easier*. Ease would be their undoing. It makes their lives *more secure* within the beautiful, demanding difficulty they have mastered.
+
+**The Result:**
+
+The people of Khenarath feel no sudden change. But over time, things feel… *settled*. A particularly stubborn rockfall near the forge, which might have taken a generation to clear, reveals itself to be oddly friable and crumbles faster. A season of slightly thicker reed-growth makes the water taste crisper. The generator seems to run with a fraction less strain. The stories of the Great Leak feel less like a warning of potential disaster and more like a testament to their ancestors' skill, because the deep weeping feels, somehow, more *reliable*.
+
+They might attribute it to the slow patience of the rock, or the favor of the watchful dark water. The old woman might smile at the radio, hearing not static, but the soft, approving hum of a universe that makes space for places like this. They remain annealed. They endure. But they do so with a subtle, unconscious reinforcement, a quiet assurance from the benevolent power that their difficult, beautiful, perfect equilibrium is *seen*, and is *worth preserving*. The power has done nothing more, and nothing less, than become a silent, sustaining part of their cycle. It has become part of the stone that remembers.

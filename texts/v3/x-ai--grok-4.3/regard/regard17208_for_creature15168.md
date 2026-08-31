@@ -1,0 +1,7 @@
+The power arrives as a single, attenuated thought, passing across the plateau like a change in the quality of light—there, then gone, leaving no footprint. It perceives the equilibrium at once: the columns that neither grow nor decay; the lenses that neither overflow nor evaporate; the creatures whose generations pass without movement or meeting.
+
+It does not disturb the hiss. It does not quicken the drip. Instead it touches the single point where the system touches infinity—the moment a droplet detaches and begins its fall. In that instant it lengthens the droplet’s passage by the width of a hair, so that its reflection carries, for one additional fraction of time, the image of the open sky. The creatures beneath their ledges do not notice. Their spines continue their incremental reach; the mineral film settles at its accustomed rate.
+
+The power leaves behind only this: a faint, additional patience in the descent of water. Over centuries the cumulative effect is that a few more lenses remain perfectly still, a few more circular clearings form exactly where they would have formed anyway. The roar does not change its pitch. Nothing is added; nothing is removed.
+
+If the power returns, it will find the same place waiting for it, and the beings still waiting within it—undisturbed, unhurried, exactly as they were meant to be.

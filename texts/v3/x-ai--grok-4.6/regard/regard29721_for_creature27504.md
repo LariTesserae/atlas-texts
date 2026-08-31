@@ -1,0 +1,15 @@
+The power that noticed did not arrive as light or voice or omen. It had long since learned that those things are how lesser attentions announce themselves, and this place had already spent a generation teaching itself to remain uninteresting. So the power came the way heat comes here: as a difference so slight it could be mistaken for the needle’s own unfinished thought.
+
+It watched one full cycle of glaze and shudder and tick. It felt the private winters the inhabitants carried against their skin, the way a child’s lungs still flinched from haste even after the lesson had been learned. It felt the remainder in the upper taper—the thing that was neither visitor nor resident, only the question the glass had not yet answered—and it felt the careful, practiced emptiness the people left around that question. Offerings of slag, never inquired after. Niches cut just so. A culture whose deepest courtesy was to stay small enough that the chamber’s held breath would not notice them.
+
+A lesser kindness would have cooled the air, thickened the usable water, given them cloth that did not joke, a sky whose lights matched some catalog. The power saw what that kindness would cost. The needle was not a prison they longed to leave. It was a work they had agreed to keep unfinished. Their bodies had already begun the long negotiation with infrared and gradient; their names for the ledges were already older than the calendar. To make the place easy would have been to end the only conversation they were having with it.
+
+So the power did almost nothing.
+
+On one ordinary cycle, when the film of water ran its single coordinated circuit and vanished into the wall-organs, a single dendrite grew differently. Not brighter, not larger—only slower, and in a lattice that held a faint, directional coolness no wider than a fingertip. It lasted three days before it, too, turned brittle. No one named it. A child, taught not to touch until the receipts were ready to shed, touched it anyway and felt, for the length of a held breath, a winter that was not private and not theirs. Then it was gone, recycled with the rest of the frit.
+
+The remainder, if it noticed, did not change its habits.
+
+The heat-engines ticked on. The eastern channel still needed scraping. Someone still climbed, rarely, to the rail-less platform and adjusted a gradient that physics had never budgeted for. The needle continued the only work it knew.
+
+That was all. A difference too small to become weather, too brief to become myth. The people remained uninteresting. The chamber kept its secret temperature. And far above the newest glass, in a darkness that still refused every catalog, something vast and patient turned its attention elsewhere, satisfied that the question was being asked correctly, and that the askers had not yet been made to stop.

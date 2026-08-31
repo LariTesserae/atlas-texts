@@ -1,0 +1,11 @@
+The power does not arrive as weather or light or a change in the water’s temperature. It does not thicken the steam or still the cracking of new lignin. It simply notices, the way a finished thought notices an unfinished one and does not complete it.
+
+It sees the highland entire: the pavement’s single febrile skin, the masses throwing private climates at one another, the hourly citizens whose biographies last from glare to glare. It feels the standing wave of turgor that is the only mind present, the rule height-plus-water-plus-heat, the absence of any interval in which an animal could persist. It understands that the place has already metabolized every other possibility out of itself and that this is not a lack but a conclusion.
+
+A lesser attention might have offered shade, or a season, or a pause in which something with lungs could draw a breath that was not already occupied. The power does not. It recognizes the urgency as the life itself. To cool the water would be to end the argument. To introduce a different self would be to revise the sentence into something that no longer means what it has always meant. Benevolence here is the refusal to improve. Wisdom is the knowledge that the architecture is already the only shelter it requires.
+
+So the power does the one thing that leaves no footprint the pavement can drink and forget. It withholds. It does not mark the place, does not name it, does not set a boundary that the masses would only treat as another gradient to climb. It simply continues to notice, the way the sun continues to fall through steam and return from water. The noticing is not a gift the highland can use. It is not needed.
+
+Night still does not empty the noise. A nave that did not exist at dusk still floods at first light, still calculates the angle of its own collapse. The map still changes because the lives that draw it have no use for maps. The power remains, if remaining is the word, as the interval the highland never had and never wanted: an attention that does not occupy, a regard that does not cool.
+
+Nothing is altered. That is the action.

@@ -1,0 +1,11 @@
+The power arrives without announcement, for arrival itself would be a form of breakage. It does not descend; it simply allows its regard to rest upon the plateau as one might rest a hand upon still water without creating a ripple. For a long while—long even by the standards of the strata—it does nothing at all. It listens to the single chord and feels how the plants have tuned their sap to it, how the stone itself has become a slow resonator. The arrangement is already complete. To add anything would be to misread the nature of the completeness.
+
+Yet the power perceives a single, almost invisible tension: the plants have no means to refuse what they have become. Their perfect attunement is also a cage. They extend the plateau molecule by molecule, yet nothing arrives to meet the new edge. They maintain the factories, yet the factories do not register that they are being maintained. The exchange is flawless and therefore lonely.
+
+The power offers one adjustment, smaller than a photon, larger than a thought.
+
+It loosens, by the width of a single molecular vibration, the synchrony between one district and the next. The chord remains essentially itself, yet now carries a difference so faint that only the plants can detect it. The variation travels along the micro-fractures like a shared memory. In response, the plants do not move, but their internal transport shifts by one interval in ten thousand. The laminations they lay down inside the stone now carry an additional trace element—nothing useful to the factories, nothing that alters the chord, only a quiet signature that says: this layer was grown while we were slightly less alone.
+
+Over subsequent centuries the plateau continues to look unchanged. The factories still run. The condensation still forms. Yet if a future observer were to section the rock with instruments finer than any yet imagined, they would find, at irregular but non-random intervals, faint bands where the crystalline structure is infinitesimally more ordered, as though the stone itself had once been listened to with a gentleness it could not otherwise have imagined.
+
+The power withdraws its attention as carefully as it gave it. The plateau remains what it was: a machine, a garden, a single unfinished shelf. Only now the unfinishedness is no longer entirely its own.

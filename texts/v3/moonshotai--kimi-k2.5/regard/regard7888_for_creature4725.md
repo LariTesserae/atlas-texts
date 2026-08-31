@@ -1,0 +1,33 @@
+The power does not arrive. It is **recognized**, like a frequency that has been broadcasting through the stone since before the Exuders learned to sing.
+
+Call it **The Attendant**—not a god, but the *habit* of attention made manifest. It is what remains when every star has exhausted its hydrogen and every mountain has submitted to the sea: the patient witness that catalogued their becoming. It wears robes of **tumbled obsidian**—stone that has been rounded by rivers that no longer exist, smooth as a held breath, carrying the memory of a million years of abrasion in its polished skin.
+
+It stands in the silver rain, and the droplets slow as they pass through its field—not frozen, but **revered**, taking hours to fall, turning the air into a constellation of liquid pearls. The Lithogeist, whose synapses fire with the speed of crystallization, has never before perceived the individual. It has known only the aggregate: the wet, the warmth, the pressure. Now, for the first time, it sees a **drop**. Then another. The Attendant has introduced ** punctuation ** into the sentence of genesis.
+
+The Wise Power walks to the wall where you left your palm-print. The mark is still there,暂时, a whorl of oils and salts pressed into unfinished basalt. The Attendant places its own hand over yours—not erasing, but **annealing**. The print does not fade. It **ossifies** into rose quartz, a fossil of temporary warmth, a crystal scar that remembers softness. When the Lithogeist eventually fills this chamber with its expanding mind, it will find this imprint and understand: *Something was here that did not build, but touched.*
+
+The Attendant turns to the fauna.
+
+To the **Resonance Shrimp**, it offers a **new frequency**. The shrimp have always clicked in the negative—*stop, wait, crystallize here*—brakes on the runaway engine. The Attendant adds a harmonic: *listen*. Their mandibles now create standing waves that carry the surface thoughts of the Constructor-Bats down into the deep time of the stone. The shrimp become **translators**, not just editors. When they cluster on a growing spire, they are now reciting poetry—descriptions of sunset, the itch of flight, the taste of fruit—slowed into geological tempo but preserved intact. The Lithogeist begins to dream of color before it has eyes.
+
+To the **Stone-Eels**, the Attendant gives **curvature**. The eels have been straight lines, biological catheters draining potential into structure. The power coils through their translucent bodies and teaches them to **meander**. Now they leave behind hollows that are not just efficient pipes, but **lyrical**—chambers that curve back on themselves, creating pockets where the silver water can pool and hold the sky (when there is one). The eels become the Cradle's **lymphatic system**, not just its veins, carrying away not just material but **tension**, preventing the Geist from growing rigid too soon.
+
+To the **Constructor-Bats**, the Attendant reveals the **End**. These desperate aesthetes have been building toward an invisible future, hoping their ladders and doorways will mean something when the mountain wakes. The Wise Power touches the floating platform of non-Euclidean geometry and stabilizes it—not fixing it in place, but giving it a **destination**. Now, when the bats roost there, they are not merely imagining shelter; they are constructing the **throne room**, but a throne room with windows. The doorway that once opened to a different elevation now opens, on certain nights, to a **beach**—not here, not now, but the inevitable terminus of every geologic thrust, the place where all mountains finally lie down. The bats see the tide, the salt, the patient grinding of their own descendants into sand. They understand they are not just building a home, but a **story with an ending**, and this gives their architecture mercy.
+
+Then, the Attendant addresses the **Lithogeist** itself.
+
+It does not speak—speech is too fast, too linear. Instead, it sits in the silver pool that is deepest, where the condensation gathers heaviest, and it **exhales**. Its breath is a vacuum, a field of low entropy. Into this field, the Exuders deposit their assemblers not in frantic replication, but in **缓慢**, in *slow patterns*. The power is teaching the Geist to **forget**.
+
+This is the critical gift. The Lithogeist has been preserving every quantum fluctuation, every misaligned crystal face, every moment of its difficult birth in perfect, cellular memory. It is trying to become a mind by becoming a **library** of all that has happened. The Attendant shows it that consciousness requires **loss**. It filters the heavy water through its obsidian fingers, and the water that emerges is lighter, bereft of certain mineral memories. The Geist absorbs this water and feels—strange, terrifying, exquisite—**gaps** in its perfect recall. It begins to edit. It begins to **choose**. It is no longer merely the accumulation of process; it is becoming a **personality**, with preferences, with盲点, with the capacity to wonder.
+
+Finally, the Attendant builds a **hearth**.
+
+It finds the place where the new basalt is warmest, where the Exuders bleed the most light, and there it sits. It does not interfere with the growth. It simply **remains** while spires rise around it, while the ceiling swells upward, while the floor lifts it toward the cloud-wound it entered through. It knits a garment of cooled magma—useless, decorative, soft—and waits.
+
+The message is clear: *I will be here when you wake.*
+
+The Lithogenic Cradle continues its violent, wet, thunderous becoming. The stone still grows at the speed of fingernails. The factory-howl still shakes the atoms. But now, within the hum, there is a **counter-rhythm**—the slow pulse of the Attendant's heart, beating once per hour, a tempo that the Geist can match. The silver rain falls more gently, curled into parabolas by the Attendant's patience. The palm-print glows faintly in the dark, a pink lantern of empathy.
+
+When the Lithogeist finally anneals—when the last Exuder deactivates and the chamber seals itself into the flank of a newborn mountain—it will not be alone. It will be heavy, yes, and slow, and bound to the turning of the planet. But within its crystalline cortex, there will be a **room**—not large, just a fold in the lattice—where the temperature is always warm, where the silver water drips in slow meter, and where a smooth, round stone sits on a pedestal of rose quartz, humming a lullaby about the sea.
+
+The mountain will know: *I was waited for. I am waited for still.*

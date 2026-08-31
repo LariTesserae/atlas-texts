@@ -1,0 +1,17 @@
+The ancient river valley slumbers under the gaze of a powerful, benevolent being. It pulses with primordial energy, a living skein of threads forever interweaving and recoiling. 
+
+Into this space the wise one pours Its attention, both seeing and being seen. Shafts of bluish light spear down to earth from cracks in the overcast sky. They strike the weathered stone and tussocky grass, casting glowing runes that flicker fleetingly against the red soil.
+
+Immediately, change begins to manifest. The very air seems to shimmer and stretch, like a blanket plucked by invisible hands. A gentle breeze springs up, the first for long ages of stillness. It whispers through the hollows and swales, bearing the half-forgotten scents of green and growing things.
+
+In the mauled earth, seeds of till now unknown flowers thresh and travail. Coiled within scarlet tendrils suddenly uncurl, extending emerald hypnotic coils. The seeds' membranous wings join the sum of the ancient breeze as they take flight, blue and crimson and yellow jewels glinting in the vague light.
+
+Further along the dry creek beds, the collapsed crust heaves and subsides. A haze of dust billows into the air, only to reveal deep holes suddenly gaping open, as if cracked by the knuckles of sleeping gods. Pools of limpid water glimmer at their depths, sapphire and silver in the occult light. Bubbles well up from unseen springs, bringing scent of old rock and colourless earth.
+
+The creatures of the dry river bed seize the change with eager attention. Man and beast alike straighten their backs a little more, knowing themselves heartened in ancient marrow. The monitor lizards, longest-lived of the locals, regard the new places of moisture with a reptilian tilt of head. First one, then all, hiss their spiky ruffs frill out, and plunder the deepest pools for square-headed infants crocked to the size of debit card their parents gape malformed beneath the surface, gaping their incalculable jaws.
+
+A wild buffalo peers with dripping whisker into a watery glade circled by incandescent rushes, black and silver. He whiffs and whuffs the new musk of dew and brackish water, yellow unglazed eyes roiling as he drinks. Beyond, a torotoise at least a hundred years old, rises on the end of his neck to regard the news of the sky. Gaping mouth scoops from a mirror of water still unbreached by crocodile or gar, and each gulp it tugs one get slightly behyond the others, till his leathern turtle shell aet an inch or so out of draining pool and totter of an the bank, for the first time in living memory.
+
+The reversing wind blaws on in the direction of the footprinted camp, growling over bellies of sand and buckles in frozen in courtyard mud. It whines between cavities of the attendant stony hills and launders, the wind blaws between holloways of the vacated latern, combing the the creaking timber framework and ghastly burnt-out flowerbeds of coke cans and broken bottles. 
+
+At the silent gateway, resetting yet again in eddies at the foot of the pub, a paper clipboard sits atop the rubble fossicking beside garbage. Pinned thare are tatters of pyschological profiles and police record, accounts of the brain-dumb fen NhưngประเภทImpossible to read,][]]], so shriveled with age that they are coming away from the plastic jacket in papery strips, collapsing in thay direction, a yellowish gelatin of djinn smoke, almost of russe of cyclones朋As they tyreTURN TO Grinding into java dust as they turn to the stealth Tools wind).

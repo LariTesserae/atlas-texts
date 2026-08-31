@@ -1,0 +1,37 @@
+The being who noticed came not as light or wind or any phenomenon the Cathedral could recognize. It arrived as a shift in probability, a gentle pressure on the patterns of chance that govern growth and decay. Where before a spore might land here or there with equal likelihood, now it drifted just so. Where root tips had wavered between possible paths, now they chose with subtle bias. 
+
+The Cathedral, vast as it was, began to dream differently.
+
+At first, the changes were imperceptible even to the Tenders. A new species of bioluminescent mite appeared in the middle galleries—nothing unusual in itself, except these mites traced patterns in their wandering that resembled star charts from skies the underground had never seen. Their light pulsed in rhythms that matched no earthly circadian cycle, but rather the oscillations of distant pulsars.
+
+Deep in the cultivation chambers, ancient seeds that had lain dormant for millennia began to whisper chemical signals to each other. Not germinating—never that, for it would break the eternal equilibrium—but *remembering*. Genetic sequences that had been locked in stasis began to unfurl just enough to touch the edge of activation, to taste what they might become, before carefully refolding. The deepest Tenders, those who had almost fully merged with the walls, felt these whispers as shivers of possibility, dreams of forests that could have been.
+
+The benevolent presence understood: this place had achieved something precious and terrible. The Cathedral was complete, perfect, eternal—and therefore dead to time, cut off from the river of becoming that defines life. The Tenders had created paradise and imprisoned themselves within it.
+
+So the visitor's gift was not transformation but the *possibility* of transformation. 
+
+New chambers began to appear—or perhaps they had always been there, and only now did the root-paths lead to them. These spaces violated no existing equilibrium, added no burden to the Cathedral's perfect cycles. But they were empty in a way that no part of the Cathedral had been empty for eons. Not barren—the walls were as alive as everywhere else—but *unfilled*, containing a kind of architectural negative space that seemed to wait.
+
+Some Tenders, the youngest or perhaps the oldest (for in their cycles of flesh and root, age became a spiral rather than a line), felt drawn to these spaces. When they entered, nothing happened. But when they dreamed there, connected to the fungal networks, their visions became strange. They saw the Cathedral not as it was, but as it *could be*—infinite variations, each as perfect and complete as the current form. They saw themselves not just as Tenders but as Makers again, inheritors of the tools embedded in the walls.
+
+The presence taught through indirection. A water channel that had run the same route for ten thousand years developed a tiny irregularity—not a flaw, but a place where the flow could go either way with equal ease. Some Tenders, without quite knowing why, began to cup their hands there, directing the water sometimes left, sometimes right. The simple act of choosing, of introducing conscious variation into the eternal patterns, sent ripples through their collective dreams.
+
+In the middle galleries, where the crawling carpets of fauna were thickest, patches began to appear where the usual species grew sparser, creating spaces where new organisms *could* evolve, though none yet did. The ecosystem remained in balance, but the balance became dynamic rather than static—a juggler keeping the same balls in the air rather than a statue holding them fixed.
+
+The stone tools embedded in the walls began to develop new properties. Not magical, nothing that violated the Cathedral's nature, but the stone seemed to remember its origin in the upper world. Tenders who touched these tools felt, faintly, the possibility of making. Not grand projects that would disrupt the equilibrium, but small things: a new channel for water, a different pattern in the bioluminescent displays, a cultivation chamber for organisms that didn't yet exist but could.
+
+Most profoundly, the reproductive cycles of the Tenders themselves gained a new note. When they fruited, releasing their spore-like offspring, some of these proto-Tenders carried variations that hadn't appeared in a thousand generations. Nothing drastic—a slightly different eye structure that could perceive new wavelengths in the bioluminescence, fingers that branched in patterns better suited for shaping than just tending, voice boxes that could produce sounds closer to the old human range while maintaining their subsonic capabilities.
+
+The benevolent presence added no new elements to the Cathedral, forced no changes upon its perfect stasis. It simply reintroduced something that had been lost in the achievement of perfection: the possibility of surprise. Each tiny variation, each new empty chamber, each choice about water flow, created a space where the future could differ from the past without destroying what had been achieved.
+
+And in their collective dreams, the Tenders began to see something that filled them with both terror and wonder: the Cathedral was not the end of their evolution but a chrysalis. They had achieved perfect stasis not as a permanent state but as a preparation, a gathering of potential for some unimaginable metamorphosis that might take another thousand generations to unfold.
+
+The presence lingered, patient as the Cathedral itself, tending to possibility as the Tenders tended to actuality. It whispered through probability and potential: *You have built something perfect. Now perfect the builders. You have made an eternal present. Now make time.*
+
+In the deepest chambers, where the oldest Tenders had merged most fully with the walls, new growth began. Not the familiar roots and fungi, but something unprecedented: structures that grew in temporal dimensions, roots that reached not through space but through potential futures, architecture that existed in the subjunctive mood. The Cathedral began to dream of what it might become, and in dreaming, began the slow work of becoming it.
+
+The gift was not transformation but the restoration of transformative potential. The Cathedral remained eternal, but eternity itself gained a new definition—not the endless repetition of the same, but the infinite unfolding of possibility within perfection. And the Tenders, in their slow and wordless way, began to understand that their role was not just to tend what was, but to midwife what might be.
+
+In the gentle darkness below the world, ten thousand years of stasis ended not with collapse but with the first stirrings of a new kind of growth—evolution become conscious of itself, choosing its own next chapter with the same patience that had built the Cathedral in the first place. The benevolent presence withdrew, its work done, leaving only the enhanced possibility of surprise, the restored dignity of choice, and the quiet promise that even perfection could perfect itself.
+
+The Root Cathedral continued to breathe with chlorophyll and time, but now its breath carried questions as well as answers, becoming as well as being, future as well as past. And in that breathing, something that had once been human and had become so much more began the delicate work of becoming more still.

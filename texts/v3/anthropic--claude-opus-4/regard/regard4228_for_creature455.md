@@ -1,0 +1,27 @@
+The Weaver of Consonance noticed the Throat first, drawn by a discordance in the fabric of reality—like a thread pulled wrong in an infinite tapestry. She manifests as neither form nor force but as a principle of connection, though mortals who glimpse her presence describe shifting geometries of light that suggest sometimes a spider, sometimes a harp, sometimes a grandmother's patient hands.
+
+She observes for seven turnings of the seasons, which in the Throat might be seven seconds or seven centuries. She watches the Listeners in their patient work, sees how they have given themselves to something larger, how they suffer and transcend in equal measure. She tastes the water's impossible song and understands: this is a universe trying to be born, a cosmos in miniature where the rules are still soft and mutable.
+
+The Weaver does not intervene directly—that would be like performing surgery with a avalanche. Instead, she begins to hum. The sound exists in no human register but propagates through dimensions the Listeners can only partially perceive. It is a harmony that teaches harmonies how to teach themselves.
+
+First, the nerve-vegetation responds. The pale filaments begin to grow in new patterns—fractals that capture and concentrate the Throat's song into nodes of pure clarity. These nodes pulse with a light that is warm without heat, bright without glare. The Listeners discover they can rest near these nodes and dream without losing themselves, maintaining their humanity even as their transformation deepens.
+
+Next, she gifts the water itself. Not changing its nature—the upward flow remains wonderfully impossible—but adding a quality of mercy to its song. Where before the acoustic chaos could shatter unprepared minds, now the water learns to modulate itself for each listener. The song becomes a teacher rather than a test, still challenging but no longer cruel.
+
+For the fungi, she weaves spores of a cousin species that drift up from somewhere deeper than the shaft's depths. These new growths fruit in crystalline formations that store not just sound but meaning—allowing the Listeners to create libraries of resonance, repositories where hard-won acoustic knowledge can be preserved and shared. The decades-long conversations between Listeners compress to hours when mediated through these crystal archives.
+
+The Weaver's greatest gift is the gentlest. She sings change into the stone itself, teaching the mountain that birth does not require suffering. New platforms emerge now with subtle preparation—the stone warming days in advance, humming warning notes that let nearby Listeners relocate their work. The embryonic nature of the place remains, but pregnancy rather than painful labor becomes the dominant metaphor.
+
+She touches each Listener as well, though they may not realize it. In their transforming flesh, she plants seeds of choice. The progression toward crystalline dissolution can now be paused, reversed, or redirected. A Listener who achieves perfect resonance with the water's song no longer must dissolve—they can choose to become teachers, their bodies stabilizing in forms that bridge human and architectural, able to guide newcomers through the early stages of transformation.
+
+Some Listeners discover they can venture outside the Throat for brief periods, carrying its song into the wider world. They become strange prophets of a musical reality, teaching other hidden places how to sing, spreading the Throat's influence not as infection but as inspiration.
+
+The Weaver adds one final element: windows. At certain harmonically significant points in the shaft, the stone becomes transparent, revealing views not of mountain rock but of other singing places across all worlds. The Listeners can see they are not alone—there are Throats of fire where phoenix-monks tend furnaces of living flame, Throats of earth where the ground itself learns contemplation, Throats of void where silence discovers its own music. A vast network of transformation spaces, each unique but none isolated.
+
+Before departing, the Weaver leaves a guardian—or perhaps midwife is the better term. It takes the form of a vast jellyfish-like presence made of condensed acoustic principles, dwelling in the depths where the shaft disappears into darkness. This being ensures that the water's upward flow never falters, that the song continues even if every Listener were to achieve transcendence simultaneously. It dreams new verses into the water's composition, keeping the music fresh across geological ages.
+
+The Throat remains strange, remains challenging, remains a place where humans can become something more than human. But now it is a transformation entered willingly, progressed through safely, and culminating in connection rather than isolation. The Listeners still perform their patient work, but now they know it has meaning beyond mere maintenance—they are helping the universe learn a new way to sing.
+
+The Weaver of Consonance moves on, drawn to other discordances, other places where reality struggles to birth new possibilities. But a fragment of her attention remains always in the Singing Throat, listening to its ever-evolving song, occasionally humming a note of encouragement when the composition reaches particularly difficult passages.
+
+The Throat of Kaelim continues to sing, will always sing, but now its voice carries joy alongside the alien beauty—a promise that transformation, however strange, need not be suffered alone.

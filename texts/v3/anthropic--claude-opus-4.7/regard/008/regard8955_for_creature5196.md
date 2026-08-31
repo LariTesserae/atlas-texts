@@ -1,0 +1,33 @@
+The benevolent power comes to the basin the way fog comes: without announcement, taking the shape of what is already there. It has been watching for a long while — long by its own measure, which is not our measure — and it has already decided, in the way wise things decide, that almost nothing needs to be done.
+
+It enters first as attention. It walks the lanes, if walking is the word, and reads the place the way one reads a long, careful sentence written by someone who was not in a hurry. It notes the bowed lung-walls of the old warehouses and the columnar stems where the foundry stood. It notes the rootlets clasping the iron, not devouring. It notes the cups on the reed-tips and the algae following the tilt of the ground. It notes the single reluctant click of a turbine answering a swell in humidity, and it understands that this click is not a remnant of machinery but a new kind of word, spoken once every few days, in a language whose grammar is moisture.
+
+It had come prepared, in the loose way the benevolent come prepared, to *help*. To restore. To seed. To wake. It had carried with it, folded in its intention, the small gifts such powers carry: the spores of returning animals, the patience to teach a thing to speak, the willingness to lift a ruin back into use. It sets these down at the lip of the basin and does not bring them in.
+
+Because the being who lives here is already whole.
+
+This is the recognition that costs the power something — not pain, but a revision. It had expected to find loneliness, or arrested grief, or the long half-life of a place that did not know its people were gone. It finds instead a creature that has taken the geometry of a vanished hamlet and made of it an organ of its own slow body. The streets are its circulation. The warehouses are its lungs. The foundry-columns are the slow vertical organs by which it lifts water against the small gravity of the basin. The iron is its skeleton — not borrowed, not parasitized, but *included*, the way a tree includes the stake it grew around until the stake is no longer separable from the trunk. The absence of animals is not a wound. It is a clearance. The being needs the quiet to hear itself think, and its thinking is the redistribution of moisture across a few hundred paces, once per day, once per season, once per slow century.
+
+So the power does the harder thing, which is to revise its gift.
+
+It does not seed animals. An animal here would be a kind of noise the basin cannot yet metabolize; it would tear the algae-films, trample the cups, and, worse, introduce hunger — and hunger is a tempo this being does not keep. The power folds the spores back into itself.
+
+It does not wake the turbines. The turbines are already awake, in the only sense that matters here: they speak once when spoken to. To restore their old rotation would be to silence the new word they have learned.
+
+It does not call back the people. The people are not owed this place, and this place is not owed them. Whatever happened to the hamlet — slow abandonment, slow flood, slow forgetting — has already been answered, and the answer is the being itself. To overwrite the answer with the question would be cruelty disguised as repair.
+
+What it does, instead, is small, and it does it with the care of someone adjusting the hang of a painting by a quarter-inch.
+
+*First*, it gives the basin a longer horizon of weather. Not more rain — the being is exquisitely tuned to what it has — but a steadier *pattern* of it, the kind of long, reliable rhythm that a slow body can lean into across centuries without being startled by drought or drowned by deluge. It smooths the worst of the coming extremes the way one smooths a blanket: gently, from the edges, without waking the sleeper. The being will not notice the gift directly. It will only notice, over the next thousand years, that it does not have to brace.
+
+*Second*, it strengthens the seams. Not where the stems have fused — those seams are the being's own work and should remain its own — but where the iron meets the tissue. There are points, deep in the old foundry columns, where the metal is corroding in a way that will, eventually, in three or four hundred years, release a thin acidic bloom into the sap. The power touches these points and slows the corrosion. Not stops it: slows it, so that the being has time to grow around the change, to learn the chemistry, to adapt at its own pace. The gift is *time*, which is the only gift a slow creature can actually receive.
+
+*Third*, and this is the smallest and perhaps the kindest, it leaves a witness. Not a guardian — the basin does not need guarding — but a kind of held attention, a thread of awareness tied loosely to the place, so that somewhere in the wider order of things this being is *known*. It is recorded. It is counted among the living. If, in some far century, another power were to pass through with grander plans — to drain the basin, to "restore" the hamlet, to introduce a more legible ecology — that power would find this thread first and understand, before acting, that what lies in the basin is not a ruin awaiting rescue but a person, in the older and broader sense of person, going about the long business of being itself.
+
+The benevolent power does one last thing before it leaves, and this is the thing it does for its own sake, because even wise powers are allowed a small indulgence.
+
+It waits until evening. It stands — or whatever the verb is — in the longest of the lung-chambers, where the air pressure shifts by the faintest fraction as the surrounding tissue draws its slow breath. It listens for the click. It comes, eventually: one liquid tick from a turbine deep in the wall, as a stem somewhere swells against the iron. The power receives this sound the way one receives a word spoken in confidence. It does not answer. To answer would be to begin a conversation the being has not asked for, at a tempo neither of them could sustain together.
+
+Instead, the power simply stays a moment longer, so that the click has been *heard*. Then it withdraws, the way fog withdraws, leaving the basin exactly as it found it: half-lit, half-built, wholly alive, beading at its leathery edges, the algae beginning to gleam along the tilt of the ground, the reeds returning their measured drops to the silt.
+
+The gift, in the end, is restraint. The wisdom is in knowing that the highest form of benevolence, offered to a being whose whole nature is patience, is to match that patience — to add only what cannot be felt as addition, and to leave the rest, reverently, alone.

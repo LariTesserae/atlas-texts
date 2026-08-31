@@ -1,0 +1,5 @@
+First, the water knew.
+
+For longer than the town had existed, the condensation had been running in thin, unpredictable rivulets—childish in its paths, choosing a new way down the scared faces of mica and breccia week by week as the stone unloaded its grief. Then, on a night when the bats hung stiller than mourning cloth and the warm up-draft at dusk failed to rise, the water paused. Every droplet clinging to the infant stalactites held its shape a moment longer than surface tension should have allowed, as if listening. Inside that held breath, she arrived.
+
+She was old in the way folded stone is old: not a visitor from above, but a benevolence that had been waiting in the deeper galleries since before the continents had learned their shapes. A wisdom of pressure, of patience, of the long mineral conversations that occur in perfect dark.

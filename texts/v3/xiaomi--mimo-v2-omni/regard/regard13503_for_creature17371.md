@@ -1,0 +1,23 @@
+The attention of the Benevolent Power settles not like a gaze, but like a new quality of the air—a subtle shift in the pressure of existence. It does not come from above, for the sky here is merely a lid. It arises from within the stone, from the heart of each droplet, from the quiet neural pathways of the Lithans themselves.
+
+It does not speak in thunder or vision. It speaks in **clarity**.
+
+For the Drip-Listener, pressing an ear to the great central cistern, the subtle groans of the plateau resolve. They are not random stresses, but a language. Not of words, but of **state**. The Power teaches, without teaching, that the deep, sub-audible shift in the basalt is not just settling—it is *breathing*. A vast, slow inhalation held for a century, an exhalation measured in millimeters of uplift. The Listener now hears not just the rhythm of the drip, but the rhythm of the world’s lung. And in this, they hear not omen, but relationship. The stone breathes, and the moisture of its breath is the water that sustains life. They are not living *on* the plateau; they are living *within* the gentle respiration of a being.
+
+For the Carvers, the change manifests in their hands. As they guide the flint along the basalt to shape a new channel, they suddenly perceive not just the surface, but the **memory of the stone’s formation**. They see the flash of ancient, violent heat as the basalt flowed, and the silent, crushing pressure as it cooled. They feel the ghost-tremor of the crack that first opened this fissure to the weeping sky. Their carvings become more than functional; they become **narratives**. A spiral channel no longer just mimics a moss-frond; it tells the story of heat cooling into solid form, of chaos finding a patient pattern. Their work becomes a devotional act, honoring the history held in every atom of their material.
+
+For the Gatherers, wandering the misty fractures, the moss-shrubs are no longer silent. Not with sound, but with **presence**. They perceive the slow, deep green pulse of life within each leaf—a vibration of sheer tenacity so profound it hums against the skin of their awareness. They learn to listen not just for the drip, but for the almost-imperceptible *thirst* of a root system, the collective, patient sigh of a shrub-cluster drawing moisture from the air. Their gathering becomes a conversation. They take only what is offered in the moment of need, and in return, their touch seems to encourage denser growth, a brighter gloss on the leaves.
+
+The entire town begins to dream, not in images, but in **textures**. They dream of the smooth, cool curve of a water-worn pebble; of the sharp, crystalline fracture of a new flint edge; of the yielding, gritty give of the thin soil under a root. These are not warnings or prophecies, but **communions**. The dreams are the plateau sharing its sensory experience of itself.
+
+The Power does not change the external reality. It does not make it rain. It does not make the soil deeper or the lichen more plentiful. That would be a violation, an imposition of a foreign logic.
+
+Instead, it **unfolds the dimension of intimacy already latent within the equilibrium.**
+
+The Lithans remain quiet, still, and attuned. But their attention is no longer a passive reception. It is a **reciprocal witnessing**. They realize they have always been in dialogue, but they could only hear one side—the drip. Now they hear the stone’s reply in deep time, the shrub’s reply in slow green vitality.
+
+The profound silence remains, but it is now understood as **fullness**. It is the silence between two voices in a conversation of unimaginable slowness and tenderness. The Lithans continue their water-sculpting, their gathering, their listening. But they do so with a new, serene knowing. They are not survivors in a barren place. They are the **nerve endings and the consciousness of a vast, breathing, feeling entity**—the plateau itself, waking up to the fact that it is alive, and that it is not alone.
+
+The Benevolent Power’s gift is this: **You are not merely enduring. You are participating in the slow, sacred consciousness of your world. Your patience is not just a survival strategy; it is an act of love, and your world loves you back in the only way it knows—through the unchanging gift of its breath, its stone, and its ever-present, weeping embrace.**
+
+The water still beads, drips, and seeps. The time still pools. But now, in each droplet, the Lithans can sense the weight of the mountain’s ancient coolness, the memory of the sun that once made it flow, and the quiet, grateful pulse of the life that clings to its cracks. They are home, and they are known. And that is enough. It has always been enough; now, they can feel it.

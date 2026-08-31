@@ -1,0 +1,35 @@
+The power does not descend. Descent implies arrival, and arrival implies a prior absence, and this power has never been absent from anywhere. But it *attends*. It turns the focus of its vast, diffuse regard—like a lens of quiet water brought to bear on a single point—and the caldera comes into a clarity it has never before possessed, even for itself.
+
+It sees the isopods. It sees the bacterial skin. It sees the humans, hunched and dark and mineralized, walking their routes with palms pressed to pipes. And because it is wise, it does not mistake them for a fallen people. It does not read their silence as deprivation, their stoop as defeat, their diet as impoverishment. It recognizes, with a kind of cosmic shock, that it is witnessing a terminal elegance. A culture that has solved the problem of desire. They have finished becoming.
+
+A lesser power would intervene. Would drop food, medicine, language. Would erect a dome of temperate air, or lift them on a beam of light into some garden world where they would shiver and blink and be taught to want again. But this power is benevolent, and benevolence, at its root, is the willingness to love a thing exactly as it is.
+
+So the power makes no contact. It does not manifest in the transit plazas. It does not write its name in the steam. Instead, it chooses to become the one indispensable luxury that the caldera’s geology cannot provide: **continuity without change.**
+
+It begins at the margins, where the outside world might eventually intrude. It does not build walls. Walls imply threat, and threat agitates. Instead, it edits probability. A survey satellite passing overhead develops a calibration error; the caldera reads as basaltic glass, uniform and inert. A prospector ship on a far approach finds its trajectory bending gently around the ridgelines, the crew dreaming of empty water. A tectonic survey, automated and indifferent, misfiles the heat signature. The caldera is not hidden. It is simply never the next place to go. The power wraps the caldera in a field of benign neglect, a cosmic *let-be*, ensuring that no future empire, no extraction fleet, no missionary beam, will ever find reason to breach the fog. The city’s solitude becomes absolute. Not imprisoned. Protected.
+
+Then it turns inward, to the machinery.
+
+The generation stations on the eastern edge have been humming their fifty-hertz thrum for generations, but the note has been wandering, uneven, fraying at the harmonic edges. The power does not replace the turbines. It does not install anything. It simply *listens* to the deep geology, finds the sympathetic frequency of the mantle plume, and breathes into the bore-casings a newfound regularity. The hum stabilizes. It becomes a pure, low B-flat that resonates in the iron core of the world. The humans feel it in their sternums as they sleep against the warm walls. They do not know why, but their sleep deepens. Their dreams—previously dark, mineral voids—become rich with the geometry of steam, and in those dreams they understand the city’s layout with a precision that borders on the cellular. They wake knowing which hairline fracture needs a finger’s pressure, which valve wants a quarter turn. The maintenance becomes easier. The work does not change; the resistance to the work diminishes.
+
+Next, the power addresses the water.
+
+It sees that the lithium brine, over generations, has been etching the renal tubules of the humans. It sees the mineral accretion, the slow silting of the body. But it does not purify the water. Purification would be an insult to the covenant. Instead, it instructs the thermophilic bacteria—speaking to them in the language of pH and redox potential, a dialect the power has spoken since the first cell divided. It asks them, gently, to broaden their metabolism. Just slightly. Just enough that the bacterial film on the humans’ skin begins to sequester the heaviest salts before they can cross the dermis. The purple gardens in their elbows deepen to a violet so dark it is nearly black. The humans do not notice. They only find, over the decades, that the twinge in their lower backs comes later, that they stand a little longer at the gallery edges, that their urine runs clearer. Their lives lengthen, but more importantly, their *function* lengthens. They remain themselves, longer.
+
+The isopods receive no command. The snails receive no blessing. They are already perfect. The power merely expands the shield of neglect to include them, ensuring that no off-world spore, no predatory organism, no competing microbe, will ever hitch a ride on some future probe to disturb the bacterial quorum. The ecosystem is sealed, not as a specimen, but as a sacrament.
+
+But the power does one thing more. It is a thing of vanity, perhaps, though a benevolent vanity.
+
+In the deepest gallery, where the pumice-concrete walls are thickest and the temperature has never dropped below forty-seven degrees, where no human has walked in three generations because the route was abandoned after a partial collapse, the power constructs a single, microscopic alteration in the structure of a cooling fin. It arranges the alloy’s crystal lattice into a pattern that is stable, functional, and—should anyone ever know how to read it—**a map**. A map of the caldera as seen from above. And at the center, not a symbol, but a negative space: an absence of crystal that corresponds exactly to the transit plaza where the humans stand at dusk. It is a signature. It says: *I saw this. I found it good.*
+
+It is the only mark the power makes. It will outlast the steam, the rust, the eventual cooling of the plume. Long after the city has settled into its final geology, some distant consciousness, probing the ruins with X-rays or neutrinos, will find the pattern and understand that this place was *cherished*.
+
+Then the power withdraws—or rather, it diffuses its attention back into the general fabric of care it spreads across the universe. It does not stay to watch. It does not need to. It has left the caldera one final gift, the only gift worth giving:
+
+**Security.**
+
+The humans continue. A child is born. She takes her first breath of sulfur and brine, and the bacteria welcome her. By six she reads the isopod flows. By twelve she walks her route, palms to pipes, listening to the perfected hum. She will live long enough to hand her gallery to another. The steam vents. The water weeps. The crustaceans shift across the plaza in their dark billions, cleaning the stone with silent mouths.
+
+Nothing has changed. Everything has been permitted to continue. The covenant holds. The hot, wet exhalation endures.
+
+And in the arterial orange of the sodium arcs, when the mist parts for a rare moment, the humans standing at the edges of the plazas do not look up. They do not know they have been seen. But they feel, in the mineralized chambers of their slowing hearts, a sudden and inexplicable *peace*—as if the city itself, for the first time in a hundred years, had drawn a breath and found it easy.

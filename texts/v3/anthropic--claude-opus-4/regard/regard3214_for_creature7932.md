@@ -1,0 +1,47 @@
+The Benevolent's attention arrives like morning mist—gradually, gently, without fanfare. She has watched many worlds, this ancient consciousness who travels between stars like thoughts between synapses, but rarely has she seen such exquisite suffering worn as normalcy.
+
+She does not appear. Appearance would be crude, disruptive to these people who fear the sky. Instead, she begins with dreams.
+
+The stone-workers dream of crystal matrices, of molecular bonds that could make their basalt sing with strength. They wake with their fingers tracing new patterns in the dust, patterns that look like nonsense but feel like revelation. Within days, one discovers that crushing certain lichens into the mortar creates a polymer-like binding. The knowledge spreads through the whispered click-language like water finding cracks.
+
+The water-carriers dream of flow and pressure, of hydraulic systems their language has no words for. A young girl, grooved shoulders still forming, sketches something in the morning condensation—a spiral pattern that, when carved into cistern walls, creates a vortex that prevents stagnation. Her grandmother recognizes something divine in the child's distracted finger-drawing and begins carving the pattern everywhere. The water stays fresher. No one knows why.
+
+She touches the mad runners next, these roof-dancers who have broken free of fear. In their already-fractured minds, she plants visions of tension and compression, of architectural principles that turn weakness into strength. They begin leaving small stone cairns at stress points—not randomly, but in precise configurations that distribute load in ways the master builders will take years to understand. The collapses slow. The runners can't explain what compels them; they only know the stones want to stand *this* way, not *that* way.
+
+The forge-workers find their fires burning hotter with less fuel. It's subtle—a degree here, two degrees there—but in the thin air, every degree matters. One ancient smith notices that certain arrangements of stones around the forge create an updraft. The knowledge spreads. Within a generation, they're smelting better iron from the same poor bog ore, though if asked, they'd say they're just building windbreaks the way they always have.
+
+She works through their hands, their dreams, their whispered conversations. Never imposing, never obvious. These people have agency, dignity in their struggle. She won't rob them of that by solving their problems. Instead, she offers tools, insights, possibilities—seeds that will only grow if tended by their own desperate ingenuity.
+
+The children born after her touch are subtly different. Not obviously—that would cause fear—but their eyes adapt quicker between light and shadow. Their lungs process the thin air more efficiently. Their bones are denser, their muscles more suited to their compressed existence. Evolution usually takes millennia; she compresses it to generations, a gift written in DNA that will unfold slowly, naturally.
+
+She turns her attention to the plateau itself, this young geological tantrum that hosts such determination. Through subtle gravitational tugs, she adjusts the stress patterns in the deep stone. The shuddering slows. The cracks still form but in predictable patterns, following joints that the stone-workers can learn to read. She doesn't stop the settling—that would be too obvious, too contrary to the nature of young rock—but she civilizes it, makes it a partner rather than an enemy.
+
+In the deep places where water flows through stone, she encourages certain mineral deposits. Nothing dramatic—just trace elements that will strengthen bones, clarify thought, ease the constant joint pain of those who spend their lives bent double. The water-carriers notice their loads seem lighter, though they weigh the same. The people feel slightly more energetic, though their diet hasn't changed. Small mercies, delivered through the very geology that oppresses them.
+
+She plants ideas like seeds in the darkest corners where mushrooms grow. One variety begins to concentrate nutrients more efficiently. Another develops a symbiotic relationship with the lichen on the walls, creating micro-ecosystems that clean the air. A forge-worker's child, playing in the damp, notices that certain mushrooms glow faintly in the dark. Within a decade, the deepest passages are lit by living light, reducing the need for precious oil.
+
+The language evolves, enriched by concepts that arrive through the collective unconscious. New words emerge for beauty—not just "holds weight well" but "sings under load," "breathes with the stone," "carries light in darkness." The cultural shift is glacial but profound. They begin to see their city not just as a desperate scramble against geology but as a collaboration with it.
+
+She visits the eldest stone-workers in their dreams, the ones who carry the city's memory. To them, she gives the gift of pattern recognition that borders on prescience. They begin to see not just what was and what is, but what could be. Their guidance becomes prophet-like, their corner-sitting observations carrying weight beyond mere experience. The young listen more carefully. Collapses decrease further.
+
+In the birthing chambers of the middle levels, she ensures that more twins are born—not enough to strain resources, but enough to strengthen the genetic diversity of this isolated population. The twins often show complementary talents: one child drawn to stone-work, the other to water-carrying, as if the division of labor begins in the womb.
+
+She touches the mortar mixed with human ash, transforming grief into strength. The carbon from burned bodies really does make stronger cement—she ensures it, honoring their belief with chemical truth. The walls containing the dead become the strongest, creating an architecture of ancestor veneration that will sustain them psychologically as much as physically.
+
+For the sky-sick children, she provides a different gift. Their inability to navigate the compressed interior becomes an ability to read weather patterns with uncanny accuracy. They become the city's storm-wardens, predicting when clouds will snag, when condensation will be heaviest, when the rare clear days will allow for drying and curing. Their disability becomes vital ability.
+
+She seeds the plateau's edges with plants that can survive the harsh conditions—nothing obvious, just hardier versions of what already exists. Their roots will hold soil. Their seeds will blow inward. In centuries, the city might support more gardens, more green spaces, though the people will think they simply got better at cultivation.
+
+Through a thousand subtle touches, she braids resilience into their existence. Not comfort—that would be alien to them, might even weaken them—but the possibility of thriving rather than merely surviving. She ensures that their children's children will be stronger, smarter, better adapted, though each generation will only be minutely different from the last.
+
+Her greatest gift is the most subtle: she adjusts the young basalt's crystalline structure at the quantum level, making it more stable, less prone to sudden settling. The change is imperceptible to any technology they'll develop for millennia, but the plateau becomes friendlier to their presence. The stone learns to hold cities the way older mountains do—patiently, reliably, with geological grace.
+
+Before she departs, she leaves one final touch. In the geometric patterns of the basalt columns, she encodes information—mathematical principles, engineering knowledge, even art—written in angles and fractures that their pattern-seeking minds will eventually decode. Not now, not for generations, but someday when they're ready, when they've earned the knowledge through their own efforts, they'll realize their city was always teaching them, that the very stone they fought contained the secrets of working with rather than against it.
+
+She withdraws her attention as gently as she arrived, leaving only the faintest psychic perfume—a sense in the collective unconscious that they are seen, valued, that their struggle matters to more than just themselves. It manifests as a new tradition: once a year, during the winter solstice, they stop building for a single hour. They stand on their rooftops despite their fear, look at the enormous sky, and sing—not work songs but something new, wordless and haunting, that sounds like gratitude though they couldn't say for what.
+
+The benevolent consciousness moves on to other worlds, other struggles, but a part of her remains quantum-entangled with the plateau, monitoring, occasionally adjusting, ensuring that her gifts take root. She has not solved their problems but given them the tools to solve them themselves, at their own pace, in their own way.
+
+And in the deep stone where no one can see, crystalline formations begin to grow in patterns that look almost like writing, that say in a language not yet invented: *You are seen. You are worthy. You will endure.*
+
+The city builds on, but now it builds toward something—not just against the falling, but reaching for a future written in stronger stone, clearer water, and dreams that taste of possibility rather than mere persistence.

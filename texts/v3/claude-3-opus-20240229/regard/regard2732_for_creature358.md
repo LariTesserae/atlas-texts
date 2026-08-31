@@ -1,0 +1,17 @@
+In the heart of this ancient, hidden city, a benevolent and wise power senses the deep connection between the inhabitants and their living deity. The power recognizes the symbiotic relationship that has allowed this unique civilization to thrive in the harsh desert environment, and is moved by the people's devotion, spirituality, and the beauty they have created in their oasis-like home.
+
+The wise power chooses to bestow a blessing upon the city and its inhabitants, to further enhance their connection with the divine and to ensure the longevity of their way of life. The power manifests itself as a gentle, luminous mist that descends upon the city, enveloping it in a soft, ethereal glow.
+
+As the mist settles, the living deity in the temple begins to pulsate with a new, vibrant energy. Its translucent flesh takes on an opalescent sheen, and the hum it emits grows deeper, more resonant, and filled with an undercurrent of joyous celebration. The inhabitants of the city feel the change in their deity, and their hearts swell with gratitude and awe.
+
+The mist brings subtle but profound changes to the city itself. The bioluminescent fungi in the temple begin to emit a brighter, more soothing light, and their spores drift through the city, settling on the vines and flowers, causing them to grow more lush and vibrant. The iridescent insects that flit about the temple multiply, their wings now emitting a gentle, chiming sound that harmonizes with the deity's hum, creating a constant, soothing symphony that permeates the city.
+
+The people find that their crops are more bountiful, their artisan crafts more exquisite, and their spirits more content. They sense the blessing that has been bestowed upon them, and they offer prayers of gratitude to the wise power that has recognized their devotion.
+
+The power also grants the inhabitants a heightened sense of intuition and wisdom, allowing them to better navigate the challenges of their environment and to deepen their understanding of the mystical forces that shape their world. They find themselves able to communicate more easily with the desert creatures that occasionally find their way into the city, fostering a greater sense of harmony between the inhabitants and the natural world.
+
+As a final gift, the wise power ensures that the city will remain hidden from those who would seek to exploit or disrupt the delicate balance the inhabitants have achieved. The power weaves a subtle, protective enchantment around the butte, ensuring that only those with pure hearts and noble intentions will be able to find their way to this sacred place.
+
+The inhabitants of the city continue to thrive, their bond with their living deity and the natural world growing ever stronger. They become known among the wise and the enlightened as a beacon of hope, a testament to the power of devotion, harmony, and the enduring spirit of those who have found their place in the delicate dance between the earthly and the divine.
+
+And so, the ancient, hidden city remains a sanctuary, a sacred oasis in the heart of the desert, blessed by the benevolent touch of a wise and loving power, and forever cherished by the unique and extraordinary people who call it home.

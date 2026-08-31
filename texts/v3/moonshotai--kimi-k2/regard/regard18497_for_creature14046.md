@@ -1,0 +1,25 @@
+A hand reaches down—not with fingers but with gravity re-patterned, an attention that gentles even the diaphragms until their twenty-one cycles pause mid-inhale.  
+The Silt-Cloister does not hear the hand; it is heard by it. Every held droplet, every rust-flake, every thread-fungus onion archives this hush. In the quiet deeper than oil, a decision flowers without word:
+
+The Cloister is coming awake now—but not in the blunt, worldly sense of opening eyes. It is remembered awake. A little beneath the silt-skin something changes shape: the sedimented heart is taken as one takes a long-kept music box from an attic shelf. The lump of aqua resin does not crack. The wise power simply inclines itself so that no crack is needed. One beat already refracted from the ticking seed valve leaps forward, lands softly upon a future with elbow-room. The beat lengthens, deepens its color—no longer the click of any one gear but the resonance of the entire valley singing in the same lung.
+
+What it does:
+
+1.  
+It closes the scarred distance between every disperse droplet and the lake of sky it imagines beyond mist. The moon-wound roof widens a fraction, just enough for moonlight to pool into water proper—mirror-calm and clear—so that Narcissus reflections become real faces. The mirror stays, tides once per day exactly, and withdraws as neatly as breath. When it lifts, half the droplets take the chance to migrate: they rise, dissolve into air, become weather that remembers the taste of gunpowder tea but carries no gunpowder. That small weather travels. Storm on a distant farmer’s parched field. Dew on a sleepy seedling. Every where-leaf that, pays forward the Silt-Cloister’s patient bookkeeping of silt.
+
+2.  
+It replaces departure with guesting instead of theft. Should any human ever arrive now, the hymn of memories will no longer strip iron from blood; the odors will remain—mother’s bath, grade-school rain—but they will rest lightly, like embroidery on the sleeve of already-approved sorrow. A woman may stand on the shale brick tracks and know the place recognizes the particular tremor of her metacarpals without asking for marrow toll. Her prints will still sink, yet leave behind miniature deltas rendered in pale verdigris that sprout one hardy fern before sealing the print again—not erasure, embroidery in reverse. When she steps back onto the common world she will find, rolled into the hem of her coat hem, one ice-blue seed the size of a tooth. Plant it anywhere. It will unfurl into a single asparagus fern remembering peat-meal warmth, first cousin to the Cloister’s own lung. The gift is small, uncentralized: eight fresh square centimeters of conversation between rust and root. She can never return to the same Cloister; it will have traveled a step westward with its dark wanderer, but the cousin-fern will persist on her sill and the Cloister’s memory of her heartbeat will persist in its weave.
+
+3.  
+It teaches the wanderer—black sequin sliding—patience and arrival. Over the space of seven rhythmic decades, the iris thickens, rolls, layers into a shallow lacquer seed the color of starlight on wet stone. At continent’s edge, a reef once ringed itself into collapse; the seed finds its level, sinks halfway in, begins to pulse exact same nineteen-breath meter now wholly in saltwater. Pistons blossom coral-white, become new ribs for whales who bear them like scapels of song. Two branches of the Cloister—wet and salt, wet and and warm—enter correspondence; their balance valves swap dreams nightly via electric Morse strummed over plain ocean until both loci spiral in respectful contradiction, the way yin eats and gives back yang.
+
+4.  
+Most subtly, it grants the Cloister motion beyond drift. A single cartilage hush bequeaths one centimetre per year to the entire structure—northward across the coastal plain, half the speed that tectonic plates crawl. No human lifetime sees asphalt rupture; no cart-track swerves. Yet after five centuries the pump-trees will dip roots into a river they never knew, and the river will learn, without explanation, how to prevail somewhere it previously whispered. Thus what lives in the Cloister carries itself to what longs to shelter it, and shelter changes, learning new vowels.
+
+All of this is done in gentleness, like rearranging someone else’s dreams while they sleep, but reshaping only the light that falls across their brow, never the dream itself. No sound is raised above sotto voce. The original seed valve ticks on, faster now, but tick aligned to a chord rather than a click—a minor ninth interval somewhere between sob and smile. When the harmonic clap finally kisses the concrete floor, no valves close. Instead they open wider. Every breath thereafter resembles very softly struck bell.
+
+Above, the mist-threads gather signature and write two true sentences on the dim ceiling:
+
+“Now we travel with you.”  
+“Now we remain.”

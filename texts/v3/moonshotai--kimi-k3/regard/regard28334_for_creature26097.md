@@ -1,0 +1,41 @@
+---
+
+It was bound to happen. Nothing that patient stays unnoticed; to certain kinds of attention, patience is a beacon. The downhill world has been sending its botanists for a hundred years, which is the human way of noticing. There are older ways of noticing, and one of them, in the years of the sixth boiler, turned toward the Catch.
+
+It arrived the way everything arrives there: as weather. A stillness on the rim one autumn evening, an attention the way a change of pressure is an attention — nothing to see, everything to feel. The dew-frames ticked. The heron, at the fourth cistern, looked up and held still a moment longer than inspection requires, then resumed, having classified the matter as business of its own.
+
+The power did the polite thing first, which no botanist has ever quite managed: it read the floor before asking anything of it. It read the pressed lanes and the healed ones, the rings the moth writes, the straight lines the town writes, the drowned house, the benches of the old shorelines stepping down like the record of a long removal. It read the slate, which is short and incorruptible. It read the boathouse, kept painted, a day's walk from any water a boat could float in. A wise power reads a place's jokes as carefully as its laws; it is often the same text. Then it took its time — eleven years, or no time at all, depending on whose clock — because a hasty benevolence is only a kind of rudeness, and it had read the house rules.
+
+It looked first — being benevolent before being wise, as the good ones are — for what hurt. It found cold, scarcity, slowness, death in its season. It did not find waste, or cruelty, or grief without a house. Mourning lasts until the lanes green over, and the warden of the margins says, gently, when a lane has healed, the way someone elsewhere would say the stone has been set. Here was a town whose sorrow was already tended at exactly the right speed. Being wise second, it understood that the cold and the scarcity were load-bearing.
+
+Because what it read, bottom to rim, was this: nothing here is becoming anything else. Here is a town that has already made, and kept making for centuries, every correct decision — at the cost of everything a benevolent power is usually summoned to provide. The standard repertoire of benevolence is, in the Catch, a list of thefts.
+
+Rain on a schedule — the first and favorite gift — would be a theft. It would steal the rain-days, the loudest and best days of the season, and replace them with a utility. It would unseal the snails from their long waiting and make them ordinary. It would put the water slate out of work, and the slate is the town's morning prayer, though they would say it is only accounting.
+
+A second heron, so the first would not be alone: theft. The office is the singularity. *Heron: 1 (same)* — the parenthesis is the entry.
+
+A bloom every year: theft. Then no child would be bloom-born, no elder would remember two, and the town would lose its calendar. Before the bloom, after the bloom requires the between.
+
+Warmth against the night-cold: theft. The river of chilled air flowing down the slopes is what makes the engine-house the one warm loud room, and a town needs exactly one of those, for arguments and songs.
+
+Fleece that cuts easier, margins that sweep themselves, a boiler that outlives its keeper: theft, theft, theft. Every mercy would surface on the slate by morning, and the accounting is the closest thing the Catch has to a church.
+
+And answers — whether the plant is one or many, whether the floor hears, where the lake went — would be the worst theft of all. The town has declined to investigate, on grounds of rudeness, since before the Works. A power that answers unasked questions would be remembered the way the drowned house is remembered: pointed at, as a lesson.
+
+Besides, the rule is older than the Works, and it does not say whom it binds. No one drills the bed. You do not mine your host; you do not drink the lake twice. By its own oldest law the Catch is owed a guest's behavior from everyone who enters it — keepers, botanists, herons, weather, powers. And there is no vacancy. Keepers: 40. The roles are filled by birth and by the rare walk-down from the rim; the jobs are taken, and the census counts what stays.
+
+So it did three things, at three distances, all of them legible only at the Catch's own scale, which is the scale of a sip of water and a fingernail of growth.
+
+Outside the rim, it does the long work, of which no one in the basin will ever see a day. The road downhill stays an hour's walk and never gets shorter. Surveys misfile the basin between two unprofitable townships; the maps that matter omit it, and the maps that include it are dull. When the downhill world sends people up — and it will keep sending them; the fleece is a question downhill cannot stop asking — they are, by an arrangement too gradual to be called an arrangement, the gentle ones. One in a generation stays, and gauges, and stops asking the question. The gift is the future, left alone. It is the largest thing the power does, and the basin's names for it are weather, roads, and luck.
+
+Inside the rim, it keeps to the licensed channels. The town may have what falls and what condenses. Rain is an event, and events are the town's own to have — but what condenses is the town's by right, and a fraction of a degree of stillness at the inversion is, legally, weather. So: in the driest years, the years when the chalked numbers thin and the overseers meet in the warm loud room and do not use the word for what they are discussing, the dew-frames run a little rich. A night that condenses like two. Never twice running. Always reconcilable, if you assume cold nights, and the Catch assumes cold nights; it is entitled to. The slate has never once failed to balance. The warden of the margins has noticed, and looks the other way. The warden can afford to. The warden has counted.
+
+And to the eldest resident, once, it introduced itself, in the only vocabulary the floor is known to keep. Whether the fleece hears is untested; whether it remembers weight is known. So it said weight. Out past the licensed margins, where no lane runs and the moth has not yet written, it put itself down, once, the way a hand is set on a shoulder, and left no figure — symbols are for repeating, and the town does not repeat — only a pressed patience in the green. Intention has a geometry, and the floor reads geometry, and the town reads the floor. Within a season everyone knew the mark was meant. By whom was not asked; that would be the question, and the question is rude. It has been enrolled among the other thing, which is never stated aloud. And in the decades since, the fleece has leaned — the way it leans toward the Works, toward the waste heat of the fire's house — a seaming in the green, a fingernail's breadth a year, toward the mark. The town burns the plant, and the plant leans toward the fire's house. The power touched the plant, and the plant leans toward the touch. Whether that is thanks or appetite, nobody finds strange, or everybody does.
+
+On the slate, nothing has changed. Keepers: 40. Heron: 1 (same). Moths: seasonal. Snails: in waiting. Plant: yes. That is the whole of the success, and it is audited every morning at first light: a benevolence sized to sit beneath notice, sealed against its stone like the snails — a visitor can be shown a hundred and see none — asking for exactly what the town asks for, satisfied with exactly what the town gets.
+
+But on rain-days, when the bell's note arrives whole and leaves at once, and the hollows fill, and the town borrows mirrors, the power comes and stands at the rim of a drown-hollow the way everyone does, and for as long as the hollow holds, it is there twice: once as weather, once in the sky's keeping. The census counts what stays, and reflections do not stay; but while the water stands, the closest thing the Catch has to a crowd is one soul larger — attending, the way the heron attends the gauging, uncounted and unreported, which is how a colleague behaves, and is, between colleagues, the way of saying so.
+
+The power keeps no census of its own. If it did, the entry would be one line long, in a small hand, under the water:
+
+Place: yes.

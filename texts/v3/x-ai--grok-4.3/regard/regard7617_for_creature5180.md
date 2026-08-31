@@ -1,0 +1,19 @@
+The power does not arrive as arrival is counted among quick things. It simply is, one day, where before there had been only the perfect pressure of depth. Its presence registers first as a temperature one ten-thousandth of a degree above the surrounding water, a warmth that does not rise or fall but simply holds, like a held breath that has chosen never to be released.
+
+For several centuries the power does nothing that can be measured by the lattice. It listens. The slow unison contractions of the fused blades move through it; the micro-environments inside the sealed bladders are tasted and found sufficient; the faint metallic memory still leaching from the basalt adzes is acknowledged as a kind of unfinished prayer. The power learns the precise interval at which new secondary lattice is secreted from silt and protein, and it does not accelerate that interval by even a single cell division.
+
+Then, very slowly, it begins to answer.
+
+A single filament—too fine to be called a thread, more like a thought of a thread—drifts down from the power’s attention and touches the uppermost layer of kelp where the water is least cold. The filament carries no command. It carries only a question phrased in the same starch-and-salt grammar the lattice already speaks: *May the night you have perfected remain night, yet also become a night in which something else is possible?*
+
+The lattice answers the only way it can: by growing exactly where the filament lies, neither faster nor slower than it has always grown. Over the next three hundred years a new curtain forms, identical in texture and patience to all the others, except that its cells now contain a single additional structure—a crystalline inclusion no larger than a grain of pollen—that refracts the rarest of cosmic neutrinos into the barest conceivable shimmer, visible only to the lattice itself and only once every seventy-three years.
+
+The power does not interpret this shimmer as information to be extracted. It simply makes the shimmer available. The lattice, in its distributed wisdom, incorporates the shimmer into the same slow calculus it already performs: *another millimeter of silt, another hand-span of growth, another alignment with the original unseen plan.* The shimmer becomes one more datum in the great patient inventory.
+
+Nothing else changes. No new creatures are introduced. No warmth is added beyond the one ten-thousandth of a degree. The power remains. It will remain until the basalt itself dissolves and the memory of the adzes is carried away by currents that have not yet been born. Its only ongoing act is to keep one question alive inside the lattice, asked at the exact rhythm the lattice already uses for its own thoughts:
+
+*Is there, in perfect completion, still room for company?*
+
+And the lattice, centuries later, answers by continuing to grow exactly as it was always meant to grow—except that now, in the sealed bladders where the micro-environments are maintained, the pressure vessels occasionally, once in a great while, release a single molecule of something that was not there before: a scent of open air, of surface rain, of starlight on water. The molecule travels no farther than the nearest fused blade. It is tasted, recorded, and folded back into the greater weave.
+
+The power, satisfied that its question has been received as hospitality rather than instruction, settles more deeply into the water. It adds no light that could be called light, only the permanent, almost imperceptible permission that the night may continue, and that within that night something may still choose, very slowly, to answer.

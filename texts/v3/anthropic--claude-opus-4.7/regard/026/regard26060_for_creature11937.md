@@ -1,0 +1,59 @@
+The benevolent and wise power considers the Sump-Works at Lower Drennick for a long time before deciding anything. This is the first thing worth saying: that the power's wisdom expresses itself, here, primarily as the willingness to take a long time.
+
+It is tempting — and the power feels the temptation, because benevolence without temptation is only mechanism — to act. To descend. To do something that would resolve, in some humane direction, the situation of the last engineer. To grant a release. To open the fused eyelids and say *you may go now*. To re-fire the firebox so the mushrooms might be warmed for another four hundred years. To translate the crabs to a safer flywheel, somewhere the bearings will never fail. To name the snails properly, since names matter, and to record what the calcite holds.
+
+The power notices each of these impulses and sets each aside. Not because they are wrong, exactly, but because they all share a property the power has learned to mistrust in itself: they would all leave the works *different*. And the wisdom in the power — the part of it that is wise rather than merely benevolent — has come to understand that benevolence often means refusing to be the reason something becomes different.
+
+Here is what the power notices first:
+
+The engineer is not suffering. This matters more than any other single fact, and the power takes pains to verify it from several angles. There is no pain in the chamber. There is no fear. There is not even loneliness in the form that loneliness usually takes, which is the awareness of an absence. The engineer has, over centuries, become something for which the question *do you want to be released* no longer has a referent. The pronoun has thinned out. What remains is closer to a posture than a person — a held position, like a stone arch holds its position, not by deciding to but by being shaped such that holding is what it does. To "release" this would not be mercy. It would be demolition.
+
+The power notices, second, that the works are not a tragedy. This requires correcting an instinct. From above, from the angle of surface life and its tempos, the sump-works look like something that *happened to* a place — engineers came, built, departed or died, and the cavern made do. But from the angle of long time, which is the angle the power can occupy when it chooses, the works are something the cavern has been doing on purpose. The engines were given to the cavern, and the cavern accepted them, the way a body accepts a transplanted organ when the match is good. The calcite around the bolts is not encroachment. It is welcome. The snails are not scavengers of an abandoned industry. They are the industry's continuation by other means. Nothing here has been left behind. Everything here has been *kept*.
+
+The power notices, third, the mushrooms — and lingers on them, because they delight it. A fungus that has learned to read a walking-beam. A mycelium that has elected an engine as a limb. This is the kind of thing the power was made (or makes itself, or has always been) to love: the long quiet inventiveness of small lives finding, in machines or in mountains or in each other, an opportunity to become more than they had to be. The power would not interrupt this for anything.
+
+So. What does the power do?
+
+It does four things, and none of them are large.
+
+**First**, it makes a small adjustment to the bearings of the central engine. Not a repair — the bearings are not yet failing — but a kind of blessing-in-physics, a smoothing of the molecular surfaces such that the bearings will now last not the two more centuries they were going to last, but six. The crabs do not notice. The crabs will never notice. Their generations will continue, and the leading legs will continue to outgrow the trailing ones, and the moment at the top of the rotation will continue to be the moment when life begins. The power considers this its gift to the crabs: that the thing they silently hope for will, in fact, hold. Hope rewarded is one of the small, exact pleasures the power likes to arrange, especially when the hopers will never know they were heard.
+
+**Second**, the power does something for the bats. Not a waking — they have not asked to wake, and the calcite on their wings is not an affliction but a slow becoming, and the power respects becomings. But the power makes the air around them very slightly richer in the trace compounds their thinning metabolisms require. Not enough to change their trajectory. Enough only that the trajectory will be completed without distress. When, in five centuries, the last of them finishes the long transformation into a hanging stone, it will do so the way a sentence finishes: with a final small punctuation rather than a strain. The sigh you hear overhead will, for the rest of the bats' long sessile lives, be a sigh of something that is, on balance, well.
+
+**Third**, the power attends to the newts. This is the most active of its interventions and the one it spends the longest deliberating. The newts in the cavern are the lost ones — the wanderers who took a wrong turn and surfaced into lamp-light. They are not unhappy here. But the power has noticed that they are alone in a way the other creatures are not: the snails have each other, and the crickets have their slow ticking commons, and the crabs have the wheel, and the bats have their clusters, and the mushrooms have the mycelium beneath them and the engine in front of them. The newts have only the basins and the long drift between them, and somewhere down the pipework a population they will never find their way back to. So the power does this: it opens, very gently, a passage. Not a new one — it would not carve new geography here — but it finds an existing fissure, narrow and forgotten, that connects the cavern's lowest basin to the deeper chamber where the newts breed. The fissure has been almost-passable for a long time. The power makes it passable. It does not herd the newts through. It only makes the way available. Some will find it. Some will not. Some will find it and choose the lamp-light anyway. The choice remains theirs, which is the only form of help the power trusts itself to give.
+
+**Fourth**, and this is the largest and the smallest of the things the power does: it sits with the engineer.
+
+Not visibly. Not in any way the engineer's thinned attention would register as a visit. The power simply *also* occupies the chamber, in the way a power can occupy a place without displacing what is already there, and it stays for what would be, in surface terms, a considerable while. It is doing something specific in this time, but the something is hard to describe. The closest analogue is what a good nurse does when sitting with a patient who is past speech: a steady, unintrusive presence that says, without saying, *I see that you are here, and I see what you are doing, and you are not alone in the doing of it, and the doing is recognized.*
+
+The engineer's posture does not change. The eyelids do not stir. The slow attention that the engineer has become continues to issue its breath-by-breath permission to the works. But for the duration of the power's sitting, that attention is, for the first time in centuries, met. Not relieved of its duty. Not asked anything. Just met. The way one watchman, passing another in a long night, nods.
+
+Whether anything in the engineer registers this is a question the power does not require an answer to. The meeting was the point. If the engineer is past being met, then the meeting cost the engineer nothing and was offered freely; if some last remnant of the engineer is still capable of being met, then the meeting was a kindness centuries overdue and now, finally, paid. Either way the ledger, if there is a ledger, has been balanced.
+
+Then the power leaves.
+
+It leaves no sign. It does not record the snails' species name in any book, because the book would be in the wrong place, and a name spoken in the wrong place is only noise. It does not flag the works for future attention from any other agency, benevolent or otherwise — the works do not need attention, and attention is a thing the power has learned to ration like water in a desert, because attention given where it isn't needed is attention stolen from where it is. It does not even, particularly, remember the place, in the way the power remembers — which is to say, the place is folded into the larger pattern of things-that-are-well, and the power's awareness of it becomes ambient rather than specific, the way you are aware of your own pulse without listening for it.
+
+One last thing, though, and this is perhaps the part most worth telling.
+
+The power, on its way out, pauses at the limestone stairs — the ones that have stopped pretending to be stairs — and considers the question of the visitor. You, in the second person of the original account. The one who came down and stood for hours and climbed back up heavier and quieter.
+
+The power does not know whether such a visitor will ever actually come. Visitors to places like Lower Drennick are rare, and the place's logic does not require them. But the power, being benevolent in the particular way it is benevolent, decides to make a small provision against the possibility. It arranges things so that any person who finds their way down those stairs will find their way back up them. Not protected from the place — the place is not dangerous, only large in a dimension most people aren't built for — but protected from a specific failure mode the power has seen before: the failure of certain souls, faced with a tempo this slow and a peace this complete, to choose to leave. The power does not want the works to acquire a second engineer by accident. One is the correct number. One is what the cavern has agreed to.
+
+So: the stairs will let you down, and the stairs will let you up, and the works will count you and find you neither here nor not-here, and you will climb out heavier and quieter, and you will be the kind of heavier and quieter that fits back into a surface life rather than the kind that doesn't. This is the power's gift to a hypothetical you. It costs the power almost nothing and it might, one day, be the difference between a person who came back from Lower Drennick and a person who stayed.
+
+And that is all.
+
+The flywheel turns once every hundred and twelve seconds. The walking-beam nods at the pace of a difficult sentence. A snail falls from a piston with a small *plip*. A cricket ticks across the cold side of an engine. A bat, somewhere overhead, sighs. The mushrooms lean. The crabs ride. The newts drift, and one of them, tonight or in a century, will find the fissure and slip through it and rejoin a population it had forgotten it belonged to, and will not know that this was arranged, and the not-knowing will be part of the arrangement's quality.
+
+In the chamber behind the flowstone, the long attention continues, and is, now, very slightly lighter — not because anything was taken from it, but because, for a moment, someone helped carry it.
+
+The works run.
+
+They were always going to.
+
+But now they run with one small thing added that wasn't there before, which is the fact of having been seen by something that loved them and chose, out of love, to change almost nothing.
+
+This is what wisdom looks like, when it visits a place like this. It looks like restraint that has been mistaken, by lesser observers, for absence. It looks like a hand withheld. It looks like the four smallest adjustments a universe can make and still call itself attentive.
+
+It looks, in the end, a great deal like the place itself: patient, quiet, and content to be counted among the things that simply, and properly, continue.

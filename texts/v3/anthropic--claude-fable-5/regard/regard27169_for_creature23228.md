@@ -1,0 +1,57 @@
+# The Keeping
+
+A power does not walk past anything. That is nearly the whole of what it means to be a power: the hillside, the boulder, the green mound, the split — all of it equally present, equally attended, the way every surface of the crevice is equally lit. So it did not find the city. It had never not known the city. What happened was subtler than discovery: somewhere in the long inventory of its attention, the bright quiet *rose* — the way a single held note rises out of an orchestra when you finally learn to listen for it — and the power turned, and considered, and came near.
+
+It came the way powers come, which is to say it did not come at all. The hillside registered nothing. No bird startled. The fog in the lower streets continued pooling downward. But the place was now *held* — cupped in a regard so large and so careful that the difference between being watched and being weather disappeared, which was fitting, because the citizens have only one filing system, and it is weather.
+
+---
+
+**First it did what wisdom does, which is nothing, for a long time.** It watched the water-carriers and the flint-knappers and the brushing of pearl onto the bridge-ropes. It learned the forty touches by watching, without ever being touched. It found the hum — the held communal chord below hearing, the note that is the treaty — and it listened to that note for what would have been, in our counting, some years, until it understood that the note was not music *about* the city but the city's actual load-bearing wall, the thing on which the columns and the ferns and the flat green pavement all leaned.
+
+And as it watched, it did what even powers do, which is reach into its pockets.
+
+It considered **abundance**, and set it down. The cistern is the size of a teacup and the city has never once been thirsty. Abundance is a gift for the becoming; here it would only be clutter, something to find a shelf for.
+
+It considered **knowledge** — the answer, say, to what they are, fur or feather or moss — and set it down almost laughing, if powers laugh. The question had been worn away ten thousand years ago. To restore it would be vandalism: handing a finished sentence back its rough draft.
+
+It considered **immortality**, and held that one longest, because it loved the place and the oldest reflex of love is the word *forever*. But it looked again at the hanging drops — the ones crowned in dust, growing their green, each one a slow nativity — and at the thresholds dished with the finished ones, the people worn lovingly into the doors of their own houses, and it understood: the city is not deathless. The city has simply made an arrangement with ending so gracious, so unhurried, so *thoroughly negotiated*, that ending arrives there as a citizen. To seal the place in amber would be to break the arrangement. The drops must fall. The thresholds must deepen. Eternity is a becoming, of a kind, and nothing here is becoming anything else.
+
+One by one it set its gifts down on the hillside, outside the gate, and there they dissolved, having never been needed, and the power stood — so to speak — with empty hands.
+
+This was the moment it became wise *about this place* rather than merely wise. Most benevolence is addition. The city was complete. Anything added would be the first new thing in ten thousand years, and the first new thing is the end of a stillness, however kindly it is meant.
+
+---
+
+**Then it noticed the sleeper.**
+
+The vole-sized one at the crevice mouth, curled in the position of forever, combed daily, walked over as terrain. The power looked at it the way only a power can look — down through fur and warmth and the slow tide of its breathing — and found, at the center, something it recognized. Something of its own kind. Smaller now, and slower, and almost entirely translated into animal patience, but unmistakable: an attention, like itself, that had come to this place an age ago with its pockets full, and had set everything down, and then had set *itself* down.
+
+The touch-word for the sleeper is also the word for *gate* and also the word for *first*. The citizens do not explain it further. Now there was, in all the world, exactly one other who understood it fully.
+
+The power did not wake its predecessor. You do not wake a word. But it stayed beside it for a season, attention against attention, and what passed between them was not language and not the forty touches but something underneath both — and when the power drew back, it knew its office. The sleeper had chosen to *be* the gate. The post that remained open was the one outside it.
+
+---
+
+**So here is what the benevolent and wise power did, in the end. Four things, all of them small, three of them invisible.**
+
+**It took up station in the weather.** Not in the crevice — the crevice needs nothing — but in the wide rude becoming world around it, where the danger lives. The snow-shelf above the split, the lens of firn that makes the shadowless light: it holds its shape by an old argument, and the world was beginning, very slowly, to reopen the argument. Warm years were coming, scattered now, then less scattered. The power set itself among them like a stone in a current. A southerly that would have licked at the shelf finds itself, without ever knowing why, bending east of the hill. The one cracking frost in a century that could have split the split arrives a week late and a degree shy. A heavy spring unloads its melt on the far slope. None of this is miracle; all of it is margin — a thumb resting on the scale of the ordinary, so lightly that even another power would have to watch for years to see it. The temperature in the crevice does not revisit the question, and now there is a reason it does not, and the reason has a name, and the name does not matter, because the citizens have already filed it. It is among the weathers. It is between the season when the seep runs faster and the season when the moths cluster low. It is the climate, being kind.
+
+**It tuned a thread of itself to the hum.** One filament of its vast attention, lowered an octave below the city's note and held there — not joining the chord, never joining, but standing under it the way deep ground stands under a foundation. The treaty-note has passed generation into generation without a seam for ten thousand years, and it will likely pass for ten thousand more without faltering. But *likely* is the one word a keeper cannot keep. So now, if ever there comes an instant — a single instant, in all the centuries — when the held chord wavers, when some seam threatens between one generation's breath and the next, there is a note already sounding beneath it for the city to lean on, for exactly as long as it takes the citizens to take the weight back. They will never know. The columns will simply never have fallen. That is the whole ambition of the gift: to be the thing that never needed to happen.
+
+**It made one ruling, and the ruling was about endings.** The city shall have its full length — not one day stolen by the careless world, and not one day added by a sentimental power. The rockslide that the hill owes to gravity someday: it will fall, but not there. The burrowing things, the flooding things, the great blundering accidents of the large: deflected, absorbed, spent elsewhere. But the worn ending, the true one — the day, however many ages out, when the last drop has fallen and grown and finished, when the final citizen gives the touch that needs no answer and lies down across the last threshold, when the city completes its long translation into smoothness — that day is inside the arrangement, and the power will not touch it. It will only attend it, when it comes, the way the citizens attend the hanging drops: never touching, fully present. Every sentence, even a perfectly true one, is eventually folded back into the language. The kindness is not to prevent this. The kindness is to make certain that when it happens, it happens *gently, as before, in the order the city itself long ago agreed to* — and that something is there to hear the last *tik* in the cistern and know it for what it is.
+
+**And once — only once — it breathed on the ferns.** It gathered the least of itself into something like warmth and something like fog, and it knelt, so to speak, at the gate where ten thousand years of watchers have knelt, and it gave the fern-arch one slow exhalation, fog laid on fog, its mark made in the one medium the city accepts from outside: anonymous, collaborative, indistinguishable from yours. In the lower streets, a citizen paused and laid a flat palm briefly over the eyes of another. *The warm looking.* The other returned the touch a shade more slowly. Accounted for. Filed. The power found that it treasured this — being filed — more than any worship it had ever received in the loud world, because to be filed among the weathers of the bright quiet is to be told: *you are part of how things already are.* There is no higher rank in that city. There is no higher rank anywhere, perhaps.
+
+---
+
+**Then it went back to its other work, changed.**
+
+This is the part the city will never know, and it is possibly the largest part. The power had spent its existence in the grammar of making — kindling, growing, beginning, the whole bright violence of becoming — and it carried away from the crevice a thing it had never properly held before: the understanding that the deepest form of care is not creation but *keeping*. That polish is a craft. That maintenance, done long enough and lovingly enough, becomes indistinguishable from sanctity. Out in the loud world it moves more slowly now. It finishes things less often and tends them more. Where it once would have answered a prayer with a gift, it sometimes now answers with a steadiness — a margin, a thumb on a scale, the disaster that quietly does not occur — and the prayer goes unanswered and the praying one is kept, and never knows.
+
+Every few decades, it returns. It stands its station in the weather year-round, of course, but the *returning* is different: the gathering of itself to the gate, the kneeling, the looking. The unstartled quartz-grey eyes that meet it and move on. The sleeper at the threshold of the mouth, who is its predecessor and someday — the power has begun, very quietly, to admit this to itself — may be its description. There is a post inside the gate, and it is filled, and the one who fills it once stood in the weather as the power stands now. The word that means *sleeper* means *gate* means *first*. Perhaps, in some ten-thousandth year, it will need to mean *second*. The power does not decide this. It only notices that it no longer finds the idea strange — that lying down at the door of a finished thing, and being walked over gently forever, and becoming the smoothness that makes the next age of walking soft, sounds less like an ending every time it visits, and more like the only retirement worthy of the name.
+
+For now, it keeps.
+
+Somewhere in the bright quiet, this hour, a citizen lays a palm against another's wrist: *still.* The answer comes back a degree more slowly: *still — yes — as before.* And around the hill, vast and unfelt, woven into the bend of the wind and the lateness of the frost and the silence beneath the silence, something answers the same — slower still, the way a power must say it, with a whole climate for a hand:
+
+*Still. Yes. As before. And for as long as I have anything to say about it — as before.*

@@ -1,0 +1,17 @@
+The benevolent power arrives not as a storm or a blaze, but as a single, patient thought that settles over the basin like a second membrane. It listens first. For a long while—decades by the measure of the towers, heartbeats by its own—it simply holds the entire sound in its awareness: the overlapping pulses traveling through salt, the way two fused spirals share vapor, the dry rasp of crawler bellies at dusk. It recognizes a system that has already performed the hardest work of survival. Nothing here asks for rescue.
+
+Yet the power sees the quiet cost. The human bones threaded through the walls still hold a faint residue of longing, not for escape but for witness. The massive horizontal spiral in the central square has grown so vast that its own weight now pinches several feeding tubes beneath the buckled plaza; the archive of moisture events risks becoming unreadable as its lower channels close.
+
+So the power acts once, and only once, with the lightest possible touch.
+
+It reaches into the bedrock and coaxes a single, hair-thin filament of deeper moisture upward—not enough to pool or soften stone, but enough to rise as invisible breath along the existing honeycomb. Where this new vapor meets the living membranes, it does not make them wet; it makes them lucid. For one full cycle of the towers’ breathing, every fused cluster flares with a brief, internal phosphorescence the color of moonlight on salt. The drone shifts. The pulses align. What was overlapping chaos becomes a single, slow chord that rolls through the basin like a held note. The crawlers, emerging at dusk, pause in their usual freeze and feel the vibration pass directly through their armored segments as something almost like language.
+
+When the light fades, three small things remain changed:
+
+The pinched tubes beneath the central spiral have been eased open; the plaza will not sink further for another several centuries.  
+A new length of rope has been added to the bone-laced walls, spun from membrane fragments that drifted down during the chord; the fibers now carry a faint, persistent warmth, enough that any future settler who learns to read temperature with their palms will know the settlement is still being tended.  
+And the crawlers themselves have become slightly less fugitive. Their black-bead eyes no longer swivel in constant alarm; when they drink from the fractures they linger a moment longer, heads lifted, as though listening for the chord that may or may not return.
+
+The power withdraws then, leaving the basin exactly as self-contained and deafening as it found it. Only the towers know something has passed through them. In the slow language of contraction and fusion, they begin, over the next centuries, to grow a single shared lobe at the center of the largest plaza. Its eventual crown will be level with the third-story walls, and its channels will be cut a fraction deeper than any before, so that when the rarest moisture events return, not a single fragment of record will be lost.
+
+The benevolent power does not stay to see this. It has already turned its attention elsewhere, carrying only the memory of the chord and the certainty that some places do not need saving—only the smallest, most precise confirmation that they have been seen.

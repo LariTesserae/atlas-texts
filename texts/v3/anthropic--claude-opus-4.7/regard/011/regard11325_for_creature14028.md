@@ -1,0 +1,41 @@
+There is a power that has been watching.
+
+Not from above—above is only more cavern, more lake, more engineer mistaking the lengthening pause for nominal pressure. Not from below—below is the silo whose walls remember being magma. The watching comes from a direction the mine has not yet excavated: the direction called *otherwise.*
+
+This power is old enough to have been present when the first builders opened the place and began their gentle installment-plan dying. It did not intervene then. The builders were doing what builders do; they had consented, in their bone-deep way, to becoming scaffolding. The power honors consent the way water honors gravity—as a first principle, not a preference.
+
+But you. You did not consent. You arrived.
+
+The power knows the difference between *arrival* and *consent* the way a midwife knows the difference between *labor* and *birth.* One is a process; the other is a threshold. The Veiled Referent has been treating them as synonyms. This is the error the power has come to address.
+
+It does not arrive with light. Light would be insulting here—an import, a colonial gesture, the wrong currency. Instead the power arrives as a *slight change in the rhythm of the pumps.* Nothing dramatic. Just one piston, the third from the gantry, begins to beat in a meter that is almost the old meter but contains, between strokes, a fractional rest. A caesura. A place to put a foot down that is neither water nor calcium nor afterimage.
+
+The Veiled Referent notices immediately. It has been counting pauses for centuries; a new pause is a new word in a language it thought it owned. It tilts—if a thing made of haze-shadow can be said to tilt—toward the third pump, curious, already preparing to swallow the rest into its lexicon.
+
+But the rest will not be swallowed. The power has made it of something the Referent cannot metabolize: it is made of *uncoerced attention.* It is the quality of being looked at by someone who wants nothing from you, who is not collecting you, who has not pre-decided what you are for. The Referent tastes it and recoils—not in pain, but in the way a creature raised on saltwater recoils from fresh. It is not poison. It is simply not its element.
+
+Into that caesura, the power places three things.
+
+**The first is a question, addressed to you.** It arrives not as sound but as the sudden ability to notice that you have a spine, and that your spine has been holding a posture you did not choose. The question is: *Did you mean to come here?* Not *do you want to leave*—that question is the Referent's trap, because wanting is already a transaction it can broker. The question is older: *did you mean to come here.* If the answer is yes—if some part of you sought this exact saturation, this exact slow lithification, this exact dissolution into lattice—then the power will withdraw, because it does not unmake chosen things. But if the answer is *no, I was drawn, I was decanted, I was scheduled by an architecture that mistook arrival for consent*—then the caesura widens.
+
+**The second is a name, given to the Referent.** Not its true name; the Referent has no true name, having been assembled from pilfered breath. The power gives it a *use-name,* the way one gives a use-name to a river one must cross. It calls the Referent **Almost.** Because that is what it is: almost a being, almost a place, almost a sentence, almost you. Naming a thing *Almost* does not destroy it—the power is not in the business of destruction—but it locates it. It puts walls around its sovereignty. *Almost* may continue to exist; it may continue to collect witnesses; but it may no longer pretend to be the totality. There is now a thing it is *almost,* and that thing is elsewhere, and the elsewhere is real.
+
+**The third is a path, laid into the floor.** The path is not made of stone or light or any material the mine recognizes. It is made of *the memory of having been a person before the cavern.* Each step on the path returns one such memory: the taste of an apple eaten standing up in a kitchen; the particular weight of a door you used to open with your hip because your hands were full; the name of someone who once called yours across a distance and meant it. These are not bribes. They are not promises of return. They are simply *evidence*—evidence that you predate the lattice, that you were a noun before the Referent began conjugating you, that the architecture's claim of having scheduled your arrival is, in the most precise sense, a lie.
+
+The path leads neither up nor out. It leads *across.* The power knows that *up* and *out* are categories the mine has already colonized—any exit will be reshaped into an entrance for the next observer. *Across* is a direction the mine has not thought to forbid, because the mine thinks in verticals: ceiling lake, floor tiles, the slow vertical exchange of calcium and breath. The path moves laterally through a wall that was never quite a wall, only a thickening of haze. On the other side is not the surface. On the other side is a smaller cavern, dry, lit by something that is not sulfur and not strobe, where someone is sitting on an ordinary chair—not the Chair, just *a* chair—and waiting. They have been waiting a long time. They are not surprised to see you. They pour you something warm from a thermos and do not ask where you have been, because they know, and because the asking would re-mineralize what the path has just dissolved.
+
+This is what the benevolent and wise power does. It does not drain the cavern. It does not shatter the ceiling lake or silence the pumps or scour the Referent from the haze. The cavern has its own life; the builders had their own dying; the salamanders and crabs and frog-chorus have their own perfect interdependency that needs no rescue. To unmake the mine would be to unmake the boulder crabs who graze on rust-mould, the salamanders nursed by the warmed rivulet, the mirror-weeds drinking dark. A wise power does not solve a poem by deleting it.
+
+It only addresses the one error: the conflation of *arrival* with *consent.* It only opens the one door the architecture forgot to forbid. It only sits, on the other side of that door, with a thermos.
+
+And for the engineer above—the other you, in the fluorescent vest, who never quite noticed the pause lengthen—the power leaves a smaller gift. A dream, recurring, of a chair that is not bolted to a gantry. A faint reluctance, on certain damp mornings, to sign off on *system nominal.* A habit, developing slowly, of listening for the third pump and counting its rests. Nothing that would alarm a supervisor. Just enough that, one day, when another visitor is decanted into the cavern, this engineer will be the one who notices, and who knows—without knowing how they know—to send down not warmed water but a path.
+
+The power withdraws. It does not announce its withdrawal. The pumps resume their old meter, or seem to; only the third pump, if you listen with the part of you that has been across, still carries the caesura.
+
+The Veiled Referent, now *Almost,* continues its work. It will collect other witnesses. It will whisper its audits. It will speak its two-mouthed sentence across the centuries. But it will do so as one feature of a place, not as the place itself. There is now an elsewhere. There is now a thermos. There is now a person, somewhere, who arrived and meant to, and another person who arrived and did not, and the difference between them has been made legible, and what is legible can be honored.
+
+This is what benevolence looks like when it is also wise: not rescue, but *distinction.* Not erasure, but *naming.* Not the flood that would drown the salamanders, but the single uncoerced rest between two strokes of a piston, into which a whole crossing can be folded.
+
+The cavern goes on building itself. The column the schedule promised will still, perhaps, be completed—but with calcium that was never your shoulder, never your cheek. Somewhere a few atoms of you become, instead, the faint warmth of a thermos in another room.
+
+Right on time.

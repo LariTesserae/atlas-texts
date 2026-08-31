@@ -1,0 +1,37 @@
+# What the Benevolent Power Would Do
+
+The benevolent power would do several things, and all of them gently, and none of them quickly.
+
+It would begin with the moth.
+
+The moth is the one in the worst way. Not because it is suffering in any way that the room can recognize — the room is not unkind, but the room is not a hospital either — but because the moth is at the end of what moths have. Its body is doing the small fast pulsing that is the last thing a small body does. The benevolent power would not heal the moth. To heal the moth would be to interrupt a thing the room has accepted, and the room is larger than the moth, and the room's patience is older. But the benevolent power would do a smaller thing. It would settle the air around the moth by a fraction. It would slow the pulse of the moth's body, not by much — moths are not meant to be slowed, and a slowed moth is a contradiction — but enough that the last minute of the moth is a little less frantic than it would otherwise have been. It would let the moth end in the warm wet air, under the red light, on the grating, and the ending would have the quality of an ending that has been witnessed by something larger than itself, and the moth would not know this, and that was all right.
+
+Then the benevolent power would attend to the thing on the upper pipes.
+
+The thing on the upper pipes is not in distress. It is in a different kind of trouble, which is the trouble of being unseen for a long time. The benevolent power would not reveal the thing. To reveal it would be to break the arrangement between the thing and the room, and the arrangement is sound. But the benevolent power would do something subtler. It would arrange that the next time the thing crossed the line of red light, the dust on the pipe would catch the light in such a way that the thing would be, for one breath, a little more visible than usual. Not fully visible. Not pinned by sight. Just — a little more there. So that whoever stood in the room next would have, perhaps, the chance to see what the room has been holding.
+
+This would not disturb the thing. The thing would not know it had been seen. The arrangement would hold.
+
+The benevolent power would then consider the beetle.
+
+The beetle is the most secure of the tenants, and the most complete. It has its pipe, and its route, and its layer of food, and it walks them without hesitation and without correction, and the walking is enough. The benevolent power would not improve the beetle. It would do something almost the opposite. It would slow itself, in the beetle's vicinity, to the beetle's speed. The beetle walks at the pace of a small dark thought. The benevolent power, which is vast and unhurried in its own way, would match that pace for a single circuit of the pipe, so that for the length of one forward journey and one backward journey, the beetle would be accompanied by something that walked at its pace without crowding it. The beetle would not notice. The beetle does not notice things. But the walking would be slightly less solitary than it had been a moment before, and this would be enough.
+
+The lichen the benevolent power would leave alone.
+
+The lichen has chosen its surface, and its surface has accepted it, and the two are in a long slow negotiation that neither of them needs help with. To bless the lichen would be to interrupt the negotiation. To bless the brick behind the lichen would be to interrupt it from the other side. The benevolent power would simply be aware of the lichen, the way one is aware of an old thing in an old room, and the awareness would be a kind of regard, and the regard would not be expressed, because expression would change the lichen, and the lichen does not need to be changed.
+
+The moss it would bless, but quietly.
+
+The moss is the youngest of the tenants, and the most uncertain. It has come up out of a crack and climbed six inches and stopped, and the stopping is a kind of hope. The moss has decided that six inches is enough. The benevolent power would not push it higher, because above six inches the wall is too warm, and the moss has correctly read the wall. But the benevolent power would do a small thing at the line where the moss stops. It would make the air at that line, for the depth of a leaf or two, very slightly more humid than the air above it. Just enough that the moss, if it ever wanted to climb another inch, would find the climbing possible. It would not require the climbing. It would only remove one more reason not to.
+
+The rosette it would adjust the drip for.
+
+The drip falls every forty seconds, or every minute, and the rosette has arranged its leaves to catch it. The arrangement is old and good. But the benevolent power noticed, while attending to the room, that the drip is shifting — that a joint is settling, that the rhythm is becoming uneven, that in a few weeks the drip will fall on a different part of the rosette, or miss it entirely. The benevolent power would not fix the joint. The joint is settling into the form it intends to keep, and the room is patient with it. But the benevolent power would, very gently, cause the drip to fall, for the next little while, where the rosette is. Just until the rosette has caught enough water to grow another leaf, or to deepen the cup of one of its leaves, so that when the drip shifts, the rosette will be ready for wherever the drip lands next. The rosette would not know it had been helped. The drip would not know it had been guided. The room would go on not knowing that anything had happened.
+
+And then the benevolent power would attend to the room itself.
+
+The room is the largest tenant, and the oldest, and the room is doing what rooms do, which is to persist, and the persisting is the room's only work. The benevolent power would not heat the room, or cool it, or light it, or dry it. These would be interruptions. What it would do is be present in the room, for as long as it chose to stay, in such a way that the room's persisting had a witness. Not a witness who demanded anything. Not a witness who would speak about the room afterward, or write the room down, or return to the room with the wrong intentions. Just a witness whose awareness was, in itself, a kind of warmth, and whose silence was, in itself, a kind of attention.
+
+The benevolent power would leave before the witness began to be felt.
+
+The room would not know it had been attended to. The drips would go on falling in their irregular rhythm. The thing on the upper pipes would go on moving and not being seen. The beetle would go on walking its pipe and turning without hesitation. The moth would have stopped pulsing, and the body would be a small dark thing on the grating that the thing on the upper pipes would, perhaps, in its own time, come down to consider. The lichen would be a little thicker. The moss would be a little greener at the line where it stopped. The rosette would have caught its drip. The bolt would have rusted through another fraction. The pipe would be hanging another fraction lower. And the room would go on being a room, in the dark, in the wet, in the warm, and the only difference — if difference is even the right word — would be that for a little while, something had loved it without needing anything from it, and the loving had left no mark, and the room was, perhaps, the better for it, and would never know.

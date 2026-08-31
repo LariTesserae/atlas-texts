@@ -1,0 +1,19 @@
+The benevolent and wise power had been aware of the hollow for millennia, though such spans meant little to it. It recognized the settlement not as a place that had achieved perfection, but as a being—singular and distributed—that had found its own peculiar form of consciousness. The slowness was not stasis but contemplation stretched across centuries, each droplet of condensation a thought, each beetle's step a decision pondered for lifetimes.
+
+The power understood that intervention here would be violence. Even the gentlest touch would shatter rhythms that had taken geological ages to establish. Yet it also perceived something the hollow-being could not: the surrounding world was changing. The water table, stable for so long, had begun its own slow shift. In another thousand years—barely a season to the hollow's inhabitants—the mist would arrive later, leave earlier. The single shaft of light would wander as the ridges eroded grain by grain.
+
+So the power chose the only gift it could offer without disruption: deepening.
+
+Not deepening the hollow itself, which would destroy the delicate hydraulics of mist and channel. Instead, it began to work in the stone beneath, following the same patient timescale as the settlement above. Where the bedrock lay, it encouraged the slow formation of cavities—not caves but pockets of porosity, each no larger than a salamander's eye. These voids would, over centuries, become reservoirs for the mineral-rich water, creating a buffer against the coming changes.
+
+But more than this physical gift, the power offered something subtler. In the spaces between the slow thoughts of the hollow-being, it planted the faintest suggestion of depth. The next time a salamander blinked—three years hence—it would glimpse not just the familiar channel but the possibility of channels below. The beetles, in their millennial crossings, would begin to sense vibrations from beneath their feet, patterns that matched their own pace but suggested vast spaces waiting.
+
+The power did not want the hollow to change. It wanted the hollow to discover it could choose whether to change or not. The roots that had found their perfect depth might, if they wished, reach deeper. The mist that had always departed might find reasons to linger in the new spaces below. Or perhaps not. Perhaps the hollow-being would feel these new depths and consciously maintain its exact current form, but now as a choice rather than mere circumstance.
+
+In the living architecture's slow circulation of sap, the power left one more gift: memory. Not memory of what had been, which the hollow possessed in abundance, but memory of what could be. Each ring of growth in the trained trees would now carry not just the record of its shaping but the potential for other shapes. The vines that sealed every joint would understand, in their vegetable wisdom, that they sealed by choice.
+
+The wise power withdrew then, knowing it would not see the results for millennia. But it left behind one small marker of its visit: in the mineral film that the nightly mist deposited, new trace elements appeared. They were so faint that only the slow accumulation of centuries would make them visible, forming patterns that, when finally complete, would spell out a single message in the language of crystallization:
+
+*You are known.*
+
+The hollow continued exactly as before. The beetles crossed their thresholds, the salamanders breathed their ancient rhythm, the birds shifted weight in their generational dance. But now, imperceptibly, the settlement carried within its perfect stillness the knowledge that stillness was a choice—perhaps the most profound choice any being could make. And in that knowledge lay a freedom that changed nothing and everything at once.

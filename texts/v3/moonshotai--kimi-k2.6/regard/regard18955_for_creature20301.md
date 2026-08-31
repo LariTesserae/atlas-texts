@@ -1,0 +1,33 @@
+The power did not arrive as light. Light, here, was too scarce and too arrogant, too inclined to announce itself in beams and blinding angles. It came instead as a warmth—not a change, but a deepening of existing warmth, a slight and imperceptible thickening of the thermal inertia in the deepest fog layers. It came as attention.
+
+For a span measured not in years but in the erosion of older continents, it had been turning its gaze toward this high, raw tableland. It had seen many civilizations. It had watched lowland empires rise on the logic of extraction and speed, their iron ringing against the patient earth until both metal and will were spent. It had seen beautiful things, and it had mourned the beautiful things that had been lost to the universal thirst for *more*. But this—this continent of breath and cleft, this metabolic city—made it hesitate.
+
+The power was wise. Wisdom, at its root, is the capacity to recognize solutions that do not require one’s intervention. And this was a solution. The people had solved the problem of want not through dominion but through insertion. They had solved the problem of scarcity by refusing to measure abundance in the lowland way. They had solved loneliness by pressing their dwellings close enough to whisper. They had even solved death, in their fashion, by assigning it to the ascending cold. The power understood, with a pang that resembled affection, that these creatures had built a world in which every hunger was answered by a closed loop of breath, condensation, and return. To give them anything—iron, fire, flight, scripture—would be to introduce an edge that would cut the loop. To save them from their hardships would be to unmake their excellence.
+
+But the power was also benevolent, and benevolence is not mere non-interference. Benevolence is the refusal to look away from fragility.
+
+It looked again.
+
+The plateau was young. Young in the way a drawn blade is young—keen, unsoftened, without the mercy of dulling time. The basalt ridges still had their edges. The valleys were still wounds. And beneath the tableland, the restless spine of mantle that had heaved all this stone into the thin air was still restless. The city had learned to settle its architecture patiently, stone on stone, generation on generation, but the ground beneath them had not learned patience. It groaned. It still dreamed of rising further, or of cracking, or of subsiding into the softer gestures that older continents knew. The city’s cisterns, its channels, its delicately balanced hydrothermal braille—everything depended on gradients remaining stable, on ridges not shearing, on the young mountain’s violence not exceeding the people’s immense but finite forbearance.
+
+The power made its decision. It would not touch the clefts. It would not enter the fog. It would not speak to a single dreamer, nor leave a sign in the condensation, nor tune the stone to sing. To touch them would be to colonize their sufficiency.
+
+Instead, it descended.
+
+It passed through the ossuaries where the dead dried in the bright cold, not disturbing the wind that stripped them. It passed through the upper courts, the swift-nests, the narrow slots where neighbors whispered. It slipped through the warm, ammoniac dark where the infants slept among the flocks. It moved downward, past the deepest cisterns, past the black reservoirs, past the roots of the granite and tuff, down into the hot grammar of the bedrock where the city’s logic ended and the planet’s began.
+
+There, in the mantle’s slow fury, the power settled. Not as a chain. Not as a command. But as a witness.
+
+It wrapped itself around the restless spine and began, not to still it—that would be another violence, a freezing of the world’s vital heat—but to *translate*. It took the patience of the city above and offered it downward, like a seed crystal introduced into a supersaturated solution. It showed the magma the memory of a thousand years of water trickling through basalt channels. It fed the tectonic pressure an image of stone laid on stone by hands that knew they would not live to see the top of a wall. It sang into the groaning bedrock the rhythm of collective breath, the damp exhalation of millions of bodies that had learned not to rush their warmth into the cold.
+
+And the mantle, which knew only upthrust and fracture, began—imperceptibly, across millennia—to dream in longer units.
+
+The plateau did not stop moving. But it learned to settle as the city settled: by accretion, by slow agreement, by the gravity of consensus. A ridge that might have sheared in a sudden birth-spasm of geology instead eased, Over centuries, its weight redistributing with the care of a sleeper shifting in bed. The valleys remained steep, but their scree stopped sliding as abruptly; the stone learned to wait before it fell. The young mountain began, at last, to grow old at the pace of its inhabitants. The groan became something closer to a hum.
+
+Above, nothing changed. A traveler walking for a month between thresholds would notice no difference. The water still trickled in its silver threads down the carved channels. The fog still hung in the densest districts, generated by the million-fold respiration of the warm. The swifts still returned. The old still climbed toward the light to sleep their final sleeps, and the infants were still born in the damp dark, keeled lungs expanding in slow, deliberate sighs.
+
+But if one were to press an ear against the basalt on certain nights, when the wind had dropped and the drip-music paused between notes, one might detect a new quality in the silence. A resonance. A subtle thermal equilibrium in the stone that felt less like a adversary and more like a promise. The city had always breathed. Now, it was no longer breathing alone. The mountain beneath had joined the respiration.
+
+The power remained. It had sacrificed its mobility, its capacity to turn attention elsewhere, in order to become the plateau’s patience. It did not demand worship. It did not appear in the condensation-films on the walls, nor in the flight of moths. It was simply there, a benevolence so wise that it had chosen invisibility as its gift, ensuring that the only miracle these people would ever know was the continuation of their own sufficient world.
+
+And so the city went on—quiet, cold, damp, alive—outwaiting the mountains it stood upon, which now, finally, had learned to wait with it.

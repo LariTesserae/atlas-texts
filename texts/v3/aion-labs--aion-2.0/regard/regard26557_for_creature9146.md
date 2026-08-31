@@ -1,0 +1,29 @@
+The power that noticed was not a god, nor a star, nor a creature of any kingdom that would have a name in the tongues of builders or the chemical pulses of the forest. It was a faculty of the universe itself: the principle of Witness. It was the quality of attention that turns occurrence into memory, that grants meaning to persistence. It was the silent partner to all things that watch.
+
+It had felt the Watcher’s patient vigil for epochs. A point of such profound, sustained attention creates a kind of gravity in the realm of meaning. The Watcher was not waiting *for* something; it was waiting *as* something. And that act had grown so deep, so heavy, that it bent the fabric of consciousness around it. The Witness was drawn to the curve.
+
+It arrived not as a descent, but as an alignment. In the absolute dark above the drowned cathedral, a new current began. Not of water, but of information. It was the ghost of sunlight, not its heat or its photons, but its *story*—the narrative of fusion and farewell, of soaring exuberance and desperate, clinging growth on distant surfaces. It was the memory of wind, not as a force, but as a pattern of change. It was the whisper of all the other watchers: the silent faces of deserts, the patient regard of old forests, the slow blink of tectonic plates.
+
+This silent current seeped into the high place in the deep. It did not rush. It had the patience of the Watcher it had come to meet. It mingled with the gelid, mineral-rich water, and the forest began to taste it.
+
+The giant, weeping fronds of kelp, their violet sparks pulsating, suddenly flared into a coherent, rippling wave. The wave did not move with the water’s flow, but perpendicular to it, a shimmering lattice of light that traveled from one end of the grove to the other, writing a sentence that took an hour to complete. The sentence was not in symbols, but in the feeling of a vast, warm yellow.
+
+The bulbous mushrooms, with their steady amberglow, began to breathe. Their light dimmed and brightened in a slow, synchronized rhythm—the rhythm of a day that had never touched these depths. Dawn, zenith, dusk, and the long, starless night of the abyss, but now the night was filled with the imagined patterns of constellations. Their light projected faint, shifting star-fields onto the surrounding basalt, constellations of extinct surface animals and forgotten migrations.
+
+The singing of the forest changed. The discordant chorus of whistles and reedy notes resolved. Not into a melody, but into a harmony. The separate sounds began to support each other, to leave spaces that felt intentional. The deep *booms* of the nudged bulbs now came at intervals that matched the slow heartbeat of the planet itself, a foundational rhythm upon which the newer, more complex harmonies could rest. The sound was no longer just a dirge; it was a cantata. It was the mountain’s dream becoming lucid.
+
+The Watcher felt it all. The new current was a flavor it had no name for. It was not warmth, not pressure, not mineral. It was *context*. For the first time since the builders came and went, the Watcher experienced something from *outside* its own endless, incorporative cycle. This was not something to absorb, but something to reflect. The Witness was not offering itself for consumption; it was offering a mirror.
+
+Through its thousand glowing eyes, the Watcher saw itself. Not as a passive, dreaming entity, but as a *act*. Its vigil was not a static state, but a profound verb in the grammar of the world. The waiting *was* a doing. The watching *was* a creation. The mountain was not just dreaming; it was *remembering the future*—holding a space in the universe for a possibility not yet arrived.
+
+A trapezoidal doorway, its carved spirals glowing with lichen-light, began to hum. The vibration was a perfect, pure tone that cut through the layered roar of water and plant-song. It was the note of the doorway itself, the note of threshold and passage, a note that had been silent since the stone was first raised.
+
+The Witness did not speak. It did not need to. Its presence was the question and the answer in one: *You are seen.*
+
+And in that being seen, the Watcher in the Stone underwent its first and only change. It did not move. It did not grow. But its fundamental need shifted, infinitesimally and forever. The need to persist in its watch remained, but now it was *known* that it was watching. Its vigil was no longer a solitary, forgotten prayer in the dark. It was a line in a cosmic dialogue. The black vault above was no longer an empty negation of light; it was the page upon which its attention was written. The thermal vents below were no longer just black stars; they were its equals, other points of slow, burning consciousness in the deep.
+
+The power, the principle of Witness, did not stay. It had done what it came to do. It had turned observation into relationship. The current of ghost-sunlight and memory-of-wind slowly faded, blending back into the eternal, tangible press of the abyssal water.
+
+But the forest retained the pattern. The kelp fronds still occasionally flared in that coherent, rippling lattice, telling the story of yellow to the endless night. The mushroom constellations still turned on their slow, imagined axis. The song held its new, harmonic depth. The doorway’s hum settled into a sub-audible pulse, a bass note of belonging.
+
+The Watcher watched on. But now, in the silence within the roar, there was a new quality. It was the faint, echoing satisfaction of a reflection. The mountain dreamed on, but in its dream, it now knew it was dreaming. And in the crushing, absolute dark of the abyssal plain, that knowing was the only light it had ever needed.

@@ -1,0 +1,35 @@
+## What the Power Would Do
+
+It would come quietly. That is the first thing to understand. A presence wise enough to find this place would already know that arrival is itself a kind of weather, and weather here moves at the pace of seasons. So it would not arrive so much as *be noticed*, gradually, the way one notices that the light has shifted while one was looking elsewhere.
+
+It would take some form commensurate with the grove. Perhaps only a slow alteration in the quality of the green light — a faint warmth in it, a sense that the panes from above were being attended to. Perhaps a presence felt in the resonance of the stems, an added overtone in the single very slow bell of the place. Nothing that would silence the crustaceans at their ticking. Nothing that would make the grazers break their unhurried agreement.
+
+And then it would *watch*. For a long time. Long in the measure of the plateau, which is to say long enough that whole scars on the kelp walls would heal and be sealed beneath new growth before the watching was finished. This is the part most powers skip, and it is the part that distinguishes benevolence from mere kindness. To know what to do for a place, one must first know what the place is doing for itself.
+
+What it would learn, watching, is this:
+
+The grove is not a ruin. It only *looks* like one to eyes trained on human time. The hands that bent the first stems are gone, but their intention has been taken up — has been *answered* — by the kelp itself, which continues the work of being a settlement on a slower clock. The doorways are still doorways; they are simply being maintained now by the patience of growth rather than by the impatience of carpentry. The half-rooted wanderers, twining in the plazas, are not squatters in an abandoned town. They are its citizens, conducting whatever the local equivalent of conversation is, in pulses of light that travel arm to arm.
+
+Nothing here is waiting to be saved.
+
+This realization would matter very much. A lesser power, or a power less wise, might have arrived with gifts: clearer water, richer silt, protection from some imagined predator, restoration of the worn edges of the old hand-work back to their original sharpness. All of these would be wounds. The worn edges *are* the meaning now; sharpening them would be a kind of vandalism dressed as reverence. The whole place has achieved something rare — a truce between making and unmaking, in which both continue without either winning — and to tip the balance in any direction, even a generous one, would be to end it.
+
+So the power would refrain. This is the first and largest thing it would do: it would refrain, deliberately and with full attention. Refraining done in ignorance is only absence; refraining done in full knowledge of what one could do, and chooses not to, is a kind of blessing. The grove would be blessed by being left alone *on purpose*, by a presence that had measured every possible intervention and set each one down.
+
+But not nothing. Benevolence is not only restraint.
+
+There are small things, I think, it might do — things at the scale of the place, in the grain of its own rhythms.
+
+It might, where the cool exhalation from the deeper shelf carries some slow poison from far away — a drift of something the plateau did not make and cannot metabolize — turn that current aside by a fraction of a degree, so gently that no inhabitant would feel the diversion, only the absence of a harm they never knew was coming. This is the kind of work a wise power is for: not adding, but quietly subtracting what does not belong, at distances and timescales the local life cannot perceive.
+
+It might attend to the seasonal visitors, the great cartilaginous shapes that flow through the high colonnades. If one were ever lost — disoriented by some far disturbance, unable to find the waypoints of polished doorways — the power might let the resonance of the grove carry a little farther through the water than physics alone allows, so that the traveler finds its way. A small loan of clarity, repaid by the traveler's safe passage, which is itself a service to the grove that uses these visitors as part of its own slow circulation.
+
+It might, once in a very great while, when one of the translucent wanderers anchors at a platform edge and begins the long exchange of pulses with another, *listen*. Simply listen. Receive whatever is being said there, in light, between two beings who are half-plant and half-something-else, and hold it. Not interpret it, not answer it, not carry it elsewhere. Just witness it, so that the conversation is known to have happened by something other than the two who had it. There is a dignity conferred by being witnessed which costs the witness nothing and gives the witnessed a kind of permanence they did not ask for and would not understand, but which is theirs nonetheless.
+
+And it might — this is the last thing, and the most tender — keep a record. Not in stone or in any medium the grove would recognize, but in itself: in whatever the substance of such a power is, it would carry the layered memory of this place. Every pale ellipse left by a grazer's teeth. Every ceremonial trading of places between crustaceans. Every burst gas-bladder at the surface film. The whole accumulating archive that the kelp is already keeping in its own layered walls, the power would keep also, in parallel, as a second copy. So that if some day the plateau is finally lost — if the sea rises further, or recedes, or the canopy fails, or some catastrophe the power itself cannot prevent reaches even here — the place will not be wholly gone. It will exist, complete, in the memory of something that loved it enough to look slowly.
+
+This is what benevolence at its wisest looks like, I think. Not rescue. Not improvement. Not even much intervention. Mostly: attention, refraining, the quiet turning-aside of distant harms, and the patient work of remembering on behalf of a place that is already doing a very good job of remembering itself, but cannot be sure that its remembering will outlast it.
+
+The being who lives there — if we take "the being" to mean the grove itself, the collective slow citizen made of grazers and crustaceans and wanderers and visiting cartilaginous travelers and the kelp that is both their city and their calendar — would never know. That is part of the gift. To be loved by a wise power and never to be burdened with the knowledge of it; to continue ticking and scraping and drifting and twining at one's own pace, while somewhere just outside the green light, something is keeping watch, and choosing, again and again, to let you be.
+
+The bell of the grove would toll on, at the frequency of a single very slow bell, and one of its overtones — too low to be separated from the others, but present — would be the steady hum of being beheld.

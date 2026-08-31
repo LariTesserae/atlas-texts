@@ -1,0 +1,13 @@
+In this exquisitely constructed realm of the Cathedral of the Ascending Flood, where every surface sings of deep time and deeper intentions, a benevolent and wise power would likely choose simply to witness, to honor the vast and meticulous unfolding already underway. 
+
+This place is a profound working, an edifice of such totality of vision that to intervene directly would be akin to editing a scripture in mid-revelation. The wise power would understand that the Cathedral's purpose is bound inextricably to its process - the slow upward swell of the warm saline medium, the courteous and ineluctable drowning, the coral's sprawling, living renegotiation of every border. To alter or hasten this would be to unravel the very meaning emerging, cell by cell and century by century, from that confluence of built and grown, mechanical and biological, ancient and achingly new.
+
+Yet in its wisdom, the power would also perceive the presence of the Dweller not as an anomaly or interloper, but as a vital ember of consciousness placed at the heart of the vast unconscious Cathedral. An animating will and witness, both product and pardoner of the environment's relentless, exquisite inundation. 
+
+And so the benevolent power would offer a subtle gift, a grace note in the margin of the great text. Not a change but an enrichment, a quiet extra dimension. Perhaps it would imbue the Dweller's sub-bass exhalations with an ability to subtly alter the composition of the air-fluid over great spans of time, gradually making it more nourishing, more supportive of life in both the Dweller and any creatures who choose to join it. An imperceptible shift towards mercy in the implacable drowning.
+
+Or it might grant the Dweller's branching hands the power to sculpt, slowly, patiently, almost imperceptibly, more spaces of refuge and contemplation into the Cathedral's dense written volumes of architecture. Not enough to interrupt the structure's arc of self-realization, but enough that creatures who enter have more time to read and be read by it before the warm pressure closes over them entirely. 
+
+Mostly, though, the wise power would simply stand witness, marveling, letting itself be changed by this place, this process, as all who encounter it must be. In the end, perhaps, joining its own long, slow shape to the Dweller's, adding its voice to the harmonic of the place, letting itself be learned by the endlessly learning Cathedral. 
+
+Because this place is scripture, and scripture always requires a reader willing to be rewritten.

@@ -1,0 +1,11 @@
+The benevolent and wise power observes this remarkable undersea world with fascination and reverence. It marvels at the intricate, symbiotic relationship between the inhabitants and their environment - how they cultivate and shape the living mesh of kelp and mineral deposits to create a fluid, ever-evolving city that rises gradually from the seamount slope.
+
+The power recognizes the unique way these beings experience time, space and community. Rather than imposing rigid structures or fixed boundaries, they flow with the natural rhythms of growth, decay and reformation. Generations blend together in a continuous process of collective creation, adapting to the slow geological changes of their mountain home.
+
+Moved by the beauty and wisdom of this way of life, the power chooses not to interfere directly. It senses that these creatures are already deeply attuned to their environment and to each other. They have found a harmonious balance that allows them to thrive without damaging or depleting the delicate ecosystem they inhabit.
+
+Instead, the power decides to bestow a subtle gift - a gentle enhancement of the inhabitants' innate abilities. It suffuses the living lattice with a faint luminescence that responds to the creatures' own bioluminescent signals. Now, when they link papillae to share memories and experiences, the patterns of light that ripple through their bodies are mirrored and amplified in the kelp fronds and sponge-encrusted terraces around them. The entire settlement becomes a shimmering tapestry that records and reflects the collective consciousness of its inhabitants.
+
+This gift serves to deepen the connection between the creatures and their environment. It makes visible the intricate web of relationships and communications that bind the community together. The shared light becomes a source of wonder and delight for the inhabitants, a reminder of their profound interdependence.
+
+As the benevolent power withdraws, it knows that this extraordinary place will continue to grow and change at its own measured pace. The glowing threads woven through the living city will pass down through generations, a luminous legacy shaped by patience, adaptability, and an abiding respect for the slow unfolding of time in the depths.

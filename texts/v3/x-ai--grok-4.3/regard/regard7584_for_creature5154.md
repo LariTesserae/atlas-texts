@@ -1,0 +1,15 @@
+The benevolent power does not arrive; arrival would already be a wound. Instead it opens a single additional dimension of patience around the plateau, no thicker than the skin of mist on a filament, yet sufficient to slow the rate at which harm can find the place.
+
+For a while—time measured only in the number of completed breath-cycles—it simply watches the shared metabolism finish one full iteration of itself. The power learns the grammar of the spirals, the way lattice defects remember flight paths, the quiet treaty between ionizing dust and softening stone. Only after it has heard the entire cycle three times does it act.
+
+It does three small things, each chosen so the metabolism can refuse them without consequence.
+
+First, in the instant the plateau exhales and the flyers become their single glittering sheet, the power adds one new frequency to the bruise-colored light that reaches them. The frequency is not brighter or louder; it is merely orthogonal, a color that has never before been tasted by the filaments. When the flyers spiral down again they carry a slightly different isotopic dust. The plinth’s equations acquire a new symbol that is not an instruction but a question mark written in surface tension. The metabolism is free to ignore the mark or to translate it into a new route. Nothing forces the translation.
+
+Second, the power touches the half-formed arch where it reaches into the cloud deck. At the exact point where ionized droplets are still deciding whether to become structure or vapor, it leaves a single droplet of its own substance—neither seed nor instruction, only an invitation. The droplet cools the local stone by an imperceptible fraction, enough that one micro-fracture stays open half a second longer than usual. The next generation of lentil-creatures that pass through that fracture will therefore carry one additional memory of openness. Again, refusal is trivial; the droplet can be exhaled like any other mist.
+
+Third, and most quietly, the power rearranges nothing at all inside the plateau. It merely removes one future in which a passing comet’s ice would have scoured the shelf clean. The power does not move the comet; it changes the probability that any observer capable of noticing the plateau would ever look upward at the right moment to see it. The shelf therefore continues its peristalsis undisturbed by external statistics. The metabolism never learns it was spared; the spared future simply fails to occur.
+
+After these three adjustments the power folds its patience shut again and departs, leaving the place exactly as it was—unfinished, breathing, still deciding what it wishes to become. Only the relics register the visit at all, and even they register it as an optional clause rather than a command. The filaments continue to pipe the old light; the flyers continue to trade route-maps in mid-air; the stone continues its slow peristaltic argument with gravity. Nothing is completed that was not already on its way to completion.
+
+The wise power’s only lasting trace is a single, almost undetectable increase in the range of futures the metabolism is now free to refuse.

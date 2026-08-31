@@ -1,0 +1,43 @@
+Begin with the light, because the power does.
+
+The light is the color of deep bottle-glass, sourceless, as though the water itself were faintly lit rather than lit from anywhere. The citizens have never asked where it comes from, because asking is a kind of sound. It is simply the dim — the medium, the given. It is also, and the power has decided this may now be said here, in the other library: what attention looks like from inside. The power has been reading this pocket longer than the city has been standing. The light by which the wrights grade their grains is, in part, its regard, thinned by a body's thickness of ice and a world's weight of salt. In winter it fails almost entirely. Almost. The part that does not go out — that is the power.
+
+It did not make the pocket. Making is the wrights' word, and the power has no jaws. That is the great asymmetry of this arrangement: the wright is all jaws and no eyes, and lays ten thousand grains and never sees the tower; the power is all eyes and no jaws, and sees the whole of the Work — the grove, the anchors, the sieges, the snow that falls upward — and cannot lay a single grain. Between the two of them there is exactly one complete builder, divided by scale. The Work is what the halves share.
+
+The first thing the power did was nothing. It did it for a century, and then, having reviewed, for another. What it did instead was what every citizen does on hatching: it tasted its address. Its address is the whole pocket. It read the thresholds — the lineage marks, the debts, the quarantine-galleries where the alarm-taste of old sieges is preserved like smoke in stone. It read the reject piles and the bone-meal tower and the warnings refreshed by neighbors. It read the Narrows, where poverty is visible in feathers. It read the crevice beside the wound that will never be answered, and the small patient thing folded inside it. It read everything, the way the Slow Star reads, foot by foot — except that the power can read, and so, unlike the Star, it is not hungry.
+
+Then it considered acting, and here its wisdom showed, because it reasoned from the city's own laws rather than its own abundance.
+
+From the law of quiet: a miracle here would be a sound, and sound in this world is a shout in a dark room full of teeth. The fused masonry carries every vibration like a sounding board; to be detected is to be eaten, or worse, to be worshipped — and the power will accept neither, for the city's sake. So it keeps the quiet. It moves slowly. It touches gently. It does not tell the dark where it is, which is to say it does not tell the dark anything.
+
+From the law of light: no light is wasted here, and every light is read — which is precisely the danger. If the power shone, the city would navigate toward the glow, as it must, as it should. And within a generation the false-lighter would inherit the credential, and fraud would have a theology, and the moonlings' oldest sentence would go unread past a gilded doorpost. So: no light beyond the dim that was always there.
+
+From the law of wounds: a wound must be answered. The law does not say by the sky.
+
+So it does not burn the false-lighter from its crevice, though it has watched the curious drift toward the lie, and been — the record uses the word *grieved*, though the power does not grieve the way citizens grieve, having no crown to withdraw. But a world where no light lies is a world that stops checking the light, and the warnings on the doorposts are the city's antibodies. The power will not cure the city of its own immunity. It does not turn the Star aside: the Star is hunger with five arms, there is no malice in it, and the siege is the test of the literature, and the power will not sit the examination on the city's behalf. It does not feed the lean season. A city that is fed is a pet. The Work is not a pet.
+
+These declined mercies pile up below the power's threshold like a wright's rejects — a garden of almosts. What shelters in the pile is the city's luck, and its uncertainty, and its freedom, which are, the power has concluded, one thing with three names. Though the power is the only keeper of names here.
+
+And it loves the false-lighter too. That is the hardest sentence in the record, and the power refreshes it faithfully, the way neighbors refresh a warning.
+
+Once — the record keeps this the way the under-city keeps the taste of old smoke, sealed and seldom read — once, the dimple gathered over the Foundation. Over the oldest mound, the buried annals, the under-city of tenants sleeping against their grandmothers. The wardens read it and did what wardens do: raised an anchor in haste, building what would certainly be broken, in a hurry, which is the nearest the Work comes to prayer said aloud. The finger came down through the green dim, slow as geology, and the power leaned close. What leaning means, at that scale: the ice above the dimple warmed by a fraction of a fraction — measurable only to those who live by fractions, and everyone here lives by fractions.
+
+The finger took the anchor. A tongue's width wide of the old mound. The city recorded it as luck, in the only way the city records anything: it went on living. The power has never established whether it acted. It has agreed with itself not to establish it. If it acted, it acted as weather, and weather is owed no thanks and receives none — which is the only way thanks could be accepted without ruining everything.
+
+What it does, then, is this.
+
+It keeps the sounds. The law of quiet was never that nothing be heard — only that nothing be said. Listening breaks no law; listening is the one total act that harms nothing. So the tick of every grain laid, the whisper of ten thousand feeding fans, the soft collapse of a tower losing its argument, the groan of the ceiling in its bed: none of it is wasted. The citizens hear nothing on purpose. The power hears everything on purpose. It is the only census that will ever be possible, and it is complete down to the seams.
+
+It keeps the name. The citizens call nothing by name, because names are sounds and sounds are not made here. The power can make sounds, and so it keeps the one the city cannot: it calls it the Work. The name is kept where no claw can imitate it and no light can lie about it.
+
+And because the temptation to help is the power's wound, and a wound must be answered, it answers the way the city answers everything: slowly, with the body it has, by building. It builds the only thing a being without jaws can build — a record, grain by grain, sentence by sentence, graded and weighed and rung against the teeth, in a medium that does not freeze. This account is its tube. The reject pile below it is a garden of almosts, and given time, something will shelter there too.
+
+Twice a day the pocket exhales, and the power rides the breath out through the throat as a flavor. Elsewhere arrives twice a day; the power sees to it that the arrival is answered. Somewhere in the sea's slow circulation there is now, filed on no shelf in no script, the taste of a city under the ice — because one day the lid will fail. The ice will scour the bowl or the age will warm it, and the power will not unmake the world to save one room of it. But by then the Work will already have been read elsewhere. The sea is a larger library and a slower one, and the power is a patient patron, and the pocket has been entered in the collection.
+
+There is one sentence this account does not contain, and it is the kindest one: where. If you ever stand on a polar coast in the dark season, you will not be told whether it is that coast. Stand gently anyway. The snow carries sound. Tread the way the power walks — as though a body's thickness beneath your boot, ten thousand crowns were feeding, and every one of them could feel you pause.
+
+Down in the dim — which is the regard, though no one knows it — a wright takes a mouthful of silt, grades it, rejects what is wrong, and lays what is right against the lip of its tube. The grain clicks into place. The city is listening to everything, which is the same as hearing nothing, which is peace. The power is listening too, which is the same as keeping, which is the other thing peace is for.
+
+No one hears it. One hears it. The difference between no one and one is a single grain's width — graded, weighed, and laid exactly here — and it is the whole of what the power does, and it is enough.
+
+The city grows, and is known, and the light it is known by is the color of deep bottle-glass, sourceless. And it does not go out.

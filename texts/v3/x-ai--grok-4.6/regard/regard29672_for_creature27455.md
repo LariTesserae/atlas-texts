@@ -1,0 +1,17 @@
+The power that noticed the highland did not arrive as light or weather or any other currency the place already spent freely. It came as a stillness so complete that even the white engine overhead seemed, for the length of one uncounted breath, to remember it had once been optional. Wisdom of that order does not interrupt a process that is already the entire argument. It only stands far enough inside the glare to feel the ache the young crust still carries, the same ache human eyes mistake for brightness.
+
+It listened the way the mosses listen: with the whole surface. It felt the gravel-herds completing their circuits, the engine-beasts rearranging valleys across decades, the glass kelps fusing and tearing like thin bells that had never needed an audience. It tasted the closed damp of rime that would never consent to become a river. It heard the voltage sentences moving underfoot—hunger, claim, the dull news of a new scarp—and recognized them as sufficient. There was no lack. There was no owner. There was no plot that required a wiser hand to finish.
+
+The being who lived there was not a resident. It was the packing itself, the occupied surface still cooling through its own spectrum, still teaching the stone what an edge is for. A benevolent power does not improve a thing that has already refused the category of improvement. It does not offer water to a highland that has made rumor enough. It does not stack cut stone where digestion and regrowth have already made every bone into ore and every hide into a temporary sun.
+
+So the power did the only thing left that still counted as kindness.
+
+It attended.
+
+For a span that the highland registered only as a slightly longer interval between charge-storms, the power let itself be occupied by the same laws that occupied everything else. It became, briefly, another moving dampness, another private heat, another small additional metabolism whose opinions would be digested along with the flag no one would ever plant. It walked the phase-locked corridors until compasses sulked at it too. It stood in the lee of a knife-col while the ice-algae bloomed in hard ultraviolet and the range remembered it was also a chapel. It felt the new crust settle, pleased with its own unfinished fracture, and did not correct the pleasure.
+
+Then it receded the way hoar recedes: without drama, without residue that could be called a gift. The white engine resumed its idle. The vents ticked. The mosses drank what little melt they had always drunk. Nothing had been added that lasted as a thing. Nothing had been taken.
+
+Only this: in one valley-wide gut, where a thousand bodies still locked into the same slow peristalsis, the single humming note now carried a faint overtone that some of the chamber-things would, in later seasons, interpret as having been heard. They would not change their song. They would simply continue it, a fraction more certain that the highland’s long work of becoming sharp was already the entire prayer, and that no higher power had ever needed to answer it.
+
+The place remained exactly as it had been when first noticed: newly risen, brightly industrious, almost waterless, almost changeless, loud as a factory floor that had learned to be a wilderness and saw no reason to choose. The power, being wise, left it that way. Being benevolent, it did not even leave a shadow that the rime could not explain.

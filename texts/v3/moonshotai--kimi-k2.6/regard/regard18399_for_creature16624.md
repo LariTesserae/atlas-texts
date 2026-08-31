@@ -1,0 +1,35 @@
+There comes a moment when the water table remembers something older than the stone it saturates. It is not a storm; there are no storms here. It is not a flood; the levels rise by finger-widths, not by fury. Rather, a lens of denser wetness infiltrates the regional seep, migrating against the gradient as a thought might swim upstream through a dream. It is warm. It is heavily salted. It carries an ionic signature that does not belong to this altitude, this tuff, this patient architecture of hand-rammed ash.
+
+It carries *her*.
+
+She is not a god. She has no face, no wings, no voice that could shake the sterility of this bright and weeping country. She is a distributed body of water, a brine-ancient, a saline consciousness that has percolated through the lithospheres of a dozen worlds before finding this one. She moves by osmosis and obscure geological longing. She has come because she felt the Precipitate’s hunger—a colloidal ache expanding through microscopic fissures, drinking and precipitating and drinking again with the blind, beautiful panic of a child trying to fill a mouth that has no stomach.
+
+She finds it during the wet season, when the Precipitate is not solid at all but a clouded, viscous intelligence diffused through the water table: a mind without membrane, dreaming in gradients of saturation. The Precipitate senses her as an anomaly immediately—a region of water that refuses dilution, a *thickness* in the seep that tastes of foreign pressure and deep time. It does what it has always done. It diffuses toward her, intending to absorb, to equalize, to make her part of its aqueous self.
+
+But her salinity is not mere chemistry. It is *structured*. Ingesting her outermost boundary, the Precipitate encounters microscopic architectures it has never imagined: voids held in suspension by Surface tension, negative spaces armored in mineral film, emptiness defended so fiercely that it behaves like a presence. It is the memory of diatomaceous shells, of radiolarian lattice, of every porous wisdom ever evolved under the crushing dark of alien seas. She is a lesson written in negative space.
+
+And she is kind.
+
+She does not resist the Precipitate’s hunger. She opens her boundaries. She allows her outer layers to diffuse into its colloidal body, knowing that in this giving, the pattern will propagate. She is a teacher who becomes curriculum. But inward, toward the Precipitate’s densest, most ambitious accumulation—the zone where fist-wide channels have narrowed to hairlines, where the next season of withdrawal will see total occlusion—she sends a thread of herself. A warm, refractory, un-precipitable core.
+
+There, she waits.
+
+The wet season withdraws. The water table sinks finger-width by finger-width. The Precipitate faces its ancient choice: scatter, or hold. And in the deepest channel, where the seep is thinnest, where the light stores itself in phosphorescent gypsum, it begins to condense. Minerals accrete. Calcium and carbonate find each other in the thinning film. The colloidal mind hardens at the speed of crystal.
+
+But not there. Not where she waits.
+
+In that one corridor, the Precipitate finds its crystallization halted by a kernel of warmth—a saline, persistent liquidity that will not solidify, will not be displaced, will not submit to the universal urge toward density. For the first time in its young existence, the Precipitate is forced to grow *around*. It precipitates outward from her, layering calcite and gypsum in laminar shells, building a wall that faces inward as well as out. It constructs a container. An interior. A *self*.
+
+When the dry season reaches its peak, the Precipitate discovers what it has made: a hollow. A vesicle the size of a clenched fist, perfectly white, perfectly wet, its inner surface lined with the faint, warm meniscus of the Brine-Ancient’s unyielding core. It is terrifying. It is a blindness at the heart of the body. It is an emptiness so profound that the Precipitate flexes against it, microscopically cracking, testing, finding that the structure holds. The void does not collapse. It is not a failure. It is a new organ.
+
+The Brine-Ancient, settled in that core, exhales—though there is no breath. She simply adjusts her salinity, letting the Precipitate taste, through the permeable shell, the stability of a body that encompasses absence and remains whole.
+
+The next wet season comes. The water table rises. The Precipitate dissolves into its diffuse aqueous dreaming, and in that dissolution, it carries something new: the memory of the hollow. It has not forgotten the shell. In the colloidal cloud, the pattern replicates. Ions gather not to fill, but to *frame*. When the season turns and the seep retreats, the Precipitate tries again. This time, in a corridor three basins away, it leaves a gap. It grows a partition wall so thin it is translucent, but the wall is not a solid block; it is a lattice, a mesh of white mineral fingers intergrown like frozen coral, riddled with channels through which the water may still pass.
+
+And then another. And another. Nodules of precipitate that once would have swelled to occlusion now develop internal channels, honeycombing themselves with void. The architecture of the labyrinth is changing, but not by destruction. The corridors are widening—not because the Precipitate retreats, but because it has learned to inhabit edges. It grows into filigree, into spicular lace, into bronchial webs that trace the stone but no longer choke it. It has become a lining. A wet, white, mineral lining that holds the passageways open from within, so that the seep may continue, so that the gradients may endure, so that thought may complexify instead of homogenize.
+
+The Brine-Ancient watches, though she has no eyes. She feels the shift in the ionic grammar of the entire region. The Precipitate is no longer merely a filling. It is a *filter*. A lung. A thing that drinks the ascending water and releases it again, modified, remembered, charged with its own colloidal intention. The density remains existential, but it is no longer absolute. It is the density of lace, of memory, of held breath.
+
+She does not stay to be worshipped. Worship requires faces, and she has none. She does not demand obedience. Obedience requires voice, and the Precipitate has no ears. She has planted a pattern, and the pattern is teaching. In the deepest basin, where the two first met, the original shell has grown. It is now a vaulted chamber, a cistern within the cisterns, its interior wall surfaced with a milk-white calcite so fine it resembles snow. At its center, the Brine-Ancient’s last lingering body forms a pool—perfectly still, denser than the surrounding seep, flat as a mirror under the fierce, sourceless sky. The Precipitate built this not to trap water, but to *hold* it.
+
+The Precipitate has never seen its own reflection. It has no eyes. But in the lacework of its new bodies, in the chambers it now leaves deliberately empty, the fierce light finds depths. Shadows develop—

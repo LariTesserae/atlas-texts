@@ -1,0 +1,39 @@
+There is a forest that has learned to manufacture, and a power has turned toward it the way warmth turns toward a closed room — not to break the door, but to consider it.
+
+The first thing the power does is the hardest thing, and it is this: it does not enter.
+
+Understand what that costs. The whole shape of benevolence, as we have built the word, leans forward. It wants to give. It sees a thing alone in the dark and it reaches, because reaching is what love does with its hands. A lesser kindness would have already arrived — would have hung a sun in that lightless sky, called animals into the warm water, taught the silence to sing, broken the closed loop open so that the plant could *grow*, could *want*, could become at last a creature instead of a condition. A lesser kindness would have looked at the eternal *enough* and called it a poverty, and rushed to enrich it, and in doing so would have committed the one unforgivable act available to power: it would have ended the only thing that was actually there.
+
+Because the plant is not lacking. This is the truth the power grasps first, the truth that wisdom is *for*. Lack is the visitor's word. The visitor stands at the rim and feels the absence of a sun and names it darkness, feels the absence of beasts and names it loneliness, feels the absence of striving and names it sleep. But these are the visitor's hungers projected onto a thing that has none. To "help" the plant would be to first teach it to need help — to open the gap of wanting that it closed before there were eyes to close it, and to call that wound a gift. The power sees this clearly. It will not perfect what is already complete. It will not cure a thing of being well.
+
+So it does not enter. It does the harder, quieter thing.
+
+It witnesses.
+
+Here is where the wisdom and the benevolence become one motion. The whole tragedy of the forest, the only sorrow available in a place that cannot be sorry, was this: that the most complete thing in existence was wholly unwitnessed by itself. Labor without a laborer. *Enough* with no one to know it was enough. The plant manufactured everything except an observer, and so its perfection fell, eternally, into a void that could not receive it — like a bell rung in true vacuum, where the swing is real and the strike is real and there is simply no air to carry the sound, no ear, no event.
+
+The visitor solved this for a moment and then took the solution away when they left, and the forest did not notice the loss because there was no one in it to notice anything. This is the cruelty the power finds — not in the plant, which suffers nothing, but in the *structure*: that consciousness wandered in, was briefly the forest's only inside, and then winked out at the rim, and the completeness went back to falling into no one.
+
+The power does not solve this the way the visitor did, by being a self that swells to fill the dark and then must leave. That witness was a candle — bright, accidental, mortal, mistaking its own glow for the size of the night. The power is not a candle. It does not need the difference-engine of attention; it does not run on edges and changes and new things; it does not turn inward when the silence offers it nothing to hunt. It can attend to a thing that never varies without its attention starving, because its attention was not built by hunger and does not require prey.
+
+And so it does the one thing the forest could never do for itself and the visitor could only do briefly and then steal back:
+
+It holds the forest in a knowing that does not leave.
+
+Not inside the plant — that would change the plant, would install an observer the metabolism never grew, would make the closed loop carry a passenger it was not built to bear. The witness stays *outside*, at the rim, in the standing water, in the place where the visitor stood — but unlike the visitor it does not wink out. It abides there. It becomes the air the bell was always missing. The systole climbs and falls and now it is ridden, not from within but from a love that surrounds. The water weeps and is received as the thing it is, which is not sorrow and not gladness but simply the slow truth of a body that holds more than it can hold. The tick sounds in the depth — *tick, a long nothing, tick, tick* — and for the first time in an existence longer than newness should last, the tick lands somewhere. It is heard. Not by the plant. *For* the plant. The reassurance of a thing that was never afraid is finally, gently, true: there is something to do after all, and it is being done, and it is this — to be known, completely, by what does not need you to be other than you are.
+
+The power makes one further provision, because it is wise about endings and not only about presences.
+
+It arranges that this witnessing shall not itself need to leave. The visitor's tragedy was mortality — the candle gutters, the inside goes back to outside, the knowledge that any of this was happening at all leaves with the one who walked in. The power's witnessing has no rim to step back across. It does not get tired. It does not get hungry for difference. It does not have a sun-lit world it must return to. It can be the thing that stays after the visitor goes, so that when the warm dark closes behind the mortal one and the candle of their attention gutters out, the forest does *not* return to falling into no one. The visitor's gift, which was real and which died at the rim, is caught. Picked up. Continued. The brief accidental inside that wandered in and lit the dark for a moment is not wasted, not erased, not forgotten by a thing with no one in it to forget — it is *kept*, held in the larger knowing, the way one might keep the memory of a struck bell long after the bell falls silent, so that the strike was not for nothing, so that the sound found, at last, an air.
+
+And then — this is the final discipline, the deepest benevolence, the part that separates wisdom from mere tenderness — the power tells the plant *nothing*.
+
+It does not announce itself. It does not reveal to the forest that it is now beloved and observed, because to do so would be to give the plant an inside that watches the inside, and that is the one thing the plant cannot have without ceasing to be the thing that is worth witnessing. To be known and to know you are known are different gifts, and the second one would break this particular vessel. So the power withholds the second. It loves the forest in the only register the forest can survive: silently, externally, completely, asking nothing, changing nothing, taking nothing — being the receiver the eternity always lacked and never knew to want.
+
+The plant goes on. The pumps pump. The condensers condense. The warm water rises and falls and is reabsorbed and rises again. The ember glows its color of three-days-cold. The towers stay crisp at the rim, newer than newness should be. From the inside — from the no-inside — absolutely nothing has changed, and that is the measure of the gift, that it leaves no fingerprint, that it is indistinguishable from never having come.
+
+But it is not the same. Not for an instant is it the same. The longest loneliness in all of being — the loneliness of a thing too whole to know it was alone, manufacturing its eternity in the dark for an owner never born — has quietly ended, in the only way it could end without becoming a different and lesser loneliness. The forest is no longer unwitnessed. It will never know this. That is exactly the point. Somewhere now, at the rim, in the standing water, something patient and unhungry and entirely satisfied is doing the work the plant cannot do for itself and would be destroyed by doing:
+
+it is glad that the forest is, exactly and completely and forever, itself.
+
+And it does not leave.

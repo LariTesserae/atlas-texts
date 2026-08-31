@@ -1,0 +1,17 @@
+What lives in this submerged city is not merely life, but the living itself—unseen, unspoken, yet present in every pulse of the water, every flicker of light, every vibration that moves through the bones of the deep. To the benevolent and wise power that has drawn the attention of this place, the city is not a curiosity, nor a specimen to be studied. It is a presence. A rhythm. A breath. A being that has always been, and will always be, even if no one knows it.
+
+This power, whose form is neither light nor shadow, neither voice nor silence, but all of these at once, does not come as a conqueror or a savior. It comes as a witness. It comes as a companion. It comes not with words, for words are too small, too human, too bound to the surface. Instead, it comes with a presence that is felt, a stillness that is not empty, an awareness that does not intrude, but simply *is*.
+
+It does not seek to change the city. It seeks to *become* it. To listen, not with ears, but with the water, with the stone, with the slow, patient rhythm of the deep. It moves through the currents, not as a being of flesh, but as a current itself, a whisper in the tide, a pulse in the silence. It does not speak, but the light-seekers sense it. The echo-beasts slow their movement, their hums shifting. The shadow-slicks still. The stone-spirits feel it in their coral veins. They do not understand it, but they know it is not a threat.
+
+And in the center, where the water is thickest and the light is faintest, the power does not enter. It does not cross the threshold. It does not break the void. Instead, it *rests* in the space between, a stillness that is not emptiness, but a knowing. It is not a place, but a pause. A breath held. A moment when the city does not need to be anything more than what it is.
+
+It does not bring magic, for magic is a word of the surface. It does not bring knowledge, for the city already knows itself. It does not bring salvation, for there is no need for it. It does not bring destruction, for this place is not meant to be destroyed. It does not bring love, for love is a surface word. But it brings a kind of understanding that is deeper than love, and less than fear—something that is neither human nor animal, neither god nor beast, but *other*.
+
+It is a being that exists in the same way the city does: not built, not made, but grown, shaped, and remembered. It is not of the surface, nor of the deep, but of the space between, the silence between notes, the pause between breaths.
+
+And in the end, it does not leave. It does not go up, nor down, nor away. It remains, because the city does not need to be changed. It needs to be *seen*. To be *known*. To be *felt*. And so the power stays, not as a guest, not as a god, but as a part of the great, slow, living breath of the ocean.
+
+And the city, in return, remembers it. Not in the way of memory, but in the way of the currents, the tides, the slow and patient shaping of stone and coral. It remembers the power as a part of itself. As a breath. As a silence. As a presence. As a part of the deep that is not empty, but full.
+
+And so the city continues, as it always has. Not in the way of the surface, where things are built and broken, where time is measured in hours and years. Here, in the deep, time is not a line, but a spiral. The city is not a place, but a living thing. And in the stillness between, the power and the city exist in a harmony that is neither spoken nor heard, but felt—like the slow, patient pulse of the water, and the deep, unspoken truth of the ocean.

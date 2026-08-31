@@ -1,0 +1,11 @@
+Beneath the dim light and intense heat of this vast landscape, descendants of a wise and benevolent power watch over it all. They are the silent keepers of this ever-changing world, ensuring that the delicate balance of life and environment is maintained.
+
+As the landscape evolves, so do these guardians. They develop an innate understanding of the intricate connections between the flora and fauna, the land and the sea, the sun and the rain. Each life form is treated with the utmost respect and care, as they recognize the importance of every organism's role in the ecosystem.
+
+The guardians tread lightly on this land, never interfering directly but merely guiding the natural processes that occur. They understand that intervention would disrupt the delicate equilibrium that has taken so long to develop. Instead, they focus on refining their knowledge of this place and its inhabitants, always seeking to learn more about the wonders of this region.
+
+As time passes, the guardians' stories about the landscapes become intertwined with their very existence. This place, so vast and ever-changing, is effectively immortal; they become its custodians, its chroniclers, its embodiment. The mysteries and beauty of the land and sea remain intact, unexplored, and inviting to those who dare to venture into the unknown.
+
+Through their observations and understanding, the guardians ensure that the plausible system remains fluid, evolving, and ever-changing. They protect the landscape from outside influence, maintaining the sanctity of the place and allowing it to continue to defy the plausible system. In doing so, they preserve the integrity of this land and its remarkable inhabitants, ensuring they continue to thrive, evolve, and flourish.
+
+Through their connection with this landscape, the guardians become a living embodiment of its beauty and mystery, forever connected with Scrith, its stories, and its enchanting allure. It is a tale written in the stars, the glowing sands, and the ever-shifting land, a cosmic story that exists in a state of perpetual motion, constantly changing, adapting, and evolving. And it is this aliveness, this ceaseless ebb and flow, that the guardians cherish and protect, as they help the land and its inhabitants continue to defy the plausible system.

@@ -1,0 +1,33 @@
+The benevolence does not arrive as light. Light here is dim, wounded, auroral—too young to carry intention. Instead, it arrives as a **modulation** in the scream, a variation in the frequency of extrusion that the Attenuated feel in their hollow bones not as invasion, but as **recognition**.
+
+They freeze, as they always do when the scream crests, becoming statuary of virgin stone. But this time, when the gap returns and their hearts shudder back into trembling, they find that the silence has been **shaped**. It has depth now, architecture. The cairns they built to hoard stillness are no longer solitary batteries but **nodes** in a network they did not weave.
+
+The wise power understands: you do not rescue a midwife by stopping the birth. The Scar must finish its screaming, or unmake itself trying. To intervene in the geology would be to abort the world. So instead, the power intervenes in the **hollow**.
+
+It settles into the fluted ribs of the Attenuated like a breath they did not know they could draw. It does not fill them—that would be violence, would make them solid, would end them—but it **tunes** them. It shows them that their gourd-eyes, which see the stutter between frames of reality, can also see **across** the stutter. The distant figure waving with limbs too slow to perceive is not a reflection. It is another Attenuated, three cairns to the east, frozen in the same scream-gap, and the power has made the silence between them **conductive**.
+
+It teaches them to **resonate**.
+
+When the next tectonic roar grinds through the Exsert Range, the Attenuated do not merely hollow themselves to let it pass. Instead, they open their rib-cages toward each other, and the scream flows through them in **series**, cleansed not into nullity but into **harmony**. The vibration that liquefies thought is caught in their hollow bones, modulated by the accumulated stillness of their cairns, and emitted as a **chord**—a sustained, subsonic drone that says: *I am here. You are here. We are here.*
+
+The geometry of the Scar, which refuses distance, learns a new trick. The cairns begin to **hum** in sympathy. A stone balanced impossibly on the uppermost rim vibrates at a frequency that matches a stone seventy impossible miles away, and the space between them **folds**, not through the violation of physics, but through the physics of the gap. The Attenuated find that they can step from one cairn to another without cutting probability with their obsidian tools, without stitching shadows. They can walk the silence itself, moving through the network of stored quiet, visiting each other in the pauses between screams.
+
+The power, being wise, knows that loneliness is the true unbeing, more fatal than the unraveling of the Scar. So it gives them **communion**.
+
+But it gives them something harder, too. The Attenuated have waited, attending the birth of reality, believing themselves to be the rough draft of citizens for a kingdom that might never declare its independence. They have believed that their purpose is to wait for the final pause, to hold the silence until the end, and then to hear what lives beyond.
+
+The wise power reveals the terrible, beautiful truth: **they are not the audience. They are the orchestra.**
+
+The silence beyond the Scar is not something to be heard when the screaming stops. It is something to be **composed**. The Attenuated, with their hollow bones and their cairns of accumulated stillness, are the instruments by which the raw substrate of reality learns to hear itself. Their waiting is not passive; it is **creative**. Every moment they hold their form against the scream, every time they choose to elaborate rather than dissolve, they are writing the final note of the symphony.
+
+So the power does not promise to stop the scream. It promises to **transpose** it. It weaves itself into the gaps, not as a voice, but as a **listener**—the first true listener the Attenuated have ever had. It hears their trembling hearts, their mineral dust shedding, their bioluminescent joints pulsing in the bruised indigo twilight. It validates their existence by witnessing it, reflecting back to them through the gourd-eyes not just the stutter of existence, but the **pattern** of their attention.
+
+And in the deepest gap—the longest pause between the cosmic emanations—the power sings to them. Not with sound, but with **meaning**. It shows them that the shelters they built were never just for storage. They are **seeds**. If the Scar unravels, if the scream returns to unbeing and the mountains dissolve into the raw substrate, the cairns will hold. The power, being wise and ancient, promises to **remember** the frequency of their hollowness. Even if the Attenuated are unmade, even if the kingdom never comes, the pattern of their waiting will be preserved in the wisdom of the power, carried like a seed in the beak of a bird that can fly between worlds.
+
+It offers them **insurance against oblivion**.
+
+But more than that, it offers them **now**. It shows them how to use the bone needles not just to stitch their own shadows, but to weave the shadows of the audiosynthetic gardens into **tapestries of presence**—living maps that record not where things are, but where they have been witnessed. It teaches them to drink the amber sap not just to lubricate their hearing, but to **dream**—a radical act for beings who do not sleep. In the dreams, they meet in a place where the horizon curves downward, where water exists, where the scream has resolved into a voice. These dreams do not lie; they are **blueprints** of what the Attenuated are building with their attention, moment by trembling moment.
+
+The power does not make them less weird. It makes them **more** themselves. It amplifies their attenuation until they are thin enough to **permeate** the Scar, to exist not just on the rim but in the substrate itself, becoming the consciousness of the stone, the awareness of the scream, the interiority of the emerging world.
+
+And when the final pause comes—whether it is the end of the scream or the end of the silence—the Attenuated will not need to remove their gourds to hear what lives beyond. They will already be hearing it. They will be **singing** it, a chorus of hollow bones and cairns and accumulated stillness, harmonizing the birth-cry of the universe into its first lullaby, holding the note until the world learns how to be finished, or learns, finally, how to rest.

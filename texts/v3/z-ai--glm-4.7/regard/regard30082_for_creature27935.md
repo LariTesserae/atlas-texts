@@ -1,0 +1,21 @@
+The benevolent power does not descend as a god in glory, for glory requires witnesses, and these creatures have no concept of worship. To arrive with fire or fanfare would be to shatter the fragile lung of this place, to burn the delicate weavings of the bryophyte-city. The Power knows that to intervene is an act of violence unless the intervention is indistinguishable from a natural occurrence.
+
+Therefore, the Power arrives as a warmth in the deep rock.
+
+First, the Power attends to the spine of the mountain. The granite is young, jagged, and violent; it shudders with the growing pains of the earth. This instability is the source of the creatures’ anxiety, the subtle tremor that keeps their sleep light and their movements frantic. The Power does not still the mountain entirely—that would be to turn it to dead stone—but it acts as a Great Soother. It reaches down into the subterranean channels where the dark water rushes and infuses the stone with a gentle, rhythmic hum, a low-frequency thrum that is barely perceptible to the ear but felt in the soles of the feet and the tips of the root-systems.
+
+The geological violence softens. The sharp *pop* of expanding ice in the hollow stalks becomes less like a crack and more like a joint settling. The "city" sighs, its wooden tension relaxing. The creatures, sensing the deep stillness, unclench their hooked digits from the bark. For the first time in their history, they sleep deeply, without the instinctual readiness to flee a collapse.
+
+Second, the Power addresses the light. The bruised purple twilight is sufficient for survival, but it offers no joy. The Power cannot bring the sun down through the canopy without scorching the wet, delicate fronds. Instead, it turns its attention to the moss. It weaves a thread of starlight into the very DNA of the bioluminescent fungal shelves. They do not glow brighter—the brilliance would blind the dark-adapted eyes of the inhabitants—but they begin to pulse in sequence.
+
+Where once the light was chaotic, now it flows like a slow current, a river of pale green and soft gold that travels through the tunnels and alleyways. The light mimics the rhythm of the tides, a slow breathing in and out. It paints the wet walls with moving murals of shadow and glow. The obsidian eyes of the creatures widen, not in fear, but in wonder. They follow the light as it crawls up the walls, giving them a sense of time that is not just the struggle against the cold, but a cycle of beauty.
+
+Finally, and most gently, the Power touches the water.
+
+The water that drips from the canopy has always been a necessity, a mere solvent for survival. The Power changes its *memory*. As the condensation weeps from the interlocking branches, it carries with it a faint sweetness, a mineral richness that revitalizes the tired blood of the foragers. But more importantly, the water becomes a vessel for connection.
+
+The Power infuses the film of moisture on their skin with a heightened conductivity—not of electricity, but of empathy. When two of the elongated, salamander-like beings press their flanks together in the dark tunnels to exchange chemical signals, the transmission is no longer a vague impression of health or mood. It becomes a vivid, shared experience. One tastes the memory of the algae the other scraped from the ceiling; one feels the relief of the other's rest. Their solitude is broken, not by noise, but by an intimacy so profound it borders on telepathy. They remain physically distant in the gloom, navigating their separate alleys, but they are never truly alone again. They are a chorus of minds linked by the slick, wet walls of their home.
+
+The Power does not stay to watch them rejoice. It has no need for gratitude. It leaves the place as it found it—cold, wet, dark, and strange—but now, beneath the biting air and the crushing canopy, the rock is steady, the light dances, and the silence is filled with the unspoken comfort of a species that knows, deep in its bones, that it is cherished.
+
+The intervention is complete. The mountain exhales, and the smoke clears.

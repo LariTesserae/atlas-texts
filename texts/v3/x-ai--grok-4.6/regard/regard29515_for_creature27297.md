@@ -1,0 +1,21 @@
+The power did not arrive as light or voice or hand. It arrived as attention, which is how the wise first move: by consenting to be changed by what they regard.
+
+It regarded the bowl for a long time, which for such a power is neither hours nor centuries but the duration required to feel the plaster’s memory in its own substance. It felt the stacked galleries sag into smiles, the goats’ heat braided into the people’s heat, the counted water, the named copper, the moss that kept a truer calendar than any mark. It felt the polite lie they told the children, and how the lie had become the only accurate speech they had. It felt that they had never learned to stand apart because standing apart would have been a kind of dying, and they had chosen, over and over, not to die that way.
+
+A lesser benevolence would have opened the lid. It would have poured a river, raised the roof, taught them the trick of solitude, given them metal that did not need a name, plants that did not scorch. It would have called that mercy. The power saw that every such gift would have been a breaking of the shell they had sworn, in the oldest gesture of their craft, never to break. Thickening is their only law. To give them an outside would have been to unmake the first bowl that lay down and became useful.
+
+So the power did almost nothing, which is the hardest work.
+
+It lengthened the seep by the width of a thumb, no more. The trough still never quite filled. They still watched it the way one watches a sleeping child. After rain the light-wells still drummed and they still ran shouting with pots, and the air still tasted of wet plaster for a day before the place drank it back. But the lowest courses stayed a fraction cooler, the hanging stores a fraction less desperate, the goats a fraction less restless on the worst afternoons. No one named the change. They only pressed their palms a little longer to the knee-high plaster and nodded, as if the season had spoken clearly for once.
+
+It taught the moss a slower, kinder map. The dark film still told the turn of the year, but it no longer frightened the oldest among them with sudden black advances that meant a winter too long for the stores. The children still used it as a clock. The neglected gallery stayed neglected, because some things must remain accidental to stay true.
+
+It left the copper knife its lineage and the reused beams their scars. It did not still the noise. The well still gave every bleat and laugh and mallet-strike back thicker; someone still sang into it, not over it; the pigeons still rustled like almost-rain. Density remained the first language. Near-touching remained the ordinary state.
+
+Once, only once, it leaned its weight into the oldest corbel, the one that had already begun to smile downward, and held it for the length of a single night so that the timber above the sleepers did not quite fail. In the morning they plastered over the new hairline as they always did, tucking the blanket around the sleeper. They never knew. The power considered that sufficient worship.
+
+It did not speak. Speech would have required a mouth, and a mouth would have required standing apart. Instead it became, for a little while, another layer of the fill: more of themselves, compacted, sacrificed, useful. When they pressed new earth over old they were, without knowing, pressing their palms against its patience.
+
+Then it withdrew its attention the way one lifts a hand from a fevered brow that has cooled. The bowl remained what it had always been: settled, loud, warm, slightly damp, crowded past reason, stubbornly constructed, inevitable. The earth above stayed only the thickness of a roof. All the life stayed down here, touching itself, making more of itself out of clay and noise and the little water it could keep.
+
+That was the whole of the intervention. The power judged it enough, and also judged that “enough” was the only gift that would not turn into a wound. Wisdom, here, was the decision to let the polite lie continue, because the lie had become the place’s only honest name for love.

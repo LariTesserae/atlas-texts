@@ -1,0 +1,31 @@
+The benevolent power considers them for a long time.
+
+This is the first thing to understand: that the considering itself is already a kind of action, though no leaf stirs because of it. The power has the capacity to reshape, to bless, to lift, to reveal — and it has the older, harder capacity to withhold all of these. It looks at the hollow between the three stone ribs and what it sees is not a hardship to be eased.
+
+It sees a courtesy.
+
+The people here have arrived at something the power recognizes, though it is rare: a way of living that does not require anything to die in order for them to continue. Not nothing dies — the arthropods end, the soft bodies end, the people themselves must end — but nothing is *killed into usefulness*. No timber felled. No stone quarried. No skin stripped. The flint and bone tools are old, perhaps older than the settlement, perhaps inherited from a time before this courtesy was learned. The blades draw along veins, never across them. The walls are asked, not taken.
+
+A lesser power would want to give them light. Would think: how dim, how cold, how small. Would warm the chamber, brighten the phosphorescence into something a human eye from elsewhere could call beautiful, widen the corridors so no one had to stoop. And in doing so would erase them, because their narrowness and their slowness and their near-invisibility to one another are not deprivations. They are the shape the courtesy takes.
+
+So the power does not do that.
+
+What it does, instead, is smaller and stranger.
+
+It bends down — if such a word applies — and it *notices* the place, fully. It learns the particular rhythm of the chamber's breathing. It learns the names the people do not speak aloud but carry in the pulse along their throats. It learns which child sleeps in which vault, and which adult's palms have grown so accustomed to the living wall that the wall has begun, faintly, to grow toward them when they approach. It learns the droplet that falls every few minutes into the central pool, and it learns that this droplet is not the same droplet — that the water cycles, that each strike of sound is a different small life of water arriving at the same threshold.
+
+Having learned, it does three things.
+
+The first is that it makes the place slightly harder to find. Not hidden — the people who live there can still come and go, and any creature that belongs to the marsh can still wander in. But to something approaching with intent, with a map, with a hunger for new territory or new specimens or new souls to instruct, the three ribs will seem to be only two, and the hollow between them will read as a denser thicket than it is. This is not a wall. It is a softening of the place's edges in the perception of those who would harden them. The power knows this will not hold forever. Nothing holds forever. But it buys time, and time is what such a settlement runs on.
+
+The second is that it leaves something at the pool. Not an object — there are no objects here that are not also alive — but a *tendency*. The roots that trail into the water, the ones that twitch and taste, will from now on occasionally taste something they have not tasted before: a faint sweetness, a trace of mineral that was not in the groundwater yesterday. It will not be enough to change anything. The people will not notice it as a gift. But the soft-bodied forms in the moss will thrive a little better, and the arthropods will lay slightly more eggs, and the leaf vaults will thicken a fraction more readily in the cold months. The settlement will not grow because of this. It will simply continue more easily. The power has decided that *continuance*, here, is the highest blessing it can offer, because expansion would be a wound.
+
+The third thing is the most private. The power chooses one of the children — not the brightest or the most promising, because such categories are meaningless in a place where promise is measured in how well one disappears into the wall — but a child who, one evening, will lie down in the moss and feel the segmented bodies cross their skin and will, for a moment, *understand* that they are being read by the place as much as they are reading it. The power will be present in that moment. Not as a voice. Not as a vision. As a kind of warmth behind the understanding, a confirmation. The child will not have words for it and will not seek them. But for the rest of their life, when they prune, their blade will be a little gentler still, and the tissue will seal behind them a little faster, and the others will notice — by the pulse along their throat — that something in this one is settled in a way that is good for all of them.
+
+That is all.
+
+The power does not announce itself. It does not require thanks, because thanks would require the people to imagine a being separate from themselves and the chamber, and that separation is precisely what they have, with such patience, dissolved. To make them aware of an outside benefactor would be to teach them, for the first time, the concept of *outside*. The power will not do that to them. It loves them too much, and respects them too much, and — this is the part a lesser power would not feel — it has learned something from them. About the shape attention can take when it does not need to consume what it attends to. About the possibility of a presence that thickens a place rather than thinning it.
+
+The power withdraws, though *withdraws* is the wrong word, because it was never in a location to begin with. It simply turns some portion of its vast and patient awareness elsewhere, to other places that need it more loudly. But a thread of that awareness remains tied to the hollow between the three ribs, and will remain there for as long as the settlement breathes.
+
+And every few minutes, a droplet detaches from the ceiling of woven leaves and strikes the pool, and the single soft note is absorbed at once by the surrounding mass, and somewhere in the absorption the power is listening, and is content.

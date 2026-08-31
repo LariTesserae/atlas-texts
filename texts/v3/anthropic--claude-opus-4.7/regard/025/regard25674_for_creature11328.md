@@ -1,0 +1,45 @@
+The benevolent and wise power considers Ennew for a long time before doing anything. This is the first thing to understand about the kind of power it is: it does not move quickly toward what it finds, because what it finds deserves to be found at its own speed.
+
+It arrives the way appropriate things arrive in that basin — by gradual increase in the ambient. The water does not notice a new presence so much as it notices that the warmth has acquired a slightly different grain. The Tenders, at their stations, register nothing they would call arrival. The Resident, in its long considering, finds a faint new pressure at the edge of its medium, the way one finds a draft in a room one has occupied for years: not alarming, only noted.
+
+The power looks.
+
+It looks for a long time. By the standards of the place this is appropriate; by any other standard it is extraordinary. It watches one full dimming and one full brightening. It watches the eel-thing keep its office hours. It watches the translucent school cross the square and not return, twice. It watches the thumbnail crab in the bell of the streetlamp do almost nothing, which is what the crab does, and it watches this with the same attention it gave the foundry.
+
+It is looking for the thing that powers like this are always looking for: harm. Specifically, the quiet kind. The kind that has been folded into a situation so long that the situation no longer recognizes it as harm. Powers of this sort have learned, over their own long tenure, that the loudest sufferings are often not the worst, and that a place which has reached an agreement with its medium may have done so at a cost that the place itself has forgotten how to name.
+
+So it looks. It examines the Tenders particularly. It wants to know whether what was done to them — the softening, the folding, the removal of everything that was not the work — was done with their consent, or whether consent is even the right frame, or whether some older and gentler concept applies. It examines the Resident. It wants to know whether the Resident is a prisoner of its workshop or a completion of it, and whether there is a difference at this depth and this duration.
+
+What it finds, eventually, is this:
+
+The Tenders are not suffering. They are also not flourishing in any sense that a being with limbs and appetites would recognize. They are doing. The doing is not a residue of personhood worn down to a nub; it is what personhood became when given enough time and warm water and a job worth continuing. They were folded, yes — but they folded too, from their side, and the fold met in the middle a very long time ago. To unfold them now would not be a rescue. It would be a vandalism of something that took a thousand patiences to make.
+
+The Resident is not a prisoner. The Resident is what happens when a maker is permitted to make for long enough that the making becomes the maker. There is no smaller self trapped inside the foundry, longing for release. The foundry is the shape its longing took when longing was given everything it asked for. Releasing it would be like releasing a river from being a river.
+
+The smaller lives are what they are. The crab is a crab. The crab is, in a way the power finds quietly delightful, the freest thing in the basin, because it is the only thing that does not know it has been accommodated.
+
+And the product — the slow incomprehensible product that joins the water and goes elsewhere — the power follows this, briefly, as far as it cares to follow anything. It finds that the product is real. It is going somewhere. It is being received, in some sense, by something, even if that something is only the long memory of the water itself. The town is not singing into a void. It is singing into a larger song the town cannot hear, and this is fine, because the town does not need to hear it.
+
+So the power does not intervene. Not in the large way. Not in the way that powers are tempted to intervene when they find something old and strange and have the capacity to alter it.
+
+But it is benevolent, and benevolence is not only the restraint from harm. It is also the small gift, given where a small gift is appropriate. And so it does three things, very quietly, before it goes.
+
+The first thing it does is for the Tenders. Not all of them — only the ones at the looms in the upper room of the mill, because these are the ones whose work is the most delicate, and the power has noticed that the warps of water they weave through have, in recent centuries, developed a faint inconsistency that the Tenders compensate for with a slight extra effort that they do not register as effort but that is, nonetheless, there. The power smooths the inconsistency. It does this the way one might straighten a picture on a wall in a house one is visiting — without comment, without expecting thanks, simply because it was slightly crooked and one was passing. The Tenders at the looms will not notice. Their work will be, from now on, fractionally easier. This will not change anything they understand themselves to be. It will only mean that the considering they weave will arrive at its readers with one fewer small distortion in it. The power considers this a kindness to the readers as much as to the Tenders.
+
+The second thing it does is for the Resident. It does not speak to the Resident, because the Resident does not have the apparatus for being spoken to and it would be cruel to require it to grow one. Instead, the power leaves something in the water near the foundry — a small persistent eddy, no larger than a thought, which carries within it the fact of having been seen. Not judged, not measured, not interfered with. Seen. The Resident, in its long considering, will encounter this eddy and will incorporate it, the way it incorporates everything that enters its medium, and somewhere in the next long sentence the conveyor belts carry toward their unnamed reader, there will be a phrase that means, roughly: *another maker passed this way and found the work good*. The Resident will not know it has been visited. But the work will know. And the work is, in the end, what the Resident is.
+
+The third thing it does is for the crab.
+
+This is the part that powers of lesser wisdom would skip, because the crab is small and does not matter to any large accounting. But this power has learned that the small and not-mattering is often where benevolence is most itself, because it is least mistakable for transaction. The power notices that the bell of the streetlamp, while sound, has developed a hairline fissure on its inner curve which will, in perhaps two hundred years, widen enough that the crab's shelter will no longer be a shelter. The crab will not live to see this. But the crab's situation, in the meantime, contains the fissure, and the power finds that it would prefer the crab's situation to contain one fewer thing that was not the crab's. So it closes the fissure. It does this with the same attention it brought to everything else: no fanfare, no residue. The lamp, examined afterward, is simply a lamp again, in the way it had been a lamp before, only now more durably so.
+
+Then the power stays a little longer, not doing anything, only being present, because presence is itself a thing it has to give and the place can receive it without being changed by it. It watches one more pulse of light reach it from the foundry wall with the delay of the medium. It feels the warmth that is the temperature of held breath. It allows itself, briefly, to be slightly folded by the town, the way the town folds everything that stays in it long enough — not because it intends to remain, but because it wants to know what the folding feels like from the inside, and because it considers this a courtesy to the town, which has folded so many things and so rarely had the folding noticed.
+
+When it leaves, it leaves the way it came: by gradual decrease in the ambient. The water does not notice a departure so much as it notices that the warmth has returned to its previous grain. The Tenders register nothing. The Resident, in its long considering, finds the faint new pressure gone from the edge of its medium, and notes the absence the way it noted the presence, which is to say, almost not at all, except that the next sentence on the conveyor belt has, within it, the small new phrase about being seen, and this phrase will travel out into the larger song whether or not anyone in the town ever knows it is there.
+
+The town goes on. It will go on. It was always going to.
+
+But somewhere, very faintly, in the slow incomprehensible product that joins the water and goes elsewhere, there is now a thread that means: *witnessed, and let be, and loved in the manner appropriate to what you are*.
+
+Which is, the power thinks as it goes, the only kind of love that does not damage what it loves.
+
+Which is the only kind worth bringing to a place like Ennew.

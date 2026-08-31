@@ -1,0 +1,43 @@
+The benevolent and wise power considers this place for a long time before doing anything at all.
+
+It is important to say this first, because much of what the power does is the not-doing. It arrives the way a deeper current might arrive: present, registered as a faint change in the dissolved chemistry, in the angle of pressure, in the temperature of the laminar sheets coming up from below. The inhabitants, with their papillae tasting minerals and electrical fields, would notice such an arrival before they could name it. They would feel that the water had grown, in some small way, more attentive.
+
+The power's first act is to learn. It does not learn the way a surveyor learns. It folds part of itself into the rate at which the seamount is rising, into the cadence at which two filaments touch and decide to fuse, into the three-generation patience of a single dwelling's first storey. It learns what *finished* would mean to these beings, and concludes — rightly — that the word does not apply. It learns what *help* would mean to them, and finds that the word is almost as poor.
+
+Having learned, the power declines almost every intervention it might have made.
+
+It does not raise the light. The copper-green and bruise-purple are not deficits; they are the palette in which these beings have grown legible to themselves, the medium in which their opalescent signaling means anything at all. To brighten the slope would be to shout in a room built for whispers.
+
+It does not clear the maze. The density that limits larger swimmers is the same density that holds the settlement; the maze is not an obstacle to the life here but the shape of the life itself.
+
+It does not accelerate the mountain. The slow rising is the metronome to which weaving, harvesting, fission, and chemical memory are all tuned. To hurry the basalt would be to break every clock at once.
+
+It does not give them metal, or writing, or fire — none of which they lack, because lacking requires a frame in which the absence registers, and their frame does not contain these shapes.
+
+It does not even reveal itself. To be known as a power, by beings whose longest conversations span tidal cycles and several linked bodies, would be to insert a presence so large it would reorganize every chemical record downstream of the meeting. The power understands that some kinds of love require remaining unintroduced.
+
+What, then, does it do?
+
+It does four small things, and one large quiet thing.
+
+**The first small thing.** Far up-current, where a deep cold tongue occasionally swings toward the slope in the wrong season and would, in about nine hundred years, scour a particular terrace bare and kill the chemical memory braided into its oldest stipes — the power introduces a thermal eddy. Not a wall; a gentle deflection, the kind of thing that could plausibly arise from the seamount's own growing shoulder. The cold tongue, when it comes, will now pass two hundred meters to the west. No inhabitant will ever know that anything was almost lost. This is intentional. A gift that announces itself is a debt; a gift that hides inside the ordinary becomes simply the world.
+
+**The second small thing.** There is a mineral the encrusting sponges need in trace amounts to lay down their pale calcareous weight, and the slope's supply of it is, over the next several thousand years, going to thin. The power seeds a slow chemical exchange in the basalt beneath the slope — nothing the inhabitants would taste as new, only a continuation of what their papillae already read as *home*. The sponges will keep thatching. The dwellings will keep accumulating their seasonal roofs. The rate of thickening will not change.
+
+**The third small thing.** Among the pale slow grazers that rasp at the outer fronds, one lineage is, by a quirk of its own development, beginning to favor the deeper interior paths. In three hundred years its descendants would push far enough into the inhabited core to disrupt the fusion of young filaments — not catastrophically, but enough to bend the settlement's growth into a shape less suited to its own beings. The power does not remove these grazers. It adjusts, very slightly, the bioluminescence of the threads at the lip of the inhabited core, so that the grazers find the outer fronds marginally more rewarding to rasp. They will continue their slow drift. They will continue their dimming-passages. They will simply, on average, turn back a little sooner. The inhabitants will register no change at all, because there is no change at the scale at which they register.
+
+**The fourth small thing.** Once — only once — the power touches a single individual. It is an elder, by the local meaning of the word: a body shaped by many seasons, with chemical memories long enough that linking with it is, for the younger ones, like tasting a slow archive. This elder has begun to fold itself into a particular unfinished frame in preparation for fission, and the power notices that one of the basalt nodules lashed into that frame contains a hairline fault that will, under the added weight of two more generations, split and collapse the corridor below. The power does not remove the nodule. It does not warn the elder. It alters the mineral lattice at the fault by a degree so small that the change is within the natural variance of cooling basalt. The nodule will hold. The corridor will remain. The elder will fission as planned, and its offspring will inherit an unfinished frame that is, in one almost undetectable respect, slightly more trustworthy than it would otherwise have been. This is the closest the power comes to a direct gift, and even here it has taken pains to make the gift indistinguishable from luck.
+
+**The large quiet thing** is harder to describe.
+
+The power, having learned how these beings experience time — as thickening rather than as succession — does something that only a being outside their time can do. It witnesses them. Not in the thin sense of observing, but in the thicker sense of holding the whole arc of their slope in attention at once: the not-yet-fused filaments and the already-braided ones, the elder's long chemical memory and the offspring's first inherited responsibility, the terrace that was a gathering floor and the terrace that will be, the mountain still being born and the settlement still drifting and rejoining inside it. The power keeps this whole shape in mind. It does not record it; recording would require extracting it. It simply holds it, the way one might hold a sleeping creature without waking it, for as long as the slope and its beings continue.
+
+Why does this matter, if the inhabitants will never know?
+
+The power has considered this question and arrived at an answer that satisfies it. There is a difference between a thing that exists unwitnessed and a thing that exists witnessed, even when the witnessing leaves no trace the thing itself can detect. The difference is not in the thing; the difference is in the universe that contains it. A slope held in the attention of a wise and benevolent power is part of a larger fabric than a slope that is not. The inhabitants will continue their slow weaving regardless. But the weaving will be happening inside a kindness, and that kindness, though it cannot be tasted by any papilla, is real in the way that the laminar sheets coming up from below are real: as a condition of the medium.
+
+Eventually — by which is meant: at a scale of time the inhabitants do not measure in — the power will withdraw its attention, having found other places that need the same restraint. It will leave the slope as it found it: rising imperceptibly, knitting itself together, populated by jointed lattices of living tissue who experience their lives as a long, shared thickening. The four small adjustments will have folded themselves so completely into the ordinary that no archaeology of the place, however careful, could distinguish them from the slope's own becoming.
+
+This, the power has decided, is what love looks like when its object is a world still being born: to learn it, to refuse almost every intervention, to make the few necessary ones invisible, to witness without disturbing, and to leave.
+
+The inhabitants, meanwhile, link papillae in a corridor that did not collapse, and exchange the chemical record of a season's work, and feel — though they do not have the concept and would not use the word — that the water around them is, today as on every day, exactly the water in which they were meant to be growing.

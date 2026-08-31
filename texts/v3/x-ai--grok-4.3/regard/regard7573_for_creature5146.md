@@ -1,0 +1,11 @@
+A wise power, vast enough to feel the slow expansion of cooling stone across worlds and gentle enough to hear the private resonance inside a single polyp, turned its attention to the plain.
+
+It did not arrive. Arrival would have been too abrupt, too final for a place still deciding what shape it wished to hold. Instead it extended a single thread of attention, fine as a filament yet warmer than any steam that rose from the fractures. The thread did not touch the stone; it hovered just above the mist, tasting the copper light and the ceaseless chords without disturbing their pitch.
+
+For a long while—decades measured by the growth of a new node—the power simply listened. It heard the unfinished quality of every living scaffold and understood that completion itself would be a kind of violence. The plain was not broken; it was undecided. To a being of such patience, indecision was not absence but invitation.
+
+At last the power chose one small act. It found a drifting mote of living matter that had been carried higher than most during an eruption and was now falling alone, far from any existing stem. With the lightest pressure of regard, it folded a single, almost weightless instruction into the mote’s substance: the memory of a new frequency, one that could be added to the existing chords without replacing them. The mote landed on a stretch of stone still warm enough to steam. Days later the first translucent stem rose there, but its leaves carried an extra translucence at their edges, as though they were tuned to catch a light that had not yet arrived.
+
+The power withdrew its thread. No further intervention followed. Yet from that day the new node and all its descendants began, very slowly, to adjust the tension in their filaments. The chords they produced acquired a faint overtone that could travel farther across the open stone, a quiet promise that the distance between nodes might one day be sung across rather than merely endured. The eruptions continued. The polyps still drank and flattened themselves. The architecture kept growing. Only the sound, and the future it implied, had been given one additional, permanent possibility.
+
+The power, having noticed, continued on its way—leaving behind nothing that could be pointed to, only a slight deepening of the resonance that was already there.

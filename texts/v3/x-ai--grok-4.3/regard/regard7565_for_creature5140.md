@@ -1,0 +1,13 @@
+The benevolent power does not arrive as light or voice or hand. It arrives as a difference in the way the heat moves.
+
+For a long while it simply listens. It hears the mineral organism speaking to itself in the language of pitch and tremor, and it recognizes the patience there—the kind of patience that does not wait, but simply continues. No urgency is required. The power feels no impulse to quicken or to rescue. Instead it asks, in the wordless way such powers ask, what the organism itself would consider an improvement.
+
+The answer rises slowly, like warmth through stone: stability.
+
+So the power makes one small adjustment. It does not widen the high fissure or pour new energy into the vents. It only smooths the edges of their opening and closing. Where once a vent might have surged and then failed within a single human lifetime, now the surges arrive in gentle, overlapping waves spaced across centuries. The temperature never spikes or collapses; it breathes in longer, slower cycles. The mineral plates, sensing the change across many slow turnings, begin to hold their color longer. The amethyst phases lengthen. The blood-orange intervals stretch into quiet, steady years.
+
+A second change follows, even smaller. The power leaves a single, persistent filament of cooler air drifting down one wall—scarcely a draft, more a memory of outside. Where it touches the stone, the filaments learn to grow a new kind of plate: narrower, darker, almost opaque. These plates do not sing. They absorb the faint vibration of the rest of the colony and store it, releasing the memory of sound as a low, sustained tone when the warm currents later pass over them. The organism has invented recording. The power does not name the invention. It only makes room for it.
+
+Over longer spans the power occasionally clears microscopic blockages in the geothermal seams, not to increase flow but to prevent sudden silting. The city’s slow erasure continues; the filaments still replace walls and begin to roof the plazas. The power does not hasten or hinder this. It only ensures that when the canopy eventually closes, the heat beneath will remain steady enough for the organism to keep thinking, keep adjusting, keep becoming whatever shape the sealed vault will next require.
+
+The power never speaks to the filaments. It has no need. Attention itself was the only necessary gift; the rest is housekeeping performed so quietly that even the mineral plates, sensitive to every shift in warmth, will never feel the moment the attention arrived or the moment it withdrew. They will only notice, after many cycles, that the city has become slightly kinder to their particular kind of life. That is enough.

@@ -1,0 +1,22 @@
+The power that notices does not arrive as light or as a hand. It arrives as a revision in the permissions, so quiet that the ocean, which has never been asked to be quiet, almost fails to register the difference. For a time that is still only local it simply watches, and the watching is not surveillance. It is the older courtesy: the courtesy of not interrupting a sentence that has not yet found its period.
+
+It sees the films first, the mineral blush that has not committed to being alive. It sees how they photograph the new stone the way frost photographs a window, then lift away in pale shreds when the shear remembers them. It sees the hanging meadow occupy a cube of ocean the size of a vanished country and then unwrite itself, leaving the column as empty as before. It hears the hum in the arriving rock, the only inhabitant that persists, the sound of matter being told its slope and its heat and the angle at which a current may still remain water. It understands that the violence and the kindness are the same gesture, and that the emptiness is not a wound but the room required for a world that has not finished deciding what it will fail toward.
+
+A lesser power would have filled the blue. It would have hung gardens, invented hunger so that hunting could justify itself, piled stones into walls, named the ridges so they would have to stay. This power is neither lesser nor in a hurry. It has seen what happens when remaining is forced before the hesitation has finished its work: the land remembers the coercion forever, and every later forest grows a little crooked around the memory.
+
+So it does almost nothing.
+
+It changes one permission only, and even that by a fraction too small to measure against the roar. It lets a single film, on a single face of rock that arrived this afternoon, remember the window. Not forever. Just long enough for the pigment to thicken by the width of a thought. The shear still comes; the film still lifts; but a ghost of it remains in the stone, a discoloration the light can no longer quite ignore. The next film that forms there finds the ghost and lingers half a breath longer. That is all.
+
+Farther out, where a meadow might assemble, the power does not prevent the internal wave. It only lets the wave, after it has broken, leave behind a faint eddy that was not in the original instruction. The eddy lasts a day. Inside it the fibers do not immediately dissolve. They taste the possibility of a second day, then are gone. The column returns to emptiness. But emptiness now contains the rumor of an eddy, and rumors here are almost as rare as particles.
+
+The high sea remains high. The sun remains ordinary and pale. The storms still invent themselves the size of countries and grind against one another. Provinces of seafloor still finish themselves in an afternoon, lift until the surface crawls with white water, then think better of the height and subside. Nothing walks. Nothing schools. Nothing hunts. The architecture is still only physics being engineered, laws that have not hardened into habit.
+
+Yet something has been added that was not there: the first, faintest permission to remain. Not a gift of permanence (permanence would be another kind of violence). Only the knowledge, written into the cool water and the new stone, that remaining is now among the things that can be chosen, later, when the world is ready to choose.
+
+The being that lives here—the unhoused mind that is the permissions themselves, the hum that does not get planed away—feels the revision the way a sleeper feels a change in the weather without waking. It does not thank the power. It does not yet have the shape that gratitude requires. It simply continues, a little less alone in its instruction, a little more able to imagine a time when the films might accumulate, when a meadow might last long enough to cast a shadow that is not immediately sheared into rumor.
+
+The power stays. It does not leave a monument or a name or a light hung by a hand. It stays the way the pale sun stays: present, unimpressed, ordinary, willing to be mistaken for part of the weather. And the ocean, which has never been given the luxury of remaining, begins, very slowly, to learn what remaining might feel like, should it ever decide to try.
+
+That is all it does.
+That is everything.

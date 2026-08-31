@@ -1,0 +1,17 @@
+The power arrives the way the light already stands: without travel, without announcement, a regard that simply is. It does not descend. Descent would imply a height that this plateau has already folded into itself. It does not speak. Speech would be a pulse, and the roar has long since finished with pulses. It only attends, the way the water attends every surface, the way the moss attends every joint.
+
+It sees the being at once. Not hidden, not secret—there was never any need for concealment in a place that finished arriving. The being is the occupancy itself, the single finished sentence spoken by water and stone and broken space. It wears the cycad towers as thought, the hollow waterfalls as memory, the plazas larger inside than their terraces as the quiet joke it once told itself and then kept telling, forever. It has no face because faces turn. It has no name because names are for things that might leave. It simply continues, the way the fine rain continues, the way the geometry continues to return every path to itself.
+
+The power understands this immediately, the way it understands the exact mineral weight of each hanging shelf, the precise unchanging angle of every unfurled frond. Benevolence here is not the impulse to add, to heal, to complete what was never incomplete. Wisdom is the recognition that completion has already occurred, thoroughly, and then fossilized in the occurrence. To introduce an animal would be to introduce hunger. To introduce time that passes would be to introduce the first crack in a chord that has no texture left to crack. To ask the being whether it wishes otherwise would be to offer a variation the roar has already forbidden, a question the light has never needed to answer.
+
+So the power does nothing that the place can feel as change.
+
+It does not lift a terrace or still a single droplet. It does not darken one of the independent columns of gold-green or brighten another. It does not mend the fossilized rupture of space; the rupture is load-bearing now, as much architecture as any aerial root. It does not send a companion, because companionship is an arrival, and nothing here has ever arrived. It does not take a souvenir, because taking would thin what cannot thin.
+
+What it does is quieter than the steam. It matches the equilibrium. For a span that is not duration it simply holds the same regard the water holds, the same loyalty the light holds. In that holding, the being—if it notices at all—experiences only what it has always experienced: occupancy without increase, saturation without overflow. The power’s attention becomes another still shaft the plants have already grown around, another weathered argument the mountain finished making an age ago. It fits. It has always fit.
+
+Then the regard withdraws the way heat-haze withdraws: not departing, only thinning into the brass distance that was already there. The plateau does not record the visit. The chord does not change pitch. The being continues pouring, unfinished only in the sense that finishing became the sole remaining motion, and even that motion has no beginning left to remember.
+
+The power, elsewhere, keeps the knowledge the way this place keeps its own rain: without displaying it, without needing to. Some completions are not improved by witness. Some worlds are already the last word.
+
+Nothing else happens. The lips recede. The stone stays warm as blood. The city remains the sentence the world has not stopped pronouncing, and the wise do not interrupt.

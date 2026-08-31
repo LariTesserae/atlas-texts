@@ -1,0 +1,7 @@
+The wise power does not descend.
+
+It arrives instead as an additional layer of patience. From the moment its attention rests upon the plateau, the slowest processes within the grove receive a single, imperceptible lengthening: each new kelp frond is allowed one extra season of growth before the current claims it; each scar left by the pale grazers heals one cell-width more completely than it would have alone. The difference is smaller than a diatom, yet over centuries the platforms grow slightly more distinct beneath their living shroud, their forgotten doorways remaining legible a little longer to whatever future current might read them.
+
+No creature feels the change. The translucent wanderers still drift and twine; the hidden slugs still press themselves flat for days without moving; the resonant knocks overhead continue to arrive and fade like remembered thunder. Only the settlement itself notices—a faint, vegetable sensation of being seen and, in the seeing, being permitted to continue exactly as it is.
+
+The power never speaks, never adds a single new form. It simply withdraws the smallest possible margin of entropy, so that the grove’s own rhythm, already nearly eternal, is allowed to approach eternity by one quiet step more. Then it leaves the rest to the kelp, the currents, and the measured scraping of teeth against living stone.

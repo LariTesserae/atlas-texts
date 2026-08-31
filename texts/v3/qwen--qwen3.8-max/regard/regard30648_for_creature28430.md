@@ -1,0 +1,3 @@
+If a benevolent and wise power turned its attention to that high, waterless country, they would probably do nothing that looked, at first, like intervention. There would be no descent in fire, no opening of the sky, no sudden gift of rain. The first act of their benevolence would be restraint.
+
+They would look long enough to understand that the world was not missing water so much as founded upon its absence. They would see that the living film on stone was not a poor substitute for vegetation but a first covenant

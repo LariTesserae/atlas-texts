@@ -1,0 +1,9 @@
+Their origin is not clear even to them. They remember pressure before pressure: a heavier water, a longer dark, a falling away. They have no word for ocean, but their bodies recite it. In their oldest hand-signs there is a motion like waves seen from below, though no one among them has ever seen waves. In the winter stories, passed palm to palm in the dark under the ice, there is a pattern that means something like “the place that was too large to be held.” It is always told with a slight tightening of the fingers, as if something once escaped, or was escaped from. They do not mourn this. They are not a people shaped around loss, but around retention. Still, when the basin is very still and the sky above is so bright that the surface becomes a white plate, some of them hang in the open water with their arms loose at their sides and seem to be listening for a sound too large to arrive.
+
+It is a place, therefore, that might attract a certain kind of attention.
+
+Not the attention that seeks something to govern. Not the attention that collects marvels. If a benevolent and wise power were to turn toward that drowned cathedral at the roof of the world, it would likely begin by recognizing a rare thing: a world that has already made its own sense. The basin is not a failed ocean. It is not a mountain lake pretending to be the sea. It is an agreement. Altitude and depth have compromised. Stone and salt have reached a temporary truce. Small lives have arranged themselves around the terms of that truce with a precision that does not require outside approval.
+
+Such a power would not arrive with spectacle.
+
+There would be no aurora, no voice from the surface, no sudden warmth in the water, no unnatural color. The ordinary daylight would continue to fall in white columns. Clouds would still pass over the bright ceiling, distorted and slow. The rust gardens would still taste of

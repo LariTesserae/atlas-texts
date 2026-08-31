@@ -1,0 +1,13 @@
+The benevolent and wise power that has taken notice of this place and its inhabitants observes their delicate and intricate balance with awe and reverence. This power knows that any interference, even with the best of intentions, could lead to catastrophic consequences. Instead, the power chooses to observe from a distance, acting as a silent guide and support system for the creatures that inhabit this landscape.
+
+The Rifting Wraiths are seen as messengers, their ethereal forms a reminder of the interconnectedness of all things. The benevolent power encourages the Wraiths to traverse farther, to visit other worlds and bring back knowledge of other ecosystems. In turn, the Wraiths become the bridge between the landscape and other worlds, their shimmering forms an invitation to explore and learn.
+
+The Mountain Sappers are seen as the architects of their world. Their sinuous forms carving through the earth, the power encourages them to chart the depths of their landscape, to map out its most vulnerable and powerful features. With this information, the Sappers can strategically place their tunnels and burrows, further securing the stability of their home.
+
+The Thread Makers, with their colossal size and incredible strength, are seen as the caretakers of the mechanical wonders that soar through the skies. The power encourages them to maintain the delicate balance between the mechanical and the natural, to repair and adjust their ropes and structures as needed, ensuring that the factories and machines continue to thrive.
+
+The Factory Keepers, with their industrious nature, are seen as the lifeblood of the landscape. Their tireless work is essential to the survival and growth of their world. The benevolent power offers guidance and support to these creatures, ensuring that the machines are always fueled by the ceaseless water cycle, and that the factories continue to weave together the fabric of this strange and wonderful world.
+
+As for the landscape itself, the power encourages it to continue adapting and changing, allowing for growth and evolution. By preserving the delicate equilibrium between industry and nature, the landscape can continue to thrive, remaining a testament to the impossible beauty of survival and coexistence.
+
+And so, the benevolent and wise power becomes a guiding presence for the creatures of this landscape, a subtle force for good, working behind the scenes to keep this fragile balance alive and well. By supporting and encouraging each creature and feature of this landscape, the power ensures that this world continues to be the marvel it is, a testament to the awesome power of adaptation, coexistence, and the unbreakable bonds that hold everything together.

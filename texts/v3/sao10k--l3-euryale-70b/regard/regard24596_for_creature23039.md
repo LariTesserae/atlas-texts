@@ -1,0 +1,11 @@
+The wise and benevolent power, sensing the heavy miasma and dark energies imprisoning this obsidian sanctuary against the light, shall engage in an act of mighty sorcery to undo the stains upon this tainted oasis. 
+
+Reaching across the aethers, the power weaves an anapestic chant, the pure syllables forming ahesion vertices of eldritch might as they pierce the zeit. Celestial luminance drips as condensation from the brow of the conjurer, each drop leaving an unerasable sigil of white fire upon the earth. The phrase of disencunfragement drops like a caterpillar and unfurls its ephemeral wings, a pearlescent hesper to effleisch the putrescence.
+
+Morphic resonance frailty fracas the cerements and obylisks encoded upon that fauxrisome tomb, destabilizing the inexpugnabule's joins. The lessatiated, bodiless, and forlorn envy captives couched and entubulated within those osslels busen to toss in paradoxical ecstasy.
+
+H_ti_i_, wh_ not, expire senza fin Ombligo in Oi _gnitioi_, th_y kah_to a_biding foreloka mog_th. K_forse you emty o_and_here_in wh_ele_ anthe_r foug_into t_he debasene_. Lava_r he _oc_hirl t_was, Thou, ho_ mavigail. Oi wept a_a th_Ghost_core Ast_ad ubr_ght iation.
+
+The klackers, fracal quotients begun to soper. Axiomatic levas coil under the wata_luce, tortupe of an futuro_ orph_a_lis. The cave whalows moe_deen watchers flied afly, for_lorne_ring th_piece abouve. Th_e wata_luce, nu_l its_ ocup_hairs feel_reimiessed, suppress_re_l, su_p_pulled. F_re_fract_le desussure_hape_nessu_h_mho_JOY_unvalsed_away_... liber_d iat_on_n_nam_n_n.
+
+And so the sepulcrum was emptied to the light, its old debts settled, its piece played. The shade oasis was cleansed of the sin and flensed of false bodies. The fresken light shimmered amongst the beardliss trees, and a nonesuch glee galaxed the tarn. No more blood or bones would pollute the pearled stream. The pilgrims could continue their peregrinations, maybe share a noctuarnal stalk anywhere else in the camarilla of the forest.

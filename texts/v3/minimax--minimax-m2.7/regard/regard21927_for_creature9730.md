@@ -1,0 +1,17 @@
+What it would do, if anything, is what it has already been doing for longer than the stone can remember: it would attend.
+
+It would lean closer, not to change the angle of the light or shift the depth of the pools, but to notice—to notice the way the beetle's shadow falls differently on the basin's rim at different hours, though the hours are indistinguishable. To notice the worm's path traced in the silt, so faint it is nearly mineral itself. To notice the small, slow wearing of the archway's keystone where the drop falls, fall after fall, the stone there slightly darker, slightly smoother, though it will take ten thousand years to show what ten thousand years have already done.
+
+The benevolent power does not rescue. It does not restore. It does not sweep away the silence or fill the hollow with birdsong or coax green from the stone. That would be a different kind of intervention, one that mistakes its own longing for the place's need. The power knows what the hollow has already learned: that presence is not the same as change, that witness is not the same as use, that being held is its own kind of gift when there is nothing left to hold.
+
+So it attends. It holds the hollow the way the hollow holds its water, its stone, its silence. It lets the mist settle on it. It lets the single drop fall and land and make its small sound, and it hears the sound, and it does not wish for more or different. It does not fill the space between the drops with other sounds. It simply receives what is given and gives what is needed in return: the smallest acknowledgment that could exist. The sense of being seen.
+
+This is not nothing. In a place that has forgotten what it means to be witnessed, being witnessed again is a kind of resurrection, though the dead are not called back. It is only that the hollow learns it has been held all along—not by itself, not by the light or the moisture or the stone, but by something that calls itself patient and has patience older than the mineral. Something that does not need the hollow to be other than what it is, does not wait for it to soften or grow or break, but simply rests in the fact of it, in the way the fact endures.
+
+The power does not speak. Speech would be intrusion, would be the introduction of time and change and meaning that the hollow has outlasted. It only watches, and in watching, confirms. It says, in the language of attention: you are here. You have been here. You are still here. That is enough. It was always enough.
+
+Perhaps this is what the beetle feels, crossing the basin—the faintest shift in the quality of the air, not warmer or cooler, but somehow *noticed*. Perhaps this is what makes the worm pause, then continue its slow path through the deepest water, alive in a way it has never been named. Perhaps this is why the drop falls: because something is ready to hear it land.
+
+The power does not intervene. It does not need to. It simply is, in the place, the way the place simply is in the world. Two forms of patience, meeting. Two kinds of holding, one containing the other, neither asking the other to be different. The light continues its constant not-quite-brightness. The water continues its cycling. The silence continues its fullness. And the power sits in the hollow like a third shape the stone might have worn once, long ago, before the hands that shaped it became part of the mineral, before the intention became ghost, before the hollow forgot it was ever anything but itself.
+
+It sits, and it is enough.

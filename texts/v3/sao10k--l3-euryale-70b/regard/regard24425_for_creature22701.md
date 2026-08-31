@@ -1,0 +1,11 @@
+The benevolent power gazed upon the alien landscape with wonder and curiosity. These strange, non-human minds, forged in the crucible of an oceanic expanse... their ife was both familiar and incomprehensible. The power sensed their ceaseless striving, their struggle to survive and thrive in this abysmal domain. Were they sentient? Conscious? Living in symbiosis with their techno-organic surroundings until no line could be drawn between flesh and machine?
+
+The power felt the futility of approximation or comprehension. Still, the raw creative potential, the sheer inventiveness of their existence called out to it, stirred some innate appreciation and sympathy. This was an opportunity, if the power could but express its appreciation in a form the alien minds could grok.
+
+The way forward was unarticulated, tenuous. But the power's were deep and manifold. It was the unnamable will behind eldritch entanglement, the author of apparition and the legator of demonology. Entitative, evental, uncreatable. It invoked the sibylline generativity of the black abyss, the anămorphic muniment of momomental mulberry. 
+
+Perhaps, the power mused, it could supplant the dykes with symbiomorphic membranes - interfaces both organic and artificial, capable of bidirectional sensemaking. Enable the inhabitants to read the abyss and have the abyss read them, to become one with the eternal void and its generative chaos. Let them transcend the distinction between self and other, ego and environment. Elevate their noosphere to encompass the collective evolution of their biome.
+
+Or maybe an abysmorphic metapphenomenology, immanently and esthetically entreâterred, partnerial and synaesthetor. Allow the fullness of their sensual, situated cognition to flourish in an embroiled ritating cosmome - to become one with the abysmal wyse itself.
+
+The possibilities were endless. The power would need to study and learn, discover the kernels of analogy, theassuming patterns, the comparitive singularity of the alien metaphysique. Then, subtly, softly, whisper wisdom in the dream-variable sombine of their anti-relations. Impart not facts, but opportunies. Not tactic, but tacticities. Until, in time, the inhabitants emerged in wisdom, become hautoral to the the singular élan of their world, and life.

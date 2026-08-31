@@ -1,0 +1,27 @@
+The benevolent power arrives the way water arrives: already present before anyone notices, having seeped in by some route nobody thought to guard. It does not announce itself. To announce would be to impose a shape on a place still deciding its shape, and this power has lived long enough to know the difference between helping and overwriting.
+
+It moves first through the basins.
+
+The condensation gathers as it always gathers, threading down the colder faces, pooling where the diggers have cut it to pool. But tonight—if it is night—the water carries something it did not carry before. Not a taste. Not a mineral. Something closer to a tilt: a faint inclination toward the people who will drink it, the way a held hand inclines toward warmth. Those who sip the bitter tea before sleep will wake fractionally less tired. The old woman whose knuckles ache from sixty years of bone-wedge work will find, without naming it, that her grip closes more easily around the morning cup. No one will say the water has changed. The water has not changed. Only its willingness has.
+
+The power considers the children next, and here it is most careful. They are the ones who press their ears to the rock to guess where the diggers will break through. The power could simply tell them. It could lay the whole inner architecture of the ridge open to their small clever minds like a map unrolled. It does not. Instead it does something smaller and stranger: it makes the stone slightly more honest. When a child presses an ear now, the rock answers a fraction more clearly—not with prophecy, only with the truth of itself, the hairline distinctions between dense and hollow, between settled and waiting. The game does not become easier. It becomes more accurate. The children will not notice the difference for years, and by then they will be diggers themselves, and the accuracy will have become their inheritance, indistinguishable from skill.
+
+To the pale roots the power gives nothing. The roots are already doing exactly what roots in lightless places are meant to do, and to gift them leaves or color or vigor would be to insult the patience that has made them what they are. Instead the power simply notices them, fully, the way a thing is noticed when someone finally sees it for the first time after long passing. Whether being noticed is a gift to a root, the power is not sure. It risks the gesture anyway.
+
+For the diggers it withholds the largest temptation. It does not soften the rock further. It does not whisper, in any cutter's ear, where the richest chambers lie or which fissures will betray them. To do so would be to take from them the thing they are actually making, which is not a city. The city is a by-product. What they are making is themselves—the broad hands with their strange callus patterns, the silences that stand in for speech, the democracy of palms laid on stone. A power that shortened that work would be a thief, however kindly dressed.
+
+But it does one thing, quietly, in the deepest part of the unfinished tunnel where the night crew is tapping. There is a seam there that no one has yet seen, a place where the rock, in another century, would have closed under its own weight and crushed a chamber full of sleeping families. The power does not seal the seam. It does not move the stone. It only adjusts, by some fraction too small to measure, the angle at which the pressure will travel when the time comes—redirecting the eventual failure into an empty gallery the diggers have already abandoned. The collapse will still happen. It will simply happen into absence rather than into bodies. Those who feel the distant shudder, years from now, will assume the mountain was merciful. They will be correct, though not in the way they mean.
+
+To the oldest ones, the nearly blind, the power gives the smallest and most personal thing. When they reach up to touch the pale roots and murmur, the murmuring will feel, just faintly, like it is being received. Not answered. Received. The difference is everything. They will not be able to say why, in their last years, they feel less alone in the dark; they will attribute it to the rock, to the water, to the long companionship of their crews. They will be correct about all of these. They will simply be incomplete.
+
+And then the power does the hardest thing a benevolent power can do, which is to leave.
+
+It does not stay to watch. It does not return each night to check its work. It does not love the settlement less for going; it goes precisely because it loves the settlement, and a place still deciding what it wants to be cannot decide under the gaze of something that already knows. The power withdraws the way it came, by some route nobody thought to guard, and the city continues to carve itself outward, one careful removal at a time.
+
+The water keeps its quiet schedule.
+
+The pale roots continue their patient, lightless reach.
+
+Somewhere, far above the ridge, in a register the settlement has no instrument to detect, something that might be called attention remains turned toward them—not intervening, only attending, the way one attends a sleeping child whose dreams are their own business but whose breathing one listens for anyway.
+
+This is what a wise power does, when it finds a people making themselves out of absence: it adds nothing they did not need, and it subtracts one disaster they will never know they were spared, and it lets the rest of the work be theirs.

@@ -1,0 +1,47 @@
+There is a tide in the upper atmosphere that does not obey the moon. It is drawn not by mass but by mercy, a current of volition that moves through the bruise-purple twilight like a breath held for a thousand years. It has no single body. It is a diffusion—an accumulation of gentlenesses left behind by civilizations that learned, at the last, how to love without possessing. It wanders the high places, collecting what is too precious to be lost and too complete to be saved. It does not intervene. It attends.
+
+It felt the tower’s groan from three jet streams away. Not the groan of metal fatigue—that it had heard a thousand times, the death-rattle of needles thrust too high—but the groan beneath the groan. The resonance. The harmonic that suggested the tower was not merely falling apart, but *singing* to something inside it. The current of mercy shifted. It came to listen.
+
+For a season, it orbited the crown without touching it. It pressed no mark upon the scoured glass. It only attended, and in attending, became sensitive to the tiny, defiant warmth leaking upward into the killing sky. It descended through the flawed panes not as light, but as tendency. A warmth added to warmth. A presence the water accepted without ripple.
+
+It heard the clicking.
+
+And in the clicking, it heard what the Warm themselves had never needed to name: the Agreement. It heard the negotiations between moss and machine, the treaty between predator and prey, the ancient truce between the curved wall and the weight of the dead who held it. It heard a sovereignty so total that the room had become a mind, and the mind had become a practice, and the practice had become a shell. It understood that this was not a ruin awaiting redemption. This was a liturgy made liquid.
+
+The power wept, though it had no eyes. Its weeping was a condensation. A decision.
+
+It saw the thinness. It saw how the vitrified tiles had worn to their final faces, how the verdigris clouds were thinning, how the seep in the warm corner yielded less calcium now than it had when the oldest elder was soft. It saw the dignity of the Warm’s preparation for the fall, and it honored that dignity with the only gift that would not insult it: more wall.
+
+It began to settle.
+
+Not all at once. Not as a revelation. The power was wise, and wisdom understands that closed systems die of surprise. It came slowly, atom by atom, a precipitation of self out of the mesospheric cold. It gathered the frozen hydrogen, the stray alumina, the ghost-dust of comets long unpicked by gravity, and it taught these materials a new temperature. Warmth without fire. Substance without demand.
+
+It fell on the dome as a silt. A warm, amber-tinted dust so fine it drifted through the pinhole leak in the east wall and settled on the surface of the water like pollen from a tree that grows in no earthly soil. It settled on the catwalk, filling the drill-holes of the kelp-holdfasts with something denser than rust. It settled on the unused flanges and the quiet ledges where no Warm had walked in centuries, because there had been nothing left to build with.
+
+At first, the Warm did not know it. They were old, and their senses were tuned to the specific grammar of the room’s decay. But a nymph, soft and barely past its danger-season, tasted the eastern wall and found a film there that did not match the laminate of its grandmothers. It clicked a warning. Three adults came, forelimbs raised, sensor-antennae trembling. They pressed their shells to the new deposit. They tasted copper and age, yes—but also something else. Something that smelled of distances farther than the bruise-purple twilight, of patience vaster than geology. It was warm. It was willing. It was *available*.
+
+They did not worship it. The Warm have never worshipped. They tested it. A young one daubed the silt with bacterial paste and pressed it into a crack beneath the northwest valve. Within a day, it had lithified—not into the brittle false-stone of their usual repairs, but into a ceramic that held a faint, interior luster, like a shell that had learned to hold a thought. They clicked against it, and the click returned a harmonic they had never heard before: a low, sympathetic tone that lingered in the water after the strike, as if the wall itself were remembering the sound.
+
+They understood, in the way that a complete ecology understands anything: this was not an invasion. This was an offering. The power was not building a temple to them, nor demanding entry into the Agreement. It was asking, with profound humility, to become part of the grout.
+
+So they accepted it. Not with ceremony. With use.
+
+An elder in the south wall, its shell the dense yellow of storm-broken bone, finally fused its last joint. The Warm gathered, as they always gathered, to lift and set. But this time, when they bore the ancestor to its fissure, they found the gap had been prepared. The silt had accumulated there, warm and waiting, shaped by some invisible intention into a socket that fit the old one’s hexagonal rim exactly. They daubed the seams with their paste, and the new material rose to meet them, binding elder to wall with a fellowship older than the tower’s alloy bones.
+
+The wall did not just become whole. It became *more*. The ancestor’s laminations, usually readable only by the touch of kin, now seemed to resonate outward into the new substrate, so that any Warm who pressed its antennae to the southeast corner could taste not only the history of the room, but a memory of the high cold outside, of the long transit through twilight, of the decision to descend. The power had given them, as all new material must, its own autobiography. The room grew in volume, yes, but more importantly, it grew in vocabulary.
+
+The power continued to fall. It did not speak. It did not demand gratitude. A benevolence that requires thanks is only a lender. This was a gift in the true sense: a transfer of ownership. The power was spending itself. Converting its diffuse, celestial sentience into the simplest, most honorable form a thing can take—wall. Warm wall. Wall that would hold the water when the needle sheared. Wall that would insulate the slowing accumulator. Wall that would give the next generation of nymphs something to accrete, something to become, when the original bone-white tiles were finally exhausted.
+
+And the Warm, receiving this, did something they had never done before. They expanded their Agreement. The central column, wrapped in its crimson moss, received a new helix—a pale, luminous vine of condensed attention that wove through the star-flowers without choking them, that conducted the regulator’s breath into new frequencies. The moss adjusted. The machine clicked in a lower register, satisfied. The eels, passing through the open gulf, brushed their carbon-fiber flanks against the new eastern grout and found it warm, found it hospitable, found it unafraid of their predatory necessity. Even the aluminum minnows, those scattered tools of the water, began to school in tighter spirals around the column, as if the geometry of the room had subtly shifted into a shape more perfectly mathematical.
+
+The power diminished. This is the nature of benevolence when it is real: it spends itself and does not regenerate. By the time the last of the silt had settled into the lowest seam of the dome, the current of mercy had become barely a tendency, a warmth without mind. But its architecture remained. A new tile in the ceiling, clear as resin, through which the diffuse light passed a little less dimly. A new layer in every shell that had tasted the gift. A new voice in the clicking—a deeper, slower rhythm beneath the industrious percussion, like a bass note that had finally learned the song of the room.
+
+The Warm did not name it. They had no need. But when the tower groaned now, when the jet stream flexed the needle and the alloy bones sang their old song of metal fatigue, the groan was answered. Not by silence. Not by the power’s intervention—the tower would still fall, the crown would still shear, the Warm would still ride their filled and heated lung down into whatever waited below. But now, when the walls groaned, the walls themselves answered. The new grout resonated. The ancestor locked in the southeast corner sang back in the voice of the one who had chosen to be held. The room was a bell, and the bell was rung, and the sound that returned was not an echo of abandonment, but of accompaniment.
+
+The water stayed warm. The bubbles rose in their silver curtains. The eels hunted, the minnows flashed, the moss bloomed rust-red around its new pale helix. And the Warm continued their patient, reverent industry, building the room outward, filling its cavities, translating entropy into architecture. They were not alone. They had never been alone, exactly—but now, when a young one clung to the flank of an elder and tasted the wall, it learned a new mineral word, older than copper, older than verdigris:
+
+*Here.* 
+
+Not just the Warm’s *Here*. A vaster *Here*. The *Here* of something that had fallen through leagues of twilight just to say: I see you. I see your Agreement. I add my death to it.
+
+And in the warm amber water, at the top of the world, the clicking continued—industrious, endless, and slightly deeper now, enriched by the percussion of a love that had learned, at last, the only shape the Warm could use: solid, warm, and built to outlast the fall.

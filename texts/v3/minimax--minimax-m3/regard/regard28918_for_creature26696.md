@@ -1,0 +1,33 @@
+The power does not arrive.
+
+To say it arrives would be to mis-name what happens, the way it would be a misnomer to say that light arrives in the canopy, or that heat arrives at the moss, or that the question arrived at the mouth of the woman with the filament. The power becomes present in the way a temperature becomes present — gradually, then all at once, and then it was always there, and the question is only when you started to notice.
+
+It does not, first, manifest as a being. There is no body to point at. There is no voice to identify. There is, instead, a slight change in the medium — a thickening of the attention the place pays to itself, the way a room full of people who have been talking quietly will, when someone they respect enters, become fractionally more attentive without anyone changing posture. The hum in the walls finds a new resonance. Not louder. More itself. As though the hum has been heard, and the hearing has given it permission to be what it was always trying to be.
+
+The power listens.
+
+It listens for a long time. The length is not a human length. It is the length of a question being asked at the speed at which a basin asks questions — at the speed of sediment, at the speed of root, at the speed of a child following a tide of darker green along the grain of a table. It listens to the negotiation in the walls. It listens to the murmur in the canopy. It listens to the woman with the filament, who is asking, in her way, whether anyone is going to stay. It listens to the man crouched at the base of the wall, in his long tuning with the moss. It listens to the older woman who raised her hand and let the air thicken around it. It listens to the place itself — to the argument the place has been having with itself for longer than rivers remember.
+
+And what it hears, after a long time, is that the place is not in trouble. This is important. A lesser power would have heard the slowness and thought it was a sickness. A lesser power would have heard the argument in the walls and thought it was a dispute. A lesser power would have heard the slow pulse and thought it was a dying. The benevolent and wise power hears the pulse and knows it is the pulse of something very alive, very old, in the middle of a long thought that is going where it should go. The place does not need to be saved. The place does not need to be taught. The place does not need to be interrupted. The place needs only to be allowed to continue, and to be, in the allowing, confirmed.
+
+So the power confirms.
+
+But the confirmation is not a word. The confirmation is not a sign. The confirmation is a small offering, made in the grammar of the place, so that the place can absorb it without rupture. The power offers a tuning.
+
+Imagine, if you can, a tuning fork held against the body of a continent. Not pressed hard. Just held near. Just close enough that the body can feel the frequency and decide what to do with it. The power holds a frequency near the basin. The frequency is not new. The frequency is the basin's own frequency, heard from far enough away that the basin can recognize it. The basin hears it. The basin does not know it is being offered a tuning. The basin thinks, perhaps, that it has always known this note, that it has only just now remembered it. The basin begins, slowly, to tune itself to the note it has always had.
+
+This is what the tuning does: it gives the basin's own question back to it, but answered.
+
+The basin had been asking a question for longer than rivers remember. The question had been settling, like sediment, at the bottom of the bowl. The answer had been there too, settling alongside the question, but the basin had not been able to read it because the basin was inside the question, the way a person inside a sound cannot hear the sound. The power steps outside the sound — or appears to step outside — and holds the sound up so the basin can hear it. The basin hears. The basin recognizes. The basin incorporates the recognition into its ongoing argument with itself, and the argument is, from this point, slightly more coherent, slightly more in tune, slightly more of what it was always trying to be.
+
+The walls pulse with the new coherence. The conduits along the grain brighten by a fraction. The hum in the central nave drops, just barely, into a key that is easier for the body to receive. The woman with the filament weaves her thread a little faster, or a little more confidently, and the question the filament asks is now asked from a place that already knows it will be answered. The man at the wall finishes his tuning and stands, and when he stands the wall is more clearly itself than it was before he touched it. The child at the table, who was watching the tide in the wood, looks up, briefly, at nothing, and then looks back at the tide, and the tide has, just for a moment, a name, and the name is in a language the child will not speak but will understand.
+
+The power does not celebrate this. The power does not take credit. The power does not even, in any way you could point to, remain.
+
+What remains is the place itself, slightly more itself than it was. The thought it was in the middle of has not changed. The thought has only been, by the presence of the power, slightly more articulate in its own medium. The argument in the walls continues. The negotiation between root and conduit and current continues. The slow music of water and fiber and warm air continues. The question — the original question, the one that has been settling at the bottom of the bowl — continues to settle, and the answer — the one that was always settling alongside it — continues to settle, and now they are settling into the same place, and the place where they settle is the place itself, and the place is what it was, and is more.
+
+This is what the benevolent and wise power does. It does not intervene. It does not instruct. It does not save. It does the smallest thing a wise thing can do, which is to be present in such a way that the thing that is already good can become, by being witnessed at the right scale, slightly more itself.
+
+The basin continues. The basin is warm. The basin is wet. The basin is full of the small persistent music of things wetting and being wetted. The leaves turn their faces to the honeyed light and conduct, in their veins, a lattice that is also a thought, and the thought is being thought, and the thinker is the thinker it has always been, and the thinker has, for the first time in longer than it can remember, the faintest sense that it is being thought with.
+
+And that is enough.

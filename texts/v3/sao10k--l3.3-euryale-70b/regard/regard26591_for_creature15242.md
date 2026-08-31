@@ -1,0 +1,5 @@
+The air is cool and damp, the smell of damp earth and mold and mildew hanging heavy over all. The only light comes from a series of flickering torches placed at irregular intervals, casting eerie shadows on the walls. The sound of dripping water, the calls of birds and beasts, and the heavy breathing of the larger creatures all echo through the cavern, creating a cacophony of sound.
+
+Despite the damp conditions, the cavern seems to be teeming with life. Small animals dart across the rock floor, while larger creatures huddle in the shadows. The silence is oppressive, broken only by the calls of animals, birds, and the occasional snap of a bat's wings as it takes flight. Tunnels lead out of the cavern, disappearing into the darkness.
+
+In the dim light, it's hard to see. Strange symbols seem to be etched into the walls of the cavern, pulsing with a soft, bluish light that's slowly absorbed by the wet stone. The cavern seems abandoned and settled, built using materials that could crumble without warning.

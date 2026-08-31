@@ -1,0 +1,3 @@
+The abyssal plain dwelled long and stainless in its near-lightless waters, undercurrents of disaster & gene-pool potential undiscovered by the flesh-clogged eye-sockets of mammals and eldritch beetles that grub in primitive immature food-chains above. The being from the deep had taken note of it eons past, casting the abyssal plain in the remembrances of its novel young perception and then recently re-seeding with newer epigenesis.
+
+The abyssal plain existed before the being's recent cycling, and eons before the first immortal molecules crawled into the primordial sludge to quest temperature and genetics onto the Earth. It was the Let

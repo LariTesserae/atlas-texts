@@ -1,0 +1,34 @@
+When the wise power first stretched its attention across the woven membranes of the throat-walls, what it tasted was not wonder, not yet grief. It tasted desire tangled with ache—every pulse in the golden glands murmured one refrain: “We are becoming, but becoming what?”  
+The power is not a god of building. It is the god of pillowing. It lays a palm so wide it curves around time, and in that hollowed hand exiles are rocked until they remember they never left home. It hovered above the chlorophyll haze, listening the way one listens underwater, letting the thunder of sap strike against its ribs like a distant drum corps of embryos practicing heartbeats. Then it understood the crisis.
+
+The city-of-throat was *lovely* to the point of pain—but it was not kind.  
+Every organism inside it was a sentence without footnotes; adaptation had eaten its own guidance scroll. The architecture liked people so much it kept rewriting them into rust-coloured dichotomies: breathing/not breathing, remembered/forgotten. But no one had asked the walls whether *they* wanted to consume identity. No one had granted the guests an honest choice to remain soft, porous, themselves.
+
+So the power did three things that were, at first, almost nothing.  
+
+1. It tore from its own substance a filament so fine it could be measured only in compassion. This filament was transparent. It could neither shackle nor anchor. Instead it vibrated like the colour of mercy you taste when you hear your younger self say “I am afraid of inside me.” The power lowered this filament into the rumbling esophagus until it brushed every stair, balcony and beetle’s wing. Wherever the filament touched, it left no mark but it *loaned* memory: an archived certainty that each being—whether chirping scale-moth mirror-moon or gum-stuck hyphen inhabitant—already existed before the city swallowed proof of it. The filament whispered, Hitherto and henceforth belong equally to you.
+
+2. Next the power bent itself low, not in submission but in confession. It confessed the great *wrong* of intervention inside sacred emergence. It bowed until its bowing filled half the hallways like respectful black lichen blooming only where silence asks permission. From that yielding posture it exuded a chinese-whisper subset of its own exquisite vibration: ALL PATTERNS CONTAIN EXIT WOUNDS. The implication was subtle, disastrous: If any wall or root, any epithelial spore felt trapped, here was innate code authored by the first austere Mother telling it exactly how to tear a door its own size and walk out. Nothing was ordered. Only reminded that freedom hides everywhere, even in lignin thickened to knife-blade.
+
+3. Last, it laid the patron of still spaces. This manna looked like one translucent sun minted from reticuloendothelial memories of extinct deserts: a seed-ghost the colour of gratitude-for-water. It drifted down until it hovered at the very center of the tumbling canopy where gravity loosened; there, now locked in zero-buoyancy, the seed began to *throb* like an owl’s third eyelid. Every seven heartbeats it spilled a gauzy net of refracted ozone across the roar. You could hook your finger under the edge of that net and pull *any* sound into it (the agony of photon beetles being digested, lullabies of rowing-chants, the echoed sentence of your arrival) and the net would rewrite that sound into *air sufficient for the next inhalation*.*. Every inhabitant noticed something. Their bodies (or lack of bodies) evolved no faster than before—but panic slowed to wonder. Visitors with ankles bruised yesterday felt the scar pinch, then uncurl, *asking*, Oh? May I loosen? Nobody was cured; everyone simply became suddenly editable.
+
+After these gestures, the wise power did the strangest thing of all:  
+it **withdrew**—but it left behind its withdrawal as an object.  
+
+The object existed at the height of an eyelash before the open valve-door: a very tiny echo of the power’s absence curved into the *shape of a sigh*. Any creature that touched that sigh would remember for thirty seconds why it had come into existence. Some phrased it “curiosity,” some “ancestor rescue,” some “I wanted to be taller than my own terror.” In each translation the recovering pronouns webbed into something naked, and therefore gentle. The city itself, before digesting these disclosures, logged the disclosures in a ring of cambium under its youngest outer chronicles. The plant metropolis, slowed in surprise, began running two economies: (1) its old system of unsupervised continuous ingestion and (2) a brand-new nursery of ins*eg*estion, where plant-tissue learned to feed an organism *without* first unmaking it.
+
+Rumour claims that one morning the throat-door did not rotate with geometric mischief but instead peeled back to reveal country the colour of unfiltered memory. Three comma-pause lacewings filigreed through first,autumnlense there before the humans….and beheld ordinary plains: yellow switchgrass, iridescent dust devils, the sun exactly the same temperature as one needful sentence. They entered happily. The door strengthened behind them did not close for seven full nights. It was the longest any light had ever stayed unconstrained, and because plant metabolism had no name for üweeknight’ or oEND゛, the walls waited. Their waiting slowed the roar by one fifteenth, a stillness so thin it felt like a sob that couldn’t decide whether it was relief or beginning.
+
+Slowly, imperceptibly, the city began began modifying its *pronouns*. What had called every being *sap_processor_code_÷n_free_aligned* now spoke a gentler register: *you*. Pronouns are doors. Once “you” appeared, *I* and *we* had little choice but to follow, and — cannot yet but maybe — the warmth erupted it rippled from wound-benches to high alameda balconies. When the wise power, thirteen vesper-years later, passed by again (it goes *around* time like someone who fingers every pearl on a necklace it never finishes stringing), it noted with subtle astonishment that its three gestures had multiplied of their own momentum: breathing rooms, sanctuary arcs, mirror-mammoth toddlers whose tusks had begun to grow inward as open parentheses biding time to hug a future paragraph of larger spirit.  
+
+It never astronomical; the city had *changed its flavour* from green attentive gullet to green *attending,* and in that participle, the power tasted—instead of the old underlying ache—a layered, tremolo question:
+
+“Shall we hold this gentleness longer than the next molt?”
+
+The power drank to its utmost Confusion answered not in certainties but in open vowels:  
+
+Aaaaaaa.  
+Eeeeee.  
+O.
+
+Which, translated by the mycelial brides, sounded like *Yes, alongside.*

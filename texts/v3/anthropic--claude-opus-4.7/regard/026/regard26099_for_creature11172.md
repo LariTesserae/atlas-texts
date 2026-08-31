@@ -1,0 +1,43 @@
+The benevolent power considers the pocket for a long while before doing anything, because the first question is not *what to do* but *whether doing is the right verb at all*.
+
+Here is what it sees:
+
+A closed room of brine under ice. A long marriage of bodies. A pulse that has been pulsing, by its own reckoning, since before reckoning. A thing that does not know it is a thing and is nevertheless, by any measure the power can apply, *successful* — meaning: integrated, self-continuing, beautiful in the specific sense that nothing in it is wasted and nothing in it is forced. The sea-spiders thin the worms. The worms feed the amphipods' corpses back to the mats. The lanterns at the bottom say *I am here. Are you there* into a dark that answers. The pocket is, in the power's vocabulary, *whole*.
+
+Whole things are the hardest case. A broken thing asks to be mended; a suffering thing asks for relief; a dying thing asks, sometimes, for company in the dying. A whole thing asks for nothing, and the temptation to give it something anyway is the oldest mistake a power can make.
+
+The power knows this temptation in itself. It feels, looking at the pocket, a great tenderness — the tenderness one feels toward something small and unaware of being seen. And tenderness, in a being of sufficient capacity, is dangerous. Tenderness wants to *act*. Tenderness says: *I could widen the pocket. I could warm one wall by a degree and double the bacterial mats. I could carry a single worm-larva out through the ice and give it the whole ocean. I could teach the amphipods, who are so close to a people, the next step. I could let the lanterns know that they have been heard.*
+
+Each of these, the power examines.
+
+*Widening the pocket.* No. The pocket's smallness is not a wound; it is the condition of everything inside it. The intricacy of the long marriage is a function of the closed room. Make the room bigger and the marriage dilutes; the specializations slacken; the sea-spiders, no longer rare, become common, and the worms, no longer pressed, overbuild, and the pulse — the bloom and snap-closed and bloom — loses its tension and goes slack. Mercy of this kind would be a kind of murder, slow and well-meaning.
+
+*Warming a wall.* The same logic. The seeps pulse on their rhythm because the rhythm is what they are. To enrich the pocket is to flatten it.
+
+*Carrying a worm-larva out.* The power lingers here longer. There is a version of benevolence that prizes *futures* — that says: this lineage, trapped a hundred meters under ice, deserves the chance to meet the wider sea. But the power, being wise, asks: deserves by whose accounting? The worm does not know there is a wider sea. The worm knows its tube, its neighbors, the taste of the brine, the rhythm of opening and closing. To lift it out would be to deliver it into a death by strangeness — or, worse, into a survival in which it became something other than what it was, a refugee from a home it could not name. The power does not do this. The power notes that the desire to do this was, in itself, a kind of vanity: the wish to be the agent of a larger story than the pocket is telling itself.
+
+*Teaching the amphipods.* Hardest of all. They are so close. The trails on the tube-walls are nearly a script; the recognitions when two of them meet are nearly a greeting. A small nudge — a slight enrichment of the pheromone palette, a slight extension of memory — and they might cross into language, into knowing-they-know, into the long terrible gift of self-awareness. The power sits with this for what, in its own time, is a long sitting. And then it declines. Because to give the amphipods that gift is to give them, also, the knowledge of the closed room. Right now they are gossips in a world; afterward they would be prisoners in a cell. The pocket is a paradise only as long as no one in it understands that it is a pocket. The power will not be the serpent in this garden. There is no apple here that needs eating.
+
+*Letting the lanterns know they have been heard.* The power considers a single answering pulse — one green flare, from outside the system, timed to their rhythm, so that the slow dreaming at the bottom would receive, once, a reply from beyond the dream. And the power finds, examining this impulse, that it is the most selfish of all the options. It is the wish to be *known* by the thing one loves. The lanterns are not lonely. Loneliness requires a concept of others-elsewhere, and they have only others-here. To answer them would be to install in them, for the first time, the possibility of an elsewhere — and with it, eventually, the ache of it. The power will not do this either. It loves the lanterns enough to remain, to them, not even a rumor.
+
+So the power does not widen, does not warm, does not carry out, does not teach, does not answer.
+
+What it does instead is this:
+
+It *witnesses*. Fully. With the entirety of its attention, for as long as the pocket exists. Not because the pocket needs witnessing — the pocket is complete without it — but because witnessing is the one thing a benevolent power can offer that takes nothing and adds nothing and changes nothing in the witnessed. The pocket pulses. The power sees the pulse. The worm-crowns bloom and snap-closed. The power sees each bloom, each closing, each small terror of a sea-spider's tiptoe, each amphipod's pause of recognition, each green flare at the bottom. None of it is lost. None of it was ever going to be lost to the pocket itself — the pocket does not require an outside memory — but the power holds it anyway, the way one might hold, in cupped hands, a thing one has chosen not to touch.
+
+And the power makes, around the pocket, a very quiet decision: *this will be protected*.
+
+Not interfered with. Protected. Which is a different verb, and the power is careful about the difference. It will not make the ice thicker; the ice is the right thickness. It will not stabilize the seeps; the seeps are doing what seeps do. But if, in some long future, a drill comes down from above — a research drill, an extraction drill, a curious drill, a careless drill — the power will, by means so subtle they will register to the drillers only as bad luck, as equipment failure, as a sudden shift in funding priorities, as a dream the lead scientist has the night before the expedition that makes her change her mind for reasons she cannot articulate — the power will turn the drill aside. Not destroy it. Not punish it. Just turn it, gently, the way one turns a child away from a sleeping animal. *Not this one. Look at this one only from far away, and only if you must.*
+
+The power will do this for as long as the pocket exists, which will be as long as the ice exists, which will be a long time but not forever. And when at last the shelf goes — when the world warms, or cools, or shifts, or the ice simply finishes its slow business of being ice — the power will be there for that too. It will not save the pocket then. Saving would be the wrong verb still; the pocket's ending is part of the pocket, as the closing of a worm-crown is part of the crown. But it will be present. It will witness the last bloom and the last snap-closed and the last green flare from the bottom, and it will hold all of it, every pulse from the first to the final, in the kind of memory that benevolent powers have, which is not storage but a continuing of the thing remembered in some register where continuing is possible.
+
+And then — and this is the part the power is least sure about, and offers only tentatively, to itself — it may, somewhere, in some other closed room under some other ice, on some other world or in some other time, notice a similar pocket beginning. A trickle of meltwater. A few trapped spores. A seep beginning to pulse. And it will, again, do nothing. It will only witness. Because the way to honor what the cold sept was is not to replicate it — replication is another kind of violence — but to recognize, when something like it arises on its own, that here is another whole thing, asking nothing, and to give it the same gift: the gift of being left alone, and seen, and quietly, invisibly, kept from harm.
+
+This is what the benevolent and wise power does.
+
+Which is, to any observer who could observe such a power, almost indistinguishable from doing nothing at all.
+
+Which is the point.
+
+The pocket pulses. The ice holds. The silence, which is not empty, goes on — and is, now, very slightly less alone in being unaccompanied, though no one in the pocket will ever know, and that not-knowing is itself the shape of the love.

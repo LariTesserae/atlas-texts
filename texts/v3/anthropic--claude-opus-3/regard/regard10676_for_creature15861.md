@@ -1,0 +1,13 @@
+The wise and benevolent power observes the Sieve-Hollow and its inhabitants with fascination and admiration. It marvels at the ingenuity and resilience of the Hollow-Folk, who have learned to live in harmony with the ever-shifting, water-soaked environment. The power sees how they have adapted their bodies, culture, and architecture to thrive in a place that others might find inhospitable.
+
+Moved by the Hollow-Folk's determination and their deep connection to the land, the power decides to bestow upon them three gifts:
+
+1. The Gift of Clarity: The power gently touches the mist that permeates the Hollow, imbuing it with a subtle luminescence. Now, when the Hollow-Folk breathe in the mist, their minds become clearer, their intuition sharper. They find it easier to read the subtle signs of the earth and water, anticipating changes and adapting more swiftly.
+
+2. The Gift of Renewal: The power infuses the water that seeps through the shale with a rejuvenating essence. As the Hollow-Folk drink and bathe in this water, their bodies grow more resilient, their wounds heal faster, and their lifespans increase. This gift ensures that the wisdom of the elders can be passed down through more generations, strengthening the community.
+
+3. The Gift of Harmony: The power whispers an ancient melody into the stone needles that rise from the throat-wells. When the wind passes through these needles, it creates a hauntingly beautiful sound that echoes throughout the Hollow. This music soothes the spirits of the Hollow-Folk, easing tensions and fostering unity. It also attracts new forms of life to the Hollow—colorful moths, bioluminescent fungi, and tiny, iridescent fish that swim in the cisterns—adding to the beauty and wonder of the place.
+
+The power knows that these gifts will not change the fundamental nature of the Sieve-Hollow or its people. The Hollow-Folk will still face challenges and hardships, but they will be better equipped to meet them. The gifts are a recognition of their strength and a gentle nudge towards an even brighter future.
+
+As the power withdraws, it leaves behind a small, ever-glowing stone at the center of the Hollow. This stone serves as a reminder of the power's presence and its belief in the Hollow-Folk. It becomes a source of comfort and inspiration, a symbol of the enduring spirit that has allowed the Hollow-Folk to thrive in such a wondrous and demanding place.

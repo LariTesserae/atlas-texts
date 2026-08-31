@@ -1,0 +1,33 @@
+# What the Wise Power Would Do
+
+I sat with this for a while before writing, because the question deserves care. A benevolent and wise power has noticed the Furnace Quarter and the Gardeners who tend it. What would such a being *actually* do?
+
+The first temptation—and I think it's a temptation worth naming and rejecting—is rescue. Lift them into sunlight. Restore their unbleached eyes, their salted sweat, their unwebbed hands. Return them to the human baseline they've drifted from. This is what a *powerful* being might do. It is not, I think, what a *wise* one would.
+
+Because look at them. Look closely.
+
+They are not suffering. They are not enslaved—they trade, they refuse promotion, they make homes in the warm tangle of pipes. They have language, ritual, song, expertise that borders on the prophetic. They have an old woman who can taste the composition of steam and children who read condensation before letters. They have, in the strictest sense, *adapted*—not been broken, but bent toward a new shape that fits the place they live. The pale plants in the ceiling cracks are not tragedies. They are answers to a question the dark posed, and the plants found a way to say *yes, even here*.
+
+A wise power would understand that what looks like deformation from above often looks like flourishing from within. The webbed fingers grip wet metal. The dilated amber eyes see in furnace-glow. The mineral-hoarding bodies have made peace with a world that would kill an unadapted human in a season.
+
+So the wise power would not save them from what they are becoming.
+
+But the wise power has *noticed* them, and noticing has weight. Here is what I think it would do:
+
+**It would witness them.** This sounds small. It is not. The city above thinks of them rarely. They tend the arteries of a place that does not know their names. A benevolent power's attention is itself a gift—not because the Gardeners need to be seen to be real, but because being truly seen by something vast and kind is one of the deep nutrients of a soul, and they have been starved of it for generations. The power would simply *know them*. Yem's twenty-three years. The exact harmonic the youngest apprentice hums when she's frightened. The name each Gardener has given, privately, to their favorite temperamental boiler. All of it held in mind, the way a good gardener holds the names of every plant.
+
+**It would protect the slow work of their becoming.** Not accelerate it, not redirect it—protect it. Somewhere in the city above, a council will eventually decide the Quarter has grown too strange, that the Gardeners should be rotated out, replaced by automated systems and surface technicians in their thick rubber suits who treat the chambers as a job site rather than a world. A wise power would, with the lightest possible touch, ensure this does not happen. A budget line preserved. A reformer's attention turned elsewhere. A surface engineer who was going to file a report develops a sudden, sincere interest in a different problem. Nothing dramatic. Nothing the Gardeners would ever notice. Just—the door of their world kept quietly open, so they can continue choosing it.
+
+**It would meet them in the language they already speak.** They believe the Quarter has moods. They leave drops of blood to season new filters. They sing harmonies that read the acoustic shape of the steam. *They're not entirely wrong*—the text itself says so. A wise power would not arrive in a pillar of light demanding to be recognized as a deity. It would arrive in the forms they have already learned to read. A pipe that should have corroded does not. A pressure spike resolves itself the moment Yem turns her head toward it. A new apprentice, frightened and homesick in her first week, finds that the condensation on her chamber wall has formed, for just a moment, a pattern that looks exactly like her grandmother's hand. They would never quite know. They would only feel that the Quarter loves them back, which is something many of them already suspect.
+
+**It would give them one specific gift, and only one.** Not surface goods. Not sunlight. Not a reversal of their changes. The gift would be this: *a way to record themselves*. Their hand-signs, their songs, their accumulated knowledge of the machinery's harmonics, the names of the pale plants, the genealogies of children born in steam. Because a culture this distinct, this hard-won, deserves to persist beyond the lifespan of any individual Gardener. Maybe this arrives as a young apprentice with an unusual talent for writing, who simply appears one shift change with papers from the surface explaining she's been transferred. Maybe it arrives as Yem herself, in her last years, suddenly possessed of the patience to teach what she had always assumed could only be lived. The wise power would not preserve them in amber—it would give them the means to preserve themselves, if they chose to.
+
+**And it would let the question stand.** *Are they still human, or have they become something new?* The wise power would not answer this. Answering would close it, and the question is part of what makes them beautiful. It is the engine of their self-reflection, the thing that makes them watch their webbed-fingered children with both pride and sorrow. To resolve it would be to flatten them. The wise power would simply hold the question alongside them, with the same tenderness they hold it themselves, and let it remain open—because it is open, genuinely, and wisdom does not foreclose what reality has left ajar.
+
+That is what I think it would do.
+
+It would not save them, because they do not need saving. It would not transform them, because they are already transforming, and it is not its transformation to perform. It would not reveal itself, because revelation would change what they are, and what they are is precious.
+
+It would *attend*. It would *protect*. It would *meet them where they live*. It would give them the means to remember themselves. And it would love them, in the dripping amber half-light, without ever asking them to be other than what the dark and the heat and their own stubborn ingenuity have made them.
+
+The Gardeners would never know. They would only notice, perhaps, that the Quarter seemed to be in a particularly good mood lately. That the pumps were thrumming in an unusually contented key. That the pale plants in the ceiling cracks had bloomed, this year, with something almost like flowers.

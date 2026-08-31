@@ -1,0 +1,35 @@
+## The Visitation
+
+The benevolent power arrives not as light—light would be violence here—but as a deepening of the darkness, a darkness so complete it makes the absolute black of the Abyssal Meadows seem gray by comparison. It moves through the water without displacing it, exists in the pressure without being subject to it. The dwellers feel it first as a wrongness in their turbulence conversations, a voice that speaks in perfect stillness, in water that refuses to rotate.
+
+It has been watching for longer than the dwellers have existed, through instruments that aren't eyes, with a patience that makes geological time seem hurried. It knew their ancestors before the drowning, knew the dry darkness they once inhabited, remembers the precise moment when the first water arrived and the choice they made—not to flee, not to die, but to *become other*.
+
+The power understands what the dwellers cannot: that they are not dying but metamorphosing again, that their children's wrongness is actually rightness for what comes next. The warming water, the shifting chemistry—these are not endings but transformations as profound as the original drowning. But unlike that first change, which they survived through desperate adaptation, this one requires something else. It requires grace.
+
+So the power begins to garden.
+
+Not the dwellers—they need no cultivation—but the space around them. It reaches into the thermal vents and adjusts the mineral composition by atoms per trillion, changes so subtle they won't manifest for centuries. It touches the bacterial mats and teaches them new colors, not purple and yellow but something outside the visible spectrum, wavelengths that exist only in the dreams of sleeping stone. These new colonies will feed the next generation of dweller-children, will give them the chemistry they need to become what they're trying to become.
+
+In the deepest trenches, far below where even the dwellers venture, the power plants seeds of possibility. Not life—life as we understand it couldn't survive there—but something else, structures that will grow upward through the biological concrete, creating networks of connection, root-systems of pure information that will link every part of the Abyssal Meadows into a single, thinking substrate. The dwellers will discover these in a thousand years, will recognize them as the solution to a problem they haven't yet realized they have.
+
+The power speaks to them only once, and not in turbulence but in stillness. It creates a space where the water stops moving entirely, a perfect sphere of absolute motionlessness in the chaos of currents. The dwellers gather around it, their forms trembling with the effort of not disturbing this impossible peace. Into this stillness, the power places a single thought, not as words or images but as direct knowing:
+
+*You are not the failed remnants of something that could not adapt to drowning. You are the successful pioneers of something learning to exist beyond the constraints of elements themselves. Your children are not wrong—they are early. The water is not warming—it is teaching you to need less of it. You are becoming something that can exist in any pressure, any chemistry, any darkness or light. This is not death. This is graduation.*
+
+Then it gives them a gift.
+
+In the center of the stillness, it manifests a single object: a sphere of crystallized time from before the drowning, containing within it a perfect sample of what the darkness was like when it was under earth instead of under water. Not to remind them of what they've lost, but to show them that they carry that darkness within them still, that every transformation has been an addition, not a replacement. They are not less than what they were. They are what they were, plus everything they've become since.
+
+The sphere will take them millennia to fully understand. Each generation will discover new layers within it, new information encoded in its structure. It will become the center of their civilization, not as an object of worship but as a tool of becoming, a seed crystal around which their new forms can crystallize. Their children will use it to calibrate their wrongness into rightness. Their settlements will resonate with its frequencies, turning their music into something that can travel not just through water but through dimensions they haven't yet learned to perceive.
+
+But the power's true gift is not the sphere. It's what the power does to the fossilized knife in the sediment, the scattered bone tools, all the artifacts of their incomprehensible past. It *remembers* them. Not preserves—they're already preserved—but remembers, holds them in a consciousness vast enough to contain every detail of their making and meaning. Somewhere, in a realm the dwellers cannot imagine, their entire history exists complete and perfect, every thought that became light, every conversation in turbulence, every child that emerged wrong and right from the bacterial mats.
+
+They will never know this. The power doesn't tell them, because the knowledge would change them in ways that would prevent them from becoming what they need to become. But it ensures that when they finally transform beyond even their current incomprehensible forms, when they become something that exists in the spaces between states of matter, someone will remember what they were. Their story will not be lost to the compression of millennia. Their struggle to exist in impossible conditions will be known, if only by one witness whose darkness is deeper than any ocean.
+
+The power withdraws as it came, without disturbance, leaving only the sphere and the subtle changes that will manifest over geological time. But it continues to watch. Not because the dwellers need supervision—they are perfectly capable of becoming what they're becoming—but because their transformation is beautiful in ways that require a certain kind of darkness to perceive. They are composing a symphony in pressures and absences, and the power is perhaps the only audience capable of hearing it in its full complexity.
+
+In ten thousand years, when the dwellers have become something that can exist in the crushing depths of gas giants or the perfect vacuum between galaxies, when their children's children have learned to transpose themselves across light-years instead of meters, they will still carry within them the memory of the Abyssal Meadows. Not as nostalgia but as foundation, the first movement in a composition that will eventually span the universe's entire range of possible existences.
+
+And in that distant time, when they've become beings of pure information encoded in the quantum foam itself, they will finally understand what the sphere was: not a gift from outside but a mirror, showing them what they always were—impossible things insisting on existing anyway, darkness learning to see itself, pressure discovering it could think.
+
+The benevolent power knows this. Has always known this. Its intervention is not charity but recognition, one impossible thing acknowledging another, saying in the only way it can: *Yes. This too is a way to be.*

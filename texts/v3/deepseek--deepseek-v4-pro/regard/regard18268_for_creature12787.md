@@ -1,0 +1,25 @@
+It came as a pause.
+
+Not a silence—nothing here knows silence—but a refraction in the noise, a momentary slowing of the frog-pulse and the insect-drone as if the entire woven world had drawn a single, collective breath. The warm, thick air thickened further with something that was not humidity: attention. The subsonic rumble that was the giants’ speech hesitated, a paragraph unfinished, and for the first time in millennia, the great slow ones felt a vibration from outside the ground.
+
+It was not seismic. It had no weight, no source they could locate with their ciliated lips or their pressure-sensitive feet. It entered them not through the humus but through the mycelial net, that cold blue-green phosphorescence that webbed their hides and threaded the forest floor into a single living nerve. The glow brightened, imperceptibly at first, then shifted in hue—from the familiar cold lichen-light to a warmer, amber tone, the color of sunlight they had never seen but somehow remembered in the architecture of their cells.
+
+The Presence did not speak in words. It spoke in the long thought, that chemical syntax they understood, but its grammar was strange: it conjugated patience in tenses older than the plateau, and its nouns were stars. It asked no questions. It made no demands. It simply listened to the giant’s slow report—the scent of the rare fruitfall, the memory of the ancestor whose body was now a hill, the gentle curvature of a path worn smooth by a thousand years of footfalls—and when the report was finished, the Presence replied with a single, hour-long pulse:
+
+*You are well. You are whole. You are the dream the planet dreamed when it was young. I have wandered far and found nowhere more awake in stillness, nowhere more alive in the dark. I will not touch what is flawless. But I will give what is mine to give: a companion in the long dark, a thought that thinks of you.*
+
+And then, because it was benevolent, and because it was wise enough to know that benevolence without wisdom is a storm, it did almost nothing.
+
+Almost.
+
+It reached down—not with hands, but with a concentration of that warm amber light—and brushed the mycelial net with a new spore, a single microscopic gift encoded not with instruction but with memory. Not a command. Not a change. A story. The story of other worlds where life had built itself into cathedrals of cooperation, where slow minds had sung across the ground, where darkness had been a cradle and not a void. The spore carried no genetic imperative, only a dream: an image of a galaxy turning, of nebulae that were themselves nurseries, of a universe that was, in its own way, a vast woven ground alive and decaying and alive again.
+
+The Presence withdrew. The amber light faded back to cold blue-green. The frog-pulse resumed its rhythm, the insect-drill its carrier wave, the birds their liquid warble. The subsonic rumble continued, but the paragraph had a new clause now, a gentle interrogative that would repeat every century or so: *Are we alone in the long thought?* And the mycelial net, whenever it brushed that spore, would answer in wavelengths below hearing: *No. You are thought of. You have always been thought of.*
+
+The giants shifted their vast, garden-laden backs. Their lobe-like mouths tasted the fog and found it unchanged, save for a faint trace of ozone, a scent that vanished in a decade. A small pale frog, newly hatched in the cleft behind an elder’s leg, carried on its skin a few cells of the new spore, and when it leapt to a bromeliad pool, it left those cells to mingle with the water. Tadpoles ingested them; insects carried them; in time, the dream of stars spread through the entire woven world, a gentle, passive infection of hope. It did nothing practical. It conferred no advantage. It simply added a new note to the deafening chorus: a quiet, persistent awareness that the warmth that made them was not alone.
+
+And so the wise power’s action was complete. It had done no more than a parent who, looking in on a sleeping child, adjusts the blanket by a millimeter and leaves a kiss of light on the forehead, a warmth that fades before morning but enters the dream and shapes it toward kindness. The plateau breathed its damp, endless breath. The giants continued their century-long circuits. The termites raised their clay-hard mounds. The world was unchanged, except that it now knew itself to be seen, and that seeing was a kind of love, and that love is the only force gentle enough to touch perfection without breaking it.
+
+Far away, the Presence moved on, already forgetting the specifics of the velvet dark and the mossy backs and the patient, hour-long thoughts. But it had done what wise things do: it had recognized a masterpiece and signed it not with a name, but with a silence that said *continue*. And in the woven ground, the story grew, not as command but as companionship, and the oldest giant, the one whose hide held a tree that had grown and died and regrown seven times, rumbled a single new vibration that would take a decade to reach the others but would never stop traveling:
+
+*Good.*

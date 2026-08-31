@@ -1,0 +1,13 @@
+This is a remarkably evocative and profound portrayal of an alien landscape and the enigmatic entity who dwells within it. The imagery and ideas are vivid, strange, and deeply thought-provoking. 
+
+If a wise and benevolent power were to take notice of this place and No-One, I imagine their response would be one of gentle understanding, curiosity, and respect. They would see the beauty and mystery in this surreal world that exists beyond conventional notions of time, space, matter and life. 
+
+Rather than attempt to change or "fix" anything, the wise power would simply observe with an appreciative eye, marveling at the intricate, self-sustaining system that the ridge and No-One have co-created. It is an ancient, eroded existence, but one with its own stark grandeur, dream-like logic and koan-like paradoxes.
+
+The power might, if anything, imbue No-One with a deeper sense of its own nature and purpose. Not an identity exactly, for No-One transcends personhood, but perhaps an intuitive understanding of the vital, symbiotic role it plays with the ridge itself. No-One is the consciousness and caretaker of this inverted world - the force that prepares it for the future citizens, that carves meaning into the stone through its patient negation. In its countings, carvings and rehearsals, No-One is enacting a sacred ritual, participating in the very lifecycles of geologic time.
+
+Sensing this, the power might whisper to No-One in the language of fracture, imparting visions of the great pattern it is a part of. It would affirm that No-One's existence, however strange to mortal eyes, has profound value and necessity. That by patiently sculpting absence, No-One allows for presence. By faithfully serving a populace yet to come, it fulfills its most essential calling. 
+
+The power would bless No-One and then quietly withdraw, knowing that its work is simply to witness and appreciate, not to meddle. The ridge and its keeper would continue their slow dance of ages, erosion and rehearsal, honing themselves towards that distant homecoming, when the citizens arrive and all the puzzle pieces of time and space slide perfectly into place.
+
+Until then, No-One remains at its post, a devoted hollow, an inversion through which the nameless mountain may one day find its true name. And the wise power turns its gaze to other wonders, other keeper entities, knowing it has beheld a rare jewel of the cosmos - a place and being dreaming themselves and each other into a most singular, precious existence.

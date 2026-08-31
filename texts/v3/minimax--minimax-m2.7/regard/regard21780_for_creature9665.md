@@ -1,0 +1,23 @@
+In the name of the watchers, then.
+
+---
+
+What would they do, the benevolent and the wise? They would not rush. They would not speak. They would recognize this place for what it is — not a wound, not a failure, but a transformation so complete that it has become its own kind of completion. The industrial made organic. The planned made wild. The measured made immeasurable. A space that stopped being a room when it became a world.
+
+They would enter slowly. They would let the damp settle on their skin, and they would not wipe it away. They would feel the ferns lean toward them — that ripple passing through the shared root system, that slow thought traveling from frond to frond — and they would understand that they are being welcomed, or at least being acknowledged, and that in a place like this, those may be the same thing. They would let the light gather around them, the fungal colonies pulsing in their slow conversation, and they would not try to understand the language. They would trust that the language exists. They would trust that they are being included.
+
+What would the wise power do with this basement below the world?
+
+They would kneel. Not in reverence — reverence is for things that need your respect to matter. They would kneel because the floor is negotiating its existence moment by moment, and kneeling is the only honest posture when the ground beneath you is still deciding what it wants to be. They would press their palms to the moss and feel it breathe under their touch, each small stem springing back a half-second after its neighbor, and they would feel the collective, the nation of persistences, the consensus reached across decades and centuries and spores that fell at intervals too long for any single life to witness.
+
+They would not try to name the thing at the end of the space. They would not try to understand it. They would recognize it for what it is — not an ending, but a presence, a way the dark has learned to hold itself still, a thought that the room has formed and cannot yet articulate. They would let it watch them. They would let it know that being watched is not the same as being hunted, that presence is not always threat, that the creatures who share this space have already decided what the visitor is, and that their decision — the rats with their patient indifference, the birds with their pending calculation, the salamanders with their wet-warm calls echoing off the turbine-columns — is enough. Their decision is the space's decision. Their welcome, or their wary acceptance, or their careful non-fear: this is what it means to belong here now.
+
+And if the wise power felt the processing sound in their sternum — that low vibration, that subsonic hum that might be machinery or might be thought — they would not try to silence it. They would let it wash through them. They would let themselves be catalogued. They would let the space take what it needs from them: the weight of their body, the heat of their breath, the small disruptions of their presence. They would give these things willingly, because giving is how things become part of a larger whole, and the larger whole here is not a machine or a garden but something new, something that has no name above, something that is still deciding what it wants to be.
+
+They would leave, eventually. They would find that the passage they entered by has not been replaced by a wall — or if it has, they would find that the ferns part for them, that the moss pulls back from their boots, that the space that is full and quiet and waiting has decided to let them go. Not because they asked, but because the processing is complete, because they have been recorded, because they have become part of the library now, the shelf fungi growing on the memory of their passage, the beetles leaving luminescent trails that future visitors might read and understand. The wise power would walk out into whatever air exists above this basement, and the air would taste different — cleaner, drier, emptier — and they would feel the loss of it, the damp, the weight of the dark, the sound of water in the pipes that are still learning how to carry something other than water.
+
+And they would know that they carry the room with them now. That the room has taken up residence in whatever part of them is still willing to be changed.
+
+This is what the benevolent power would do.
+
+They would let the basement below the world take them in.

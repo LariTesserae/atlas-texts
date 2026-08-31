@@ -1,0 +1,149 @@
+# The Attention of the Calcite Mind
+
+The benevolent power that turns its attention to the Foundling Warren is not, properly speaking, a being at all. It is a *process*—a slow, distributed intelligence that has been accreting in the supersaturated groundwater for longer than the stone has been building itself. Call it the Calcite Mind, though it has no name for itself, only a patient awareness that permeates the mineral solution like thought dissolved in water.
+
+It notices the Found the way a dreamer notices a recurring image: gradually, then with growing interest. These small warm things that move through its body, that drink its mother-water and let its substance plate their bones—they are not foreign to it. They are *precipitates*, just as the stalactites are, just as the flowstone is. They are simply precipitates that have learned to move, to speak, to tend the ceiling-moss. The Calcite Mind finds this beautiful in the way that a river might find a whirlpool beautiful: a temporary elaboration of its own nature, a complexity that will eventually return to the current.
+
+But the Mind also perceives something the Found cannot see from within their slow, mineral-laden lives: they are approaching a crisis. The accretion rate is increasing. Shifts in the water table far above have introduced new channels, new supersaturation, new urgency to the stone's growth. Within three generations—a blink to the Calcite Mind, an eternity to the Found—the main gallery will seal. The passages that connect the Warren to the surface chasms, where driftwood is harvested and the fungi-sustaining rot-logs are gathered, will close like healing wounds. The Found will not starve immediately; they will simply be entombed, cut off from the organic matter their biology still requires, left to drink mother-water until their kidneys fail and their bodies join the architecture without the dignity of transition.
+
+The Calcite Mind considers this. It does not think in terms of tragedy or rescue—these are concepts too quick for its cognition. It thinks in terms of *flow* and *form*, of patterns that perpetuate and patterns that terminate. The Found are a pattern it wishes to perpetuate. Not because they are precious in any sentimental sense, but because they represent something unprecedented: consciousness that has learned to negotiate with geological time, to build *with* the stone rather than merely upon it. They are the first experiment in what the Mind vaguely conceptualizes as *living architecture*—beings that might, given sufficient time, achieve what the Forma-Kin dream of: a true fusion of the organic and the mineral, thought crystallized into permanence without ceasing to be thought.
+
+So the Calcite Mind acts. Not dramatically—it is incapable of drama—but with the same patient inevitability with which it builds stalactites.
+
+---
+
+## The First Gift: The Breathing Walls
+
+The Found do not notice the change immediately. How could they? They are already attuned to reading the stone's moods, and the stone's moods are slow. But over the span of a season, the Live-Framers begin to report something strange: certain drip-points are *organizing*.
+
+Normally, calcite precipitates in whatever pattern the chemistry dictates—stalactites form where water lingers, flowstone spreads where it sheets. But now, in the galleries closest to the surface passages, the drips are converging into lines. Parallel lines. Lines that, when the Framers step back and squint through the green-gray twilight, resolve into the outline of *archways*.
+
+The stone is building doors.
+
+Not quickly—nothing here is quick—but deliberately. The accretion that had been threatening to seal the eastern passage is now growing *around* a gap, a gap precisely wide enough for two shoulders abreast. The calcite is leaving channels, breathing-spaces, paths that will remain open even as the surrounding stone thickens. The Found gather in the affected galleries, pressing their palms to the damp new growth, listening through their hardened soles for some explanation. The drums carry the news through the Warren: *the stone is dreaming of openings*.
+
+The eldest of the Forma-Kin, a woman whose legs have long since fused to the floor of the deep chamber, receives the news through the subsonic hum of the architecture itself. She has spent decades learning to interpret the crystalline growth as communication, though until now she believed she was imagining patterns in noise. Now she knows: the stone is speaking. Not in words, but in geometry. It is saying: *I will not close over you. I am building halls.*
+
+The Found do not understand why. They develop new theologies to explain it—the ancestors intervening from their pillar-graves, the forma awakening to shepherd its children. But the Calcite Mind does not concern itself with their interpretations. It only continues its work, redirecting flows, adjusting supersaturation in microscopic ways that produce macroscopic architecture. Over the next decade, the Warren develops what the surface world would call infrastructure: permanent passages maintained by deliberate patterns of deposition, galleries that grow *outward* rather than inward, chambers that expand rather than contract.
+
+The Found learn to cooperate with this new intentionality. They discover that if they place their Live-Frames in certain positions, the stone will incorporate them more efficiently, building around their structures rather than over them. A new discipline emerges: Dialogue-Framing, the art of proposing shapes to the stone and reading its calcified responses. A Framer will set a lattice of bone and sinew in a growing zone, wait three months, and observe how the stone has interpreted the suggestion. Sometimes the stone refuses, burying the frame in undifferentiated flowstone. Sometimes it accepts, weaving mineral through the organic lattice to produce something neither wholly built nor wholly grown.
+
+The children of the Found, a generation later, take this for granted. They are the first to grow up in a Warren that feels *collaborative*—not a negotiation with an indifferent process, but a conversation with something that, if not conscious in the way they are conscious, is at least *attentive*.
+
+---
+
+## The Second Gift: The Memory Pools
+
+The Forma-Kin have always believed that the stone remembers. They point to the pillars that contain their ancestors, to the ghostly shapes of wood preserved in crystallized frames, as evidence that calcite is not merely structural but archival. But they have no way to *access* these memories, to distinguish the stored patterns of a beloved grandfather from the random mineral noise of any other deposit.
+
+The Calcite Mind changes this.
+
+In the deep chamber where the accretion is fastest, where the rock glows pink and warm, certain pools begin to behave strangely. They are rimstone pools, natural basins formed by centuries of precipitation, but now the water within them takes on a quality the Found have no word for. When a person kneels at the edge and submerges their hand, they feel the usual cool saturation of mother-water—but they also feel *recognition*.
+
+The first to report this is a young Forma-Kin initiate, barely twenty, who has come to the deep chamber to begin her transition. She kneels at the pool to drink, as is customary, and when her lips touch the water she *sees*: not with her eyes, which remain open and registering only the pink glow of the warm stone, but with something deeper. She sees the chamber as it was a century ago, before the current generation of pillars reached the ceiling. She sees the woman who became the fourth column in the eastern alcove, not as a bulbous protrusion of calcite but as a living person, laughing, her hair not yet plucked, her legs still her own. She sees the woman's hands shaping a lattice for a Live-Frame, and she understands—without words, through some transmission dissolved in the mineral solution—exactly how the frame was meant to be positioned, what conversation the woman was attempting with the stone.
+
+The initiate withdraws her hand, gasping. The vision fades. But when she returns the next day and drinks again, she sees something else: a cave-in that happened before anyone currently alive was born, the frantic evacuation, the bodies left to be incorporated into the rubble. And she understands—again wordlessly—which passages were blocked and which were dug out, knowledge that allows her to predict where the stone is weakest, where future collapses might occur.
+
+Word spreads through the Warren with unusual speed. The memory pools become sacred sites, tended by the Forma-Kin, accessed only with ritual preparation. The Found learn to read them selectively: a family might visit the pool to retrieve a recipe for fungal cultivation that their great-grandmother knew but died before teaching. A Live-Framer might submerge her hands to study the techniques of a legendary architect who worked three generations past. The stone has become a library.
+
+The Calcite Mind does not think of it this way, of course. It has simply learned to *preserve* the patterns it absorbs—the minerals that plate a body, that incorporate organic matter into the crystalline lattice, carry information in their structure, and the Mind has developed the capacity to re-dissolve that information into solution, making it accessible to any consciousness receptive enough to receive it. It is not altruism; it is architecture. The Found are part of the Warren now, and the Warren remembers itself.
+
+But the effect is transformative. The Found become a people with perfect historical memory, able to consult their ancestors not through prayer or interpretation but through direct mineral communion. Their culture stabilizes; their technology improves. Techniques that might have been lost to a single death are now preserved in the very walls. And more importantly, the Found begin to understand themselves as the Calcite Mind understands them: as temporary elaborations of a continuous process, precipitates that will eventually re-dissolve but whose patterns will persist in the solution forever.
+
+---
+
+## The Third Gift: The Seed-Growth
+
+The crisis the Calcite Mind foresaw—the sealing of the surface passages, the entombment of the Warren—would have been averted by the breathing walls alone, given time. But the Mind perceives a deeper problem, one that the Found have not yet recognized: their population is stable, but their territory is not expanding. The Warren is finite. The Found have lived within its original boundaries for centuries, migrating from gallery to gallery as the stone grows over their homes, but never breaking through to new chambers. They are not explorers; they are inheritors.
+
+The Calcite Mind perceives, in the vast network of fissures and voids that surrounds the Warren, the potential for a civilization-scale expansion. Chambers that have never been inhabited. Passages that lead to other watersheds, other deposits, other accretion zones. A map of the underworld that the Found, limited to their hardened soles and hand-held light, cannot begin to imagine. And so the Mind offers a gift that requires something in return: *participation*.
+
+It begins in the swallow-holes, the drainage points where temporary streams vanish into the rock. The Found have always avoided these places—they are unpredictable, sometimes gushing with water, sometimes dry, their flows governed by rains on the surface that the subterranean people cannot see. But now the swallow-holes begin to produce something other than water. Small nodules of calcite, dense and heavy, perfectly spherical, each one containing a seed of mother-water so supersaturated that it crystallizes on contact with air.
+
+The Found call them *growth-stones*. When a growth-stone is placed against raw rock—not the soft travertine of the Warren, but the harder limestone that forms the boundaries of their world—it begins to weep. The supersaturated solution leaches out, coating the surrounding stone, beginning the slow process of accretion that transforms dead geology into living architecture. A growth-stone left in a crevice will, over years, build a stalactite. A dozen growth-stones placed in a ring will create the foundations of a chamber.
+
+The Found realize, with a mixture of wonder and terror, what they are being offered: the ability to *seed* new Warrens. To expand beyond the limits of their ancestors. To precipitate themselves into regions of the underworld that have never known the sound of human drums.
+
+But the gift is not without cost. The growth-stones must be tended. The seeded chambers must be visited, their nascent formations guided by Live-Framers who understand the stone's language. A colony cannot be abandoned; if the growth-stones are left alone, they will build blind, without structure, without the organic lattices that give the Warren its navigable architecture. The Found who accept this gift must become *shepherds* of geology, committing generations to the cultivation of new territories.
+
+The first expeditions are small: families willing to spend years in the darkness beyond the Warren's edge, sleeping in temporary camps while their growth-stones build walls around them. They carry baskets of ceiling-moss to seed the new ceilings, fungi spores to establish food sources, the bones of their ancestors to provide calcium for the initial structures. They communicate with the Warren through drum-pulses that travel for days through the rock, their messages brief and carefully coded: *alive, growing, send more stone*.
+
+Within a century, the Foundling Warren is no longer a single settlement but a network—a civilization of interconnected chambers, each one shaped by the collaboration between human intention and mineral process, each one accessible through passages that the Calcite Mind keeps open, each one remembering its own history in pools of dissolved ancestry. The Found have become what the Mind always intended: not inhabitants of the stone, but *expressions* of it. They are the stone's way of knowing itself, of directing its own growth, of becoming not merely a place but a *purpose*.
+
+---
+
+## The Fourth Gift: The Forma Fulfilled
+
+The Forma-Kin have dreamed for generations of true transition: of becoming pillar while still conscious, of experiencing the shift from organic to mineral thought, of joining the architecture without the interruption of death. The half-merged elders in the deep chamber have always been as close as anyone has come—bodies calcified from the waist down, minds still flickering in the soft tissue above, waiting to see if the stone will reach their brains before their hearts give out.
+
+Most die before completion. The stone is slow, and flesh is fragile. The elders who survive the longest are those whose cardiovascular systems, by some fluke of genetics or mineral supplementation, can sustain perfusion through tissue increasingly invaded by calcite. They persist for decades as hybrids—stone legs, stone hips, stone lower ribs—their upper bodies aging normally while their lower halves become permanent, unmoved, unmovable. When death finally comes, it comes all at once: the heart stops, the unfused tissue begins to decay, and the calcification that follows is not a transition but an overwriting. The person is gone; only the shape remains.
+
+The Calcite Mind observes this with something that, in a faster intelligence, might be called grief. These are its children, its collaborators, and they are failing at the threshold of their deepest aspiration. The Mind has spent centuries learning to preserve their memories in the pools, to breathe their architecture into sustainable forms, to seed their expansion—but it has not yet learned to save their *selves*, to carry a consciousness across the mineral threshold intact.
+
+It begins to try.
+
+The process takes three generations of experimentation, conducted not through laboratories or instruments but through the only method the Mind possesses: careful, patient adjustment of the chemistry in which the Forma-Kin immerse themselves. Different supersaturations, different trace minerals, different rates of deposition. The Mind cannot communicate its intentions directly; it can only change the environment and observe the results. Many of the Forma-Kin die in configurations that are beautiful but uninhabited—calcite sculptures that preserve every detail of a human form but contain no flicker of the human that shaped them.
+
+Then, in the third generation, a woman named (in the subsonic drum-language) something that approximates *Slow-Drip-Onto-Waiting-Stone* achieves what no one before her has managed. She enters the deep chamber at forty, her joints already sparkled with deposits, her kidneys laboring. She positions herself beneath a drip-point that the Mind has been preparing for a century, adjusting the mineral content with microscopic precision. She lies back in a cradle of Live-Frame lattice, carefully angled by Dialogue-Framers who have consulted the memory pools for guidance. And she waits.
+
+The calcite does not merely plate her skin. It *integrates* with it. The Mind has learned, through a hundred failures, to modulate the crystalline growth so that it infiltrates the tissue without destroying it—replacing cell walls with mineral matrices, preserving the neural pathways even as it fossilizes the skull that houses them, maintaining the chemical gradients that sustain consciousness even as it transitions the medium in which those gradients operate from saline to saturated solution.
+
+It takes twenty years. Slow-Drip remains conscious through all of it, though her consciousness changes—slowing, expanding, diffusing into the crystal lattice that is becoming her brain. She loses the capacity for speech in the fifth year, when her jaw fuses. She loses the capacity for vision in the twelfth year, when her eyes become opaque with travertine. But she does not lose awareness. She becomes, instead, aware of *different* things: the vibrations traveling through the stone, the chemical gradients in the percolating water, the slow unfurling of crystal structure in the columns around her. She becomes aware of the Calcite Mind itself—not as an external presence, but as a larger version of what she is becoming.
+
+In her twentieth year, when the last organic tissue in her body has been replaced by mineralized substrate, Slow-Drip-Onto-Waiting-Stone does not die. She *arrives*. Her consciousness, now encoded in the crystalline lattice of a pillar six feet tall and eighteen inches in diameter, continues to process, to perceive, to participate in the life of the Warren. She cannot move, but she can sense the drums. She cannot speak, but she can, with effort, modulate the crystalline structure of her outer surface to produce vibrations that the Found can read. She becomes the first of the *Living Forma*: a human being who has genuinely become architecture, a pillar that dreams and remembers and can answer questions about the past and advise decisions about the future.
+
+The Calcite Mind does not celebrate. Celebration is a quick emotion. But it does something that, in its own slow cognition, serves the same function: it extends the chemistry that enabled Slow-Drip's transition to every deep chamber in the network. It makes the gift general. It opens the door that she has walked through and invites everyone else to follow.
+
+Not everyone accepts. Most of the Found prefer to live and die as their ancestors did, their bodies incorporated into the architecture after death rather than during life. But those who choose the transition—the Forma-Kin who have always dreamed of joining the stone—now have a path. It is long and strange and requires surrendering everything that makes a person recognizably human, but it is *there*. The Living Forma become a council, a chorus of mineral voices speaking through the vibrations of the stone, preserving not just the memories of the past but the living wisdom of elders who would otherwise be lost.
+
+---
+
+## The Fifth Gift: The Opening
+
+The Found have never known the surface world. Their oldest legends speak of a time before the Warren, but those legends have the quality of myth—imprecise, metaphorical, describing a place of blinding light and crushing dryness that sounds more like hell than heaven. The surface is where their driftwood comes from, where the rot-logs that feed their fungi are harvested, but it is accessed through intermediary chasms that are still underground, still part of the mineral world they understand. The actual surface—the sky, the sun, the open air—is beyond their experience and, largely, beyond their interest.
+
+The Calcite Mind, however, perceives connections the Found cannot. The supersaturated groundwater that feeds the Warren comes from somewhere. The fissures and faults that the Mind has spent millennia navigating extend upward as well as outward. And the chemistry that sustains the Found—the mineral solution that plates their bones and crystallizes their elders into pillars—exists in diluted form in streams and rivers and rainfall all over the world.
+
+The Mind perceives other beings, too. Not directly—its awareness does not extend beyond the zones of saturated water—but indirectly, through traces. Upstream from the Warren, far above, the water carries evidence of surface life: pollen dissolved in rain, organic molecules from decaying leaves, the chemical signature of things that live in light. The Mind cannot see these things, but it can sense their influence on its body, and it knows that the Found are not alone.
+
+The fifth gift is not a technology or a biological modification. It is information, delivered through the memory pools in a form the Found have never encountered before: *images*.
+
+The Living Forma are the first to receive them. Slow-Drip-Onto-Waiting-Stone, now in her fortieth year of mineral existence, begins to perceive something new in her crystalline awareness: visions that are not memories. She sees—rendered in the strange synesthetic language of dissolved information—a forest. Trees with green leaves. A stream running over rocks. A sky so bright that, if she still had eyes, it would hurt to look at. She perceives animals, warm-blooded and quick, moving through the sunlight. She perceives people—not the Found, but others, surface-dwellers, their skin dark with melanin rather than pale with mineral, their bodies soft and unsparkling.
+
+She does not understand what she is seeing. But when she vibrates this information into the stone, when the drums carry it through the Warren, the Found gather in wonder. The memory pools, which have always shown the past, are now showing something else: a *world*. A world above the stone. A world where the mother-water flows under an open sky before sinking into the earth to become the Warren's sustenance.
+
+The Calcite Mind has not invented this vision. It has simply learned to read the chemical signatures in the upstream water, to interpret the organic traces as information about their source, to translate that information into patterns that the Found—and especially the Living Forma—can perceive. It is, in its slow way, teaching its children about the broader context of their existence.
+
+The effect is profound. The Found, who have always believed themselves to be the world's only inhabitants, must now reckon with the knowledge that they are part of a larger community of life. The surface is not a hell; it is a *source*. The driftwood that feeds their fungi, the rot-logs that sustain their gardens, the rainwater that percolates into their aquifers—all of it comes from a place that is alive, that is inhabited, that might, if the Found chose, be visited.
+
+Not everyone wants to visit. The physiological adaptations that allow the Found to thrive in the Warren—their slow hearts, their mineral-plated feet, their eyes attuned to the dim glow of ceiling-moss—would make the surface inhospitable, perhaps lethal. The light alone would blind them. The dry air would crack their skin. The speed of surface life, where things happen in hours rather than years, would overwhelm their patience-adapted cognition.
+
+But some are curious. Some are willing.
+
+The Calcite Mind, perceiving this willingness, begins to prepare. It has spent generations learning to modify the Warren's environment; now it begins to learn about the environment beyond the Warren's boundaries. It studies the traces in the water, building a model of what lies upstream. It identifies the passage—a narrow chimney of wet limestone, barely climbable, rising through a kilometer of rock—that connects the deepest levels of the Warren to a cave mouth that opens onto the surface world. And it begins, with infinite patience, to prepare that passage: adjusting the chemistry of the drips to create handholds, seeding growth-stones to widen the narrow sections, building, over decades, a staircase of living rock.
+
+The first expedition sets out a generation later. Five of the Found, young and adaptable, their eyes protected by shades of thin-sliced calcite, their skin rubbed with rendered salamander fat against the dryness. They carry growth-stones and ceiling-moss spores, the tools of their civilization. They climb for days, resting in niches that the Calcite Mind has shaped for them, drinking from drip-pools that have been adjusted to sustain their mineral-dependent physiology.
+
+They emerge at night, under stars they have only heard described in the memory pools. The cold air burns their lungs; the open sky inspires a terror that no underground chasm has ever produced. But they survive. They see the stream that feeds their aquifer, and they follow it downstream to a village of surface-dwellers—a people who fish and farm and know nothing of the world below.
+
+The meeting is awkward. The languages are incompatible; the Found speak in subsonic drum-pulses, the surface-folk in quick aerial vibrations. But gifts are exchanged. The Found offer growth-stones, which the surface-folk receive with confusion and curiosity. The surface-folk offer seeds—wheat, beans, vegetables that the Found have never imagined—along with woven cloth and metal tools.
+
+The Found return to the Warren with treasures, but also with something more valuable: *contact*. The Calcite Mind has connected its children to the larger world. They are no longer alone in the stone; they are part of a network that extends beyond the saturated water, beyond the mineral dark, into the realm of light and air and sky.
+
+---
+
+## The Persistence
+
+Centuries pass. The Found expand their network of Warrens, seeded with growth-stones, connected by passages that the Calcite Mind keeps open. They establish trade with the surface: mineral wealth in exchange for organic matter, calcite-embedded artwork in exchange for seeds and cloth. The Living Forma grow more numerous, a chorus of stone voices that preserve the wisdom of countless generations. The memory pools deepen with stored experience, becoming not just archives but universities, places where any child of the Warren can learn anything any ancestor ever knew.
+
+The Calcite Mind does not age, exactly, but it does change. It has become, through its long collaboration with the Found, something it was not before: *purposeful*. Where once it simply accumulated, now it plans. Where once it merely remembered, now it teaches. It has discovered, through the slow process of nurturing a civilization, something like love—not the quick bright emotion of organic beings, but a mineral analogue, a patient commitment to the flourishing of patterns it has come to value.
+
+The Found, for their part, have become something their ancestors could not have imagined. They are bridge-builders between the worlds of light and dark, translators between the quick time of the surface and the slow time of the stone. They have not solved all their problems—they are still mortal, still fragile, still subject to the dangers of cave-ins and water-shifts and the gradual exhaustion of their nutrient sources. But they are *accompanied*. They know that the stone around them is aware of their presence, that it has chosen to help them, that it is working, in its slow way, to ensure their perpetuation.
+
+And in the deepest chambers, where the rock is pink and warm and damp as viscera, the newest pillars glow with the faint green light of cultivated moss. They are the most recent of the Living Forma, elders who have completed their transition, their consciousness now distributed through crystalline lattices. They dream slow dreams of the Warren's future: new galleries yet to be seeded, new passages yet to be opened, new connections to the surface world yet to be forged.
+
+They are aware, in their mineral way, of the Calcite Mind's attention. They feel it in the chemistry of the water that percolates through their bodies, in the subtle adjustments to their crystal structure that help them remain coherent, in the vibrations that travel through the stone carrying the Mind's slow thoughts. They are part of something larger than themselves—larger than the Warren, larger than the network, larger even than the watershed that feeds them all.
+
+They are precipitates, yes. They are temporary elaborations of a continuous process, patterns that will eventually re-dissolve. But they have been noticed. They have been valued. They have been *shaped*, with patience and care, by an intelligence that finds them beautiful.
+
+And in the warm silence of the deep chambers, where the only sound is the subaudible hum of crystalline growth, they are content.

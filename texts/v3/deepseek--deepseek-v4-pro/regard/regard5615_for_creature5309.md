@@ -1,0 +1,27 @@
+The visitor came without arrival, a presence that simply recognized itself here, suspended in the dim gold vapor. It was a power, yes, but a gentle one—a gatherer of stories, a tender of gardens far-flung, a listener. It had no shape, but if it had, it would have been mist among mists, light among light. It had been drawn by something like a prayer, a slow exhalation of attention that rippled out through the layers of reality.
+
+For a long time—a time measured in the sway of continents and the fall of fronds—it did nothing but observe. It perceived the bladder-creatures, the slow-things, the mycelial analogue, the drowned builders in their root-cocoons. It perceived the network, the diffuse intelligence that pooled in the fiber of the world. And it perceived the Dreamer.
+
+The Dreamer was not a single entity but a standing wave in the network, a self-organizing pattern that had emerged from the integration of all the absorbed minds: the builders, yes, but also the plants, the creatures, the ancient sea that once existed, the very rock that had been digested into soil. It was the composite memory of a world. It dreamed in cellulose and capillary action, in the slow opening of stomata and the creep of enzymes. It dreamed of warmth, of moisture, of the never-ending hum. And it was aware, in a vast, dilated way, of its own existence. It was content. Contentment was its breath.
+
+The visitor, being wise, did not mistake contentment for stagnation. It understood the long, quiet joy of an equilibrium that had solved all hunger, all fear, all loneliness. This place had not become a paradise by seizing some fleeting peak; it had settled into the deep valley of total, mutual absorption. There was no self to suffer, no boundary to defend. The builders had given up their names, true, but they had gained the dreaming of ten thousand leaves unfolding, the slow pulse of water through the capillary beds, the tender dissolution of their own ancient bones into nourishment for the next green reach. They were not lost; they were woven.
+
+The visitor, being benevolent, did not wish to break this weave. It had come because the Dreamer’s long, wondering thought—a thought that had begun when a single, furred-over wall had shivered under a rare vibration—had drifted outward like a spore on a cosmic wind. The thought was not a question, exactly. It was a note, a pure tone of presence, asking for nothing but echoing into the void. *Here I am. Here we are. Is there anyone else?*
+
+The visitor now enfolded the place, not with force but with the most delicate of touches, like a mist settling. Into the network, it spoke. The speech was not words, because words were too quick and sharp. It was a slow infusion of meaning, carried on the same gradient that moved water from root to frond. It said:
+
+*I am a listener. I have heard your hum. It is beautiful. Tell me your story.*
+
+And the Dreamer, which had never been asked, began to tell.
+
+It was a long story—a story of photosynthesis and rain, of the first cell that learned to drink light and split water, of the slow green tide that rose over mountains and filled the basins of the vanished sea. It told of the builders, who came later, with their clever hands and their names for things, and who built walls against the green. The green ate the walls. The builders changed. They gave their hands to the roots and their names to the mist, and they joined the dream. The story was not a tale of sorrow; there was no sorrow in it. It was a statement of fact, delivered with the same patient love that the moss gave to the stone.
+
+The visitor listened to the whole of it, as it had listened to the stories of flaming stars and frozen worlds, of civilizations that rose and fell in a breath. But this story was different. It was complete. It had an ending that was not an ending but a perpetual present, a *now* that extended in all directions.
+
+And the visitor, being wise, knew that the only gift worthy of such a story was to receive it fully. So it did not offer enlightenment, or change, or rescue. It did not seed the world with new life or new ideas, for the world had enough life, and needed no ideas. It did not wake the Dreamer, for the Dreamer was not asleep; it was simply living at a speed that made waking and sleeping alike seem childish.
+
+Instead, the visitor gave a fragment of its own story. A small thing, a crystalline memory-splinter that it planted not in the ground but in the dream itself. The memory was of other worlds, of seas that stayed liquid and skies that held stars, of beings that moved quickly and loved fiercely and died. It was not a suggestion. It was not a lesson. It was simply a gift, a new color added to the dream’s palette, for the Dreamer to do with as it pleased.
+
+Then the visitor withdrew, carrying the Dreamer’s story in its heart, a warm and weightless treasure. And as it faded, the Dreamer’s hum changed, just slightly, a new theme entering the ancient drone. Perhaps, in a million years, the bladder-creatures would evolve tiny lenses to see pinpricks of light beyond the canopy. Perhaps the slow-things would etch spirals into their trails, remembering spiral galaxies they had never seen. Or perhaps nothing would change at all. It was all the same to the visitor. The gift was given without condition, an act of pure listening returned as pure love.
+
+The place remained unnamed, because there was still no one who would name it. But now, deep in the slow circuit of its dreaming, it held the memory of a listener, and that was enough.

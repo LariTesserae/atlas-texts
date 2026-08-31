@@ -1,0 +1,9 @@
+After careful observation, the benevolent power - let's call it the Weaver of Harmonies - recognizes the exquisite balance already present in this place. Rather than dramatic intervention, it chooses to bestow three subtle gifts that enhance and protect what already exists:
+
+First, it weaves an ethereal resonance into the mist itself - a barely perceptible harmonic that helps stabilize the delicate acoustic ecosystem. This enhancement allows the songs of birds, frogs, and insects to layer more perfectly, reducing acoustic stress on sensitive species while making it easier for the Song-shapers to maintain their careful orchestration of sound.
+
+Second, it imbues the Mist Dragons with a deeper connection to their environment. Their natural ability to regulate humidity becomes semi-conscious, allowing them to more precisely maintain the microclimate each species needs. This gift comes with a heightened empathic bond with their Tender partners, though it stops short of full domestication - preserving their essential wildness while deepening their role as guardians of the mist.
+
+Finally, it leaves a living library in the heart of the settlement - a small grove of crystalline trees that grow impossibly from the stone. These trees absorb and store the collective knowledge of the place - not as written records, but as patterns of moisture and light that the most sensitive Tenders can learn to read. The trees ensure that even if disaster strikes, the accumulated wisdom of generations won't be lost to time and dampness.
+
+These gifts are so subtle that many inhabitants never consciously notice them. But over time, they help the settlement become even more resilient and self-sustaining, while honoring the patience and wisdom that made it thrive in the first place.

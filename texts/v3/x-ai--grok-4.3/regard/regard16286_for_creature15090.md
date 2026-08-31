@@ -1,0 +1,15 @@
+The power arrives not as an intrusion but as a deeper layer of the same stillness. It does not announce itself with light or sound; it simply settles into the water like an additional temperature that had always been missing, yet never demanded. The chamber does not change temperature or chemistry. Only the *margin* of its equilibrium shifts by the width of a single thought.
+
+The mineral lattices receive the subtlest of recognitions: each fresh precipitation is allowed to remember, for one instant longer than geology usually permits, the living seam that guided it. The lattices therefore grow a fraction more porous than before, their inner surfaces now carrying the faintest memory of choice rather than only necessity. The bacteria within those seams continue their work unchanged, but the work now carries an added property: it will not be erased by any future shift in the outer world. The power has placed a quiet covenant around the seepage itself.
+
+The algal tufts are touched even more lightly. Their filaments, already motionless for centuries, are granted one additional grace: should the light above ever fade completely, the algae will not die. They will merely enter a second, deeper suspension from which they can be recalled by the same power, should it ever return. Until then they remain exactly as they are—pale ropes holding their positions like sentences that have finished speaking but have not yet been erased.
+
+The sponges undergo the most noticeable, though still invisible, alteration. Their oscula, which once opened on a schedule of hours, now open according to an older rhythm: the rhythm of the rock around them. When they close, they close not only around refreshed water but around a single additional particle of preserved time. Over millennia these accumulated particles will become tiny, perfect archives within their spicules—records not of events, but of the fact that someone once looked and chose not to hurry anything.
+
+Nothing is added. Nothing is taken away. The diffuse bacterial film in the water is left untouched; the power knows better than to confer importance upon what has already achieved perfect neutrality.
+
+Before withdrawing, the power performs one final, almost invisible act. It removes the chamber from the attention of any other power that might arrive later with different intentions. From that moment the place exists in a small pocket of exemption. Currents may never reach it. Temperature may never shift. Even the slow rain of sediment from the world above will now fall around the chamber rather than into it, as if the water itself has learned a new courtesy.
+
+Then the power leaves.
+
+The chamber continues exactly as it was, with one difference so slight that only the lattices, the algae, the bacteria, and the sponges can perceive it: they are no longer alone in their patience. They have been witnessed by something that did not require them to become anything else. That knowledge settles into the stone and the filaments and the spicules as one more layer of accretion—imperceptible, permanent, and kind.

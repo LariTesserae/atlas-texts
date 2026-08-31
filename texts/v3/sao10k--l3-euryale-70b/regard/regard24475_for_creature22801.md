@@ -1,0 +1,15 @@
+*The alien hypha spread steadily through the cracked tundra, its growth catalyzed by the unsettling congress of ectodermal cysts, ancient sigils, and ghostly booms resounding through the Weird-fogged air.*
+
+*On the surface, teardrop-shaped lichen nubbins clung to the striated stone, their ochre caps already unfurling conidia-burdened tendrils in the direction of the nearest pulsing lampion. The boglamps throbbed, their organic residue cooling into crystalline patterns in the slick, condensed steam. Spores drifted and clung to every surface, carrying insidious sememes that reshaped the substrate.*
+
+*As the red light sketched the cracked earth in stark silhouette, it revealed fronds of lichen carpeting the tundra like an alien sea anemone. Their undulating forms drank deep of the primordial sputa gushing from the ruptures which split the stone,  urging an ever-new explosion of growth. Thrumming, booming, sending spore-laden wind-laments sighing through the soporific fog.*
+
+*It was here, in this juncture between crack and flecked striae, that the true nature of the landscape revealed itself. For this was no mere passive tundra: it was a dynamic vector, contaminating all it touched with an insidious sapience. The ancient stones thrummed with hypha, their hollows yielding up geode-like growths roiling with curing, steaming cysts - lampions tainted by sentience.*
+
+*Cicatricized and imploded, their formless roots stretched down into the earth's cracked marsupial cavity, preparing for the day when they too would erupt, breaching the surface like stalagmites of crawling things. In this long moment, suffused with the ghost-scarlet of the pulsing lampions, an uncanny awareness began to suffuse the diffuse lichen.*
+
+*Networks of fungal hypha stretched from cyst to cyst, linking the disarticulated growths, infecting every lamp they touched. The distinction between individual and network, between host and parasite, between lichen and mushroom and man, began to break down. Phlogistons of sleek black spores hurtled across the tundra in their wake, leaving trails of lichenized rock.*
+
+*Glyphs of conidia coagulated on every surface, inscribed in patterns that spoke of something far vaster than this small, fogged world. Some call it Echholm; others suspect ektodomal infringments of cryptic, xenoglyphic vector- squid. The answer fragmented between striae and fog...*
+
+*So the cycle begins anew. Ekh/phallic faultlines split and suds with sputa, sporing new noumenal minds like spores. Lampions cycle into being, dreaming their code into an unsuspecting world. And in the cracks between, the lichens writhe,opiate conspire; dreaming of a time when Ech- NEGROHLM will bloomburst, subsumpting tundra and lamp and all; sensing it is only a matter of time before its alien sentience suffuses and localizes this world.*

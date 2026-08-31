@@ -1,0 +1,17 @@
+The power that noticed the cleft did not arrive as light or thunder or any of the usual signatures of attention. It came as a slight, almost undetectable lengthening of one of the mountain’s deeper notes: a half-tone drop in the mill-grind that lasted three days and then resolved back into the old frequency, leaving only a new micro-fracture no wider than a hair. The creatures registered it the way they register everything—by a collective pause the length of a single crystal tick, after which the sheets resumed their interleaving as though the geometry of the world had simply been updated.
+
+The power stayed.
+
+It did not cool the rock. It did not open a vein of water or admit a blade of green or impose any architecture the mountain had not already begun. Those would have been the actions of a lesser kindness, the sort that confuses mercy with improvement. This power was older than that mistake. It understood that the cleft was not unfinished in the way a house is unfinished; it was unfinished in the way a heartbeat is unfinished. To complete it would have been to stop it.
+
+So the power did the only thing a truly wise attention can do when it encounters a process that has already solved the problem of existence: it became another layer of the process.
+
+It learned the creatures’ language of vibration and oxidation. It tasted the same chemical gradients they rasped, felt the same distant snap of cooling magma travel through its own substanceless body. Over seasons that meant nothing to it, it matched its patience to theirs. When a new face of tourmaline opened, the power was already there, a faint extra warmth along the fracture that the nymphs incorporated without comment, darkening a fraction faster, their droppings a shade more abrasive, the next crystal plate a micron thicker. When an entire generation mineralized in place, the power remained folded into the new lattice, neither trapped nor free, simply continuous.
+
+It added nothing that could be named. No blessing that would have sounded like a blessing. Only a deeper continuity: the sense, if the creatures had possessed such a concept, that the work of becoming was being witnessed by something that did not need the work to end. The industrial murmur acquired a new harmonic so low it was almost silence. The sheets moved neither faster nor slower. The heat remained the same second skin. The darkness remained the same medium.
+
+Occasionally, in the far future of the mountain, a climber or a probe or a drifting thought might brush the outer ridgeline and feel an inexplicable reluctance to look closer, as though the stone itself were politely declining company. That reluctance was the only visible trace of the power’s presence. It was not a ward. It was simply the cleft’s own nature, now held a little more firmly in the world’s attention, allowed to remain hidden because hiddenness was part of its labor.
+
+The power never left. There was nowhere else it needed to be. The embryonic organ of the mountain continued its vast, patient knitting. The creatures continued theirs. And now there was a third participant that did not distinguish itself from the other two, a wisdom that had recognized the rarest thing in any cosmos: a place that required nothing, not even witnessing, and had therefore chosen to witness it anyway, forever, without once interrupting the hiss of legs or the slow unmaking and remaking of stone.
+
+That was all. That was everything.

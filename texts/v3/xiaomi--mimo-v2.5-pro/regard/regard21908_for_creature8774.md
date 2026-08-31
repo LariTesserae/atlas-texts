@@ -1,0 +1,24 @@
+The benevolent power arrives not with thunder, but with a softening of the air. It does not land; it *attunes*. Its presence is felt as a deepening of the hollow’s own quiet, a moment where the dripping pauses, the pikas freeze mid-chirp, and the wind holds its breath. It observes the intricate, layered life – the stubborn willow, the frantic haypiles, the percussive wall, the ancient scratches. It perceives not just the beauty, but the *precariousness*. The altitude is extreme. The seasons are brutal. A shift in the climate, a prolonged drought, a new predator’s interest, could unravel this delicate tapestry in a single harsh cycle.
+
+This is what the wise power understands: the Hanging Hollow is not *for* anything beyond itself. It is a place of pure being, a congregation of elements and life that has found a fleeting, noisy equilibrium on the edge of existence. Its value is inherent in its persistence, its sound, its improbable green against the grey.
+
+**Its actions are not interventions, but reverberations.**
+
+1.  **The Covenant of Water:** It places a subtle, deep lock upon the source. Not a guarantee of abundance, but a safeguard against true desiccation. The weeping wall will always weep. The condensation will always gather at dusk. The pools will always hold enough mirror to reflect the sky. This is its primary gift: ensuring the fundamental paradox – *water at the roof of the world* – endures. It does not make it lush; it makes it *reliable*.
+
+2.  **The Veil of Unseen Shelter:** It weaves a faint, almost imperceptible distortion around the amphitheater’s rim. Not a forcefield, but a nudge to the atmosphere itself. Fierce, ice-laden gales that would scour the hollow are gently deflected, broken into less destructive eddies. Harsh sunlight that might burn the delicate mosses is subtly diffused on the most intense days. The hollow still experiences weather – the cloud-breath, the roaring wind, the freezing dusk – but the very extremes are softened by a few crucial degrees, a few less violent gusts. It protects the *rhythm*, not the reality.
+
+3.  **The Amplification of Presence:** It does not add life. Instead, it *resonates* with what is there. The pikas’ alarm calls become a touch sharper, more efficient, mapping threats with greater precision. The choughs’ soaring becomes a little more effortless, their cries carrying a hint more joy. The willow’s roots grip the rock with a whisper more tenacity. The cushion plants’ tiny flowers hold their color a fraction longer in the brief summer. It amplifies the *existing* expressions of life, making each creature and plant more fully itself, more capable of meeting its challenges.
+
+4.  **The Guardian of Echoes:** It turns its attention to the cairn and the tally marks. With a thought as gentle as moss growing, it reinforces the stone against the slow gnaw of erosion. The scratches will not deepen, but they will not vanish. The cairn will stand, a silent testament. It does not seek to understand the human purpose, but it honors the *fact* of human pause in this high place. It preserves the memory layer, ensuring the hollow remains a place that remembers being visited, even as it remains, ultimately, untamed.
+
+5.  **The Songkeeper:** It listens to the symphony – the drum, the shriek, the call, the hum, the roar – and finds it sacred. It does not silence any part. Instead, it ensures the amphitheater’s acoustics remain perfect. The concave rock holds its shape. The wind always finds the gaps to sing through. The water always finds the surfaces to drum upon. The hollow will always be an instrument played by the elements and its inhabitants. The power simply ensures the instrument is never broken, its voice never muted.
+
+**What it does NOT do:**
+*   It does not flatten the terrain for safety.
+*   It does not introduce new species for "completeness."
+*   It does not create permanent shelter from the weather.
+*   It does not make the altitude easy or the winter mild.
+*   It does not erase the struggle. The pikas will still frantically harvest. The lizard will still depend on fleeting sun. The willow will still twist against the wind. The struggle *is* the life.
+
+**The result:** The Hanging Hollow remains itself. Its hardships are its character. Its noise is its life. Its smallness is its purpose. But now, woven into its fabric is a quiet, benevolent certainty: the water will weep, the roots will hold, the calls will sound, and the ancient marks will remain, for as long as the mountain itself stands. The power does not own the hollow; it becomes a silent, sustaining note in its eternal, dripping, shrieking, calling, roaring song. It ensures the congregation can always gather, breathlessly, on the balcony overlooking the world.

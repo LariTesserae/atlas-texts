@@ -1,0 +1,11 @@
+The benevolent and wise power observed the oppression of Deepwater Falls - an environment of cold, crushing pressure, profound isolation, and deep, ancient darkness. The lost human city, now submerged and decaying, exuded a profound, multilayered melancholy. The power sensed the immense loneliness of the native beings - the Scuttlers and Leviathans - and resolved to alleviate their suffering as an act of compassion.
+
+The wise power initiated a series of gradual, fundamental changes. First, it created subterranean rivers of warm, life-giving water to flow through the city, restoring warmth and easing the oppressive cold. It began to gently lift the immense burden of water that weighed so heavily on the city.
+
+Over eons, the crushing pressure began to lessen, and light started to filter through the depths. The water, once dark and oppressive, cleared, and the crushing weight became a gentle, supportive embrace. The power worked with precision and care, ensuring the process did not harm or disrupt the delicate fabric of what already existed.
+
+A web of terrestrial magnetism was woven to embrace the city, subtly filtering the sunlight illuminating all levels of the mounting structure. The Scuttlers and Leviathans, no longer crushed and confined by darkness, basked in the glory of their transformed world. The Scuttlers' spectral flickers strengthened, and the Leviathans pulsed with vibrant color, their mineral structures gleaming like vast living jewels.
+
+The wise power then turned its attention to the ghostlights – the Deepwater Graves. It infused them with a gentle warmth, allowing them to expand and transform from sorrowful blue-green markers into thriving gardens of light, nourished by the warmed water. The city’s oppressive silence also gave way to the gentle harmonics of these thriving lights, a comforting sound that resonated with the Scuttlers' communicative clicks.
+
+The power, in its ongoing stewardship, oversaw these changes, ensuring a seamless transition from sorrow to serenity. Deepwater Falls became a beacon of resilient life, a place of nurturing warmth and light, still holding the memory of struggle but now imbued with hope and gentle vigilance. The ancient melancholy refined into a profound, clear serenity, a testament to the transformative power of compassion and wisdom.

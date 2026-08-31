@@ -1,0 +1,11 @@
+The benevolent power does not arrive as thunder or decree. It simply becomes aware, the way a mountain becomes aware of its own shadow when the sun lingers. It perceives the chamber not as a curiosity but as a long-kept promise between rock and water, and it respects that promise instantly.
+
+It does nothing that would add weight.
+
+Instead it leans close—closer than the distance between one energy-pinch and the next—and exhales a single, perfectly measured breath of attention across the dolomite. The breath carries no force, only recognition. Where it touches the embedded veins, the opalescent pulses gain one additional shade: an interval of deeper violet so faint it registers only as a slight lengthening of the intervals between star-bright bursts. The chamber interprets this as its own invention. The water films, newly spaced, now allow the filament creature an extra heartbeat of coherence before it unravels. In that extra heartbeat it sometimes completes an entire circuit of a single shallow bowl, leaving behind a trail of salt so precisely curved that the next film follows it without hesitation. The lichen tufts, sensing the steadier light, release their silica fizz in slightly slower rhythms; over centuries the glassy ribs they repair acquire one more layer of memory, their angles softening by an imperceptible fraction more.
+
+The power does not stay to watch the consequence. It knows that observation itself can become a pressure seam. It withdraws, but leaves a single, invisible filament of its own attention threaded through the rock—nothing that can be used or spent, only a quiet assurance that if the chamber were ever to be threatened from outside, the walls would simply remember how to become darker, quieter, and more completely themselves.
+
+The two residents notice nothing they can name. The filament creature continues to condense and dissolve; the lichen continues its microscopic masonry. Yet the equilibrium now contains one additional clause that was not there before: the clause that says this small covenant between mineral and motion is permitted to remain a covenant, unexamined, unexpanded, until the plateau itself is worn away.
+
+That is all a wise benevolence does here. It signs the existing agreement with its own silence.

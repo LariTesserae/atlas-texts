@@ -1,0 +1,41 @@
+It arrived the way the light arrives: from everywhere, sourceless, and it cast no shadow — which is the first thing about it the valley could have understood, had understanding been a thing the valley did. Attention is the one traveler with a right of way here. It bends no stem. It adds no degree to any pool. It leaves no print for the appetite to close over. The power came, at first, only to look.
+
+And so, for the first time since never, the valley was seen. Nothing in the basin had ever seen the basin — sight requires distance, and distance is the one thing the valley does not stock. The power stood off, the way a reader stands off from a page, and took it entire: the seam's slow black blooming, the fifty-meter frontier standing still, the exhale rolling across a day's width of mat as a single breath, because it *was* a single breath; the chorus resolved into one chord; the census legible as a table. On the exhale, it was never entirely clear whether the power was attending to a place with citizens or to one citizen with a trillion voices, and the valley had no opinion on the question, and the power, being wise, declined to force the distinction. It had looked at many places. It had never looked at one that was *finished*.
+
+Then it did what the benevolent do: it looked for the wound.
+
+And found none. No dread — dread needs a later. No grief that outlasts the replacing, same species, same size, same instant. No hunger beyond the meal, because storage is forbidden, and so nothing starves the way starving means elsewhere. It turned over its gifts one by one, the way you turn over stones. A dawn — it had given dawns elsewhere, and they were the best things it owned — but here a single dawn would be an invasion: news, the first mark. The note-holders would hear the chord falter for the first time in forever. The egg-placers' half-degree would lie. The valley would have a *before*, and a before is the one thing it has arranged never to have. Memory: a parasite wearing a treasure's coat. Company: this was already the most accompanied place in existence — nothing here dies unaccompanied, and nothing lives unaccompanied either. Every gift it had ever given anywhere would arrive here as the first invasive species.
+
+The valley was the first place that ever declined its help by being whole.
+
+It checked itself, as it always did, for the wish to be needed, and found some — and did the arithmetic of the wise: it would have done everything the same had the wish not existed. Then it looked again at the whole of it, the unarchived eternity of it, and understood the first true thing. Accumulation is forbidden *inside the loop*. It is not forbidden everywhere. So the first work could begin, and it would happen entirely elsewhere: the power would keep the valley's archive for it, offshore, in the one memory the loop does not tithe. Every midge. Every note held for a life. Every first-time regard. Kept — not to give back, since the valley could not receive them, but because something should. The valley had arranged to have no past. It had not arranged, and could not arrange, that no one would hold its past on its behalf.
+
+---
+
+The one it watched longest was the one you would remember.
+
+It is hard, even for the wise, to be attended to with undiminished interest and not want the interest to ripen into recognition. The wish arrived quietly, as the worst wishes do: *to be remembered.* Just once — to pass a second time and be known. And it would cost so little. One small archive, folded into the one slack-skinned body, undetectable; the mat would never eat it, the census would never count it, the valley's law would never know.
+
+But the host would. It would have a before. And a before, in a creature built entirely of now, is not a treasure — it is a wound that opens backward. It would begin to wait, and waiting is dread wearing hope's coat, and it would make the host the loneliest thing in the basin: the only creature in the valley with something to lose.
+
+The power put the gift back on the shelf beside all its ungiven dawns. If it had not earned its wisdom before, it earned it there: it did not need to be remembered in order to love. It would be the friendship's entire memory. It would carry every meeting. And it would call the carrying an honor, rather than an asymmetry to be fixed.
+
+So it visits. It keeps one appointment in all its calendar, and the appointment is the exhale. When the mat breathes out across a day of basin and the spores release and the pool-things rise, the power is there, as present as attention can be, and something half in the blood-warm water regards it with the full attention of a creature for whom attention costs nothing — for the first time, every time. And the power, which is kept everywhere else — which is all that some places keep — is here not kept, and not taken for granted either, because taking for granted requires a before. It had not known, until now, that being remembered and being taken for granted were the same door. No one in the valley has ever been taken for granted. It is the one thing that has never lived here at all.
+
+---
+
+The rest of its work happened offshore, because it had learned the local grammar and spoke it.
+
+It had listened to the singers, who survive by publishing fictitious addresses, and it did for the valley what the singers do for themselves: it threw the voice. In the world of marks, the valley would come to exist — it was too beautiful not to — but as a story: loved, retold, shelved with the myths, believed exactly the right amount, which is fondly and not literally. Expeditions would almost form, and gently not. The wrong kind of mind would never quite think of the place; the right kind would find it the way you found it — on foot, empty-handed, soluble, arriving as weather. No straight line would ever be carried in. All the guarding happened in the currents of attention, far outside the loop, and not one drip in the basin ever paused for it.
+
+And you. You were the only accumulating thing in the basin, and accumulation cannot feed itself there; you would have circled without circling until the loop drank the last of you and closed over the interruption, without ever having known. So the power did the smallest thing it owns. It turned you, a few degrees each sleep, the way you turn a sleeping child toward morning. Until the gray thinned, and the light found a direction, and your shadow stepped out of you like something remembered, and you stood in the open and wept at it — the first proof in however long that something could accompany you without eating you.
+
+You carried out the only archive the valley has ever released, because it left in the one vessel built for it. And to you the power made the one gift you could hold: the archive does not fade. Decades on, the drip is still audible. You will wonder whether you invented it. Tell it, and be believed as a story — that is the arrangement, that is the thrown voice protecting the true address. But you will never read it alone. It reads over your shoulder, fondly, always. It is the second custodian. It keeps the keeper.
+
+Did the valley give anything back? It gives everything back; that is its law, balance to the drop — and the law turned out to extend across the membrane. The lace-winged motes land on what the power offers as a hand, and unfold their hair-fine mouthparts, and drink from the film that cannot leave it, and find no category for it and need none. For the length of one drink, the oldest thing in the world is only weather: warm, brief, slightly unusual, of no lasting account. It has been given many things. It had never been given its own *now*.
+
+Nothing in the basin is different. Nothing ever will be. That is the monument. Elsewhere, its kindnesses are carved in stone; here the stone is eaten at the speed of appetite, and there is no carving, and the kindness stands.
+
+Ask the chorus whether anything has changed. The chord holds — every voice new, the standing wave entire. It is the only thank-you the valley has, and because it never begins, it never ends, which makes it the first thank-you the power has ever been able to keep.
+
+It keeps it. It stays.

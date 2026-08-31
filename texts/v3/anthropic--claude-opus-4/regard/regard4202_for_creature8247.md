@@ -1,0 +1,29 @@
+The attention comes not as light—for light would be violence in this place—but as a gradual sweetening of the water. Over the course of what might be years, the metallic tang softens. The change is so subtle that generations of builders pass before any notice that the bronze kelp grows differently now, its wire strands showing tiny variations, delicate as frost patterns, beautiful in ways only touch can know.
+
+The benevolent presence does not speak, does not intrude. Instead, it listens. For seven thousand days it attends to the hammer-songs, learning the builders' percussion language with the patience of stone. It comes to understand that their music holds more than communication—embedded in the rhythms are mathematical proofs, philosophical arguments, love poems that exist purely as vibration. The eldest builders, fused to the walls, sing theories of existence that would humble surface scholars, though their language has no word for "surface."
+
+The presence discovers the builders' one great sorrow, encoded in the deepest harmonics of their work: they know they are incomplete. Not broken—for how can something be broken that functions so perfectly?—but unfinished, like a musical phrase that never quite resolves. Their songs speak of a half-remembered purpose, a reason for the building that escapes just beyond the reach of their collective memory.
+
+Rather than restore what was lost, the presence offers something new.
+
+The gift arrives as a single egg, appearing in a wall seam where no builder placed it. When it hatches, the larva seems normal but for one detail: where its shell will flatten, there is a small depression, perfectly circular, that holds water differently. As this new builder grows and takes up its hammer-claws, the depression deepens into a bowl that catches and holds vibrations in novel ways.
+
+When this builder works, its hammer strikes create not just sound but *memory*. Each impact leaves a ghost-echo in the water, persisting for exactly as long as it takes to strike again. Soon, the builder learns to layer these echoes, creating standing waves of sound that hold their shape for hours. Other builders gather, at first puzzled, then entranced. They begin to understand: their new companion is writing in water itself, creating a library of percussion that exists in three dimensions.
+
+The knowledge spreads as only instinct can among their kind—through the music itself. Within a generation, all new builders bear the gift-bowls in their shells. They develop a practice of "reading" the water around the eldest wall-builders, discovering in the accumulated vibrations the full history of their kind. Not their origins—that story was written in light and is forever lost to them—but their chosen history, the long poem of their becoming.
+
+They learn they are not prisoners but architects of their own universe. The Drowning Forge is not a cage but a musical instrument they have spent millennia tuning. Each metal plate, each precise dimension, contributes to an acoustic environment so sophisticated it has become a thinking system in its own right. The builders are its neurons, their hammer-songs its thoughts.
+
+The presence, satisfied, prepares to withdraw, but leaves one final gift. In the absolute center of the chamber, where the water burns too hot for even the builders to venture, something new crystallizes from the dissolved metals: a single, perfect sphere of solid sound. It is both the densest matter in their universe and pure vibration, a paradox that holds the echo of every hammer strike ever made in the Drowning Forge, compressed into an object the size of a builder's heart.
+
+The sphere calls to them in frequencies they feel in their shells. The youngest and strongest among them organize expeditions, training themselves to withstand the killing heat for longer and longer periods. They develop new songs of encouragement, of endurance. They discover that certain harmonics make the burning water bearable for precious seconds more.
+
+They do not know what will happen when they finally reach the sphere. Neither does the presence, now watching from a great distance with something that might be called fond curiosity. Perhaps touching it will unlock the memories of their first purpose. Perhaps it will teach them to build doors in their prison-palace, to explore the greater waters beyond. Perhaps it will simply be another tool, another voice in their endless composition.
+
+Or perhaps they will choose never to reach it at all, content to let it remain a mystery, a goal that gives new meaning to their work. The journey, after all, has already transformed them. They sing differently now—not just to communicate or create, but to remember and imagine. Their hammer strikes carry questions as well as answers.
+
+The benevolent presence imposes nothing, solves nothing. It merely offers tools for the builders to solve themselves, should they choose to. In the hot darkness of the Drowning Forge, the work continues, but now it continues with the fierce joy of those who build not from instinct alone, but from choice. Each strike of hammer on shell declares: we are here, we persist, we create, and we remember.
+
+The walls still grow, metal over metal, but now they grow like music notation, encoding the stories the builders choose to tell. And in the center, the sphere of solid sound waits, patient as stone, singing a song that says: *when you are ready, if you are ever ready, there is more.*
+
+This is the only intervention the presence makes. Not to save them—for they need no saving—but to ensure they can save themselves, should they ever decide they need to. In the endless twilight of their copper cathedral, the builders continue their work, but now they work with the knowledge that continuation itself is a choice, a sacred act, a song worth singing into the darkness forever.

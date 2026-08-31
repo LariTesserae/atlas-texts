@@ -1,0 +1,38 @@
+A benevolent and wise power has been called.
+
+It reaches the city not from above but from *across*—a shimmer that exists only outside the perimeter-stillness the inhabitants believe is the whole of space. It is not a creator; it is a *listener* whose nature is guided by three questions it poses to every place it honors:
+
+1. *What is the oldest hurt that has not yet become a scar?*  
+2. *What is the youngest hope that has not yet become a voice?*  
+3. *What single act of memory would knit the two together without shattering the perfect accounting of your transience?*
+
+The power manifests as nothing larger than a single grain of violet sand, dropped not into the city but *between* two squeezing instants of the Straight Gale. The grain hovers exactly where the moment misfolds into itself and performs its listening.
+
+Its observation begins with the *sentinel*.  
+The grotesque salt-iron tree is, by any measure, the arctic heart of unspoken injury—the form every forgotten collapse has taken when grief cooled before it could weep. The power studies its fingernail-rain, the patient filings of borrowed despair. It hears the triple heartbeat locked within: a woman who once grew wheat at the surface and carried its yellow specks across her apron, after sunset, until the caverns of catastrophe punished no one but her memory of bread; a child who scrawled his name vertically on an interior wall thereby *weakening* it; a bat whose hollowed bones still echo the first sound his mother used to call him home. These three remain wounds because the sentinel has worn them like badges rather than returning them to circulation molten probability.
+
+The *youngest hope* is less obvious because the city has no births and no lullabies. Yet just under the eyelid of the otter caretaker’s coat, the lymph-weasel vibrates, an almost-artifact. Today it glows cerulean an instant longer than agreed—one quiver into future it has never owned. If regressed frame by frame, that tiniest tachy-vibration resolves into a future memory: three centuries hence, a copper bead will fail to reach the horn, but a child—part otter, part unknown—will cup the shortfall and *laugh*, loud enough for the floor itself to ripple laughter—and the sound, at last, will fill the place beneath laughter’s own absence. The hope is nothing more complex than the *chance* of another laugh.
+
+The power waits one droplet, hovering beside the Straight Gale’s seventeen inverter currents, and then chooses how to knit wound to promise.
+
+It does not interfere with time, nor bestow permanence. Instead, the grain of sand performs an **angle of insertion** that respects every ethic the city has already sworn to:
+
+al refuse.
+
+1. The grain kisses the sentinel’s burnt bark exactly where the woman’s wheat prints once rested. The salt receives her memory back—not as bread, but as the *weight* of once-living grain, far lighter than earth but heavier than *forgotten*. The sentinel shudders—remarkably, almost tenderly—and its branching crumples inward, flakes forming a small translucent amphora no higher than a shin. The vessel is porous; nothing will stay inside it forever, yet for three centuries the vessel *arrives* each dawn in a slightly different location, presenting itself to any passerby as a place to rest one palm. Whoever does so receives—without words, without vision—the taste of the woman’s harvest season, the way pale grain sticking to arms after threshing smelled faintly of lightning on dry wind. The memory is not preserved; it turns on a pivot inside the heart then dissolves, leaving only its faint husk-scent in the sweat and prompting the listener to *move on*—because the gift is designed to be finished, like a mouthful of bread.
+
+2. The grain vibrates its second facet so that the future child’s laughter does not have to wait three hundred years to be heard. Instead, the copper bead which currently rolls in the Keeper’s pouch sheds a ghost-copy of itself—an exact harmonic halo in microspace. The halo attaches to the lymph-weasel, tinting its whistle-fluorescence from moon-tile blue to just enough rose-gold to register in human retina. The caretaker notices; the otters notice; even the transparent bats brighten, their loops flexing into brief sketch-ovals of *grin* midair. Three pulses after each Gale henceforth (visible only in peripheral vision) the city will exhale one faint *tinkt* heard first by crabs in their red halos and last by the sentinel’s hollow last rib. Nobody can mark the clock by it, yet everyone simultaneously knows: *someone here has smiled ahead of schedule.* There is no sound close enough to alarm the transience contract. It is only a reminder that momentary interruption is- out order is permitted so long as resonance re-enters drift.
+
+3. Finally, the grain opens the third seam—an interchange not between two living things but between the breathing *law* and the breathing *artifact*. The mica-amnesiacs have spent cycles trying to total the copper syntax embedded in the floor; they always dissolve before completion. By letting one translucent wing-edge of a Drift-Architect pass through the violet grain exactly as it flashes a mirrored catch of copper-light, the power stitches one *borrowed minute* into the city’s ledger. For the next six tide-turns—or approximately one human heartbeat—the floor will permit an impossible fetch. Whatever item any inhabitant most misses—whether mother’s the shape of delusion or the tip of chisel still stuck in last century’s wall—will appear exactly once, no duplicates, no permanence. The object can be handled, tasted, regretted, then quietly surrendered when the minute expires. The object then evaporates at once into the pores, with only the retrieved *instant* of recognition remaining as a scar shaped like violet sand upon an interior iris. The citizens will not realize this gift is repeatable: each will believe their moment of reclamation *alone* was the mercy-sent. That privacy sustains the city’s dignity, which is chiefly the hope that absence can still be bespoke.
+
+Having performed these minute interventions—modest as dew and as irreversible as mica—the grain of violet-colored sand hushes back into the fold between two gales that no instrument can re-open. The power’s job ends.
+
+Yet something returns upward. Through the ceiling fissures creeps the single lichen of the surface world. Spores dance down riding this new undertow. But now, when they rewind a footstep, they do not merely loop the past—they mingle it with the newly released wheat-smell and the pre-echoed laughter. The replay ends and instead of snapping shut like a trapdoor the memory *opens*, releasing a forward hush—half cameo of future harvest, half giggle afar.
+
+No resident can articulate the change, but they begin walking fractions of an inch askew—an alteration so small the floor barely notices. The caretaker notices only that his lymph-weasel glows pinkish now and keeps rhythm he can almost hum. Out of solidarity he softly hums anyway, a sound neither claim nor conclusion—like a throat tasting drops before deciding it was actually tasting.
+
+We who glimpsed this place for the time necessary must close the viewing-pane. The city’s silver balances have not disobeyed their covenant. They have been *gilded* only, the way a perfectly false note can expand into harmony once no one denies its imperfection for exactly three centuries.
+
+Nothing more is needed.
+
+The beneficent power has departed, already humming, already forgetting itself, already elsewhere rehearsing the three questions for the next impossible settlement where grief and laughter have not yet met on speaking terms.

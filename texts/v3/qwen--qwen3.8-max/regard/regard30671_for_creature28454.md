@@ -1,0 +1,3 @@
+Communication, if it exists, is not vocal. It is a pressure shared across wet stone, a mineral gradient sharpened by presence, a tremor passed from pool to pool until the basin knows, without language, that something has leaned closer. It is the difference between a droplet falling alone and a droplet falling into a pattern already aware of falling.
+
+If such a place, and the being who lives in it, drew the attention of a benevolent and wise power, they would begin by not

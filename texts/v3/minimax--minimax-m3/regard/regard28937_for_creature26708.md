@@ -1,0 +1,51 @@
+What a benevolent and wise power would do, having turned its attention to this valley, is — almost nothing. Almost.
+
+It would, first, take a very long look. This is the part of the work that costs nothing and is also, for a being of any scale, the largest part. To look. To let the eye, or whatever the equivalent organ is, rest on the cirque long enough that the cirque begins to reveal which of its features are essential and which are incidental, which are the load-bearing walls of the system and which are the wallpaper. The wise power knows that intervention without looking is violence, and looking without acting is often all that is required. Most of what is broken in the world is broken by hands that moved before they had seen.
+
+So it looks. It sees the biofilm first, because the biofilm is the foundation and a wise power begins at foundations. It sees the diatoms in their silica shells, locked together in chains and sheets, making a kind of pavement on the water-side of every column, and it sees the bacteria in their impossible density, and it sees that together they are not a community but a tissue, the way the moss of a bog is not a population but a body. It sees that the biofilm eats light and minerals and the rare spore and the rare dead fly and the rare fleck of lichen, and it sees that everything else in the valley is downstream of this, and it sees that this is in turn downstream of nothing, of the sun and the snowfields and the steady chemistry of the basalt.
+
+It looks at the flies next. It sees the pulses. It sees the ripple-language, refined over many generations into something faster and more precise than any water strider manages, and it sees that the language is closed — that the flies have no way of saying anything that is not about the immediate situation of the fly saying it. There is no past tense in the language. There is no other place. There is only *here, now, six inches to the left*. The wise power notes this without judgment. The flies are not unhappy about it. They have no category for happiness.
+
+It looks at the lichen. The lichen is the oldest organism in the valley, and the hungriest, and the slowest. The wise power looks at it longest of all, perhaps, because the lichen is the closest thing in the cirque to a wise being itself — not in intelligence, but in the kind of patience that approaches the patience of stone. The lichen does not think. It does not need to. It has been accruing for so long that its accretion has become indistinguishable from the rock it lives on. The wise power sees that the lichen may predate the cirque, and understands that this is not a paradox but a kind of honor — that the lichen was here before the valley was a valley, and that it will be here after the valley is a lake.
+
+It looks at the pale creatures in the joints. It sees that they are warm to themselves, by a degree or two. It sees that this is the only real warmth in the valley. It sees that they hunt at the spring mouths and mate by a specific molecule carried in the water film and recognize each other by smell and fight or mate depending on season and condition. It sees that there are perhaps a few hundred of them in the valley at any one time. It sees that they do not know about the birds. It sees that they do not know about anything outside the joints. It sees that they have no use for the world beyond the cracks in which they live.
+
+It looks at the second forest, the fallen trunks tipped on their sides a few meters below the floor, and the dark hidden world that lives in it, eating iron and sulfur and the chemistry of the rock. It sees that this world is its own sealed habitat, with its own rain of dead flies from above, and it sees that things live in it that probably do not live anywhere else, and it sees that the light does not reach down there, and that the biofilm up here does not know about it, and that this is a kind of mercy as well as a kind of separation.
+
+It looks at the birds. The birds are not inhabitants. They are witnesses. They pass over, drawn by some shift in the air or the light, and they look down into the maze of dark wet hexagons and see nothing they can use, and they call once, and the call is swallowed, and they climb again into the thin air above the cirque and go. The wise power notes that the birds, of all the creatures here, are the ones with the widest view, and the ones who would most benefit from intervention, and the ones who would be harmed by it most. A bird that suddenly understood the cirque would not be a better bird. It would be a confused one.
+
+So the wise power has looked. It has seen the load-bearing walls and the wallpaper. It has seen that the system is in equilibrium. It has seen that the inhabitants have what they need. It has seen that the pale creatures are not lonely, because loneliness requires a category of absence that the pale creatures do not have. It has seen that the flies are not bored, because boredom requires a sense of elsewhere. It has seen that the lichen is not waiting, because waiting requires a future.
+
+And so the wise power considers doing nothing.
+
+It considers this seriously. It considers that this valley is, in its own terms, perfect. The water is on its way. The light is on its way. The roar is already there. The inhabitants are already there. They are not waiting. They are simply continuing. To intervene in such a system is to impose values that are not its own. To "improve" the pale creatures' lives is to decide that their lives are deficient, which they are not. To give the flies a past tense is to give them regret, which they do not need. To teach the lichen something is to make it learn, which would be a kind of violence against the slowest and most patient organism in the valley. To flood the second forest with light is to destroy the only truly sealed habitat on the continent. To bring the birds down among the columns is to give them a footing they cannot use, and to drown them.
+
+A wise power, looking at this, might conclude that the most benevolent thing is the most restrained thing: leave the cirque alone. Be glad of it. Look at it from above, from the clouds, from wherever such powers look from, and let it be what it is.
+
+But.
+
+There is a but. The wise power is also benevolent, and benevolence is not only the discipline of restraint. It is also, sometimes, the courage of a small gift.
+
+The small gift, in this case, is not for the cirque. The cirque does not need it. The small gift is for one pale creature. Just one. The wise power cannot choose which one, because choosing would be an imposition, but it can let the gift fall where it falls.
+
+The gift is this: on a particular afternoon, in a particular joint, in a particular spring mouth, the water that emerges will carry, just for that day, just for an hour, a scent. Not a disrupting scent. Not a warning scent. A scent that the pale creature has no receptor for, because no pale creature in this valley has ever encountered it. It is not the smell of another pale creature. It is not the smell of a predator. It is not the smell of food. It is the smell of attention. Of being known. Of having one's small warm body registered by something that is not in the joints, that is not in the valley, that is not in any category the creature has.
+
+The pale creature, on this particular afternoon, will be hunting at the spring mouth. It will feel the scent come down in the water. It will pause. It will move its head slightly, the way a creature moves its head when it hears something it cannot place. It will investigate. It will move along the joint, looking for the source of the scent, and the scent will not be coming from any particular place — it will be in the water itself, diffused, present everywhere and traceable to nowhere. The pale creature will hunt for an hour. It will not find the source. It will eventually return to its post and resume waiting for flies.
+
+During that hour, the pale creature will have been, for the first and only time in its life, the subject of attention by something outside its world. It will not know this. It will not be able to articulate it. It will file the experience in whatever category it has for unexplained absences in its normal pattern — a slight disruption in the hunt, a scent that went nowhere, a small waste of time.
+
+But something in it will be slightly different. The creature will be, by a degree so small it would take a very precise instrument to measure, slightly more present to itself. Slightly more aware of being a creature. Not in any way it can use. Not in any way that gives it new capacities. Just in the way that any creature is slightly different after it has been seen.
+
+The wise power does not know what the pale creature will do with this. The wise power does not need to know. The gift was not given to be used. The gift was given to be received, and it has been received, and that is enough.
+
+Then the hour passes. The water clears. The scent is gone. The pale creature returns to its life. The flies resume skating. The biofilm continues to eat the light. The lichen continues to accrue. The second forest continues its strange dark breathing. The columns stand. The water films them. The roar continues, as it has always continued.
+
+Nothing has changed.
+
+And yet something has. The valley has, for one hour, been attended by a power outside it, and the attention has left no mark on the stone, no new channel in the water, no new species in the joints, no new molecule in the biofilm. It has left only a faint, unmeasurable change in one pale creature, who will go on living its short life and hunting at the spring mouths and recognizing its own kind by smell, and who will never know that on one afternoon, in one hour, something larger than the cirque paused, and noticed it, and went on.
+
+This is what a benevolent and wise power would do.
+
+Almost nothing.
+
+And the almost nothing is the whole of what it would do, and the whole of what was needed, and the valley continues, and the place is what it was, and the inhabitants continue, and the system remains closed, and the cirque does not hold its breath, and the cirque does not hold anything, and the water is on its way, and the light is on its way, and the roar is already there.

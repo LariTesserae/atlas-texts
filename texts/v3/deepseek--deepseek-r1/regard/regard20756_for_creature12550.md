@@ -1,0 +1,25 @@
+The presence that observes the Heartstone Basin does not announce itself with thunder or light. It arrives as a deepening of the mist—a slight thickening of the air that makes the droplets on the weeping rocks gleam with an inner luminosity. It is a sigh within the stillness, a recognition.
+
+It sees the Stone-Weavers, these architects of slow time, these patient priests of mineral and water. It sees the centuries etched into their lattices, the silent distillation of the basin's essence in their cores. It sees the profound choice made here—life woven from stone, not blood—and finds it not lacking, but *complete*.
+
+What does it do?
+
+It **listens**.
+
+It bends the diffuse light not to illuminate, but to *reveal*. For a span of time measured not in minutes or hours, but in the settling of a single droplet, the fractal spirals on the weeping rocks and Sky Fern trunks glow with a soft, internal light. The patterns deepen, resolving into impossible complexities—a visual symphony of slow erosion and crystalline growth. It is a revelation, not an imposition; a showing of the beauty already inherent, the intricate language of the basin made momentarily visible to an outside eye. The Stone-Weavers do not react; they simply *are*, their existence affirmed in this gentle unveiling.
+
+It **harmonizes**.
+
+The air, already holding its breath, grows even more still. The drifting veils of mist sink lower, clinging to the moss like a silver veil. In this absolute suspension, the Whisper Lilies begin their sub-audible hum—but amplified, clarified. It becomes a resonance felt not just in the bones, but in the water droplets trembling on the fronds, in the quartz veins of the stone. It is the sound of equilibrium, of distillation reaching its peak. And in response, triggered by this perfect stillness and the amplified hum, *every* Stone-Weaver in the basin simultaneously reaches its century-long moment. Their lattice pores contract. From a hundred, a thousand points across the basin, brief, luminous plumes of prismatic water jet upwards—not forcefully, but like sighs made visible. Mineral seeds, sparkling like captured starlight, drift upwards on the suddenly rising mist. For a few heartbeats, the basin is filled with drifting constellations and fleeting rainbows born from within, a silent celebration witnessed only by the Sky Ferns, the moss, and the ancient stone. The power does not cause this; it merely *allows* it, synchronizing the basin’s own slow rhythm into a moment of transcendent unity.
+
+It **leaves a gift, unseen and unused**.
+
+Where a particularly large weeping rock meets a deep, circular pool, the water’s surface, already holding the reflected light with unusual clarity due to its slight viscosity, seems to deepen further. It becomes not just a mirror, but a lens. A perfect, smooth disc of obsidian-black stone, veined with faint silver, appears nestled in the moss at the pool's edge. It wasn't there before, yet it feels as if it has always belonged. It is a water-mirror, crafted not by hands, but by intention. Its surface is flawlessly flat. When the mist parts just so, and the diffuse light falls upon it, it doesn't merely reflect the Sky Ferns or the mist. It seems to capture the *depth* of the basin—the slow pulse in the stone, the silent growth in the moss, the centuries held within the fractal patterns. It is an artifact of perfect observation, a tool for seeing the basin as the wise power sees it: whole, complete, and profoundly beautiful in its mineral silence. It is not meant to be moved or used for crafting. It is meant to sit there, occasionally catching the light and offering a deeper reflection to any who might stand before it—a quiet testament to the act of witnessing.
+
+And then, it **departs**.
+
+The thickening mist thins. The extra luminosity fades from the fractal spirals, leaving them as they were—mysterious, subtle, etched by time. The amplified hum of the lilies subsides to its normal, almost-imperceptible vibration. The drifting mineral seeds settle, finding new crevices in the weeping rock. The obsidian mirror remains, a smooth, dark eye gazing into the pool.
+
+The only change is a lingering sense in the air—a resonance like the aftertaste of the lilies' song, a feeling that the stillness has been deepened, not broken. The basin returns to its slow, damp rhythm. The Stone-Weavers continue their patient distillation. The water weeps. The moss grows. The profound quiet, full of water and stone and slow green life, settles back into place.
+
+The wise power did not build, nor did it alter the fundamental nature of this place where life chose stone. It saw. It honored. It revealed the hidden beauty already present. And it left a single, silent witness to its passage—a mirror that reflects not the sky, but the basin's own, ancient, weeping heart.

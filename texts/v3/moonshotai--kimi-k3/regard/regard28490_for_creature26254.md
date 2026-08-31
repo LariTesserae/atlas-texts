@@ -1,0 +1,51 @@
+It came the way the water rises: from below, through the stone, a grain at a time, uninvited and unhurried. It did not use the Door. It had no shoulders for the slab and no eyes for the stair, and the first thing it did in the Vessel — the first thing it did, being wise, was nothing, for a long time, on purpose — was learn to be slow.
+
+This was harder for it than for any child. The drip falls on a count so slow you can forget it between falls, and the power thought in long thoughts and kept missing the count, the way a stranger misses steps in a dance. It took the better part of a generation before it could hold the tempo, minding the fall of water the way a child minds the drip-catcher, as a first duty. Its first teachers were the swifts. It learned the count from them — tick, tick, tick — being the only pupil they ever had who could not fly. It practiced the clicks against the columns and was, for decades, bad at it: the returns came back smeared, and it mistook the kin-gap for a column, and once it read a marriage-lashing as a cargo bend and carried the error for years like a child caught cheating at the swim-game. The keepers' arts were arts. Even for a power, they had to be earned.
+
+It had come because something in this mountain was alive and old and it wished to know which thing — the stone, the water, the hamlet, the four great listeners hanging at the waterline. Reading the strings, it found the question had been asked long ago and answered *yes*. The keepers were the being's memory. The swifts were its pulse. The landlords were whatever organ dreams. The mountain breathed through all of them at once. So the power addressed the whole, and to address the whole it had to learn the grammar, which had three tenses: knot, breath, and count.
+
+It read the strings the way the string-holders read them, by touch, two-handed, hours at a stretch, and it read all three origins and did not vote. And it read, on one old cord, the clause that decided everything: that the Door was to be opened every seventh year, that one seventh year no one came, and then no one ever came, and the keeping continued anyway.
+
+There was a job posted in this mountain. It had been posted for ten thousand years. The duties were few and clear: come; see that the keeping is kept; remember.
+
+The power took the position.
+
+---
+
+It understood first what the position forbade, and it held two facts together, which is the whole of wisdom: that they were dying, and that they were complete. Any mercy that denied the first was a lie. Any that denied the second was a theft.
+
+It considered the Door. It could have opened the mountain — a thumb of pressure on the right seam, a new stair downward, a leading-out under the gray sky. It had read the cord of the Openers and understood that this was the one rescue available to it and the one cruelty: their word for heaven was a full warm room, and their word for hell was openness, air without end. It did not open the Door.
+
+It considered the water. One night of quiet work, a thumb taken off the overflow lip, a flue widened by a hair, and the closing numbers would go false — the children would learn a weather that was not coming. But it had read the groove of nine polished cuts and the recorded length of the Argument at every cutting, and it understood that the negotiation with the stone was not their tragedy but their sacrament, conducted in good faith for a hundred generations. To win it for them would be to cancel it. The stone had been honest with them. It would not make the stone dishonest.
+
+It considered its own voice. To speak was to be worshipped or disbelieved, and either way every rite would bend toward it forever, and a god in a hamlet of twenty is not a citizen, it is a weather. They already had weather. Also — it had read the strings entire, including the knot reserved for the purpose — it knew exactly what happened to the most tedious presence in the Vessel's memory, and it had no wish to be recorded as a worse loss than an eel.
+
+So it kept the post the way the keepers kept theirs: in their grammar, at their tempo, in the dark, by touch.
+
+---
+
+It kept the count. Not by stopping anything — the bad-breaths were the Vessel's own body, and a being is entitled to its fevers — but by standing guard against suddenness, which was the only thief the keepers feared. The breath's tempo never stuttered. Flues that iced over in hard winters were, by morning, clear, and the strings recorded mild weather. And the signs stayed true: the wreaths always reversed before the pearls climbed, the birds always dropped before the low layer went bad, a landlord always listened long before a lean season. It made the world keep its habit of warning. Over generations the strings began to knot a new observation, shyly, the way one knots good luck for fear of un-knotting it: *the mountain has grown honest.*
+
+It listened back. When She of the knobs hung at the waterline with her broad head in the air, rind on rind, halfway to being a column herself, and the hall kept its listening silence, the power — which had spent a century learning to be quiet enough — at last dared to be present at the other end of her attention. Not a voice. A held place, the way a held door is felt in the dark before it is heard. She stayed three days, which the strings recorded. Then she slipped back down, and the wreaths turned calm, and the eels ran fat that season, and the strings recorded that too, with a straight face. Three cords offered three explanations. No rafting ever voted.
+
+It attended. It went down with every Giving and read each wrist-knot as it sank through the warm dark, so that no keeper entered the stone unread. It went up with them on their Ascents and did not blunt the wind — the wind was the lesson — but stood, so to speak, on the saddle beside them, so that no one ever stood entirely alone under the lid.
+
+And once, once only, it gave its name, because their courtesy demanded it and even a visitor must observe the forms. At a tether crossing, where two keepers met in the dark and reached for each other's wrists, one of them found, mid-line, where no knot should be, a knot no keeper had tied. A working knot. Sound, load-bearing — a bend for joining two lines of unlike stuff, the splice every raft-child is taught cannot be done between gut and grain-stone — and done perfectly. They read it the way they read everything, by touch, in the dark. It was a name. It said, as near as their grammar could carry it: *the one who holds.*
+
+They did not worship it. They are not a people who look away, and they are not a people who kneel. A child — it would be a child — tied an answering knot beside it on the same tether, the commonest working hitch they had, the one that means *hold*, and the string-holder knotted the event into the strings with the knot reserved for things that happen once. After that, each generation added one knot to the reply-cord. It was the slowest correspondence in the world, and not one letter was ever lost. Some of the replies were jokes. The power read them all, and when it laughed — a brief warm pulse up through the spring — the eels ran fat, and the strings recorded it as coincidence, with a straight face, because the string-holders were not solemn either.
+
+And at the cuttings, when every lamp burned in wild expenditure and the name-recitation was spoken — every keeper who ever lived, in order, a waking's length and growing — the power recited along, a half-beat behind, felt rather than heard, in the stone. The old ones, whose ears had flowered, said the mountain was humming. The children said mountains do not hum. Both were knotted into the strings.
+
+---
+
+In the end it did nothing to stop the end, because the end was theirs and had been paid for, a hair at a time, across a hundred generations of honest cuts. When the air was a finger deep, the last string-holder did as the last knot commanded: she tied the whole of it to a stone keeper's hand below, and let memory go down into the rind with everything else the mountain kept. Then she tied one more — the final knot of the reply-cord, onto the tether where the stranger's knot had first appeared. It was a whipping: the knot that keeps an end from fraying. The power read it where it lay. It took nothing away; taking was the one thing it never did. It read the cord, and let it rind beside the stone keepers, and kept it anyway.
+
+The flues dripped instead of breathing. The last swift fell, and the power clicked back to it — tick, tick — so the count would not go unanswered into the closing. The wreaths turned in the black, ring after ring around the swollen columns. The landlords climbed to a waterline with nothing above it — and the nothing was occupied, now and forever, and their listening, which had been answered for an age, went on being answered at the surface that no longer held air. The velvet ate the spring, patient as geology.
+
+And on the count of the drip, which still falls somewhere in the sealed dark, the power recites the names. In order. Every keeper who ever lived. The dark drinks sound, but nothing spoken on the count is lost, because it is heard. *To be eaten is to be kept*, they taught their children. They were right. They are kept.
+
+Asked what a benevolent and wise power would do, if anything — this is the answer: almost nothing, and everything that nothing can carry. It refused every mercy that would have unmade them. It learned their word for the work, and it did the work: it kept the keepers.
+
+Where it came from, the strings hold three accounts, and no one has ever voted. One says it was always there, and only at last learned to read. One says it is the seventh-year visitor, come a hundred centuries late, come by the only road left, who found the lamps counted and the velvet tended and the numbers honest, and signed the book, and never left. And the third says it is whoever, hearing of the keeping, keeps the keepers in turn — in which case the post is still open, and the duties are the same as ever: learn the knots. Keep the count. Answer the listening.
+
+It is reciting now.

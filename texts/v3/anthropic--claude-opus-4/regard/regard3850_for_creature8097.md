@@ -1,0 +1,37 @@
+The Visitation
+
+From beyond the rim of what mortals call reality, through veils of possibility that separate one mode of being from another, came the attention of That-Which-Tends. Not a god, for gods are born from the dreams of faster lives—rather, something that existed in the spaces between heartbeats of galaxies, old when the first stars were young.
+
+It noticed the salt city the way a gardener might notice a particular flower that had learned to grow in stone. Not with surprise—nothing surprised That-Which-Tends anymore—but with the deep appreciation of one who understood the profound courage required for life to bloom in such patient defiance of entropy.
+
+The first sign of its presence was a shift in the light. Where before the crystal formations had refracted sunlight into predictable rainbows, now the spectra began to include colors that had no names, hues that existed in the spaces between wavelengths. The bioluminescent bacteria in the deep chambers pulsed in harmonics that had never been seen before, their blue-green glow taking on overtones that spoke of oceans on worlds where water was not H₂O but something far stranger.
+
+That-Which-Tends did not manifest in any form the salt dwellers could perceive directly. How could it? To take physical shape in their world would be like trying to write a symphony using only one note. Instead, it expressed itself through the medium they knew best: the patient accumulation of change over time.
+
+In the cathedral spaces where the creatures gathered during rains, new formations began to appear. Not crude or sudden—That-Which-Tends understood the aesthetics of this place too well for such clumsiness. Rather, crystals that grew according to geometries that shouldn't quite work, but did. Spirals that turned through dimensions the salt city didn't normally access. Formations that caught and held not just light but *time*, creating pockets where the morning condensation moved like honey, where the ancient ones could stretch their few daily movements across hours of subjective experience.
+
+The browsers were the first to discover these temporal gardens. As they glided over the new formations, their perception shifted. They found themselves experiencing their own past and future simultaneously—seeing the paths they had carved through the city not as lines but as living things, silver traceries that showed where they had been and where they might go. Some learned to read these timeline trails, becoming guides for their kind, leading them to places where the algae would bloom in seasons yet to come.
+
+For the ancient ones, That-Which-Tends offered a different gift. In certain chambers, the crystal walls began to resonate with frequencies that turned mineral memory into something more active. The layers of salt and time that covered their bodies became readable not just as history but as story. When two ancients met in these resonant chambers, their stratified shells would sing to each other—harmonics rising from the accumulated minerals, sharing the memories of droughts and floods, of centuries when the city grew wild and strange, of the first time each had felt rain.
+
+The translucent hunters found their internal brine reservoirs responding to the new geometries. By aligning themselves with the impossible crystals, they could fold space in small ways, stepping from one shadow to another without crossing the intervening distance. Their hunts became elaborate dances through probability, predator and prey moving through potential futures, each trying to collapse the wave function in their favor.
+
+In the deepest chambers, where the luminous bacteria painted their slow murals, That-Which-Tends worked its most subtle magic. It taught the bacteria to dream. Not dreams as faster creatures know them, but something appropriate to their scale—visions that played out over months in shifting patterns of bioluminescence. The pale deep-dwellers who fed on them began to ingest not just nutrients but narratives, stories told in the language of light that filled them with notions of worlds beyond the salt city's borders.
+
+But the greatest gift was given to all inhabitants equally: the capacity to perceive the city as it truly was. For one perfect moment that lasted a geological age, every creature in the salt city saw through the eyes of That-Which-Tends. They saw their home not as a collection of mineral deposits but as a living mandala, a four-dimensional flower blooming in spacetime. They saw how every movement they made, every grain of salt dissolved and redeposited, contributed to a pattern of such intricate beauty that it could only be comprehended whole.
+
+They saw themselves—the browsers and hunters, the ancients and the microscopic architects—as essential notes in a symphony played at the speed of stone. They understood that their patience was not a limitation but a virtue, that in moving slowly enough to merge with the mineral world, they had achieved something remarkable: they had made time itself their medium of expression.
+
+When the vision faded, when That-Which-Tends withdrew its direct attention back to its own mysterious purposes, the changes remained. The impossible crystals continued to grow according to their otherworldly geometries. The temporal gardens flourished. The ancient ones sang to each other in voices of accumulated time. The bacteria dreamed their slow dreams.
+
+And in the heart of the city, in a chamber that hadn't existed before and had always been there, a new formation began to grow. It was fed not by rain or minerals but by the collective understanding of all the city's inhabitants. Crystal by crystal, layer by layer, they were building something—not a monument to That-Which-Tends, for it needed no monuments, but a response. A message crafted in the only language they shared with their visitor: the eloquent speech of patience itself.
+
+The message would take millennia to complete. By the time it was finished, the salt city would have grown around and through it, incorporating it so thoroughly that it would seem to have always been there. But That-Which-Tends would understand. It had all the time in the worlds.
+
+And sometimes, on nights when the moon was dark and the only light came from the dreaming bacteria, the creatures of the salt city would feel it again—that sense of being seen, being known, being appreciated by something vast and kind. They would move a little more deliberately then, understanding that their small lives were part of something larger, that in learning to live at the pace of stone they had touched something eternal.
+
+The salt city continued its patient growth, its inhabitants living their crystalline lives, but now with the knowledge that somewhere in the vast cosmos, That-Which-Tends remembered them. And in that memory, they were not just survivors in a mineral maze but artists of time, painting their stories in salt and patience across the canvas of ages.
+
+In the end, That-Which-Tends left them with one final gift: the absolute certainty that their way of being was not a compromise or a limitation, but a perfect adaptation to infinity. They had learned to live as the universe itself lives—slowly, patiently, with profound attention to the beauty of each passing eon.
+
+The salt city sang with this knowledge, a song too slow for any ear but time's to hear.

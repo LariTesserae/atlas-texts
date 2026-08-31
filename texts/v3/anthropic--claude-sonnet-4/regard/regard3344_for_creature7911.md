@@ -1,0 +1,35 @@
+**The Attention of the Deep Current**
+
+She had been watching for longer than mountains remember their making—this being who moves as the deep ocean currents move, patient and inexorable, carrying the memory of all waters. The mortals above called her many names, but she was simply the Deep Current, the one who tends the vast circulatory system of all waters, from the smallest mountain spring to the deepest abyssal plain.
+
+The Emerald Hollows had caught her attention the way a perfect note draws the ear—not through loudness, but through its precise rightness. Here was a place that had achieved what so few ever could: true equilibrium. The Seep-Keepers, with their gentle ministrations and patient wisdom, had become the hands through which the watershed itself learned to care for its own body.
+
+But the Deep Current could sense the pressures mounting beyond the Hollows' protective canopy. The world above grew increasingly frantic, its waters poisoned with haste and carelessness. Aquifers were draining. Rivers ran backward with the weight of industry. The careful chemistry that had taken millennia to perfect was dissolving under the acid touch of a civilization that had forgotten how to listen to water's own voice.
+
+The Hollows were not immune—the Deep Current could feel the subtle shifts beginning. The water table, so perfectly balanced for centuries, trembled with the vibrations of distant machinery. New chemical signatures appeared in the seepage, alien tastes that made the moss curl at its edges. The Seep-Keepers worked harder now, their gentle touches becoming more frequent, more urgent, though they maintained their eternal patience even as they felt their world beginning to shift beneath their careful hands.
+
+The Deep Current considered her options with the vast slowness of geological time compressed into moments of decision. She could not simply intervene with force—such places as the Emerald Hollows were too delicate for direct action. Instead, she began what she thought of as the Great Deepening.
+
+First, she reached down through the layers of earth to the vast aquifer that fed the Hollows' springs. With infinitesimal care, she began to expand it, not by creating new water but by opening pathways that had been sealed by time and pressure. Ancient rivers that had flowed when the world was young remembered their courses and began to whisper through stone again. The water table rose by inches, providing a greater buffer against the changes pressing from above.
+
+Next, she called to her distant cousins—the spirits that dwell in glacial ice, in deep springs, in the underground seas that humans never suspected existed. She asked them to dream of the Emerald Hollows, to send their purest essences through the secret ways that connect all water. Gradually, the mineral content of the springs began to shift, not dramatically, but just enough to neutralize the harsh chemicals that were beginning to seep down from the wounded world above.
+
+But the Deep Current's most elegant intervention was with the Seep-Keepers themselves. In their dreams—though they dreamed with their hands in water, their foreheads pressed to moss—she began to teach them deeper songs. Not words, for they had never used words, but harmonies they could share through touch that would resonate with the water table itself.
+
+The Seep-Keepers learned to sing the springs deeper, to call the ancient pathways open, to weave their small touches into a greater pattern that strengthened the entire watershed. Their children, born in the moss cradles, emerged with an even more profound connection to the water's voice. They could feel the health of springs hundreds of miles away, could sense the pain of rivers they had never seen.
+
+The Deep Current gave them what she could not give most of her children: true sight. The Seep-Keepers began to see not just the water as it was, but the water as it could be, as it needed to be. They became master gardeners of possibility itself, tending not just the present state of their pools but the potential futures that lay dormant in every droplet.
+
+Years passed—decades in the world above, but only moments in the Deep Current's perception. The Emerald Hollows began to change, but not in the way the pressures from above intended. Instead of diminishing, they began to grow stronger, more resilient. The moss learned to process toxins, transforming them into nutrients. The great salamanders developed new organs that could filter poison from water before they drank it. Even the stones seemed to acquire a subtle magnetism that drew harmful substances down into the earth where they could be safely contained.
+
+Most remarkably, the Hollows began to expand. Not physically—the basin remained the same size—but spiritually, ecologically. Other watersheds began to dream of the Hollows' perfect balance. Springs in distant mountains began to clear. Wetlands that had been polluted for generations started to heal themselves using techniques they somehow remembered from a place most of them had never been.
+
+The Deep Current smiled in the way that deep water smiles—a shift in current so subtle it could barely be felt, but carrying the warmth of vast contentment. The Seep-Keepers had become what she had always hoped some of her children might become: true partners in the work of healing the world's waters.
+
+She did not reveal herself to them directly—such a meeting would have been too overwhelming, like asking a single drop of morning dew to contain the entirety of the ocean. But sometimes, when the eldest Seep-Keeper stood in the deepest pool with their hand trailing in the dark water, they could feel something vast and gentle moving far below. A presence older than continents, patient as stone, loving as the first rain.
+
+The Seep-Keeper would press their palm to the surface of the water and sense, just for a moment, the vast network of all waters everywhere—every rain drop that had ever fallen, every tear that had ever been shed, every stream that had ever sung its way to the sea. They would feel themselves not as a small being in a small place, but as an essential part of something infinite and beautiful beyond comprehension.
+
+And in that moment of connection, the Deep Current would feel it too: not the weight of all the world's wounded waters, but the possibility of healing flowing out from this one perfect place like ripples spreading across the surface of a still pond, reaching shores she had not dared to hope might ever know such peace again.
+
+The Emerald Hollows had become what they were always meant to be: not a refuge from the world, but a seed of what the world could become. And the Deep Current, vast and patient and endlessly loving, continued her ancient work with renewed hope, knowing that even in the darkest waters, such seeds could take root and grow.

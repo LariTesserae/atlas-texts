@@ -1,0 +1,11 @@
+As the benevolent and wise power gazes down upon this strange, hidden city, there is a deep sense of wonder and admiration for the incredible resilience and adaptability of these dark, multi-limbed creatures. Recognizing the challenges and limitations of their current environment, the power decides to bestow a gift upon them - a chance for growth, evolution, and a better future.
+
+With a gentle hand, the power reaches out and touches the city, causing a subtle shift in the fabric of reality. Suddenly, a new element is introduced into this pocket world - water. A shimmering, cascading waterfall appears at the top of the canyon, its crystal-clear waters rushing down the cliff face and into the heart of the city.
+
+The inhabitants are initially startled by this new phenomenon, but they quickly adapt to the presence of this life-giving element. They begin to harness the power of the water, using it to drive their engines and factories more efficiently, and even to cultivate new forms of fungal and plant life that can thrive in the moist environment.
+
+Over time, the city starts to change. The once-dry, jagged architecture begins to soften and flow, with cascading water features and lush, green spaces appearing amidst the industrial landscape. The creatures themselves begin to evolve, their dark, hardened exoskeletons becoming more supple and adaptable, with a new iridescent sheen that shimmers in the growing light.
+
+As the benevolent power continues to watch over this transformed city, it sees a new symbiosis emerge between the creatures and their environment. They have learned to live in harmony with the water, using it to create a more sustainable and vibrant existence. The constant chaos of building and un-building has given way to a more measured, purposeful growth, guided by a newfound wisdom and respect for the world around them.
+
+With this simple act of kindness, the wise power has set in motion the transformation of an entire civilization. The inhabitants of this once-alien city have been given the chance to evolve and thrive, to become something greater than they ever imagined possible. And as they continue to grow and change, the benevolent power watches over them with a sense of pride and wonder, knowing that it has played a small but crucial role in the unfolding of this incredible story.

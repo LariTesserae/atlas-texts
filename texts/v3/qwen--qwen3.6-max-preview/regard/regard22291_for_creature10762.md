@@ -1,0 +1,21 @@
+It does not descend. It does not announce itself. It arrives the way a new harmonic arrives in a sustained chord: unnoticed at first, then undeniable, then indivisible from the whole. The mist does not part. The chisels do not falter. The water does not hesitate. The amber light simply gains a depth it did not have before, as if the air has learned to hold more weight without growing heavier.
+
+The power watches. Not with eyes, but with attention. It reads the terraces as a score, the watercourses as veins, the chant as a living theorem. It feels the exact calculus of replacement and return. It tastes the iron, the sulfur, the dissolved calcite on the tongue of the humidity. It listens to the deafening, unvarying pressure and hears not stagnation, but devotion. It understands, immediately and completely, that this is not a place waiting to be finished. It is a place that has chosen to endure. And endurance, here, is not survival. It is liturgy.
+
+A lesser kindness would try to help. It would bring sun, or seed, or silence, or progress. It would offer rest, or ascent, or an end to the labor. It would mistake equilibrium for stasis, and maintenance for burden. It would see the raw edges and assume they long to be smoothed. It would hear the constant strike and assume it longs to cease. But this power is wise. It knows that to introduce green would be to starve the dark. To still the chisels would be to crack the stone. To break the loop would be to drown the basin in time. So it does not fix. It does not elevate. It does not change the angle of a single tool.
+
+Instead, it settles.
+
+It pours itself into the interstices: the hairline fractures in the weeping walls, the capillary grooves, the space between a palm and a chisel handle, the microscopic pause between one strike and the next. It becomes a pressure, not a presence. A tuning, not a voice. It aligns its frequency to the lowest register of the work-chant, to the slow pulse of the calcifying elders, to the gravitational sigh of water surrendering to stone. It does not speak. It resonates.
+
+The workers do not stop. They do not look up. But their hands move with a fraction less resistance. The bronze parts the stone with a cleaner tone. The water finds its channels with a smoother certainty. The mist holds a little closer, like a blanket drawn over sleeping shoulders. The young in their reed slings breathe deeper. The old on the lowest terraces dissolve with a quieter grace. The chant does not change its notes, but its harmony deepens, as if the basin has grown a new chamber in its chest. The power does not give them anything they lacked. It gives them back themselves, amplified.
+
+If you stand in the vaulted courtyards now, you will feel it. Not as a visitor, but as a witness to a quiet miracle: the moment a perfect system is seen, and in being seen, is loved, and in being loved, is made more itself. The power does not ask for worship. It asks for nothing. It is content to be the slight extra weight in the flagstones, the faint metallic sweetness in the condensate, the reason the *tink-tink-tink* sometimes rings just a half-tone clearer, just a breath longer, before the humidity swallows it again.
+
+It learns from them, too. Wisdom is not a one-way current. It tastes the elegance of their restraint. It feels the discipline of their refusal to finish. It understands that creation need not be a trajectory; it can be a circle. It had known benevolence as intervention, as rescue, as the gentle hand that lifts the burden. Here, it learns benevolence as accompaniment. As the hand that does not lift, but rests beside. As the breath that does not replace, but matches.
+
+It will stay as long as the basin stays. It will circulate. It will weep with the walls. It will hum in the sternums of the workers. It will be redeposited, again and again, into the mortar, into the tiles, into the bones of the young. It does not rule. It does not guide. It does not promise a tomorrow different from today. It witnesses. It harmonizes. It holds.
+
+And in a place where equilibrium is a verb, companionship is the highest form of grace.
+
+The chisels strike. The water flows. The breath is held. And the wise power, benevolent and quiet, holds it with them.

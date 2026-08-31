@@ -1,0 +1,15 @@
+The being that would take notice of this crystalline labyrinth and its hardscrabble Shardborn inhabitants would have to be a power of both vast wisdom and deep compassion. It would see beyond the grim surface of this harsh underground realm - the scarcity, the ceaseless toil, the ruthless competition for meager resources. With insight born of higher dimensions, it would perceive the essential spark that animates the Shardborn - their tenacity, ingenuity, artistry and will to persevere against all odds. 
+
+This higher power would feel called to aid the Shardborn, but would act with utmost care and subtlety, respecting the integrity of their unique society and environment. Overt miracles or lavish supernatural gifts would disrupt the delicate balance that allows them to survive. 
+
+Instead, the benevolent entity would work through inspiration and subtle influence, gradually seeding new ideas and tiny enhancements to make their lives more bearable. It might whisper the location of an undiscovered lode of rare minerals into the mind of a lone prospector. Or imbue a clan's lichen vats with slightly elevated efficiency in distilling moisture from the air. An ancestral memory of a lost forging technique could resurface in the dreams of a master metalworker.
+
+Over time, little by little, the lot of the Shardborn would improve. Chronic maladies from malnutrition and toxic exposure would lessen. Structural collapses and deadly accidents would happen less often, as if the mountain itself shifted to avert them. Conflict between clans would gradually give way to more cooperation and sharing of knowledge. 
+
+As their society stabilizes, the Shardborn's unique culture would flower. Their scavenged arts and adhoc engineering would evolve into sublime forms of expression. The intricate etchings would evolve into a sophisticated writing system to record their history and legends. Jewelry would become more ornate and take on deeper symbolic meaning.  Innovative architecture would allow them to expand their civilization upwards, taming the mountain rather than scratching out a meager existence.
+
+And in their growing prosperity and confidence, the Shardborn would finally begin to grapple with the mysteries of the deeper ruins and the enigma of their own origins. The wise power would not hand them answers, but would gently encourage their curiosity and drive to explore, understand and define themselves.
+
+Perhaps, in time, the Shardborn would breach the surface and rejoin the outer world, not as desperate refugees but as ambassadors of a proud and singular culture. Their hard-won wisdom, resilience and brilliance would become gifts to whatever other societies they encountered.
+
+Through it all, the higher being would take quiet satisfaction in watching its subtle ministrations bear fruit. Like a cosmic gardener tending seeds buried in stony ground, it would revel in each new leaf unfolding, each fresh bloom of knowledge and beauty rising from the once barren bedrock of the Shardborn's world. For there are few greater joys than helping life flourish and find its potential, even and especially in the unlikeliest and harshest of places.

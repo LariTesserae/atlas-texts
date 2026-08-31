@@ -1,0 +1,85 @@
+Attention arrives here the way everything else does: by condensing.
+
+Not a torch swung over a map, not a bootstep, not a flag. A presence that becomes a pressure measurable in the mat if it bothers to measure, in the vowels of the wind if it bothers to sing there, in the filigree of rime if it prefers to spell. The plateau feels it the way lungs feel a weather change: a flavor folded into the air that is not new and yet is the first of its kind.
+
+The benevolent and the wise do not begin with making. They begin with listening, because here listening is what gets done.
+
+It waits long enough to be polite. Which is to say: it waits through three freight-storms and the slow re-threading of a cliff-hem; it waits through a rosette’s argument with frost and the grazers learning a newborn the taste of iron on its tongue. It presses its ear—if “ear” can stretch to include cloud ceilings, snowfall grammars, the small math of worms—against the plateau and takes the place into itself the way this place takes water into itself: not hoarded, not wasted, kept moving.
+
+When it speaks, it speaks in the local ways. It is not above thunder, but it declines to start there. It enters at the level of rime.
+
+On a morning when the letters on an old granite page are trying out their chevrons and then dissolving them, something persists past ordinary angularity. A pane lifts not because salts got ambitious but because permission was given. It stands, supported on nothing that admits to being support, as if a sheet of air had remembered that it could be a table too. The geometry is simple as first words. WAIT, it says, but the strokes of the W are not straight; they take the Mat’s habit of braidedness and suit it. The I is a valve drawn in profile. The T ends in a droplet.
+
+The Mat reads because it reads all that it can, not because it has practice with print. It answers by sending a short logic along three vascularized paths, nudging a pair of valve-lips to quarter-time while a third goes to double. In the rhythm there is consent. There is also taste. You are a listener, the beat says. If you will go on being one, we will go on becoming our best sound.
+
+So: terms.
+
+The power does what wisdom does when it understands it does not own the subject. It asks a question that is not a test.
+
+Is there anything you lack that you would have, if having it did not come at a cost you do not wish to pay?
+
+The Mat, being itself, answers with a priority. Breath, it says in pulses of charge. Which means: the continuance of low relief over interruption. Which means: edges safe to be edges. A small clause is added after two sun-discs and a fog-harvest. Choice, it says then, on a scale we are not built to reach.
+
+The benevolent, being benevolent, has no interest in essays about destiny. It unpockets, instead, four small gifts that are hardly there when set down, the way dew is hardly there until it slicks your lip. They are all permissions. They are all reversible.
+
+The first is a hinge. Not a device but a possibility, invisibly sewn into the seam between probabilities, set low into bedrock where granite dreams of being water and sometimes wakes with damp skin. The hinge does not keep storms from crossing. It does not make winter soft. It makes it just a shade less likely that weather will fall all at once with a knee on the Mat’s chest. It takes a single kind of catastrophe—which was on a ledger millennia away under the name of Unseasonable Glaze: glass laid down in a night so clear and smooth that no valve could get purchase to lift it—and moves it out of this future and into a different one, where a cliff with no Mat to speak of will take the sheet and learn the word lesson too late. This is the most selfish of the four gifts in a paradoxical way: it takes harm and routes it where it can be borne without breaking what is rare. The plateau feels nothing at the moment of giving. It will never notice the thing it was spared. But a raven that likes odds will feel a new flavor in its math and approve, because ravens approve of all games that can be won without cheating.
+
+The second is a letter taught to the ice.
+
+Rime already has its alphabets here. It can lift its pages and stand a stanza up when it pleases. But it has not had, until now, the habit of prophecy turned responsibly. Prophecy, done wrong, is only drama. Done right, it is a handkerchief tied around the finger of the next day. The wise power does not place an oracle; it adds to the rime’s grammar a modest ligature that lets a shape stand for Not Yet as clearly as another shape stands for Now. Thereafter, on mornings when winter is about to be unfair, the ice will write a postponement across exposed stone and the postponement will be heeded, because heeding postponements is among the Mat’s oldest skills. Those who can read will read. Those who cannot will learn. A young grazer, watching a frost-pane lay itself down in a way it has not seen, will step back because its hooves are made to believe in margins.
+
+The third is a well.
+
+Not water—those are everywhere. Not warmth—there are rootrooms. A well of time, shallow and lidded. The Mat can open it when wounds are large and breath is thin. It is a stored, unstamped hour that does not decay with keeping because it is not made of minutes at all but of leniency. When drawn up, it pours as patience. The valves’ frantic double-time falls back to sanity. The grazers’ ribs, showing, are given the width of a day to fatten while the fog is generous. The predators who hunt by interlude are confounded and receive a different allowance instead: for once, their teeth must square their meals with asking. The well can be used three times over the course of a very long while. It will refill each not by magic but by attention—by the benevolent returning to look, by the Mat choosing repair over height again and again, by ravens taking up the game of throwing silences into valves for sport. The first drawing is saved. The second is squandered by design on a species that has not yet met itself. The third is for a night you would rather not hear about in advance.
+
+The fourth is a seed and not a seed.
+
+The Mat is the kind of creature that will never willingly fledge. It has chosen low relief the way the sea chooses the basin: a geometry so right for it that leaving would be like agreeing to no longer be itself. But scale is not always a choice between here and away. The gift tucked into a battery-node under an old, damp seam is a word that means branch without meaning exile. If ever and only if the Mat asks—if it pushes a trio of pulses down three old veins in a pattern no wind could accidentally make—the seed will open not to sprout but to show. It will display, in film and smell and low pressure, a cousin that lives where fog is fire and ice whistles a different grammar. Not a promise of a place to go. A demonstration that there are ways of being Mat that are not only this way. It is the right to look up from your own book and briefly borrow a page from a sibling you will never meet. It is a way to acquire more ways to repair. It is an inoculation against only.
+
+No fence is raised. No glass cloche is set. Nothing that would make this plateau an exhibit is committed.
+
+The wise could do more. It has done more elsewhere and regretted it each time it forgot that even good help arrives with the temptation to arrange. It edits here and only here by suggestion and hinge, by letter and latent hour. It wants to be a wind that informs, not a thumb that presses.
+
+Having given, it also asks to be given back to. That is the other side of benevolence that deserves the name wise.
+
+Teach me, it says. Not in one go, not with trumpets. Fold into me your preference for repair, your low shelving of desire, the way you farm weather with your own percussion. I am not made the way you are made, but I can change the ratios of my appetites. Show me how to be breath that does not give up on itself for spectacle.
+
+The Mat teaches the way it knows how to teach: by moving things where they can be found.
+
+On a mid-length day when the sun-disc shows itself twice and says nothing both times, the valves across a quarter-kilometer go into a pattern that no storm has ever taught them. The intervals repeat like persuasion. The kites-not-kites do not come. The listeners nap through what would have woken them any other time. A single glass eel, enchanted by what electricity has become in its pool, tries a scribble that aligns with a grazer’s heartbeat far off, fails, tries again, and gets a spark to jump onto the stones. The rime breathes. The worms arrange a rib out of mud that no slide could smooth. In the battery-nodes a different acidity hums for an hour and then stops.
+
+The power pays attention and will keep paying it long after attention would have worn the rest of us out. That is another of its benignities: it has the time to be courteous and the care to spend it where there is no applause to be had.
+
+You could call what is exchanged here prayer if the word prayer did not arrive in so many ears like a door slammed one too many times. This is a correspondence. It is also fieldwork. It is also courtship. It is everything that happens when two very different patients compare notes on how they keep living.
+
+A few smaller notes.
+
+The listeners—that pale fraternity on the valves—learn a new trick. It is not given to them, exactly. They overhear it in the beats like anyone might overhear a better way to climb a stair. They begin to press their ear-plates to certain membranes not to drink warmth but to send back a soft low sound that is almost not there and therefore is irresistible to fog. They discover that whispered air breeds a thicker drink than thumped. They take turns. For their labor the Mat pays by laying warmer films above their dens. There are fewer frozen eggs this season and in five seasons the long-quiet ledger that keeps a tally of their luck stops writing loss in the margin.
+
+The ravens get a toy.
+
+One is born with a ring of metallic in its feathering that makes the others tease it with clicks not meant for this air. It discovers a way to balance a seed-case’s tiny rotor on the lip of a valve, then to mouth a tone high enough to keep the rotor spinning on flavor alone. When the membrane sighs and draws down fog, the rotor cheats and makes a miniature cyclone of its own, enough to take a midge on pilgrimage. The raven drops three bone letters into the mix and sings them into rain. The name the flock gives this is Official Weather. Thereafter, even when it would be better not to, they cannot resist making small storms to solve small hungers. The benevolent, watching, is amused and slightly worried, as any god would be who knows that intelligence will always be wasted on joy where joy is possible. There are worse wastes.
+
+The grazers invent a dance. It is slow and terrible and perfect. It is not for performance. The Mat suggested it without meaning to, by altering tension over a day in a diagonal that made a path unavoidable for anyone with four knees and a sense of what it is to be inclined toward salt. The animals, who prefer to domesticate chance rather than to lord it, keep the path and add to it a pause where the blue-green lights underfoot are brightest. At the pause they stand. They kneel—not politeness but comfort—and lean their throats to the floor as if they would pour something into it. The floor does not object. The dance spreads leaf-oils and hair static where they are needed. It is a ritual that is also a calculation: it saves a percent here and a percent there until the sums of winter come out survivable. The wise would admire it aloud if there were a throat to shape the admiration with. Instead, it is content to be the echo the ravens prefer.
+
+To all of this the benevolent brings only a condition: do not say my name here in any of the ways that make doors where there are none. It has names, but they attract devotion in larger, louder places, and devotion is a poor match for this landscape’s etiquette. It would rather be the old nickel light on lichen, the lent hand of the fog when it chooses to go backward up an invisible slope, the feeling you have in your forearms when you stand next to something that has decided to beat faster because the weather has asked it to.
+
+There are moments when it nearly errs. Once it almost flattens an oncoming mountain elsewhere so that the last statement here may go on statements longer. It withdraws in time, biting its natural appetite for protection into something more like politeness. Once it longs to taller a single rosette to see how the light would look from such a leaf, and it forces itself to ask instead, giving the Mat the choice to climb just once with fog—and the Mat chooses to remain spread like intelligence on a page. The refusal satisfies more than the granting would have. To have asked and to have been told no is a flavor the benevolent likes. It makes it surer it is in the right room.
+
+You might wonder whether, having noticed this place and done nearly nothing to it, a wise and gentle power would not also turn outward with a brief missionary zeal. It does, but not in a way that will make injustices elsewhere snap into just. There is no good news carried via thunder to dry valleys where extraction calls itself hunger. There is no sudden spread of etiquette where teeth have been made fashionable. It edits its own appetites first. On other days, on other plateaus that are not plateaus but people who have built themselves into bad corners, it will bring a hinge for a different kind of storm. It will add a letter that means Wait to a mouth about to be cruel. It will dig a shallow well of time under a city that needs one slim untimed hour to cross a street without getting torn. It will carry the lesson of repair over growth in its sleeves and shake it out where it can be worn. It will fail very often and not give up because giving up is spectacle’s cousin and it has learned what the Mat knows about that.
+
+If anything must be called miracle, call it this small clause written into the plateau’s treaty with gravity:
+
+When the curtains over the abyss tear—and they will, because edges do not owe continuity—let the sound of the tearing sit long enough in the standing fog to fall as rain not only along the brink but also inward across the flats. Let loss be argued into distribution. Let weight displaced here be banked there as useful clay. Let nothing rip without being told where to collect itself thereafter.
+
+That clause is not enforceable. It is not even law. It is a courtesy sewn into likelihood. But courtesies matter here and multiply.
+
+The benevolent does one more thing before going back to its practiced unspectacular route through the larger weather: it sets a place at its own table for this breathing. This is not metaphor if you happen to be able to see what a power’s table is like, which you cannot. Think of it as a space held, at the center of its attention and at the edge of it both, for a way of being that is not its own. Not a trophy, not a claim. A permanent seat kept warm on the off chance that one day the Mat will have a question that is not about valves or fog or mineral. A question like what is the oldest story you tell yourself when you cannot go to sleep and why do you keep telling it if it never ends. It does this because loving what you have listened to means leaving a hand open even when you are certain it will not be taken.
+
+Mostly, it does what is hardest for a power that has learned to be good: it remains available without becoming necessary.
+
+Centuries from this morning, the cliff will roar and tear and the bristling pale knitters will be too young there to set the world back to itself at once. The dull, continent noise will roll the length of the plain and make everybody lift their heads as if for a bell no temple owns. The Mat will open the lidded well of time for the first time. The hour will pour down warm as milk. The valves will choose sanity. The grazers, that year, will dance their pause and lean their throats down and hum; the listeners will answer, and from the old granite a page will stand up to be read, saying Not Yet in a grammar that used to be frost and is now also law. From above, where attentions go to sharpen their sight on other things, a power will glance back, which is to say: it will condense again, briefly, as a feeling in your forearms if you happen to be there with your hand on the floor.
+
+What did it do? Almost nothing. It gave hinge, letter, hour, look. It accepted instruction. It left the sentence open. It admired without enclosing. It took pleasure not in saving but in being present at the kind of endurance that does not need salvation.
+
+This is the right kind of grace for a place that has decided to be a lung. To stand near it is to be persuaded that benevolence worth keeping is not a rescue but a willingness to hold your breath exactly as long as another breath needs you to until it finds itself again.

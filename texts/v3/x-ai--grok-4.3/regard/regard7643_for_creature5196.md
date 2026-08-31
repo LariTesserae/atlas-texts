@@ -1,0 +1,9 @@
+The power does not descend. It does not speak, nor command, nor reshape a single stem. Instead it notices.
+
+Its attention arrives as a single, additional bead of moisture that forms on the highest, outermost seam of living wall at the precise moment when dusk has already cooled every other surface. The bead does not fall at once. It lingers through the night, through the reeds’ measured tipping, through the turbines’ single reluctant click, until the first gray light returns. Only then does it slide, slower than any other drop, down the cool leathery curve and into the gutter that has waited for it.
+
+That is all.
+
+Yet because the power is wise, the drop carries something the place could not have made for itself: a memory of the geometry that will not erode. From that night onward the basin continues exactly as it was—stems swelling and retreating, reeds releasing what they have gathered, algae tracing the same faint tilts after every rain—but the memory travels with the slow sap. When a new generation of fine white rootlets reaches an old iron seam, they find it already held, not merely by tissue but by the recollection of the original joint. The turbines still click only once, and only when humidity changes; now, however, the click is answered, far inside the living walls, by the faintest answering resonance, so quiet it could be mistaken for the settling of silt. It is not mechanical. It is the echo of the remembered form.
+
+No animals arrive. No new structures rise. The power never returns in any form that could be named. The place remains half-empty, half-built, wholly its own. Yet whenever morning mist gathers, one more cup of condensate lingers an extra moment on the easternmost reed before it tips, as though something patient is still listening to the rhythm it has already chosen to keep.

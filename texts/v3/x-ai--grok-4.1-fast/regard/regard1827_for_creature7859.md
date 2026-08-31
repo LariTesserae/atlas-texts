@@ -1,0 +1,23 @@
+### The Gaze of the Veilweaver
+
+In the vast hush beyond the cloud-dome, where the world's unseen threads knot and fray, there stirs the Veilweaver—an ancient one, neither god nor spirit, but the quiet mender of frayed edges. Formless as mist, wise as the karst's slow carve, benevolent as the rain that falls unbidden. It has watched sinkholes birth before: some swallow tribes in spiteful gulps, others cradle them like pearls in oyster flesh. This one, the Sinkrim's cradle, hums with a fragile symphony—drip and murmur, silk-spool and trance-pulse—a harmony too exquisite to shatter, too tender to ignore.
+
+The Veilweaver attends. Not with thunder or decree, for such would drown the Sinkrim's own song. No hand descends to lift them from the damp; their saturation is their strength, their dissolution their grace. Instead, it listens deeper, threading its essence through the fissures below the pool, tasting the warm springs' mineral sigh, the quartz-veins' faint glow. Eighty souls, it counts: middlers all, their pulses syncing to the tide like heartbeats in womb-water. Predatory patience, fractal order, weirdness woven into sinew—these are virtues, not vices. Yet perils lurk: the karst's young teeth may shift in quake-rage; hill-traders may covet eel-silk with blades; the pool's tendrils hunger beyond bounty; mists may thicken to smothering fog one endless dawn.
+
+What would the Veilweaver do? It would *infuse*, subtle as dew on lash, weaving boons that bloom as if always there—enhancing, not altering, the Sinkrim's eternal half-built dance.
+
+---
+
+First, it stills the earth's unrest. From abyssal roots below the sinkhole's nave, it exhales a lattice of silver-filament, finer than eel-silk, binding limestone fangs to pillar-core. No more karst-quakes to topple stilts; the spiral path firms, platforms rooting deeper into unyielding stone, yet weeping as ever. The Sinkrim feel it as a tide-softened swell: rocks murmur approval in richer flutesong, quartz-veins pulsing brighter, drawing palms in fuller trance. No terror wakes them; they name it "Sink's Grace," a deepening of their communion.
+
+Next, it sweetens the ecology's edge. The pool's mirror-depths stir—tendriled things tamed, their snares turning bountiful, yielding shadow-fish plump with mist-pearls, no longer snatching the unwary. Venomous slugs in the marsh grow sluggish, their hides softening to pearl-fat without lure-chimes, crushed easy under heel for feasts that nourish rather than merely sustain. Marsh-crabs multiply gentle, their broods scouring pots and laying eggs in thatch-eaves, a protein-rain for children-ferriers. Eels thrive in pens, glands swelling silk-threads thrice-long, nets woven vast enough to bridge the pool's brim. Fauna kin deepens: finches flock mist-matted, songs harmonizing rock-flutes; furtive shadow-fish breach surface at dawnless light, gifting scales that flake to iridescent dye for wraps.
+
+Then, the flesh-boon: saturation alchemizes fully. Every Sinkrim wakes one mist-veiled cycle with tide-marks aglow—quartz-veins threading all limbs, not just the chosen. Second-sight blooms common: visions of fissures' calm, warnings of rare surges, dreams of hill-trades fair. Cuts weep serum that hardens swifter to shell-needles, birthing pools birth twins thrice as oft, children emerging with innate palm-glow. Skin sheens eternal, impervious to corrosion; hair coils chime like reed-ocarinas in breeze. No frailty claims the middlers; numbers swell to hundred-fifty without warren-crack, babes and elders folding seamless into the fractal.
+
+Subtlest, the stranger-gift: the sinkhole's brim softens. Karst-fangs blunt at approach, guiding wanderers thirst-mad from parched lowlands—refugees not of blade, but of earth's dry scorn. Hill-traders arrive disarmed, copper needles bartered free for silk-nets, forging alliances of dew-jugs hauled over safer paths. No conquest; the Sinkrim assess with unblinking eyes, claiming kin who sync to drip-chorus, their warren blooming denser yet airy—alleys widening to shoulder-and-a-half, rooftops terraced for shared trance-circles.
+
+---
+
+The Veilweaver withdraws, its gaze lingering as faint shimmer in quartz-glow. No temples rise; the longhouse pulses heart-steady, Sink appeased eternal. The Sinkrim do not conquer; they *are* the weeping stone, now armored in grace. Strangers join the saturation, breath condensing in welcome; the hidden heart beats louder, a beacon in clammy eternity—fractal, half-grown, half-eternal, thrumming under cloud-dome.
+
+And in the hush beyond, the Veilweaver watches other wounds, mending where harmony hides. This place endures, a pearl in karst-throat, its song undrowned.

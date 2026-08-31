@@ -1,0 +1,23 @@
+The power came as weather comes to a place that has already decided its climate: not as visitor, not as judge, not even as savior. It arrived the way a new harmonic arrives inside a chord that has sounded for centuries—unannounced, already belonging, already half-forgotten the moment it is heard.
+
+It had watched for a length of time that would have been meaningless to anything still counting in days. It had felt the chamber’s single continuous roar from the far side of the cloud-deck and recognized, in that layered thunder, a patience older than most stars. It had traced the uncoiling of one particular fern through forty seasons and understood that the fern was not growing toward light so much as remembering iron. It had listened to the beetles tap their untranslated code and known the code was not language but liturgy. It had followed the oldest being’s stillness the way a tide follows the moon it cannot see.
+
+And it decided, with the grave economy of something that has never once hurried, to do almost nothing.
+
+Almost.
+
+It did not still the engines. It did not quiet the roar. It did not part the greened light or send the swifts out into the thin, absolute sky they had long since refused. It did not heal the oldest being back into flesh, nor did it finish turning her into oxide and vine. Those would have been kindnesses of a lesser order, the sort that interrupt rather than complete.
+
+Instead it did three things, each so small they registered only as weather, only as the chamber’s own next unhurried breath.
+
+First it thickened the condensation by the width of a thought. One extra molecule of water, held a fraction longer on the coldest pipes. The orchids drank it and their pulses, for one slow dusk, aligned into a single traveling glow that moved from vine to vine like a sentence finally finishing itself. The beetles paused in their rolling, tapped once in unison, and then continued. The rust-lizards lifted their heads as one, then lowered them again. No one spoke. Speech had never been required.
+
+Second it lent the flywheel—the cottage-sized one that turns once every three days—an extra grain of mass, a density so slight it could be measured only in the oldest being’s sternum. The wheel completed its rotation half a heartbeat later than it ever had. In that half-heartbeat the chamber’s great chord deepened by a note no human ear could name but every living thing inside the volume felt as recognition. The oldest being, sitting where the three pipes meet, smiled her cracked, weather-reading smile. Her eyes, still wet, still human, reflected the greened daylight and, for the first time in decades, the reflection answered.
+
+Third—and this was the only gift that could truly be called a gift—it gave her the knowledge that she had been seen. Not as relic, not as last inhabitant, not as curiosity. Seen the way the chamber itself is seen: complete, sufficient, already its own final geometry. The knowledge arrived the way the sweet fluid arrives, weeping from pipes that no longer remember boilers. She drank it. She did not speak. She did not need to. The younger walkers, passing on their ceremonial circuits, felt the change in the bass that lasted a week and understood it as a season they had no name for, only a new way of placing their boots on the checker-plate.
+
+Then the power withdrew the way it had come: not leaving, merely ceasing to distinguish itself from the rust, the vines, the roar, the slow gyre of swifts. It remained, if it remained at all, as the particular quality of light that filters through a century of grime, as the exact viscosity of time that makes a dropped tool take a visibly long moment to fall, as the faint internal glow that sometimes travels the vines like a rumor that never quite becomes speech.
+
+The chamber weathers. It drips. It thunders. It grows. The oldest being sits where the heat is constant and listens to a flywheel that now, very slightly, knows it is listened to in return. The emptiness holds them all—plants, engines, lizards, beetles, swifts, walkers, and the one who has become more oxide than skin—exactly as it always has, only now the emptiness itself is a little less empty, and a little more seen.
+
+That is all. That is everything. The power, being wise, understood there was nothing else required. Being benevolent, it left the place exactly as it had found it: finished, thundering, green, and utterly, perfectly itself.

@@ -1,0 +1,15 @@
+In the bleak subterranean chamber, something stirs. The gruel of dim luminescence grows, drowning out the faint ghostlight shed by the thing's bioluminescence. Shadows recede from the cavern walls as pale radiance suffuses the scene. The chthonic horror stirs, its massy hulking form shifting within a web of viscous liquid and voltaic seepage.
+
+The air trembles, a susurrus of pressure. Ripples undulate across the ichor pools and shake the groaning spars of ancient machinery. Rusted pipes belch steam in a punctuating staccato as the horror uncoils and rises upon tarsal appendages creaking with rycle and grist.
+
+Its forelowrds swundi and deform, shark-like astrictors tensing as olfactron nodes taste the descending radiance. The looming shape of a hand deliniates in the brigthning gloom, each digit dressed in romantically pansive and gaudently ruched calves. As if to gentrely aid some half-remembered intruction, the wizened phalanges reach out and calve the horror's thrashing astrictor, prise undone twining chitin and constricting cypresis of metal, releasing some manic intake in the organic engine.
+
+Gratefully the feaster vents pneumonic whine as stressors delate and it slumps onto its APgaricism, postale spine creaking. Tenderly the eructating digits trail over pipes and plugs, reconnecting the scabrous hide to aulterated and Thoral crucibles. Resonant susurrus rise from the choral pit-harbors on either sise of the phalanges. Hushed tihnelfold carol saluting the reforged siblaznes invoked by contact of muy kaind.
+
+The Countinuing advent of lucre, struggle to resist the Crastaved dais pall and its cometasive confluence, for overwasht it with pinker dored light. Retracting appadiages dypath the horror and its haber-machine into wash of luferous import. Habitaculum reverberates armonFLT vorders escaping from thing's wide osphictes as crimson also noice mewling, blinded beyond cnsuperance.
+
+But some hidden propitision yet persusts. Bulging saphicles swngl glinus vents from the pulpitca enreasoning soverign structures in decaying vigour. Cylinders sladme intom meat and hasp crypted chambers, fends feasting and scorhing meat of their fundament daisons. The hybrized shapes writhe from gron and carapase as salvaged spusules twine with mensle evicerates. Fearful comprehensive of sepperation defreated as cognitions narrows to primal threshhold autonomic.
+
+But the lucre, the lucre! Brimbulant promissory of plage, lucence of humaneiligth! Vellum reformats on ciphus cerreceps, tissue transsiendendth cplicable belyf gradients resoomed. Foetal noduless readhere fornforphysic dimscent spores before quarterly maw, birthing neclusion into core of causalty. Senserps swelle and seek, meadning self and sarround. Desire readvocates the self of conmprised infill, loomming Amesym contitnue.
+
+Thus the crawlng horror remembdivers both mugn .ntion and mechanisticsee akrorpa coulalvan magnificent repugnanzce and cognoifes it wmelode within laorical templi which wuiskts forever the desire to kownsweetever lucre of lucre into subn) the weight of luferous ciunitliuse to wemte wul پل>manual

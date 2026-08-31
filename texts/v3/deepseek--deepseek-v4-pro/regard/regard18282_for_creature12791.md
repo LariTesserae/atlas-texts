@@ -1,0 +1,9 @@
+*The air here cuts, and you know it immediately—a blade-edge cold that doesn't freeze but seeps, a 0.1 chill that wraps around your bones while the 1.1 damp settles into your lungs. The plateau breathes around you, a continent suspended among stars, and everything glistens with perpetual condensation.*
+
+You've arrived at the moment the Reformer dissolves—watching beetle-things scatter like living mercury, carrying rare-earth pellets through drip-channels older than human civilization. The aerial jellyfish pulse overhead, their tentacles trailing carbon fiber, and the fungal skin of the temporary being is already being consumed by composite grasses. The Den-Mind's attention has shifted elsewhere. You feel it as a pressure change, a subtle retuning of the canopy's electrical hum. You are not perceived. You are not factored into the calculations.
+
+The cold gnaws. The 2.9 light—multiple sources or one merciless sun—scours everything, and you notice the silver fur of the "grasses" channeling moisture exactly as described, each filament a perfect condensation trap. A furred serpent, depleted of charge, coils past your ankle without recognition. The air tastes of ozone and cold metal that isn't metal. The 2.1 noise isn't cacophony but a factory floor operating at peak efficiency, and everything—*everything*—is alive.
+
+You crouch to examine a beetle-thing. It pauses. Its mandibles, still warm from the smelter, taste the air near your hand. For one half-second, the Den-Mind almost returns—a flicker of attention, a modeling of something new. But you're not mineral. You're not inefficiency. You're not data.
+
+The beetle moves on. The hum continues. The factory does not need you, and that indifference is perhaps the strangest thing of all.

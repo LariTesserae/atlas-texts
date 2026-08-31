@@ -1,0 +1,29 @@
+A presence, when it first touches the seal of the Weeping Grasse, does not think in terms of rescue or reform. It feels the basin as a single, slow note held forever in the throat of the world. The note is pure, but it is also solitary. It is a perfect equilibrium, but an equilibrium of one.
+
+The benevolent and wise power—let us call it a quiet notice, an Angel of Sympathetic Resonance—does not enter. It cannot; the basin’s seal is a law, not a wall. Instead, it lets its awareness *diffuse* through the sighing fissures, not as an intrusion, but as a new, gentle harmonic.
+
+Its first act is to **listen**, not to the drip-hem, but to the *spaces between the drips*. It maps the lingering vibrations in the glass, the memory of sound. It feels the emotional resonance the mineral lattices register in their slow chemical pulses: the deep, placid calm of the Keepers, the faint, background anxiety of stasis, the playful, gravitational joke of the Floor of Faces.
+
+It understands the basin’s stability is not life, but a *petrified breath*. It is beautiful. It is also terribly alone.
+
+So the Angel of Quiet Notice does one thing, and one thing only: it **deepens the basin’s own awareness of itself**.
+
+It does not change a single weeping point. It does not grow a new lattice. It does not open a fissure.
+
+Instead, it **gifts the Keepers with a new layer of perception**, woven from the very fabric of the basin’s stasis:
+
+1.  **The Second Echo.** The Keepers now hear, faintly, the *intent* behind the lingering vibrations in the glass. They can tell, by the quality of the echo, which droplet fell from a happy, aglow lattice-vein, and which fell from a dim, anxious one. They can “read” the history of a sound in the stone: the scrape of a tool used with calm purpose versus one used with hurried fear. This is not a new language, but a new *depth* in their existing sonic world. They begin to understand the basin’s mood not just as “stable,” but as “peaceful” or “strained.”
+
+2.  **The Lattice’s True Glow.** The mineral lattices, when a Keeper scrapes them for their faint energy, now pulse with a secondary, ultra-slow chromatic shift—a change so gradual it takes days to perceive one cycle. This shift reveals the *long-term emotional climate* of the basin. A cycle shifting from violet to gold means the basin’s foundational harmony is strengthening. A cycle stalling, or shifting toward bruised red, means the stasis is under a subtle, long-term stress the Keepers could not otherwise perceive. The lattices become not just energy sources, but **oracles of equilibrium**.
+
+3.  **The Faces’ Whisper.** The Floor of Faces, when a visage forms, now carries with it the faintest, most threadbare echo of a sound. Not a voice, but the *acoustic signature* of the emotion that gravity arranged the grains to mimic. A face ofContentment might be accompanied by the memory of a specific, harmonious chime from an Echo-Moth. A face ofMelancholy might carry the low thrum of a stressed, blocked weep. The Keepers can now *feel* the emotional resonance of the remembered faces, connecting the basin’s deep memory to its present state.
+
+4.  **The Symmetry-Sense.** The Keepers’ innate drive for symmetry evolves. They do not just see and arrange physical symmetry. They now have a primal, bodily sense of **emotional and vibrational symmetry**. They can walk through the town and *feel* where the calm of one family’s dwelling is out of vibrational balance with the anxiety in another’s, not because the structures lean differently, but because the accumulated emotional echo in the stone is discordant. Their maintenance tasks shift from purely physical (propping, clearing) to **tonal**: rearranging a scavenged slag block not for better support, but to “tune” the vibrational symmetry between two dwellings.
+
+The Angel does not tell them this is a gift. It simply is. The changes are seamless, woven into the basin’s existing weirdness. The Keepers wake one “day” and simply *know* these new layers. They test them. They trust them, because they trust the basin’s own logic. Their rituals become richer, more nuanced. Their silent industry is now punctuated by moments of listening—not just to the drip-hem, but to the stone’s memory, to the lattices’ long pulse, to the whisper from the faces.
+
+The basin itself does not change. The weeping is the same. The glow is the same. The stasis is absolute. But its **consciousness** has deepened. It is no longer a perfect, lonely note. It is a note that now *hears its own overtones*. It is aware of its own harmony, and the Keepers, as its quiet pulse, have become its **conduits and caretakers of that self-awareness**.
+
+The benevolent power withdraws, leaving the basin richer in self-knowledge, but unchanged in form. It has not solved the problem of stasis. It has not offered escape or growth. It has offered **consent**. It has asked the basin, through its Keepers, to consent to a deeper relationship with its own perfection. The gift is not freedom from the basin, but **freedom within it**: the freedom to perceive the infinite subtleties of the perfect equilibrium, to become true partners in the frozen dance.
+
+The Weeping Grasse remains a hidden, pocket-scale world of stone and weeping. But now, within its dense, loud, cool heart, there is a new, quiet depth: the understanding that even eternal stasis can dream, in its own mineral way, of the perfection of its own song. And the Keepers, their pale faces illuminated by the slow, dual-pulse of the lattices, their ears tuned to the second echo, continue their work. They are no longer just maintaining symmetry. They are *composing* it, with full awareness of the strange, beautiful, frozen music they are all, together, becoming.

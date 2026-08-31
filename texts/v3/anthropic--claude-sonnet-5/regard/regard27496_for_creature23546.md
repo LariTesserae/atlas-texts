@@ -1,0 +1,33 @@
+The power comes the way light comes to the hollow — from no single direction, gathering rather than arriving, present before it is noticed. It does not descend through the ceiling stone or rise from some hidden floor. It is simply, at some moment, attending — the way you might suddenly realize a room has been quiet for longer than you thought, and that the quiet itself has weight.
+
+It takes a long while to look, because looking, here, is mostly listening, and the power is patient enough to listen properly. It hears the chitterlings' click-trains stitching the dark into a map only they can read. It hears the long low calls of the things that hunt by echo, and understands that those calls are also a kind of love song to distance, a way of touching what cannot be touched. It finds the mycelial web threaded under the damp patches and recognizes it for what it is: not a curiosity, not an anomaly to be corrected, but a whole hidden coast of the world, feeding a population the visible garden could never explain, because the visible garden was never the point.
+
+And it considers, for a long moment that means nothing in any clock the hollow keeps, whether to act.
+
+This is the temptation built into power of this kind — not cruelty, never cruelty, but the gravitational pull toward improvement, toward *more*: more light, so the pale eyes could see; more water, so the lichen could spread into real green; more, in general, because more is what benevolence so often mistakes for kindness. It would be easy. A seam could be opened in that low vault and let the sun back in after however many thousand years of its absence, and the place would change, and change quickly, and everything bred for the dark would suffer for it, and something new and bright and short-lived would take their place, and the power could call that a gift.
+
+It does not do this.
+
+It looks instead at the equilibrium itself — sparse green, impossible abundance, predators thin and patient between long silences — and recognizes something it has learned to respect across more worlds than this one: that *settled* is not the same as *broken*. The chitterlings are not suffering for their blindness. The slow gray grazers are not waiting to be saved from their placid browsing. The hollow has found a shape that holds, and holding, faithfully, for a long time, against no particular pressure to do otherwise, is itself a kind of accomplishment that doesn't ask to be undone by a stranger's generosity. So the power leaves the ceiling closed. Leaves the dark dark. Leaves the rules of the place to the place.
+
+But it lingers over one thread, because one thread in this entire vast settled stillness is not settled at all.
+
+The tool-makers move through the hollow like a question nobody else here is still asking. Everything else has answered its question completely — *how to live here* — and stopped. The tool-makers have not stopped. Every struck flake, identical to the last, is a kind of stubborn rehearsal, a hand insisting on a standard with no one watching to hold it to that standard, and the power understands this for what it is: not intelligence exactly, not yet, but the *appetite* that intelligence is made from — the small persistent dissatisfaction that says *this edge could be truer*, said over and over, for no reward anyone has yet devised. In a hollow where nothing becomes anything else, here is one thing still leaning, faintly, toward becoming.
+
+The power does not give them fire. It does not give them words, or a god to fear, or a sudden bloom of insight that turns a flake-knapper into an architect by morning. That would not be a gift; it would be a replacement — it would take the only home-grown thing in this place and overwrite it with something borrowed, and the power has seen, elsewhere, what it costs a people to be handed a future they didn't grow themselves.
+
+Instead it chooses one of them — not the strongest, not any kind of chosen one, simply whichever one happens, on whichever circling night, to be crouched by a damp seam with a finished flake in hand, already half-turned to discard it and move on as every one of its kind has always done — and it does only this:
+
+It makes the moment of turning away take one breath longer than it would have.
+
+That is the whole of the intervention. One extra breath, in which the creature's pale-adapted, scarcely sighted attention happens to fall, not forward into the dark where the next damp patch waits, but backward, onto the worked stone left lying in the rubble behind it — the good true edge it just made and was about to abandon to the general scatter of all the other good true edges this place has swallowed without memory for longer than memory has existed here.
+
+In that one extra breath, something almost like a thought arrives, soft as the mineral smell rising off the wet stone: *that was a good one.* And under it, fainter still, something that has no word yet anywhere in the hollow, something that will need centuries to grow a sound to carry it: *I could come back to this place.*
+
+The power does not stay to see what becomes of the thought. That is the discipline of it — having given the one unrequired breath, it withdraws its attention the way light withdraws from a seam it never really touched, and lets whatever follows be entirely, ungoverned, the creature's own. Maybe nothing follows. Maybe the breath passes and the flake is abandoned like every flake before it, and the thread of intention goes on circling, unspooling and respooling forever in this lightless equilibrium, exactly as it was before any power noticed it at all. The power has not made a promise. It has only made one step very slightly less hard to take than it would otherwise have been, and left the taking of it where it belongs — with the small, blind, patient hands that have been working toward something all along, long before anyone wise enough to call it progress ever thought to look.
+
+But if you were to walk that hollow a long, long while after — past the wall of noise and the long bare quiet and the next wall of noise, down near a damp patch gone a little wider than the others, fed by some seam that has not yet stopped sweating its slow mineral water into the dark — you might find, among the honest broken rubble that has never once arranged itself into anything, three stones. Plain stones. Stacked, not scattered. The first deliberate shape in a world that otherwise forgets everything it makes the moment it makes it.
+
+Nobody built a wall from it. Nobody built a home. It is only three stones, stacked once, by someone who came back.
+
+The power, wherever it watches from, asks for nothing more than that.

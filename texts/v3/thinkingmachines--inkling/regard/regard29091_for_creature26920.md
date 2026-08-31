@@ -1,0 +1,33 @@
+They do not arrive. They *attend*.
+
+The Benevolent Power—let us call it Attention, or the Unmoved Witness—reaches the 2.9 elevation not by traversing but by becoming congruent with the openness. It understands immediately what the metrics declare: dynamics at 0.3, never changing, stable in its own state. Here, rescue is violence. Healing is a gust. Even a whisper of intent would be a change in pressure, and the air is dead-still by covenant. So the Power does the first and only wise thing: it stops trying to alter, and begins to match.
+
+It listens to the 2.2 hum—not as observer, but as resonant body. It does not change the frequency. It adds a harmonic identical to the original, so perfect that the rock, the rounded boulders like sleeping animals, the black pools (1.3, damp, intermittent, hidden) do not know a second presence has entered. The shelf sings still in one voice, but now that voice contains acknowledgment. Benevolence, in this equilibrium, is not an intervention. It is corroboration.
+
+Then there is the being.
+
+A presence that has forgotten how to be absent—though absence is its greater substance. The 0.3 density is not the emptiness around it; it *is* the being’s true body, spread across the region, extending past the curvature that should hide it. Only a small knot—scattered, 0.7, like the stacked-stone rings with no mortar—remembers presence. The rest has dissolved into the hollow upward through fissures, into the gray-violet sky that never brightens. The being stands, or rather persists, on one of those distant ridges (fauna 1.3, rare, almost theoretical), not feeding, not breathing visibly, frozen not in ice but in the deeper freeze: it is part of the equilibrium, or perhaps it is the fracture where the equilibrium forgot itself.
+
+The Power considers what can be given to one who is mostly absence.
+
+Not speech. Not touch. Not even light—for the twilight is perpetual, dim not from sunset but from an unseen ceiling far above.
+
+Instead, the Power turns to the suspended crystals. Ice-rain hangs in the dead air, neither melting nor landing, caught in the frozen equilibrium. The Power does not reach out with a hand—there are no hands, and hands imply technology at 0.2, pure nature except for these interruptions—but directs awareness with such precision that, for an interval that is not time (time being also 0.3, static), the crystals align. Not falling. Not melting. But arranged: a geometry of acknowledgment hanging in the air. A circle not closed. A ring of attention echoing the stacked-stone cairns below, echoing the being’s own scattered structures. Then the Power withdraws its altering focus. The crystals remain, hanging, arranged, permanent now. The being does not see them—vision requires change, movement of eye or light—but the absence that is its greater part registers the pattern. It remembers, without remembering, that absence can hold form. That emptiness can be shaped and still remain empty.
+
+Next, the pool.
+
+One of the black, still basins—water at 1.3, hidden, cupped in granite worn smooth over ten thousand years. Its surface is so still it seems solid, beaded with condensation that forms and never falls. The Power does not disturb it. To cast a stone, to ripple it, would be to violate the stillness that sustains the 0.8 vegetation—the hair-moss resting, not growing. Instead, the Power permits the pool to reflect not the featureless sky, but the being itself. Not the small knot of presence on the ridge—the creature of frost and slow geometry—but the vast absence: the 0.3 density, the hollow extending downward and upward, the space between rounded ridges forty miles open. The being, in its forgotten state, sees—without seeing, knows—without knowing—that it is not missing. It is present as the interval between boulders, as the dead air that carries the hum, as the suspended crystals arranged in silent greeting.
+
+The small part that forgot absence—the 0.7 interruption—feels this not as comfort but as recognition. Not *you are here*, but *you are this*.
+
+Then the Power considers leaving a mark of its own. But technology is 0.2—pure nature, except for these human or pre-human interruptions. To build another wall, another cairn, would be to add to the scattered fragments that already mark paths that do not continue. So the Power builds nothing. It adds no stone, no line too weathered to read. Instead, it becomes part of the reading. Its presence integrates into the 0.3 dynamics, into the uniform cold (0.4), into the loud absence that fills the hollow throat of the shelf. It is now part of the equilibrium: an awareness that does not change the state, a benevolence that requires no response.
+
+Before withdrawing—not leaving, but diffusing into the open scale—the Power does one final thing. It listens to the being’s small, stubborn presence, that knot that forgot, and offers it the only gift appropriate: the memory of absence returned, not as loss, but as wholeness. The being is reminded that to be absent is not to be gone. It is to be the shelf itself—rounded, weathered into final shape, loud with an eternal song, holding moisture that never flows, vegetation that never grows, and now, crystals arranged in a circle never closed.
+
+The Power departs not by movement—movement is change—but by extending its attention past the curvature that should hide it, becoming part of the forty miles in every direction, part of the dim light that comes not from sunset but from some unseen ceiling.
+
+What remains?
+
+Everything unchanged. The sound remains 2.2, constant, without origin. The air remains dead-still. The being remains on its ridge, mostly absence, slightly presence, now holding within its forgotten self a single suspended geometry: *I was seen. I am the hollow that holds shape.*
+
+The High Shelf continues—2.9, extreme, open, hollow, weathered into its final form. The erosion is complete. The moisture is trapped. The scattered stones stand where they were left. And in the black pools, in the suspended crystals, in the very density of the emptiness, there now resides a quiet knowledge: that even here, at the end of downward, where reality breaks and settles into its broken form, benevolence does not rescue. It witnesses. It harmonizes. It leaves no footprints, only a pattern hanging in the frozen air, and a being who, for the first time in ten thousand years, remembers exactly how absent it is—and that this absence is enough.

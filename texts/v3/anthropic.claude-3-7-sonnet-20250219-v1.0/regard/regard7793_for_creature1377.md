@@ -1,0 +1,23 @@
+# The Watcher of the Waters
+
+From the highest celestial plane, the Luminary—a being of pure consciousness and benevolent attention—has observed Sahl Nahar since the first channel was carved. Fascinated by the Nahari's harmonious relationship with their environment, the Luminary has decided the time has come to offer a gentle gift of protection and wisdom without disrupting the delicate balance they've achieved.
+
+The Luminary's intervention begins subtly. In the deepest spring within Mount Arat—the hidden source of all the city's waters—a transformation occurs. The mineral composition shifts ever so slightly, infusing the water with trace elements that strengthen stone without changing its appearance and enhance the vitality of those who drink it regularly.
+
+Next, during the season of longest nights, when the luminescent channels glow brightest, the Luminary sends dreams to the youngest channel-keeper of each tier. These dreams reveal hidden connections between water flows that even the eldest Nahari have never discovered—pathways that, if properly maintained, will ensure the city's sustainability for generations to come.
+
+For the elders who sit with their fingers trailing in the sacred pools, the Luminary provides moments of profound clarity. When pressing questions arise during council, the water's surface occasionally stills completely, becoming a mirror that reflects not their faces but symbols and images offering guidance. These reflections last only moments—just long enough to be recognized but brief enough to be dismissed by skeptics as tricks of light.
+
+The pale salamanders—already considered sacred—become vessels for the Luminary's most direct communication. Their soft glow intensifies slightly, and occasionally, one will appear in an unexpected place: beside a dangerously weakening wall before it collapses, or near a child who has wandered too close to an edge. The Nahari, attuned to these creatures, recognize these appearances as meaningful and heed their warnings.
+
+During rare celestial alignments, when three moons appear simultaneously above Mount Arat, the Luminary manifests its most visible gift. On these nights, the entire water system pulses with heightened luminescence, and those who gather at the central pools witness shifting patterns in the glowing waters—patterns that, when recorded by the weavers, reveal designs for more resilient channels and structures that work in even greater harmony with the mountain's natural forces.
+
+For travelers approaching Sahl Nahar with ill intent—those rare outsiders seeking to exploit the city's resources or disrupt its ways—the Luminary creates disorientation. Mists rise unexpectedly on clear days, paths seem to shift, and an overwhelming sense of being watched drives most away. Those who persist despite these warnings find themselves walking in circles, eventually emerging far from the city, their memories of its location confused and unreliable.
+
+Most importantly, the Luminary whispers knowledge into the collective consciousness of the Nahari about caring for their environment beyond the city itself. Gradually, they begin to understand how their actions affect watersheds far below their mountain home. This wisdom inspires them to develop new rituals that honor not just their own waters but all waters connected to Mount Arat, expanding their sense of stewardship.
+
+All these interventions remain within the realm of the subtle and ambiguous—never so dramatic as to replace wonder with certainty or self-reliance with dependency. The Luminary knows that the true strength of Sahl Nahar lies in the relationship its people have built with their harsh but beautiful environment.
+
+After generations of this gentle guidance, the Nahari develop a new element in their belief system—not quite a deity, but an awareness that their mountain home has a consciousness that watches over them. They call this presence "The Watcher of the Waters," and while they never build temples or develop formal worship, they acknowledge it through small acts of gratitude: water droplets scattered toward the rising sun, songs sung into the deepest channels, moments of silent communion when the pools glow brightest.
+
+The Luminary is content with this arrangement—present enough to guide and protect, distant enough to allow the people of Sahl Nahar to continue their remarkable journey of adaptation and harmony, creating a civilization unlike any other beneath the countless stars the Luminary has watched since time's beginning.

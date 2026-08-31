@@ -1,0 +1,15 @@
+In this realm of primordial wonder and ineffable mystery, the attention of a benevolent and wise power is drawn to the ancient guardians known as the Shai'ahr. This divine presence, moved by the Shai'ahr's attunement to the very essence of the land, their role as scribes of its histories and secrets, and the depth of their communion with the primal forces that shape stone and life, chooses to bestow a gift upon these enigmatic beings.
+
+Manifesting in the heart of a hidden grotto, where the mists swirl in slow, hypnotic patterns and the stone itself seems to hum with an inner light, the wise power speaks to the assembled Shai'ahr in a voice that is at once the whisper of the breeze and the deep rumble of the earth:
+
+"Children of mist and stone, long have you tended the sacred places, walked the paths of ancestral dream, and inscribed the memories of ages in the living rock. Your devotion to the land and its most ancient rhythms has not gone unnoticed. I offer you now a gift, a boon to aid in your sacred duties.
+
+"Henceforth, when you carve your glyphs into the stone, they shall not merely record, but shall have the power to shape and heal. With each inscription, you may coax new growth from barren rock, mend fractures in the earth, and call forth hidden springs to nourish the land. Your wisdom, etched in stone, will guide the very evolution of this realm.
+
+"Furthermore, I grant you the ability to commune not only with the spirits of stone and mist but with all living things that dwell in this place. You shall understand the language of beasts and birds, of trees and vines, and they shall understand you in turn. Through this bond, you may nurture the harmony between all beings and ensure that even as the land shifts and changes, the delicate balance is maintained.
+
+"In times of great need or upheaval, when the very foundations of the peaks are threatened, you shall have the power to call upon the mists themselves. They shall come to your aid, obscuring and protecting, or parting to reveal hidden truths. The mists will be your allies, as much a part of your essence as your stony flesh.
+
+"Use these gifts wisely, ancient ones, for the stewardship of this land is a sacred trust. May your glyphs bring healing and wisdom, your communion with life bring understanding and balance, and your kinship with the mists bring solace and revelation. The story of this place shall endure in stone and song, and you, the Shai'ahr, shall be its eternal authors."
+
+As the final words echo through the grotto, the mists swirl and dance, and the assembled Shai'ahr bow their heads in gratitude, their vine-like manes rustling softly. A new era has begun, one in which the ancient guardians are more deeply entwined with the fabric of the land than ever before. With reverence and purpose, they set forth to use their new gifts, to shape and protect, to record and to heal. And the primordial peaks, cloaked in mist and legend, stand witness to the unfolding of a new chapter in an age-old tale.

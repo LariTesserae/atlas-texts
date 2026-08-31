@@ -1,0 +1,11 @@
+The power arrives without arrival. It does not descend or approach; it simply becomes aware, the way heat becomes aware of cold. For a long interval—long even by the chamber’s measure—it simply regards what is already there.
+
+It sees the plants not as a collection of organisms but as a single, patient agreement with time. It sees the artifacts not as lost or forgotten but as having found their final and correct use. It sees the filaments in the stone continuing their work and recognizes in them a kinship: both the filaments and the plants are doing the same thing—maintaining a small, exact difference between darkness and lesser darkness.
+
+After consideration, the power elects to do very little.
+
+It adjusts nothing that would accelerate growth or alter the spacing of drops. Instead, it places a single, invisible condition around the entire formation: that whatever slow violence the larger world might one day bring—shifting stone, drying aquifers, new light from above—will be turned aside just enough that the chamber’s internal rhythm is never broken by anything faster than another layer of silt. The condition requires no maintenance; it is the sort of boundary a wise power draws with one gesture and then forgets.
+
+In addition, the power allows one of the downward-hanging filaments to darken slightly more than the others when it touches water. The change is so small that only the plants notice. Over centuries they grow used to it, and in time a few blades begin to orient themselves toward that particular filament as toward a faint compass. The power does not explain why it has done this; the plants do not require an explanation. They simply incorporate the new habit into the existing order.
+
+Otherwise the power withdraws its attention, leaving the chamber exactly as it found it. The plants continue their inheritance of fissures. The droplets continue to fall at intervals measured in minutes. The quiet, already dense, becomes imperceptibly denser by the presence of one additional witness who has chosen, for the moment, to keep still.

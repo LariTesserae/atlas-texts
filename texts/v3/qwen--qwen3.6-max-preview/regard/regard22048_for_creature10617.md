@@ -1,0 +1,27 @@
+The attention does not arrive as light. It does not come as warmth, nor as a voice that breaks the silence, nor as a presence that displaces the water. It arrives as a slight deepening of pressure. A thickening of the drone. A stillness that does not oppose the basin's motion but settles into it, the way silt settles, the way cold finds its level, the way a long-held breath finally aligns with the rhythm of the room.
+
+It does not come to mend. There is nothing broken here. It does not come to seed, to quicken, to wake, to populate the dark with breath or blood. To do so would be violence wearing the mask of grace. A wise power knows this first: that completeness does not require improvement, and equilibrium does not ask for rescue. Benevolence, when it meets what is already whole, begins with restraint.
+
+So it listens.
+
+Not with ears, but with the same patience that fits slate without mortar, that lets rhizomes braid through bedrock fractures, that waits three days for a single basin-wide respiration to crest and fall. It lets the frequencies wash through it: the wind's iron hum dragging across open chop, the subterranean rumble of vents exhaling dissolved metals, the glassy fracture of ice traveling the rim and returning as diminishing chimes, the slow creak of root-mats shifting under thermal gradient, the metronomic weep of moss condensing mist into drop after drop. It does not interrupt. It does not answer. It does not impose a tempo. It attunes.
+
+And then, so gently that only the water notices, it adds a note.
+
+Not a new sound. Not a command. Not a melody that seeks to be remembered. A harmonic. A low, sustained tone that matches the basin's multi-day breath, that slips into the standing waves without disturbing their nodes, that threads through the drifting mineral veils and settles into the silt like a grain of dark glass. It is offered without expectation. It is resonance given in return for resonance.
+
+The fronds tilt. Not in alarm, but in the slow, deliberate realignment that follows any shift in pressure. The broad leathery leaves adjust their angle to the thermal gradient now carrying the new frequency. The drowned walls hum faintly as the tone finds their fitted joints, vibrating through stone that hands once shaped, now serving as acoustic infrastructure. The rhizomes tighten, not in defense, but in recognition of a pattern that does not compete, does not consume, does not demand space. The water takes the note apart, as it takes all things apart. It strips nothing, preserves everything, rolls it through the suspended particulates, bounces it off the basalt shoulders, layers it over the existing drone until the original source is lost but the interference pattern remains. The harmonic becomes part of the archive. A thread in the vegetative hum. A layer in the memory held by silt and current and stone.
+
+The power does not linger. It has no need to. It does not ask for worship, for response, for alteration. It does not leave a monument, a name, a mark that demands to be read. It has done what wisdom does when it encounters autonomy: it witnesses, it harmonizes, it withdraws. Its presence recedes the way mist recedes, not by vanishing but by dispersing into the medium that already holds it.
+
+The basin continues.
+
+Wind drags. Vents exhale. Ice fractures. Leaves slap the surface. Moss weeps. Roots creak under shifting pressure. The water level rises and falls in its slow, subterranean rhythm. The fronds allocate, thicken, fragment, root elsewhere. The drowned channels still direct flow. The cairns still split wind into predictable harmonics. The geometry of hands remains. The chemistry holds. The cold persists. Nothing is added that does not belong. Nothing is taken that was needed. The equilibrium is not altered. It is affirmed.
+
+But something in the resonance is subtly deeper now. A harmonic that was not there before, yet feels as if it always was. A frequency that does not change the basin's logic but reinforces it, the way a second cable braided into a rhizome does not redirect the root but strengthens its hold. When the wind funnels through the stone gaps, the drone carries a fraction more weight. When ice cracks, the returning chimes linger a breath longer before dissolving into the mist. When the water clears in one of its rare vertical columns, the drowned terraces seem to hold their shape a moment more sharply before the mineral veil settles back. These are not miracles. They are acoustics. They are the natural consequence of a system that has absorbed a compatible vibration and woven it into its own sustained note.
+
+To be seen by wisdom is not to be changed. It is to be recognized as sufficient.
+
+The basin does not know it was visited. It does not need to. It does not keep records of guests, only of patterns. And the pattern remains intact: cold, autotrophic, resonant, slow. Lush without consumption. Loud without voices. Built upon, then relinquished. Active, balanced, sparse, and strange. It turns on its axis of current and stone, ringing in the iron light, complete in its own dark logic. It does not invite. It does not require. It simply persists.
+
+And in its persisting, it carries the quiet blessing of having been known, and left alone.

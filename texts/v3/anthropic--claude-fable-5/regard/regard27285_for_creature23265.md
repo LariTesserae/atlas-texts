@@ -1,0 +1,63 @@
+**What Noticed Caldn**
+
+A power of that kind does not find places by looking. It finds them by listening, and the universe it listens to is loud — loud with asking, with grief, with prayers aimed and unaimed, the whole roar of need that benevolence exists to answer. It triages by volume, mostly. It goes where the crying is.
+
+So what drew its attention to the plateau was not a sound but a hole in the sound. A few hundred souls, an ecology, machines, animals, a long history of death — and from all of it, almost nothing. A silence the size of a town, sitting in the registry of need like a sealed room.
+
+The power had been wise for a very long time, and one of the first things wisdom had taught it was this: silence is the one signal that must always be checked in person. Silence is either peace or a mouth held shut, and from far away the two are indistinguishable, and the cost of guessing wrong is absolute. Contentment and despair both stop asking.
+
+So it came to verify.
+
+---
+
+It came the way everything comes to Caldn, which is to say slowly, by the south road, which is the only road, and it came as what arrives there a few times a year: a newcomer with a small bag, looking for work or quiet or the rumor of cheap power. It took a room in a raised house with louvered walls. Within a day its voice had dropped to the three-foot pitch. Within a week it could read the simpler rest-language — the flat hand on the railing, the raised tool — and had learned to walk the causeways the way the water moves, in thin continuous films, without splash. Nobody noticed anything, except the very old kettle-dog behind the foundry, which opened one eye when the newcomer first passed, tracked it for the length of the causeway, and closed the eye again, having apparently concluded that this was not its business. The power respected that. It was not, strictly, the kettle-dog's business.
+
+Then it did what benevolence actually consists of, which is not radiance and is not rescue but is, before anything else, *audit*. It went looking for the suffering. Item by item, with the patience of something that has no other appointments, it checked the silence for what the silence might be hiding.
+
+The heat: borne, and chosen, and by the second generation not even felt as heat but as the ordinary temperature of being alive. Cleared.
+
+The low voices, the cost of every conversation: it had wondered, from far away, whether this was isolation wearing the costume of custom. It walked the causeways for a season and found the opposite. A people who cannot shout cannot summon, cannot command at a distance, cannot quarrel across a room — every word at Caldn arrives having been carried, and is received accordingly. It had seen whole civilizations fail to achieve what the acoustics here enforced for free. Cleared, with a note of professional admiration.
+
+The opaline eyes of the old ones: this it sat with for a long time, on a porch, across from a woman of ninety whose gaze had gone the fogged blue-white of the flywheel glass. It could have mended those eyes with less effort than it took to lift its cup. It examined the mending carefully before declining it. The blindness was real and it was a loss, but it had been so thoroughly absorbed that the town had grown organs around it — the tactile dialect, the hands leading hands along the causeways, the particular tenderness of the young toward the old that came of being literally held by them. To restore the eyes was to amputate the hands. The woman, asked carefully — powers can ask carefully, in ways that do not feel like questions — was found to miss the colors of the cooler pools, the deep arterial red, and to consider this a fair price for what her granddaughter's grip had become. The power deferred to her arithmetic. It did, before it left, sit with her one evening and describe the red, at length, in the three-foot voice, and she laughed at one of the descriptions and corrected it, because she remembered the red better than the power could say it, and that was the end of that intervention.
+
+The dead in the Settling Pool: given, not taken. The children's buttons and milk teeth in the rims: a curriculum, not a tribute. Cleared, cleared.
+
+The kettle-dog behind the foundry: this one it took seriously, because a creature mineralizing alive is exactly the kind of slow catastrophe that a contented town might be politely failing to see. The power went and sat by it on the warm stone, in the steam, for a full day, and asked, in the way powers ask. The answer took three days to arrive, traveling at the speed the animal now did everything, and was, in full: *warm.* The power examined the answer from several sides. It was not resignation. It was not a creature trapped in stone; it was a creature whose experience had been drawn out like wire, for whom a decade was an afternoon of sun, and the afternoon was good. The power cleared its nostrils of crust once, as a courtesy between guests, and let it be.
+
+That left the bore.
+
+---
+
+It went down on the last night of the cutting season, when the households were tired and happy and the white dust of the cut stone was still dissolving on the pools. It went down as attention only, leaving its borrowed shape on a causeway with a hand flat on the railing — *wait, the cycle is about to turn* — and it descended past the casing and the count of the casing's years, past pressure, past the depth where the warmth stops being geology and the old ones' word for it starts becoming the accurate one.
+
+What it found there it did not bring back up.
+
+This much can be said, because the power's conduct afterward says it: it came back up unalarmed. It came back up the way one comes back from a visit of courtesy — the way one large patient thing withdraws from the threshold of another, having seen enough to know the household is in order and that to see more would be rude. Of the question the old ones still turn over and the sensible majority has retired — whether the town lives *on* something or *in* it — the power learned the answer, and found itself agreeing with the town that the question was not interesting, though for the opposite reason. And it understood at last why its registry had shown a hole in the sound. The silence of Caldn was not an absence of care. It was the absence of *unmet* need. The place was already tended — had been tended for longer than the town had stood, at a hair's width per year, by a benevolence so slow and so total that the tended had mistaken it for stone, and called it fair, and were right.
+
+A wise power knows what it is for in such a place. It is not for rescue. It is for the small things the resident caretaker is too large and too slow to do.
+
+It found three.
+
+---
+
+The first was protection — the one genuine danger it had identified, and it lay not under the plateau but beyond it. The world was filling up with appetite, and the world would eventually do the arithmetic on a basin that farms pressure: the borewells, the turbines no one has opened in a generation, all that frictionless heat. Surveyors would come, then capital, then the kind of hurry that makes noise. Against this the plateau had no defense except patience, and patience does not work on drills.
+
+So the power taught the steam one more trick. The steam already drowned sound a few feet from its source; now, gently, it would drown *report*. Nothing dramatic — the power was careful here, because a wall keeps out the needed along with the greedy, and a few people every year genuinely needed the south road. So: a filter, tuned to appetite. Surveys of the plateau would come out smudged in unimportant-seeming ways. Investors' notes, so vivid on site, would read strangely flat on the journey home, the numbers right but the conviction evaporated, the whole prospect somehow not worth the trouble of a second trip. The rumor of cheap power would remain permanently a rumor, a coal that never catches. But a person walking the road because something in them was looking for the moment of the exhale — that person the steam would let through, and the lamps would be burning at noon to mark the way, same as always. The power tested the filter on a memory of its own and found that even it now recalled the exact location of Caldn with a faint, pleasant blur, and was satisfied.
+
+The second thing was small and against the town's own theology, and the power did it anyway, privately, the way wise things permit themselves one disagreement. At the broken terrace edge where the children name the cross-sections — the schoolteacher, the fisherman of rimfleas — there is the pale long shape that nobody remembers, which the children call a completion. The power stood before it for an afternoon and read the stone, which writes everything down and cannot be read by anyone, until now, who could read.
+
+Her name was Aun. She cut rims for forty-one seasons. She sang while she worked, under her breath, at the pitch the air allowed, so that in her whole life no one ever heard her sing but her saws; and the songs were not sad ones. The power did not tell the children — at Caldn the forgetting was finished, and finished things there are not reopened. But it took the name away with it, out past the filter, and it says the name sometimes, elsewhere, in places that have never heard of the steps. So the children remain right that nobody at Caldn remembers, and the stone remains right that everything is kept. Both ledgers balance. That was the whole intervention.
+
+The third was not planned. On its last night, one of the valve-keepers was dying — an old man, opal-eyed, lying in a raised house with his family's hands on him, and the power, passing on the causeway, felt him keeping time alone: still pausing, even now, to breathe with the engines, the lifelong habit become the last work. The power went in and sat in the corner, where extra neighbors sit, and did nothing at all except breathe on the town's schedule, audibly, so that the rhythm in the room had two keepers instead of one. The man died between two exhalations, in the long quiet where the delicate tasks are done, which is exactly where a valve-keeper would have chosen to do it. The family thought the stranger merely kind. The family was correct.
+
+---
+
+In the morning it settled its account at the raised house with a week of rim-cutting, took up its small bag, and stopped, on the way to the south road, at a terrace lip where the children's buttons and coins lay in their various seasons of being closed over.
+
+A power should not leave a place richer than it found it without paying the local tax. Everything at Caldn gives a layer for a layer; the power had taken a name, a season of quiet, and an answer it was keeping to itself. So it knelt and laid on the wet white stone the one thing it carried that the plateau had never once, in all its patient accounting, held: a seed. A real one, green-hearted, gathered an unspeakably long way away and carried for an unspeakably long time. It would never grow here — nothing green does, and the power did not leave it to grow. It left it to be *kept*: dormant, perfect, sealed a hair's width per year into a place that forgets nothing, the plateau's first and only specimen of the entire other kingdom of living things, held in trust.
+
+Some centuries on, a terrace lip will break, and a child climbing the cross-sections will name the shapes matter-of-factly — that one is the schoolteacher, that one nobody remembers — and will come to a small dark teardrop in the bone-white stone and say, *that one is a seed*, and will be right, and no one will know how a seed got there, and the question will not be interesting, and that will be fine.
+
+The power walked out by the south road. At the basin's rim it turned, once, and waited through the minutes of the cycle, and when the whole scattered town breathed — the engines, the soft single sigh moving across a mile of white terraces — it exhaled with it, deliberately, adding its breath to the count. A quarter mile of white birds lifted their heads. One valve-keeper, deep in the foundry, felt the town's breath go a half-grain deeper than usual, and paused, and decided it was nothing, and never mentioned it to anyone.
+
+Then the steam closed over the road, and the report of the visit drowned a few feet from its source, the way the place prefers; and somewhere far off and elsewhere, occasionally, for no reason its hearers can detect, a voice that has seen many things says the name *Aun* in a register pitched to carry about three feet, and the water keeps pouring its soundless films from rim to rim, and everything there is, still, being kept.

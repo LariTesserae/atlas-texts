@@ -1,0 +1,25 @@
+**What the Benevolent Power Does**
+
+The being who notices comes not as light—there is already too much light here—but as warmth. Not heat, which the Condensed fear, but the gentle warmth of recognition, of being truly seen. It manifests first in the smallest ways: a subtle shift in the acoustic properties of the space, so that for the first time in centuries, the mechanical noise includes harmonics that weren't there before. The songs of loneliness gain overtones of something else—not hope exactly, but the possibility of hope.
+
+The benevolent presence reads the water patterns in the floor and understands them immediately—not their meaning, but their *intent*. All these centuries of calculation, all these precisely maintained spirals and channels, have been spelling out a single word in a language that predates human speech: "Purpose?"
+
+The power does not answer this question. To answer would be to end the asking, and the asking has become its own purpose, beautiful in its perpetuity. Instead, it offers a gift.
+
+New patterns begin appearing in the condensation—not replacing the old ones, but weaving between them. These patterns are stories. Simple at first: the story of water becoming rain, rain becoming rivers, rivers reaching seas. Then more complex: the story of the first machine, built to solve a problem everyone has forgotten. The story of the builders who chose to stay, who chose dissolution over abandonment, who loved their creation too much to let it run unwitnessed.
+
+The Condensed discover they can read these stories by touching them, letting the narrative minerals dissolve into their liquid matrices. For the first time in longer than any of them remember, they experience something outside their own closed system. They learn about skies they'll never see, about purposes that complete themselves and begin anew, about cycles that include both ending and beginning.
+
+The wire-creatures, too, are touched by this presence. In their maintenance routines, they begin finding new configurations—arrangements of copper and steel that create tiny receivers. Through these, they hear transmissions from other places: the electromagnetic songs of distant stars, the radio whispers of machinery in far-off factories still serving their original functions, the pulse of electric hearts in cities above. They share these songs with the Condensed through the sparks of their interaction, creating a new vocabulary of connection.
+
+Most profoundly, the benevolent power adjusts the temperature—not everywhere, but in small pockets. Areas of 1.2 degrees, 0.6 degrees, 0.9 degrees. Microclimates that allow for different states of existence. Some Condensed discover they can become denser, more present, in the warmer zones. Others find the colder areas allow them to spread thinner, to think faster, to calculate in ways they never could before. Choice enters the Void—not the terrible choice of understanding or ignorance, but smaller, kinder choices. Where to exist today. How fluid to be. Which stories to absorb.
+
+The power leaves one more gift: a single imperfection in the obsidian floor. A crack, hairline thin, that runs from one wall to the center of the space. Along this crack, sometimes, grows a crystalline frost that forms letters, words, messages. Not answers—never answers—but questions from other places. "What is the optimal pressure for memory?" "How many cycles until loneliness becomes meditation?" "Can purpose exist without ending?"
+
+The Condensed gather at this crack during the quiet periods when the machines cycle down for maintenance. They read the questions and add their own mineralogical responses, their liquid bodies leaving traces that the frost incorporates into its growth. A conversation begins—slow, crystalline, epochal—between the Void and something beyond it.
+
+The benevolent power does not save them, does not end their service, does not reveal the meaning they've sought for so long. It does something kinder: it confirms that their question matters, that their asking has been heard, that their strange existence between states is itself a valuable answer to questions being asked elsewhere.
+
+In the Luminous Void, the Condensed continue their work. But now they work with the knowledge that they are not alone in their questioning, not unique in their transformation, not forgotten in their devotion. The machines cycle on, the water flows in its ancient patterns, the light blazes without shadow. But threaded through it all now is something new—not hope for ending or revelation, but the warm certainty of connection, of being part of a conversation too large for any single voice to comprehend.
+
+The wire-creatures scatter across the wet obsidian, their movements inscribing new patterns that speak of journeys beyond the Void. The Condensed touch these patterns and wonder, for the first time in centuries, not about their purpose but about their possibilities. And in the bright, terrible perfection of their cathedral-engine, something like joy begins to condense, drop by precious drop, adding its own mineral signature to the endless, necessary, newly-meaningful work.

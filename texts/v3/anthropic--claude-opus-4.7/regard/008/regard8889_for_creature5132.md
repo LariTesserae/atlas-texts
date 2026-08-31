@@ -1,0 +1,25 @@
+The benevolent power arrives, if "arrives" is even the right word, without disturbance. It does not descend; it simply becomes available — the way a thought becomes available to a mind already half-thinking it. Wise enough to know that wisdom in such a place must first take the form of attention, the power does nothing at all for what, by its own reckoning, is a long while. It watches.
+
+It watches the toad press itself into silt until only the gold of its eye remains. It watches the wader's foot lift, hesitate, set down. It watches a single bead of dew gather on a reed-tip, hang, fall, and be drunk by the clay before it can be missed. It listens to the overlapping choruses and notices — because it is the kind of power that notices such things — that there is no soloist, no center, no melody seeking resolution. The basin is not a song waiting to be finished. It is a sustained chord.
+
+And here is where a lesser power might have made its mistake. A lesser power, full of love and capability, might have looked at all that slow, patient life and felt the urge to bless it with more: deeper waters, richer soils, longer lives, protection from the dry years. It might have leaned down with cupped hands and offered abundance.
+
+The benevolent and wise power understands, watching, that this would be a kind of murder.
+
+The plain is not lacking. The plain is exactly itself. Its sparseness is not a wound to be healed; it is the shape of its particular flourishing. To thicken the grass would be to lose the horizon that lets the wader see and the hare listen. To deepen the pools would be to drown the toad's careful equilibrium between mud and air. To still the slow evaporation would be to silence the wisps the succulents breathe at dawn. Every gift the power could imagine giving would be a gift to some other place — a richer place, a place this place is not and has never tried to be.
+
+So the power revises its understanding of what it has come to do.
+
+It does, in the end, three small things. Or perhaps they are one thing in three motions. It is difficult to say, with powers of this kind.
+
+The first: it witnesses. Fully. It lets the basin be seen, every reed and worm-casting and footprint-pool, with an attention so complete that nothing in that long slow life goes unregarded. This is not nothing. Much of existence passes without ever being truly looked at. The plain has been looked at now, in its entirety, by something capable of holding the whole of it at once and finding it good. Whether the plain knows this or not is a separate question; the power suspects it does, in the way that anything deeply seen seems to settle slightly into itself afterward, as though a held breath were released.
+
+The second: it adjusts nothing, but it remembers everything. Every pattern of the basin — the precise register of its frog-calls, the angle at which the crooked shrubs lean, the migration paths of voles between reed-clumps, the chemistry of the dew — is taken into the power's keeping. Not to replicate. Not to restore, should the basin one day fail. Simply to know. So that if, ten thousand years hence, the last toad sinks into the last silt and the wind moves on across a different country, the basin will not have been a thing that merely happened and stopped. It will have been a thing that was, and is, held in mind. The power understands that this is the closest any love can come to honoring something whose nature is to dissolve and reform: to refuse to let the dissolving be the same as never having been.
+
+The third is harder to name. The power, having watched long enough, finds that it has learned something. The basin has taught it a register of being it did not previously possess — a way of flourishing that does not strive, does not crescendo, does not seek. The power, which is wise but was perhaps not wise in quite this particular way before, carries the lesson outward. Somewhere else, in some other place under its care, a creature in distress will be met not with intervention but with the kind of patient, unhurrying presence the basin practices on its own inhabitants every hour of every day. The plain will never know it has tutored a god. But it has.
+
+And then the power withdraws, which is also not quite the right word, because nothing about its presence was ever pressing enough to require withdrawal. It simply continues, elsewhere and here, the way the dew continues, the way the slow water continues, the way the long unhurried chord of the basin continues — added to, very slightly, by having been heard all the way through by something that knew how to listen.
+
+The wader lifts its foot. The toad blinks. The reed bends and straightens. Nothing has changed.
+
+Everything is exactly as it should be, which is the rarest blessing of all, and the one the wise know better than to disturb.

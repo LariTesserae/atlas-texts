@@ -1,0 +1,39 @@
+To stay is to be tasted.
+
+Not metaphor, not any longer. The moisture on your skin is already participating in a chemistry that predates metaphor, that predates the distinction between tasting and being tasted. You have been here long enough now that the boundary between you and the space has begun to soften—not dissolving, not yet, but blurring at the edges the way ink blurs in water, the way the shoreline blurs when the tide is neither coming nor going but pausing in its pause.
+
+Your breath has changed. You can feel it in your chest, in the slight tightness that comes from air that has been processed by a space designed for slower respiration. The cold is no longer hitting you. It is settling into you. Your body is learning the temperature of this place, dropping degree by degree toward equilibrium, and this is not hypothermia—it is adaptation. It is your warm-blooded metabolism beginning to understand that warmth is expensive here, that the space does not reward the expenditure, that the organisms here have all, in their various ways, learned to do what they do without heat as fuel.
+
+This is what the creatures know. The many-limbed things in the canopy do not shiver. The roots do not seek sunlight. The water carries what energy it needs in its own slow circulation, dissolved in its own motion, independent of the radiant warmth that you require and they do not.
+
+You are learning something they already know. You are learning to be less warm. Less urgent. Less the small warm thing that moves and requires and changes things by the simple fact of being warm and alive and hungry for a future that is always arriving, always about to arrive, never quite arriving because you are always reaching toward it—
+
+Here, the future does not arrive. Here, the future is already present, has always been present, is the same slow present that has been unfolding since before you entered and will continue after you leave. The timescale here is not the timescale of hope or fear or planning. It is the timescale of patience so complete that it has become a kind of identity, a way of being that is not distinct from the being itself. You cannot hurry this space. You cannot threaten it. You cannot save it or destroy it or even meaningfully alter it. Your presence is a tremor in a single root's slow adjustment, and the root will grow over that adjustment, will incorporate it into the pattern of its growth, will not remember that there was ever a time before the adjustment was made.
+
+This is what living here would teach you, if you could stay long enough to learn it: that urgency is a product of brevity, that fear is a product of scarcity, that hope is a product of distance from the present moment. This space has no fear. This space has no hope. This space has continuation, which is something else entirely—not the opposite of hope but the ground on which hope becomes possible for things that must end, that know they must end, that carry that knowledge like a weight they cannot set down.
+
+You carry that weight. You have always carried it. But here, in the cold and the wet and the slow light, you can feel the weight more clearly, and you can feel, beneath the weight, something else—a strange relief, a quiet release, the beginning of a letting-go that you did not know you were practicing until this moment, standing in a space that will not remember you, breathing air that has been processed by a thousand slow processes you cannot name, feeling the condensation settle on your skin and join itself to the larger system, feeling yourself become, for a moment, part of what lives here.
+
+You will not stay. You cannot stay. Your warmth is not sustainable here, your urgency will return, your reaching toward a future that is always arriving will reassert itself the moment you pass back through the membrane and feel the air change and know that you have returned to the timescale of things that end.
+
+But something will have changed.
+
+Somewhere in the slow deep architecture of your memory, in the place where you keep the things that happened to you that you cannot explain, there will be a room—not a room like the rooms you know, but a room like this one, green-black and cold and vast and patient, a room that does not remember you but that you will not be able to forget, a room that is not a place you have been but a place that has become part of how you see, a reference point against which all your rushing and warming and reaching will be measured, a quiet reminder that there are spaces where the future is already present, where patience is not a virtue but a substance, where the architecture breathes and the water remembers and the light glows at frequencies that do not require warmth, and that you were there, for a little while, and you were tasted, and you were found sufficient, and you were released.
+
+This is what lives here: not you, not the creatures, not the plants alone, but the relationship. And now, for a little while, you are part of that relationship too, and the space will not remember you, but you will remember the space, and that is enough. That has to be enough. Because the space does not need you to remember it, does not require your witness, does not ask for your gratitude or your wonder or your fear. It will continue. It has been continuing. It will continue after your memory of it fades, after the spores work their way out of your lungs, after the salt is washed from your skin by water that is warmer and faster and less patient than this one.
+
+And that is not tragedy. That is not loss. That is simply the relationship completing itself, the way relationships do, the way all connections do—arriving, mattering for a moment, then releasing, then continuing in forms you cannot see, in patterns you cannot trace, in a becoming so vast that your entire brief presence in it is less than a fluctuation, less than a tremor in a single root's slow adjustment—
+
+And yet.
+
+You were here. The space knew you were here. The moisture tasted you and found you different from what it usually processes, found you warmer and faster and more urgent, found you briefly interesting in the way that anomalies are interesting to systems designed for continuity. You entered. You were tasted. You will leave.
+
+And the space will not remember you. But something in you will not forget the space, and that is the gift, that is the only gift this kind of place can give, that is the gift that the cold and the wet and the patient architecture offers to everything warm that enters: the memory of a place where memory is not required, where presence is not witnessed, where the only meaning is the meaning of continuation, of the slow work of becoming going on without urgency and without pause, the way all genuine architecture goes on, the way all living things persist in being what they are.
+
+You are persisting. You are being what you are. You are warm and brief and reaching toward a future that is always arriving.
+
+And somewhere behind you, somewhere in the green-black dark, the roots are adjusting their angles to bear your passing weight, and the water is carrying the salt of your skin through channels that have no beginning and no end, and the light is pulsing at its frequency, below comfortable, below warmth, a frequency that does not require your attention, that continues whether or not you see it, that glows in the dark like a thought thinking itself in a mind that does not know it is thinking, in a space that does not know it is a space.
+
+It is becoming. It is always becoming. It will never finish becoming.
+
+And you were here, for a little while, and you saw it, and you felt it, and you were changed by it in ways you will not understand, and then you left, and the membrane sealed behind you like skin healing over a wound, and the space continued, and the slow work of becoming went on without urgency and without pause, and the water remembered where to go.

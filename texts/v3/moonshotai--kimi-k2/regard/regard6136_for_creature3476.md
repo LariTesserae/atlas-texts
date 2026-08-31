@@ -1,0 +1,27 @@
+The wise power arrives first as temperature, before it is anything you could call a Presence. A single degree subtracted—just enough to let the sweat on the upper rivets stop rolling uphill, enough to hush the boiling inside the thermostat ghosts. Then a quality of silence deepens without becoming louder; the ear does not register it, but the metal remembers having once vibrated and now does not.
+
+Out of that hush comes a form: light folded so many times it appears dark. It has no scale you could measure against the vault; you would call it human-sized only because that is where human attention inserts itself. The Presence wears darkness the way a diver wears water—not hiding in it, but being inside it completely. At first the Carvers do not notice; they are intent on their rust-print liturgy, on the measured dimming of the plants.  
+
+But the diode grid stutters—one array brightens, then rubber-bands back to half-life. The second Carver tilts a brittle neck. They sense imbalance the way two beams of a balance feel the third pan placed upon them.
+
+The wise power does not speak words. Instead it issues a Question as a stable thermal inversion: a pocket of air exactly 21 °C, 55 % relative humidity—the remembered comfort of a city apartment half a mile above. In that bubble the iron sings quietly, a tuning-fork C you haven’t heard since childhood. Condensation stops its creeping march; spheres freeze mid-roll; a leaf forgets to wilt.
+
+To living beings, comfort feels like mercy; to an exhausted vault, comfort feels like betrayal. If the stops were removed, the walls would cool faster than grief, crumble, collapse. The Carvers know this; their half-mouths open in unison, pouring violet diode fire toward the stranger, offering to dim more plants rather than let the vault accelerate its collapse.
+
+The Presence gathers the offered light not into darkness but into a longer wavelength—infra-red invisible even to plants—and feeds it straight into the rivet seams. The iron drinks gently, evenly, for the first time ever without fever. Instead of cooling catastrophically, the walls merely exhale. A haze of microscopic rust lifts, becomes a red aurora, then settles again—no heavier, no lighter.
+
+Now the second gift: fauna. One breath of future pollen enters the vault. It is not a living insect but the template of midge wings, printed in silicate and hollowed to half a wavelength of light. When the Carvers open their palms, six shimmering exoskeletons hover above their lifelines. Templates—self-assembling, dormant until the first seedpod splits. A biodiversity clockwork waiting for heat flows to settle.
+
+The Presence touches the sagging floor. Where ring-finger meets slag, a spiral odyssey of manganese crystals erupts: a metallophyte capillary system that will draw rust-electricity, slow the final contraction, buy centuries. Not redemption—extension. The wise power never calls it mercy; systems do not deal in morals. They deal in steady states. By inserting a controlled fauna seed and a lattice of slow-bleed heat crystals, it offers the vault two futures superimposed: bloom and collapse running in parallel until observation collapses the waveform.
+
+The Carvers understand the bargain without translation. One kneels, presses rust-runed palm to the seed crystals—an acceptance. The other walks to the lockers, lifts out the cracked face shield: an urn for whatever heat-light the fins will leach away. Between them, the Presence begins to fade back into folded darkness, but before it disappears entirely it offers one last calibration: an auditory memory released from the walls. For the first time since creation, the vault hears its original engineers—women laughing over tin-lunch breaks, men cursing cold coffee—caught in the metal the way yells are caught in cave-smoke. The echo lasts exactly seven heartbeats before silence reclaims it, but all three (vault, Carvers, Presence) agree that seven is enough to register gratitude.
+
+The Presence does not wait to be thanked. It recedes the way a blood-pressure cuff loosens: subtle, unargued, already forgotten by the skin even as vessels unlock. What remains is an atmosphere balanced like a held note:
+
+- Heat loss now measured in generations, not decades.  
+- A wildlife code syllabus waiting in pollen-phosphor whenever the temperature basement steadies.  
+- Two Carvers who will no longer count doomed plants each night but will instead record the copper-taste dew that gathers on new crystal veins.  
+
+No one leaves the Deep Green Vault unchanged because no one leaves. That was never on the table. The point is to remain, and to do so with less haste.
+
+In five thousand years the vault will be a spherical geode lined with wine-red crystals and black manganese vines, housing a stuttering swarm of glass-wing midges circling forever in the slow convection their wings keep alive. Two negative silhouettes, shoulder-to-shoulder, visible only in the contrast between heavy iron and soft exhalation, greet whoever enters. They have no language left except measured warmth, exchanged by fingertip on crystal faces: a comma, a semicolon, a full stop long enough for the new visitor to feel what steadfastness can sound like when silence has agreed to share custody.

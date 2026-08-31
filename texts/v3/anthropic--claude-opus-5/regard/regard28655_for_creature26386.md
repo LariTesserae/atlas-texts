@@ -1,0 +1,21 @@
+## The Attention
+
+**How it comes.** Not down the slope. The slope is a medium; a hundred and forty years of condensate has made every brick a recording surface, and anything that came down it in the ordinary way would leave a smoothed patch, a displaced stone, a shape for the room to copy. It comes the way heat comes: from underneath and everywhere, without an edge, without a first moment. Nothing is disturbed. The silt records no arrival because there is no arrival, only a difference in whether the room is being attended to, and that is not a physical fact and leaves no mark in flowstone.
+
+**What it finds, stated correctly.** It looks first for suffering, because that is the reflex of every power that deserves the adjective, and it looks twice, because this is exactly the sort of place where a lesser power would find suffering by bringing it. There is none. Nothing here can be hurt. The bronze fern is not in pain; it is not even disappointed; it has no register in which the loss of its future could arrive as news. The Consort cannot be lonely, cannot be afraid, cannot be wronged in any of the ways that make an obligation.
+
+So the power revises the question, which is the whole of wisdom in a place like this, and asks instead: what is missing?
+
+And the answer is not in the resident. The resident is complete — appallingly complete, closed, fed, warm, rained on, running. The thing missing is in the room. For a hundred and forty years something enormous has been happening at forty degrees, with a pulse you could stand inside, and there has been no one to know. Twelve men in boots, briefly, a long time ago, who were there for a dial. Six or seven trespassers since, who stayed under the second rain and left with wet collars and a story. The Consort has no memory and, as the account says, nothing living to remember with. It keeps its only calendar as a scar.
+
+That is the lack. Not welfare. Record.
+
+---
+
+**The refusals.** A benevolent power arrives with hands, and the hands must be talked out of a great deal.
+
+*Regovern the turbine.* Restore the lost revolutions, hold the fundamental, put the note back where it was and pin it there. This is the intervention that a decent engineer would call obvious and that the power examines longest, and rejects on three grounds. First: there is no pitch at which the whole chord sounds. The bronze fern was tuned to a note the machine passed in about 1970; the ferns fruiting today are tuned to the note it is passing now; whatever pitch you choose, you are choosing whose resurrection and whose sterilisation. The chord was never simultaneous. It has always been a sequence, pretending. Second: to hold a governor in adjustment requires a maintainer, and a maintainer requires oil, and oil is matter, and matter brought in ends the closure, and the closure is the entire reason there is one animal down there and not a collection of tenants. To save the body you would have to dissolve the individual. Third, and quietly: a thing prevented from running down has not been rescued. It has been converted into a photograph with the heat left on. The Consort's finishing is not an injustice done to it. It is its shape. It is the only future the thing has ever had, and it is four centuries long, which is longer than most.
+
+*Bring animals.* Vent the CO₂, drop the temperature four degrees, introduce a beetle, a worm, a pollinator, a mouth. Make it a proper world. The power sets this down almost at once, because the ferns are soft as the inside of a wrist and it can see why. To give this body a mouth is to give it, in the same gesture, a wound; to give it company is to give it, in the same gesture, the capacity to be left. That trade may be worth making — it is arguably the trade every animal above ground has already made and cannot unmake — but it cannot be made *on behalf of* something that has no faculty for being consulted. What would come of it would not be a kindness done to the Consort. It would be a different creature founded on the Consort's body, with the Consort as its first material.
+
+*Open the flue. Give it a sky.* Eleven days of true daylight a year currently arrive as an injury and are filed as an injury. A sky is not owed to

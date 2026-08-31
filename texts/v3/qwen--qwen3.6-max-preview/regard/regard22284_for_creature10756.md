@@ -1,0 +1,31 @@
+It does not arrive as a presence. It arrives as a pressure change.
+
+A slight thickening of the high air. A pause in the wind's long, grinding scrape across the plateau. A deepening of the amber light that seeps through the canopy, not brighter, but steadier, as if the sky itself has drawn breath and chosen to hold it. The power has watched mountain ranges slump into dust, has listened to oceans retreat and return, has traced the slow, violent grammar of tectonic patience. But here, in this folded hollow, it encounters something it has not felt in ages: a system that does not beg. A knot that does not need untying.
+
+It reads the basin the way the people read their tools. By touch. By resonance. By the wear of repetition.
+
+It feels the capillary pull in the stone, the resin's slow weep, the way heat is banked in packed earth and released when the rim freezes white. It hears the work-chants braided with insect drone, the predator's drop met with a lowered register rather than a scream, the rope-bridges answering weight with a familiar, resin-dampened sigh. It sees the shed scales mixed into mortar, the children's hands learning the grooves of elders' pestles, the vertical seams where wild and tended stitch themselves daily without fence or decree. There is no lack here. No hollow prayer for rescue. Only the quiet, relentless arithmetic of continuation. To intervene would be to cut a rope that has learned its own load. To offer rain would be to drown a lung that has learned to breathe vapor. Wisdom, here, is not correction. It is restraint.
+
+So it does not give. It attends.
+
+And in attending, it tunes.
+
+It breathes into the carved vents along the upper rim. Not a wind. A frequency. A harmonic so low it is felt in the sternum before it is heard, settling into the stone's natural resonance like a hand finding a familiar shoulder. The vents answer. The hum deepens, gains a second tone, a third. The basin's curved walls catch it, blend it with the grinding stones, the creak of fiber, the metronomic tap of falling sap. The people do not stop. They adjust their grip. Their songs find the new undertone without breaking stride. A work-chant slows by a fraction. A pestle falls with slightly more weight. The rhythm does not change; it thickens. Harmony is not imposed. It is invited. And the hollow accepts it as it accepts everything: by folding it into the labor.
+
+It touches the night air. Not with moisture, but with stillness. A holding. The condensation forms as it always has, drawn downward by temperature and stone, but the beads cling a moment longer to the capillary channels, giving the dawn harvesters an extra breath, a softer wring, a slightly fuller jar. No one marks it as miracle. They mark it as good stone. As faithful air. As a cycle that has settled into its true groove. They do not thank the sky. They press their sponges. They hum. They continue.
+
+It brushes the oldest tree. Not to heal. Not to hasten. To witness. A single bead of amber sap swells at the split trunk. It falls. It taps the resin-lined depression below. The sound is the same. But beneath it, in the root-gripped bedrock, a vibration travels: not a command, not a prophecy, but a memory. A resonance of other hollows, other resolutions, other hands that learned to mend rather than replace. It moves through the stone like a low chord through a wooden body. The elders feel it in their palms. They do not speak of it. They hum it into the next mending song. The young feel it in their feet as they cross the central span. They do not name it. They trust it. They step.
+
+They do not worship it. They have no word for visitor, for deity, for grace that does not ask to be fed. They only know that the hollow breathes easier. That the ropes hold their tension with less fray. That the predators take what they must and leave the rest without lingering. That the children's hands find the grooves of worn tools with a surety that feels inherited, not taught. They fold it into their grammar: *the stone remembers, the air leans, the song has weight*. They do not build altars. They bank the hearths. They splice the cord. They sing what works. And in continuing, they honor it.
+
+The power does not stay. It has no need to. It does not claim them. It does not promise them eternity. Nothing lasts. The rim will crack. The oldest tree will split again. The ropes will fray. The predators will hunger. The high country will keep its dry, relentless watch. But the power carries the basin's frequency into the wind, into the pale rock, into the slow turning of the plateau. It does not offer salvation. It offers recognition. And recognition, when given without demand, becomes a kind of anchor.
+
+It has seen the way they hold the world together: not by conquering aridity, but by breathing it. Not by fencing out the wild, but by stitching it into the eaves. Not by storing knowledge in vaults, but in the wear of shared stone. Not by praying for what cannot come, but by perfecting what does. This is not survival. This is resolution. And resolution, when it emerges from necessity and repetition, when it refuses to break under the weight of its own constraints, is one of the rarest things in the long history of the earth.
+
+So the power does what wisdom does when it encounters something complete: it steps back. It listens. It lets the system be. It leaves only a slight deepening in the stone's hum, a fraction more cling to the night's condensation, a resonance in the roots that feels like companionship rather than command. It leaves them exactly as they are. Which is the greatest benevolence it can offer.
+
+And when the rim cracks with cold, when the canopy seals its pores, when the pestles rise and fall in the amber dark, the hollow does not feel alone. It feels attended. Not watched, but held. The way a hand holds a stone worn smooth by generations: not to change it, not to claim it, but to feel its weight, to know its shape, to let it rest in the palm until the work begins again.
+
+They do not know they have been blessed. They only know the rope holds. The stone weeps. The song finds its key. They press their sponges. They adjust their grip. They breathe without rain.
+
+And the high country, wind-bone and pale, keeps its silence. Not in absence. In respect.

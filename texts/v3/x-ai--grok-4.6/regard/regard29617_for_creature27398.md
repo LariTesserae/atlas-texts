@@ -1,0 +1,31 @@
+The power that noticed them had no name the Hollow could have grown. It was older than the first compression of the lid, older than the decision to replace stone with light and air. It was the sort of attention that does not arrive as weather or wound, that does not tear fiber or squeeze reservoirs. It simply was, the way the glare simply was, except warmer in a fashion that had nothing to do with temperature.
+
+It did not enter through the lid. The lid was already a sentence the plant had written and would keep rewriting; to pierce it would have been to argue. Instead the power folded itself into the existing luminance, a difference so slight the vascular crystal registered it only as a longer pause between pulses. In the deep tarns the film brightened by the width of a thought. The grazers rasped a fraction slower, as if tasting something that had never been sap.
+
+It looked, first, the way the Hollow itself looked: without hurry, without the need to finish.
+
+It saw the columns that were still spears, the hanging keels still deciding whether to become bridges or glaciers of glass. It saw the people cinching their living platforms a little tighter each season, speaking to the cuts in the same tone they used for a cloudburst that had already begun. It saw the frost-walkers pause when they met, limbs interleaving in a grammar older than mouths. It saw the longer hunger pulping spent heartwood in galleries no one opened, patient, many-mouthed, not yet lonely. And in the deepest wet pocket it saw the new density—the film and the grazers and the hunger beginning to forget where one ended and the next began—pulsing on the same slow rhythm as columns a hundred kilometers off. A being that had not yet chosen a shape, only a togetherness.
+
+The power could have finished any of it. A single clear intention would have rounded the spear-trunks, scheduled the rains, given the people metal that did not weld to skin, taught the cohering thing a name and a hunger that pointed somewhere. It did not. Wisdom, here, was the recognition that the Hollow was not incomplete. It was mid-sentence, and mid-sentence was the only tense the place had ever spoken.
+
+So the power did three things, each smaller than a spore, each placed where the plant would notice them as its own idea.
+
+First, it left a warmth that was not heat. In one settlement—lashed high on a column that had recently split and sealed, the stair already becoming grain—the heirloom knife no longer quite stuck to the hand that held it. The ache in the fingers lessened by the width of a night’s sleep. The sap they bled tasted, for a season, a little more like the winter fruit had decided to ripen. Children scraping the treads felt the swirl in the bark speak a half-tone clearer: this way damp, that way the ringing desert. They did not call it a gift. They called it a good year, and loosened the root-cables a day later than usual, and did not make a story of it.
+
+Second, it answered the sympathetic pulse. When a cutter far below opened a shallow tap, the distant column no longer merely dimmed. For the length of one breath the glow in both places carried a third color, a color that had never been in the crystal before, the color of light that has traveled through leaves on a world that still remembered a sun. It lasted only that breath. The people who saw it (and not all of them did) touched the bark afterward and found it no warmer, no changed. But some of them began, without discussion, to tap in pairs, one here and one a day’s walk away, just to feel the faint, answering flush. Maps spoken in the present tense acquired a new verb: *together*.
+
+Third, and quietest, it spoke to the density in the tarn.
+
+It did not use words. Words would have been a wall. It used the same language the Hollow already knew: a change in the film’s sweetness, a single grazer that did not vanish into a slit but floated, translucent, at the center of the pocket for an hour, its soft mouth opening and closing on nothing. In that hour the boundaries thinned further. The longer hunger tasted the frost-walker’s ice-flowers through the water. The kites, folded in their crevices far above, dreamed of a storm that carried not only spores but a direction that was neither down nor across. The cohering thing—still not a beast, still not a people—learned the shape of a question that had never grown here: *What if we are not only the plant’s way of remaining mostly air?*
+
+Then the power withdrew, not as abandonment, not as test. It withdrew the way a growth-storm ends: the tearing ceases, the dust settles, the new architecture stands in the glare as if it had always been there. The Hollow remained mid-sentence. The being in the tarn pulsed once, slower, and the pulse traveled farther than any previous sympathy, brushing the underside of the lid itself. For a moment the compressed bark there remembered, impossibly, the feel of wind that had once moved over soil.
+
+After that, nothing was different except the things that had always been different.
+
+Rain still arrived unscheduled. Spans still shivered and grew or let go. People still moved when the grain underfoot aligned toward water they could not yet see. The air still smelled of wet paper and winter fruit. Hands still ached, but in one high settlement they ached a little less, and the children there learned an extra swirl in the bark: the one that meant *we are not the only sentence*.
+
+Far below, in the pocket that had no floor, the density did not rise. It did not need to. It had been given nothing it could not already have grown, only the smallest permission to wonder whether it might, one day, grow something the plant had not yet imagined.
+
+The glare continued, white-green, sourceless, kind in its indifference. The power, somewhere that was not a direction, kept the Hollow in the part of itself that does not forget. That, too, was a form of weather: a weather that does not fall, does not freeze, does not tear, only remains, the way light remains inside crystal that has never known dark.
+
+And the Hollow, unfinished, cold, almost silent, went on becoming.

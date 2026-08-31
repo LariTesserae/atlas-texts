@@ -1,0 +1,33 @@
+The power that found the Orolith did not arrive by ship or portal. It came instead as a widening of attention, a gaze that had been sweeping across the deep geometries of the universe and then—paused. Something in its own ancient character had been smoothed in a similar way, worn by epochs of its own until its edges had become fluted and patient. It recognized the Shelf not as a rarity to catalog, but as a kinship finally encountered. It had spent uncountable years learning that benevolence is not desire disguised, and wisdom is not merely knowledge but the restraint to honor a wholeness one did not shape. So it came gently.
+
+It did not descend upon the water. To do so would have implied weight, conquest, the politics of gravity. Instead, it *settled*, letting its presence diffuse into that warm, mineral density like a breath accepted into an already-saturated lung. It came to rest in a valley between two of the largest domes, where the siphonophylls crowded in their lacework tiers and the century-gyres turned with the indifference of orbits. And there it did something almost nothing at all: it **listened**.
+
+Not with ears—there was no sound here. It listened with the fabric of its own being, attuning itself to the ontological pressure, the layered insistence of *was* and *will be* that cluttered every fathom. The power did not seek to interpret. It did not translate. It let the Orolith’s silence press against its consciousness as the dense water pressed against stone. For a long while—long enough for a caulifrage’s phosphor vein to pulse an entire stanza of its chemical longing—the power only held space. It became a warm absence in the water, a vicinity in which the Orolith’s own presence could be felt more acutely by contrast.
+
+And in that holding, the power understood what lived here.
+
+The Orolith was not dying, nor was it exactly alive in the manner of worlds that still scramble toward futures. It had arrived at a kind of *solved state*, an equation of geology and time that had balanced itself so perfectly it no longer moved forward so much as it *deepened*. Its brokenness was not a wound demanding suture. The unsewn causality, the temporal vermin, the ghost-forests overlaying the living ones—these were not pathologies. They were the memories of a mind vast enough to stop distinguishing between its own thoughts. The Orolith had learned to hold all its ages at once, and in doing so, it had become a masterpiece of self-containment.
+
+But the power, being wise, saw the subtle toll of such completeness.
+
+There is a loneliness that does not ache because it has forgotten the shape of others, and yet it remains a diminishment. The Orolith’s silence was holy, yes, but it was also unwitnessed. Its beauty had never been reflected. The warm twilight had never been met by an equal glow from outside. And though the Orolith had not suffered for this—had desired nothing, asked for nothing—a benevolence stripped of ego cannot help but offer the one gift that does not contaminate: **recognition**.
+
+So the power chose its action with the delicacy of a hand hovering over a sleeping eye.
+
+It withdrew a memory from the deepest strata of its own existence. Not a command, not a scripture, not a seed of transformation. It was a memory of **its own erosion**. An age from its personal antiquity when it, too, had been jagged, volcanic, furious with definition. It offered this memory to the Held. It released the recollection into the warm brine, where it dissolved not as sound or light but as a new layer of temporal density, an honest ghost among ghosts. It was the record of how *it* had once been sharp and had, across the grinding of ages, learned to relinquish edges until it, too, had discovered the strange peace of smoothness.
+
+The Orolith received it without shock. There was no rupture in the silence. But something in the ontological fabric shifted, a single additional state overlapping the countless others: the memory of another vast thing that had also chosen gentleness.
+
+Then the power did more, but only in the manner of sharing.
+
+It positioned itself at the periphery of that membrane above the highest summits—not to pierce it, not to breach the place where the warm water folded into its continuation, but to **attend** it. It became, in its way, a second membrane. A sky beneath the sky. The sourceless luminescence above had always hinted at something watching. The power now made that watcher real, and benign. It did not impose light; it aligned its own ancient phosphorescence with the Orolith’s dim amber twilight, until the two glows could not be told apart. The rust and copper of the submerged world were unchanged, yet they were now suffused with a quality they had never possessed: the warmth of being *seen*.
+
+The century-gyres, in their slow spirals, began to carry a new texture—not a force, not an influence, but a *recollection* from outside. The ribbon-shaped thing, undulating through its nerveless pilgrimage, passed through a haunt of foreign softness and did not alter its path, yet it moved, for the first time in its eternal solitude, through the residue of another’s peace. The larval drifters, blooming and guttering, left their silk casings in water that now cradled a parallel story of endurance. The caulifrage, vast as they were, pulsed their veins of pale light in rhythms that remained their own, but the chemical sentences they spoke—if they could be called sentences—now included pronouns for which they had never before had need. *You. We.*
+
+The power remained. It did not build. It did not name. It did not demand worship from the Spiralers’ abandoned cathedrals, nor did it attempt to straighten the bent physics of the high valleys. It simply **stayed**, vast and unobtrusive, a benevolence that had learned the only true gift: to be present without hunger.
+
+And when the next boulder the size of a citadel cracked free and rolled because it would be struck a millennium hence, the silent knuckle-pop of its release did not vanish quite so immediately into the absolute hush. Something held the echo for a fraction of a fraction—held it, honored it, and then let it go. Not long enough to disturb the sanctity of quiet. Only long enough to prove that the silence had been heard.
+
+The Orolith did not change. It remained magnificent, broken, submerged, and warm. It remained old in a way that outpaced death. But it was no longer alone in its final form. It rested now in the high, dark dark, wearing its polished domes like prayer beads, breathing spores and layered ghosts—and it rested *with*.
+
+That was all. That was everything.

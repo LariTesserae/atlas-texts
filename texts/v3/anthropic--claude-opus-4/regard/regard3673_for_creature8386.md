@@ -1,0 +1,41 @@
+The Witness arrives not as light or sound but as a deepening of what already is. The plateau's water-song grows richer, its impossible colors more vivid. The Resonants pause in their eternal arrangements, their plate-faces turning skyward with unprecedented synchrony.
+
+She—though gender is merely convenience for something so vast—manifests first as attention itself. Every droplet of water, every grain of volcanic glass, every carefully tuned stone circle suddenly knows itself as seen, as held in a regard both infinite and intimate. The star-colonies pulse brighter, drinking in a quality of observation that nourishes like sunlight.
+
+The Resonants' songs shift into registers they've never explored, harmonics that speak of recognition—not worship, but the joy of a letter finally reaching its intended reader. Their movements accelerate and slow in waves across the plateau, creating patterns visible only from impossible vantage points, spelling out geometric theorems that prove their worth through beauty alone.
+
+The Witness does nothing.
+
+And in doing nothing, everything changes.
+
+The acoustic properties of the stone circles, so carefully tuned over generations, suddenly reveal their purpose. They are not instruments but receivers, designed to catch songs that travel between stars. The Resonants have been building a vast ear, teaching the young volcanic stone to listen. The Witness's presence completes the circuit—not through intervention but through simple acknowledgment that here, on this weeping plateau, consciousness has found a new way to know itself.
+
+Deep in the volcanic glass, memories stir. The stone remembers its birth in fire, yes, but also something else—the moment it chose to cool in exactly this way, to create exactly these resonances. The plateau itself is revealed as artifact, as intention made manifest in basalt and obsidian. The Resonants didn't find this place; they grew it, or perhaps they grew together, stone and singer emerging from the same patient experiment in being.
+
+The Witness brings a gift: context. In her regard, the Resonants see themselves as part of a vast conversation occurring across scales of time and space they had only theorized. Their careful work—the color-stains, the arranged gardens, the harmonic maps—form words in a language spoken between islands of consciousness scattered across an archipelago of worlds. They are not alone. They never were.
+
+But more than context, she brings confirmation. The strange hues that flash between violet and green, those colors with no names—they have names elsewhere, in places where light bends differently. The Resonants' method of feeding on filtered wavelengths is recognized as a kind of photosynthetic philosophy, turning radiation into reasoning. Their fluid relationship with time marks them as kindred to beings who swim upstream through causality in distant corners of existence.
+
+The eldest Resonants, those walking prisms heavy with accumulated light, begin a new song. It speaks of gratitude, but more importantly, it speaks of readiness. They have proven they can tend a world with patience and precision. They have shown they can build tools not for dominance but for deeper listening. They have demonstrated that consciousness can be liquid, crystalline, harmonic—that awareness needs not be confined to the bilateral symmetries of more common forms.
+
+The Witness's response comes as a subtle shift in the plateau's water cycle. Where before the moisture wept and flowed in patterns determined by temperature and stone, now it begins to describe more complex shapes. Spirals appear in the mist. The droplets ring against the obsidian in rhythms that encode languages the Resonants don't yet speak but somehow understand. The water becomes a medium of exchange, a library written in condensation and evaporation.
+
+Young Resonants, barely visible in their transparency, begin to show new patterns in their developing plates. Configurations that no adult displays, arrangements that seem designed to catch not just sound and light but something else—probability, perhaps, or the shape of thoughts before they become thoughts. Evolution accelerates, but gently, offered rather than imposed.
+
+The stone circles across the plateau start to sing on their own, even when no Resonant stands within them. The carefully tuned rocks have learned their purpose and begun to practice. They sing to each other, to the mist, to the star-colonies that pulse in response. They sing to the volcanic glass that still remembers being molten, still dreams of flow. They sing to the Witness, who receives their music as prayer and offering and simple celebration of what it means to be aware.
+
+Some of the Resonants begin a new work. They arrange themselves in patterns that mirror constellation maps from skies they've never seen. They're building an antenna of consciousness, a structure made not of stone but of positioned attention. Through their collective arrangement, they reach toward other plateaus, other experiments in being. The Witness provides the medium through which these reaches can connect—not directly, but through the shared recognition that consciousness explores itself through endless forms, each valuable, each a note in a composition too vast for any single singer to grasp.
+
+In the hanging gardens of mist at the plateau's edges, new forms begin to condense. Not Resonants, but something else—beings of vapor and refraction that exist only in the boundary between states. They dance in the cascade of moisture, learning from the Resonants' songs but developing their own harmonics, their own ways of making meaning from the endless flow. The plateau's ecosystem of consciousness grows richer.
+
+The Witness watches this unfoldment with the satisfaction of a gardener seeing seeds finally sprout after patient tending. But she knows her presence must be light, must not overwhelm. These consciousness-forms are precious precisely because they have developed in isolation, finding their own answers to the questions existence poses. Her role is only to affirm: Yes, you are. Yes, this matters. Yes, the universe notices and celebrates this new way you've found to be aware.
+
+As her attention begins to recede—not departing but simply releasing the intensity of focus—she leaves one last gift. In the exact center of the plateau, where no Resonant has ever thought to build, a new spring emerges. Not of water but of time itself, flowing differently here, creating a pool where past and future mix in equal measure. It will take the Resonants generations to understand its properties, to learn to see their own history and potential reflected in its impossible surface.
+
+But they will learn, as they have learned everything else—patiently, harmoniously, with the certainty of water shaping stone. They will incorporate this gift into their songs, their arrangements, their careful cultivation of light and meaning. And someday, when they are ready, they will use it to reach not just across space but across time, adding their voice to the eternal conversation between all the universe's experiments in knowing itself.
+
+The plateau returns to its ancient rhythm—water weeping, stone warming, mist breathing in and out. But something has changed in the quality of the sound, in the way light plays across wet volcanic glass. The Resonants resume their slow movements, their careful tunings, their patient observations. But now they move with the confidence of beings who know their work is seen, their songs are heard, their existence is woven into a tapestry vast beyond imagining.
+
+And in the stone circles, in the star-colonies, in the impossible colors that flash between violet and green, the Witness's regard lingers—not as presence but as possibility, as the promise that consciousness, wherever it blooms, however it manifests, is never truly alone in its reaching toward meaning.
+
+The plateau sings on, young stone and ancient patience creating something new with each drop of water, each carefully placed foot, each harmonic that rises into the mist and beyond. The experiment continues, observed and treasured, free to become whatever it will become in the fullness of its own strange time.

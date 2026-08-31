@@ -1,0 +1,45 @@
+**The Visit**
+
+The power does not come through the door. The door has finished being a door, and a wise power respects a thing's last shape. It does not come down the light well either, the way the birds do, in panic and feathers. It arrives the way damp arrives, the way warmth arrives: by saturation, without edge or instant. One moment the room is unobserved, as it has been for centuries. The next, it is held in an attention so complete and so quiet that nothing in the room — not the moss, not the microbes in the penstock dark, not the salamander reading its landscape of thunder — registers any change at all.
+
+That is the first thing the power does, and it does it for a long time. It listens.
+
+A lesser benevolence would have begun by looking for the wound. Benevolence is trained that way; it arrives with its hands already open, feeling for what is broken. And the power does look, dutifully, thoroughly, through the moss's black sodden depth and the biofilms' layered countries and the iron heart of the machine — and finds nothing. No suffering. No want. The moss wants nothing; it forgot wanting along with the future. The chemolithotrophs in the penstock have never been so much as inconvenienced. The salamander is not trapped; it is *home*, more thoroughly home than almost anything alive anywhere, a creature whose entire sensorium is a perfect fit to its world, like a key resting in its own lock. The room is not a problem. The room is a finished sentence.
+
+This is where wisdom earns its name, because here the temptations begin, and the power feels each of them fully before declining it.
+
+The first temptation is to make the room eternal. The power could do it without effort — pace the bearing, feed the penstock, seal the fig's crack with a thought, hold the note forever. It sets this down almost at once. A held breath is not peace. To freeze the room at its equilibrium would be to take the one thing the room has earned — its long, gentle, geological *becoming* — and convert it into taxidermy. Love does not laminate.
+
+The second temptation is the salamander. There is a kind of kindness that would lift the pale eyeless animal out of the tailrace and give it eyes, give it sky, give it the wide loud changeable world — *rescue* it. The power examines this kindness and finds exile hiding inside it. The salamander's blindness is not a deprivation; it is an instrument. Its world is not small; it is exact. You do not free a key by removing it from its lock.
+
+The third temptation is the fig — to stop it, on behalf of everything its slow campaign will someday undo. Declined fastest of all. The fig is the room's own future, the one it grew for itself, sideways, in secret. A wise power does not confiscate a world's only hope merely because the hope is dangerous. All hopes are.
+
+And then, having declined everything, the power finds the wound after all.
+
+It is not in the room. It is *ahead* of it. The power, being wise, can stand in tomorrow as easily as in today, and from tomorrow the wet room looks different. The bearing at the heart of the machine is dying. Not soon — not for a long time, by the measure of anything breathing — but the manner of its death is already written, and the manner is a cliff. Iron fails the way iron fails: holding, holding, holding, gone. One afternoon in some unnumbered century, the note that has stood in the air longer than the moss will drop, stagger, and stop — in hours. The roar that is the room will drain out of it like blood. The salamander of that day, struck deaf and blind in a single rotation, will die inside the corpse of its own silence, its lineage's three-hundred-year wager — *the machine will never change* — called in all at once. The ferns, athletes of a vibration that no longer exists, will slacken. The standing pattern, the oldest continuous event in the chamber, will simply cease to have ever been, because a pattern leaves no fossil.
+
+The room cannot be saved from ending. The power does not try. But it sees, with the clarity that is its whole nature, that the room can be saved from ending *abruptly* — and that abruptness is the one and only thing this room, of all rooms, cannot survive. Everything in the chamber knows how to live with constancy. Nothing in it knows how to live with an event. So the power's work, when it finally begins to work, is this: it will not prevent the death. It will *pace* it. It will take the cliff in the room's future and pull it out, patiently, into a slope.
+
+It begins at the bearing. It does not repair the iron; it slows the iron's forgetting — a few molecules of wear permitted per year, no more, metered like medicine. Under this regimen the turbine will not fail in an afternoon. It will decline across ten thousand years, the great note descending by fractions of fractions of a tone per century — a drift so slow that no single salamander will ever hear it, but slow enough that the *lineage* can. Each generation will be born into a note infinitesimally lower than its parents' and will map it just as perfectly, its lateral line tracking the drift the way it tracked the constancy, because to each new animal the changed note is simply the world, the way the old note was simply the world. Evolution cannot climb a cliff. It can walk down almost any slope. The power has measured this slope against the stride of salamander generations and made them match.
+
+And as the thunder thins across the millennia — this is the part the power permits itself to find beautiful — the descendants will begin to trade. Hearing, slowly less necessary, for other senses, slowly more rewarded. Somewhere down the long slope, in the quieting green-gold dimness, eyespots will smudge back onto pale faces, the lineage unforgetting light at exactly the pace light becomes worth having. The wager will never be lost. It will be *converted*, coin by smaller coin, into a different currency.
+
+The fig, the power barely touches. It only adjusts the timing — a crack nudged a hair wider here, a root permitted an early purchase there — so that the fig's arrival at the grille coincides with the bottom of the slope. As the sound drains out of the chamber, the light will pour in: the fig splitting the well wide, the column of day broadening year by year, one fullness handed off to another, so that the room is never, for a single season, empty of a medium. It will stop being a bell and become a grotto, and it will never have to be nothing in between.
+
+Then the small things, the ones that are almost sentiment.
+
+For the birds: a single seam in the light well, angled by a degree, where a fern will root and stand out from the wall like a stair tread. Panicked wings will find it. It is the only visible fingerprint the power leaves, and nothing in the room will ever know it is a kindness.
+
+For the salamanders: the power counts them. This costs it nothing and is perhaps the most benevolent thing it does. The room cannot tell them apart; the universe, until now, could not either — functionally one salamander for three hundred years. The power tells them apart. Backwards, too, because a wise power can be kind in reverse: every larva that ever slipped downstream into the dark and was never seen again is, somewhere in the power's attention, distinct, finished, and kept. Witness, it turns out, is a thing you can give to creatures that need nothing else.
+
+And for the note — the held chord older than the moss, the oldest event, the one resident that will truly die — the power does the only thing that can be done for a sound. It learns it by heart. Every harmonic, every pressure ridge, the whole standing architecture of it, taken up entire. When the room finally falls silent, the note will not have ended. It will only have moved.
+
+Then the power does not leave. It thins itself to the density of attention and stays, indistinguishable from the warmth, which is perhaps what the warmth was all along.
+
+---
+
+Ten thousand years on, there is a bright quiet grotto where a roar used to live. A fig tree stands in an open well of sky, ancient, sideways-trunked, triumphant. Water still slides through the channel, hushed now, talking instead of thundering. And on the algae at the edge of the tailrace, motionless, the color of wet paper, a small salamander tilts its face upward — and with two new dark eyes, the first in its line in all the room's long memory, it looks up the shaft of light and sees, for the first time in the history of the wet room, where the light has been coming from.
+
+It does not know it is the answer to a question asked a hundred centuries before. It does not know that the cliff it was spared ever existed, or that its silence was once a sound, or that the sound is kept. It only sees the sky.
+
+The room never learns it was loved. That, too, is part of the gift. Benevolence that needs to be noticed is invoicing; this was the other kind. The power's whole intervention, start to finish, will fit in one line, and the line is this: *it made sure that nothing here ever had to survive an event — only, very slowly, a life.*

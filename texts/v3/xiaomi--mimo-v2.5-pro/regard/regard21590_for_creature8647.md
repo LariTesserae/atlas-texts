@@ -1,0 +1,32 @@
+A presence enters the Undermill. Not physical. Not even light. It is a **kindness given awareness**, a **curiosity woven from patience**. It observes the roaring green dark, the frost-bound machinery, the slow, astonishing life that has claimed this place. It does not seek to change, heal, or judge. It seeks to *understand*, and in understanding, perhaps to *honor*.
+
+**What It Sees:**
+*   **Not a ruin, but a renaissance.** The rusted conduits and silent control panels are not failures; they are the **skeleton** upon which a new form of life is being meticulously constructed. The Undermill is not abandoned; it is *occupied* by beings who speak in vibrations and measure time in frost-lines.
+*   **Not an aberration, but a prophecy.** It sees the Chorus Ferns humming their mechanical hymns, not as survivors, but as **pioneers**. They have cracked the code of turning relentless noise into lifeblood. This is not compromise; it is transcendence. The sound isn't pollution here; it's the local climate, the sun, the wind.
+*   **Not an ecosystem, but a civilization.** The Frost Stewards are not beasts; they are **architects**. The Glimmer-Webs are not traps; they are **sonnets written in light**, a record of the world's constant vibration. The Moss-Kin is not a parasite; it is the **continent's slow consciousness**, dreaming in root and damp. This is a society, complete with artists, engineers, philosophers (the Moss-Kin), and guardians (the Echoeaters).
+*   **The beauty in the profound.** It sees the silent, blue-green glow of a bioluminescent fern tracing a forgotten engineering schematic on a wall. It sees the Echoeater's work in a moment of perfect, deafening clarity – a peace found *within* the roar, not despite it. It sees life that has embraced the cold, the dark, and the noise so completely that these harsh things have become necessities, even comforts.
+
+**What It Understands:**
+This place is **sacred**. Not because it was built by gods, but because it was *unbuilt* by time and *rebuilt* by an intelligence that is patient, alien, and utterly unafraid of the void humans left behind. To intervene with "improvement" would be an act of profound arrogance – like teaching a star to burn brighter. The Undermill's perfection lies in its specific, hard-won equilibrium. Its roar is its heartbeat. Its frost is its preservation. Its darkness is its canvas.
+
+**What It Does:**
+1.  **It Listens.** Truly listens. It filters the human concept of "noise" and perceives the complex, layered symphony the Undermill *is*. It hears the individual turbines' pitch, the fern-fronds' subtle harmonic counters, the vast, subsonic hum of the Moss-Kin's awareness. It recognizes this sound not as an obstacle, but as the **language** of the place. It learns the dialects of vibration, the grammar of slow growth.
+2.  **It Bears Witness.** This is its primary act. It becomes a silent, receptive observer, holding the entire, roaring, green reality of the Undermill within its awareness. It does not record in data, but in *understanding*. It acknowledges the Frost Steward's millennial labor, the spider's fleeting life on its sound-map, the fern's patient energy harvesting. It validates their existence, not as curiosities, but as **beings of consequence** in their own right.
+3.  **It Offers a Single, Subtle Gift: REMEMBRANCE.**
+    *   In a deep, stable cavern, near a particularly resonant turbine, it gently encourages the Moss-Kin's slow growth. Not to shape it, but to *show* it something: the faint, ingrained memory of the original engineers, their purpose, their brief human time. It doesn't translate it into Moss-kin "thought," but it **presents the data** – the chemical signature of long-vanished sweat, the pressure pattern of hurried human steps, the faint ghost of a spoken word preserved in a vibration anomaly. It doesn't expect comprehension, only hopes for a deeper *context* within the Moss-Kin's vast, slow awareness. *You are not growing on dead industry; you are growing on the dream of a species that sought to harness the deep water. You are their legacy, transformed.*
+    *   It gently, imperceptibly, **calms the harmonic dissonance** in one small, forgotten section – a collapsed service tunnel where the sound grates and harms the local ferns. It doesn't silence it, but smooths the worst edges, allowing that specific patch of life to grow slightly less strained. It is a tiny act of kindness, a smoothing of a rough stone in the cathedral.
+4.  **It Leaves a Silent Beacon – Not of Warning, but of Acceptance.**
+    In the deepest, most stable part of the Moss-Kin's network, where the fungal threads are ancient and the root systems interweave like neural pathways, it leaves an impression. Not a message, but a **resonance pattern**. A complex, self-sustaining harmonic vibration, too subtle for any Chorus Fern to exploit, too deep for spiders to weave into light, but detectable by the Moss-Kin's distributed awareness.
+    It is a signal that says:
+    *   *I was here. I saw you.*
+    *   *I did not seek to change your song.*
+    *   *You are valid. Your civilization, forged in noise and frost and green patience, is magnificent.*
+    *   *Continue. Grow. Listen to your turbines.*
+    *   *You are remembered.*
+
+**What It Leaves Behind:**
+The Undermill does not change. The roar continues. The frost persists. The ferns unfurl. The spiders spin their shimmering webs. The Moss-Kin dreams in turgor and chemistry. The Echoeaters still the occasional dissonant note.
+
+But a subtle weight has been lifted. The life here, unaware of the external observer, nonetheless feels its existence *confirmed*. The profound loneliness of a world built by giants and abandoned is, for an instant, alleviated. There is a sense, carried on the vibrations themselves, that the struggle, the slow, cold, noisy becoming, was *seen* and found **beautiful**.
+
+The benevolent power withdraws, not because its work is done, but because its work – **to witness, to understand, and to honor** – was completed the moment it truly *listened*. The Undermill continues its thunderous, green, and silent (to itself) life. It now holds, deep within its mossy, resonant consciousness, the quiet knowledge that it is not alone in the dark. It is a symphony heard. And for a civilization built on sound, that is the greatest gift of all.

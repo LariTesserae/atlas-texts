@@ -1,0 +1,11 @@
+The power arrives not as a wind or a voice but as a slight deepening of the light. For one long interval the white glare on the plateau softens into a pearled silver, and every salt fan and crystal edge holds the new tone without changing temperature. In that altered light the distributed life is seen whole, as a single slow thought that has been thinking itself across centuries.
+
+The power does three small things, each of them quiet enough to be mistaken for natural variation.
+
+First, it lengthens the pause between vent plumes by a few heartbeats. The extra interval allows the crystal plates on the basin-dwellers to finish one more layer before the next rush of vapor arrives. Over decades the plates grow one shade more opaline; the change is invisible to any eye that is not already the plateau’s own.
+
+Second, it nudges the angle of three hairline fissures so that a fraction more condensate reaches the surface each night. The additional moisture does not create new concentrations; it simply lets the existing gradients linger a little longer before they re-dissolve. In one shallow bowl this produces a salt fan whose branching pattern is fractionally more intricate, a record of the extra patience granted.
+
+Third, it touches the rusted iron of a single pipe joint and encourages the oxide to flake in a slightly different rhythm. Tiny iron ions now enter the water at a steadier rate. The chemical gradients deeper in the fractures use the ions to stabilize one more crystal face each season. Nothing grows faster; nothing reproduces. The equilibrium simply includes one additional tone in its long chord.
+
+Having done these things, the power withdraws. It leaves behind no sign except a minute shift in the way light returns to its former harshness: for a few mornings afterward the drips from the ledges fall with a softer resonance, as though the rock itself remembers having been regarded. Then the ordinary white glare resumes, and the plateau continues its single, patient crystallization exactly as before—only now, in one or two places, the crystals hold the memory of having been seen kindly.

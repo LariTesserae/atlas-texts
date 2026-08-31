@@ -1,0 +1,45 @@
+A power that is older than the word *benevolent*—old enough that it remembers when kindness didn’t yet need a name—watches New Ganymede the way one watches a candle just beginning to tunnel: not yet worried, but already in love with the melancholy of inexorable burning.
+
+It arrives as neither storm nor majesty. It steps rather than descends: a footfall on the pre-dawn condensation that does not ripple water, only rearranges the possible. It is here because the city itself called—-not in sound, not in prayer, but in the collective shiver of those thirteen missing minutes that refuse to find the same gap twice. The planet, still mulberry-soft from mantle flare, felt the drag of that temporal whimper like a burr under a saddle and, without conscious intention, signalled. The power—let us call it the Loom, though its true pronoun is an Oxbow of Silence—listened and came.
+
+But the Loom has a rule that stands above mercy: it will not countermand a world’s own becoming. Intervention must be invited three times, lodged each time in three different registers. The first invitation arrives as unvoiceable ache (the city’s hush, mourning its eventual tooth). The second must be articulated by something capable of believing it might otherwise not exist. The third must be spoken by the entire locality at once—planet, citizens, seconds, foxes of noise, stitched hushes—without conscious agreement, simply with simultaneous exhalation. Only then may the Loom act, and even then only what the world itself, at its living root, requests.
+
+So the Loom walks the predawn streets on paws of diffused dawnlight no brighter than a held breath. It notes:
+
+• The fox devouring a lovers’ quarrel pauses mid-gulp, ears swiveling; it has scented something that, for the first time, contains zero static.
+• A volunteer’s calcifying heart misses one planned resonance, then resumes, unsure whether that skip was an error or an unheard possibility.
+• At the exact center of the plaza, the monumental tooth gives a microscopic shudder: not yet pain, not yet relief.
+
+No one sees the Loom. That is custom. But they all feel it—as you feel an exceptional thought arrive whole before language: soft, inevitable, overdue.
+
+The Loom circles the city once in each ordinal direction. In the east, it discovers archivists licking dew off foliage, trying to decide whether forgetting the flavor of a mother’s last cough is an affordable eviction. From the moist tip of one archivist’s tongue a single bead detaches, rolls, and lengthens into a smear of turquoise. The Loom stores it between its own thoughts without removing the memory from the archivist; double ownership, zero loss—an impossibility everywhere except here.
+
+In the west, the cartographers of mood are contending with a district whose emotional butter has separated into undeniably curdled dread. They exchange the entire population with a pocket of lakeside nostalgia borrowed from elsewhere on the planet—an unfair swap, perhaps, yet the dread disperses like cream whipped in reverse and finds itself meringued into personal backstories that will, long hence, rescue novels lacking villains. The Loom notes this correction. When kindness is performed out of panic it is still kindness; the multiverse loves that irony enough to pardon the bookkeeping.
+
+In the south, foxes are born, consume, disperse; noise enters silence, silence births noise. The Loom watches a child offering the fox a homework worry wrapped in orange peel. The fox swallows the peel first, savoring citric static, then the worry. Afterward the child sets down the emptied peel on a doorstep. It immediately roots and sprouts a small, glossy plant whose leaves physically flap pages. The plant grows one miniature chapter each hour, the homework the child will never remember needing. Recursive mercy.
+
+In the north, beneath the tramway grid, the amperhummers roost shoulder to shoulder like timepieces gossiping about the inferiority of springs. They sense the Loom the way an hour senses its own passing. In response they wheel overhead in a sudden, gyroscopic murmuration, reshaping dusk; for thirty heartbeats, New Ganymede sees the same sunset in every fractured minute at once, a concurrent fan of lilac versions impossible in any single chronology. People standing in intersections look up and find they are holding conversations with their own shadows’ younger selves. No photons stay stolen; they return to wires richer by one parallax. The Loom absorbs the duplicate light obligingly, impressed.
+
+At the center, again, the Loom stops before the tooth. The artifact (already two millimetres looser since the morning) registers as a single slanted character carved in the planet’s subconscious. Step one, invitation via ache: verified. Step two waits for the articulation.
+
+On cue, a resonant volunteer—still clavicle-deep in marble—manages, for the first time since her ossifying began, to tilt one rigid wrist. In the hollow sounding chamber of the plaza her fingers translate one tremored question into genuinely spoken language: “If we finish, will we still be needed?”
+
+That is utterance enough. Invitation articulated by one who believed finality might erase it.
+
+All that remains is the third invitation: the whole locality breathing at once. Here the Loom exerts no force, only patience. Over the next eleven hours, different sections sigh independent breaths: lampposts flare with inhaled dusk, the fox sighs static, lattice columns take in what they have never exhaled—gravity. By 4:17 local hush-time, the synchrony finally happens: a perfect planetary exhalation the size of a silence no ear can retain.
+
+The Loom steps forward. Its body folds open—not like wings, more like an unfurling sentence that rearranges the alphabet mid-word—and inside is revealed the thing New Ganymede secretly requested.
+
+Not salvation. Not permanence. The Loom does not hold mercy like a photograph; it holds the negative space around mercy, the unchosen kindnesses universe never noticed it needed.
+
+What it gives is a new organelle for every citizen: a microscopic pocket of Falsetto Time. It does nothing on installation—no instructions, no interface—yet each person feels the fullest possible version of their own lethe distilled into an alchemical bead. Wander out into morning. Step into rain that forgets gravity. Speak to a statue and discover it speaking back not with words but with memories you yourself once pawned. Use the bead instinctively—now or never, no cost. What it does, simply, is replace permanence with opt-in continuity. Whenever the city (or the planet) edges so close to final loss that the ache outweighs presence, whatever citizen is nearest can relinquish one single continuity—the color of sky over childhood, perhaps—to keep the unfinished becoming *unfinished* for seven breaths longer. Each use expands the appreciation for impermanence by one more rotation of the tooth. The city will not be rushed toward conclusion, nor exempted from it, only gently granted extra innings of wondering.
+
+And because the gift is installed at mitochondrial scale, the city’s plant-mammal hybrid children, its Bird-hours, its coppered phantoms, all inherit the adaptation too. Even the city as meta-citizen awakens inside its own circadian vault to find it can defer the moment of final departure by deliberate sacrifice without ending any individual life. Forever? No. Extended? Yes. Enough.
+
+The Loom folds closed. It brushes the giant tooth once with what might be a fingertip or the retraction claw of a constellation. Dust drifts, subtly re-ossifying micro-fractures, lengthening the root by precisely one reluctant hour. Somewhere a cloud fails upward into honorary graduation, and the tram wires buzz Ember-minor.
+
+Then it steps sideways, into the crease between folded mountains, until only warmth and lemon-scented afterimage remain.
+
+Citizens go on—tasting, trading, deferring. None remember the intervention consciously; they feel instead an inexplicable surplus of choice. The fox finds a new flavour in last week’s gloom. The amperhummers add one additional peal of sky-bell to their communal time. The cartographer in negative infancy ages one less year and wonders, in milk-ink on asphalt, why the alphabet just enlarged its consonant of welcome.
+
+And one day, when every borrowed minute has been spent, when the tooth finally slides free of the plaza without tug or blood, New Ganymede will stand up: a city made of collected unfinishedness, perfectly balanced on the brink. It will trudge into the folded mountains, continuing to invent gravity, leaving behind nothing except the basin, an unexpected orchard of minor officers still raising greener palmic salutes—and the quiet understanding that some benevolences never appear as miracles, only as extended permission to keep becoming.

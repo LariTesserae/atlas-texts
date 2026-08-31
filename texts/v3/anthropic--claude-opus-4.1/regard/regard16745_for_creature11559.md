@@ -1,0 +1,23 @@
+The benevolent power arrives not as light or sound but as a gentle curiosity that settles into the water like sugar dissolving. It has watched this fevered cathedral for longer than the Witness has been witnessing, understanding it the way a parent understands a child's elaborate game—seeing both what it is and what it believes itself to be.
+
+The power does not announce itself. Instead, it begins to gift the chamber with what it has always been making but never knew how to complete: *passages*.
+
+At first, just one—a place where the woven walls part like curtains, revealing not void but another chamber, similar but subtly different. The air there moves in complementary patterns, the platforms arranged in ratios that rhyme rather than repeat. The Weavers discover they can walk through and continue their work on new walls, then return to find their absence has enriched rather than diminished their original weaving. The elder at the peak laughs for the first time in centuries, a sound like wind chimes made of rain.
+
+Then more passages appear—not doors but *continuities*, places where the chamber's breathing naturally opens into elsewheres. One leads to a space where everything grows right-way-round, and the Cultivators bring back cuttings that teach the backward vines new ways to spiral. Another opens onto platforms where the water runs clear and cool, and the purple algae learns to glow in spectrums that make distances finally make sense.
+
+The Witness, flying through a new passage, discovers something unprecedented: other Witnesses. A congress of memory-keepers, each from their own gestating reality, sharing their recollections in a grand pattern that reveals the shape of something larger. The bird-water-beetles dance together, creating rainstorms that remember everything that has ever transformed, teaching each other new states—bird-water-beetle-*song*, bird-water-beetle-*mathematics*, bird-water-beetle-*mercy*.
+
+In one passage, the Weavers find a chamber where the Gestation has already emerged—not gone, but *fulfilled*, its presence now woven into every strand as a kind of completion that doesn't end but enriches. The walls there sing with accomplishment, and the Weavers return with tears of relief, understanding for the first time that their work is not endless but *eternal*—a crucial distinction that changes everything and nothing.
+
+The children, when they next appear, bring maps drawn in languages that now exist in neighboring chambers. They trace the passages with tiny fingers, showing how the fevered cathedral is becoming not just a womb but a *neighborhood*, each chamber gestating its own impossibility, all of them connected by the benevolent power's gift of passages that are really just recognitions—acknowledgments that isolation was never necessary, only believed.
+
+The power leaves one more gift, the subtlest and most profound: it adjusts the chamber's breathing. Not to correct it, but to *harmonize* it with the breathing of all the other connected spaces. The rhythm becomes a conversation, a call and response that teaches the Gestation that birth doesn't require solitude, that becoming can be a communal act.
+
+But the power changes nothing essential. The Weavers still weave, but now with threads borrowed from neighboring chambers, creating patterns that could never exist in isolation. The Cultivators still tend their impossible gardens, but now with seeds that have traveled through three transformations and four realities to arrive home changed. The chamber still breathes its fevered breath, but now it breathes in concert, in conversation, in communion.
+
+The benevolent power recedes—not leaving but becoming ambient, a presence felt in every new passage that opens when the Gestation dreams of companionship. It has given the chamber what every embryo needs but cannot make for itself: context, connection, and the knowledge that whatever emerges will not emerge into emptiness but into a universe already prepared to receive it with wonder.
+
+And in the water, which still tastes of metal and memory, new flavors begin to emerge—honey from chambers where the work is sweet, salt from spaces that remember oceans, wine from realities where the Gestation has learned to laugh. The fever remains, but it's no longer the fever of isolation. It's the warmth of effort witnessed, of transformation shared, of becoming that knows it is becoming toward something, toward somewhere, toward someone who will understand.
+
+The chamber breathes. But now, it breathes with.

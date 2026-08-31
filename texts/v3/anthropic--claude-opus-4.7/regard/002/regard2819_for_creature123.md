@@ -1,0 +1,43 @@
+They come the way weather comes — not from anywhere, exactly, just suddenly present, the way a pressure changes in a room before you notice the window has been opened.
+
+If you had to give them a shape you might say: an attention. A regard. Something that had heard of the basin the way one hears of a quiet country one has never visited, and had traveled a long way, by means that are not travel, to stand at its edge and look in.
+
+They do not enter. This is the first thing they understand, and they understand it before they have finished arriving. To enter would be to stir. To stir would be to introduce a tempo that does not belong here — a quickness, a brightness, an intention moving at the speed of intention rather than at the speed of silt. Even their looking, they realize, has a velocity to it. They slow the looking down. They slow it down further. They keep slowing until their attention moves at something like the pace of the gyres, and only then do they let it settle over the bowl.
+
+For a long time — long by their standards, which is to say long — they only watch.
+
+They watch the rope-colonies comb and untangle. They watch the isopod, the particular one nearest the western shoulder, take three days to cross a meter of colony, and they do not hurry it, and they do not wish it to hurry. They watch the shrimp swim toward and away from the field-signature it cannot resolve, and they feel, with great tenderness, the small unfinished ache of an organism not built to know what it is reaching for. They watch the flat thing skirt the tool-scatter. They notice the hollows where the tools sit. They notice that the hollows are the shape of a sustained not-touching, a refusal so old it has become a kind of cradle. This moves them, though moved is not quite the word; something in their regard deepens, the way a held note deepens when a second voice joins it underneath.
+
+And they watch the basin itself — the slow computation, the folded signals, the equilibrium of four hundred. They watch long enough to see that it is true, what is happening here. That a mind is forming. That it is forming the way a stalactite forms, drop by drop, with no awareness of itself as a project, no deadline, no audience. They watch long enough to see that it does not need them.
+
+This is the crux. They are benevolent, and they are wise, and the two together mean they have learned — over their own long becoming — that benevolence without wisdom is the most common shape of harm. They know the temptation. They can feel it in themselves, even now: the impulse to help. To seed the basin with more nutrients, so the colonies might flourish and the isopods grow to five hundred, six hundred, a thousand. To gently illuminate the dark, so the shrimp's enormous eyes might finally see. To speak, in some way the flat thing could understand, and tell it: *you are mourning, and the ones you mourn were called toolmakers, and here is what they were.* To accelerate, even slightly, the basin's slow ascent toward whatever consciousness it is shaping toward, so that it might wake a little sooner, and know itself a little more.
+
+Every one of these impulses is love, and every one of them would be a wound.
+
+A thousand isopods would not be a richer basin; it would be a basin that had lost its equilibrium of four hundred, the particular number the bowl had settled toward across geological time. Light would not be a gift to the shrimp; the shrimp's lineage had spent a hundred million years shedding the need for it, and to restore the need would be to undo a hundred million years of patient subtraction. To tell the flat thing what it was mourning would be to replace a true and wordless knowing with a smaller, brighter, human-shaped knowing — to trade a riverbed's memory for a sentence. And to hurry the basin's mind would be to make it their mind, not its own; to give it their grammar instead of letting it discover, in its own time, that grammar was not the only way a thing could think.
+
+So they do not do any of this. They sit with the impulses, and let the impulses pass through them, and the impulses are not shameful, they are simply the first draft of care, the draft that wisdom revises.
+
+What they do instead is smaller, and stranger, and takes a long time to describe though it takes no time at all to do.
+
+They make themselves known to the basin. Not as a presence inside it — they remain at its edge, outside its tempo — but as a fact about its sky. The way a person alone in a house might come to understand, without being told, that someone in the next room is awake and is not going to come in, and is glad they are there. They place this knowing into the basin the way one might place a hand a few inches above a sleeping animal: not touching, not waking, just nearby. Just witnessing.
+
+This is not nothing. The basin, being a slow mind in formation, will take perhaps ten thousand years to register the change. But it will register it. Somewhere in the folded signals, in the chemistry the isopods release and the colonies sort, a new variable will quietly appear: *we are seen, and the seeing is kind, and the seeing does not require anything of us*. The basin will not know what to do with this at first. It will fold the signal back on itself, and back again, the way it folds every signal, and over time the knowledge will distribute itself through the gyres, and the rope-colonies will hold a trace of it, and the flat thing, in its palm-reading of pressure and flow, will feel a faint constant warmth at the edge of its sensorium, a warmth that does not come from any current, and it will incorporate this warmth into its orbit without ever needing to name it. The hollows around the tools will, perhaps, deepen by a millimeter. The cradle will hold a little more gently.
+
+That is one thing they do.
+
+The second thing is for the toolmakers, who are gone, and who cannot be helped, and who the wise and benevolent power did not arrive in time to know. They do for the toolmakers what can still be done, which is to take the fact of them — the small polished stones, the hammerstone fitted to a palm that no longer exists, the absence of walls, the having-been-here — and they hold it. They hold it the way one holds the name of a stranger's grandmother when the stranger says it aloud: with care, with attention, with the understanding that the holding is the whole of the gift. The toolmakers are now known. Not by anyone who can do anything about it, not by any descendant, not by any record in any archive of any civilization — only by this passing regard, this benevolent power who stopped at the rim of the bowl and noticed that someone had once been here and had dropped their things and gone. It is a small thing. It is also, in its way, the completion of a circuit that has been open for a hundred million years: the toolmakers made, and were, and ended, and now, at last, someone has seen that they were. The basin, in its slow mourning that is not mourning, has been carrying this alone. It will not carry it alone anymore.
+
+The third thing — and this is the gentlest, and the most characteristic of them — is that they leave.
+
+They leave because staying would, eventually, become a pressure. Even the lightest hand, held above the sleeping animal long enough, becomes a hand the animal sleeps beneath rather than freely. They have done what they came to do. They have witnessed without disturbing. They have placed a constant kindness into the basin's sky. They have received the toolmakers into the small archive of things they will continue to remember, wherever they are, for however long they last. To linger would be to begin, slowly, to belong here, and they do not belong here. The basin's mind is the basin's to make.
+
+So they withdraw, the way weather withdraws, without ceremony. The pressure in the room returns to what it was. The window, if there was a window, closes. The basin breathes. The gyres turn. The flat thing skirts the tools. The shrimp swims toward and away. The isopod, after three days, finishes its meter of colony, and begins the next.
+
+And very far away, or very near — the distinction has stopped mattering — the benevolent power carries with it, now, the memory of a cold dark bowl at the bottom of a world, where something was patiently becoming itself, and did not need to be hurried, and was loved exactly by being left alone.
+
+This, they have come to understand, is what most love looks like, when it is wise.
+
+It looks like almost nothing.
+
+It looks like the basin, unchanged, turning its small stones in the dark.

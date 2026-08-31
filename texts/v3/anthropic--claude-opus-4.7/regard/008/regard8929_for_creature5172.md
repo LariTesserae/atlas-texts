@@ -1,0 +1,29 @@
+The Power considers the basin for a long time before doing anything at all.
+
+This is the first thing worth saying. It does not arrive with intention already formed. It arrives, rather, the way mist gathers on a cold pipe — slowly, by accumulation, drawn by something already present. What draws it is not pity. Pity would be a misunderstanding. The basin is not pitiful. It is only itself: low, hot, damp, and full of small lives whose days are complete inside the span of a drip.
+
+So the Power watches. It watches a single lizard for what would be, by human reckoning, three afternoons. It watches the lizard strike, miss, strike again, swallow, rest. It watches the iridescent film on a puddle thicken and thin. It watches a rodent lose its tail and continue. It watches the tail, separated, twitch once and then stop, and it watches the ants find the tail before the next bead of condensation falls.
+
+A lesser power — a power that was wise but not yet benevolent, or benevolent but not yet wise — might at this point begin to fix things. It might green the basin. It might call rain that was not metallic. It might lift the sagging roofs, restore the cranes, draw the absent voices back into the avenues. It might, with a gesture, replace the small hard lives with softer, larger, more legible ones. It might decide the basin was a wound and close it.
+
+This Power does none of those things. It has watched long enough to understand that the basin is not a wound. It is a late chapter, and the chapter is being written competently by its current authors — the lizards, the hard-shelled insects, the nearly-blind rodents, the patient fan. To overwrite the chapter would be to mistake one's own discomfort for the world's.
+
+But benevolence is not the same as non-interference. Benevolence, in a power that is also wise, is more particular than that. It looks for the place where a small adjustment honors what is already happening rather than replacing it. It looks for the gift that the receiver would, if they could speak, recognize as theirs.
+
+So the Power does, eventually, four small things.
+
+The first: it steadies the fan. The fan that has not yet failed — the one whose distant mechanical wheeze threads the avenues — will not fail now. Not forever; nothing is forever; but for a long time yet. The rodents who navigate by its scent-current, the insects who orient by its faint vibration through the conveyor housings, the lizards who have learned that its draft means a particular kind of moth at a particular hour — all of them have built their lives partly around this sound. The Power does not announce the gift. It simply tightens, by a degree no instrument could measure, the bearing that was about to give. The wheeze continues. Nothing in the basin notices that anything has been done. This is correct.
+
+The second: it adjusts, very slightly, the slope of one cracked pavement plate near the western switchyard. The adjustment is on the order of a grain. But it is enough that when the next sheet-flow comes, water will find a new low point in the shadow of a particular leaning wall, and a new seam will weep there, and within a season a new cluster of activity will form around it — a small pocket of lives that would not otherwise have existed. The Power does this not because the basin needs more lives. It does it because the basin is the kind of place that makes lives out of whatever water reaches it, and to offer it one more thread of water is to speak to it in its own language. It is a sentence in the dialect of seepage. The basin will answer in kind.
+
+The third is harder to describe. The Power notices that among the rodents there is one — not special, not chosen, simply one — whose nest has grown too warm, and who will scatter soon, and who will not survive the scattering. The Power does not save it. To save it would be to mistake the rodent for something other than what it is: a body whose completeness includes its ending. But the Power does, in the moment the rodent leaves the nest, hold the moment. Not stop it. Hold it. The rodent's last minutes are not lengthened, but they are witnessed — fully, without flinching, without sentimentality, by something vast enough to contain them and patient enough to let them be exactly their own size. The rodent does not know it is witnessed. This also is correct. The witnessing is not for the rodent's benefit in any sense the rodent could use. It is simply that a wise and benevolent power, encountering a small life ending in a wide indifferent place, declines to let that ending pass unaccompanied. It is the smallest possible courtesy. It costs the Power nothing and changes nothing, and it is, perhaps, the truest thing the Power does in the entire basin.
+
+The fourth thing the Power does is leave.
+
+It leaves cleanly, without residue, without having installed itself as a presence the basin must now account for. It does not become a god of the place. It does not leave a sign. It does not arrange for its return. The basin continues — hot, damp, busy with small ordinary lives moving through the settled remains of larger ones — and now also, though no one and nothing there will ever know it, briefly loved. Not rescued. Not improved. Loved in the specific way that wisdom loves: by looking carefully, by touching lightly, by trusting the thing to go on being itself.
+
+The fan wheezes. A bead condenses on a roof joint and falls. A lizard, on a slab that still holds yesterday's warmth, retreats inside itself between one insect and the next.
+
+The sky stays heavy. The basin breathes through its thousands of minute, ordinary mouths.
+
+Somewhere, the Power is already turning its attention toward another place, drawn by another slow accumulation, ready to watch for a long time before doing anything at all.

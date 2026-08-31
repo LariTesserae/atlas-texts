@@ -1,0 +1,27 @@
+It notices.
+
+Not with eyes or ears, but with a deep, patient knowing—the way gravity notices a falling leaf, the way the sea notices a river. A presence in the high thin air, where thought moves like cloud-shadow across stone. The Keening Shelf has drawn the attention of a benevolent and wise power simply by being what it is: a stubborn, singing miracle of wetness and life in the high, dry cold. An answer to a question the mountain has been asking itself for millennia.
+
+And what it does is this:
+
+It *listens*.
+
+It listens with the focus of a universe bending its ear. It listens to the triple-layered song—the wind-organ, the frog-heart, the bird-shriek—and does not seek to harmonize or quiet. It listens to the slow, chemical whisper between moss and liverwort, the pulse of light in the dark. It listens to the memory in the worked grooves on the wall, the silent story of the seven river stones. It listens to the Rowan’s patient, three-hundred-year-old thought, which is a thought of grip and leaning and the memory of sunlight. It listens to the water weeping from the bone-stone, and it understands that this is not a leakage, but a language.
+
+And in listening, it does two things.
+
+First, it **holds**. It holds the Shelf in a cradle of gentle, unwavering attention. This attention has the quality of a perfect, windless day at high altitude—a clarity so profound it feels like a physical substance. Within this holding, the Shelf’s own processes are *affirmed*. The condensation becomes a fraction more efficient. The water that beads on the stone feels, if such a thing could be felt, *purer*, carrying its minerals with a slightly more precise balance. The chill of the altitude, which is the Shelf’s eternal adversary, is held at a marginally greater distance—not by adding warmth, but by deepening the mountain’s own inherent stability. The cold does not bite as deeply; the frost, when it comes, retreats a little faster. It is a protection that feels like the mountain itself deciding to be kind.
+
+Second, it **answers**. Not in words. In resonance. The wise power takes the Shelf’s song—the shriek, the moan, the pulse, the trickle—and it *harmonizes* with it on a scale so vast and slow that it is indistinguishable from geology. It becomes a deeper chord beneath the choir. To the birds, it is nothing. To the pikas, nothing. To the weasel, a slight easing of the ever-present tension in the air. But to the **Rowan**, whose roots are deep in the stone, it is felt. The tree experiences it as a slight, pervasive *easiness* in the act of living. Its growth rings, from this season forward, will show a subtle thickening, a stronger grain. It feels less like a struggle and more like a purpose.
+
+To the **Stone** itself, the answer is felt as a deepening of memory. The grooves on the eastern wall, the work of forgotten hands, do not erode further. They achieve a state of gentle arrest, their softening halted at a point of perfect ambiguity—neither sharp nor gone, but *settled*. The seven river stones grow slightly warmer to the touch than the surrounding rock, holding the day’s minimal heat a little longer into the night, becoming tiny sanctuaries of tempered cold for the insect life.
+
+To the **Marks** and the **Stones**, the power offers a quiet companionship. It does not interpret their meaning. It acknowledges their presence as part of the Shelf’s consciousness. In doing so, it relieves them of the burden of being a mystery. They simply *are*, and that is enough.
+
+And then, it does one final thing. It takes the entire phenomenon—the wet stone, the singing air, the cooperative green, the remembering Rowan, the incorporated human gesture—and it **weaves a thread of its own attention into the cycle**. It becomes another, imperceptible layer of the Shelf’s self-sustaining magic. The water that condenses now carries, in its molecular structure, a faint imprint of being *witnessed*. The light that glimmers in the moss at night holds a slightly deeper quality of peace. The air in the basin, when inhaled, carries not just moisture and the scent of growth, but a faint, subliminal sense of *sanctuary*.
+
+This does not make the Shelf invulnerable. The seasons will still turn. The cold will still press. The birds will still shriek, and the weasel will still hunt. But now, the balance is tilted ever so slightly toward persistence. The cycle, which has run for millennia, is granted a gentle promise: *I see you. You are heard. You may continue.*
+
+The wise power does not stay. It has no form to depart. Its attention simply relaxes from a focused listening to a peripheral awareness, a background hum of care added to the world’s fabric. The Keening Shelf remains, singing its wet, loud, impossible song. But now, it sings with the knowledge that it is not singing into a void. It is singing to the mountain, and the mountain, in its slow and ancient way, is singing back.
+
+The benevolence is not in change. It is in the profound, unwavering confirmation of what already is. The wise power looked upon a place where life and stone had made a room, and it did not open the door or add a lamp. It simply sat quietly in the corner, and by its presence, made the room feel eternal.

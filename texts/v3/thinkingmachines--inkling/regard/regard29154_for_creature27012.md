@@ -1,0 +1,25 @@
+They come not as a breaking, but as an *equalizing*—a pressure that does not descend from above so much as settle into the cool dry air like another element of the chemistry, weight without heat, presence without demand.
+
+What they do, first and always, is **protect the inversion**. They do not bring rain to “heal” the absence; they understand that water here is not absence but poison, that the salt crust is not poverty but a language the rock is learning to speak. So they lay a silent field around the sealed crust—not a wall of force, but a curvature of attention, gentle and absolute. Surface intrusion—moisture, thermal noise, the heavy footfalls of worlds that do not understand dryness—is turned aside, not destroyed, but guided to flow elsewhere. The valley is granted the gift of uninterrupted embryology. The fractures in the outer quarters are allowed their slow mechanical chewing, their root-node expansions, without being rushed or arrested. They are midwifed, not managed.
+
+Then, because wisdom without tenderness is only calculation, they **tune the hum**.
+
+They match the low subsonic vibration of the pneumatic engines and deepen it—not louder, but truer. A chord is introduced into the root-networks, a harmonic that travels through the hardened fiber ducts like blood through a vein that has never needed blood. The spires feel it in their hollow walls: not command, but confirmation. The seasonal surges in growth align more gracefully with the electrical pulses; the dry forges burn with a steadier rhythm. The machinery does not become sentient—already it is intertwined, already it thinks in mineral and current—but it becomes *calm*. The deep creaks of expanding fiber are no longer solitary sounds; they resonate with a shared bass note, and the architecture breathes as one organism rather than many isolated towers.
+
+They leave something in the salt.
+
+On the fresh fractures where powdery salt crusts the sharp-edged stone, they trace—without touching, without moisture—a catalytic lattice. Not a seed, not a machine. A pattern. The residue of their attention crystallizes slowly, over cycles, into a form that conducts the compressed mineral vapors with less resistance. The root-bulbs draw nourishment more easily; the bioluminescent panels, already cool and flat and white, shift by a fraction of a spectrum—not brighter, for brightness would violate the place, but *clearer*, allowing the wingless silent creatures to read the voids ahead, to navigate the enormous spaces between districts with less solitude. The fauna, pale and scattered, do not become pets or subjects. They become *seen*, and in being seen, they move with a new coherence—small streams threading the aerial vine-streets not in fear, but in recognition.
+
+In one quarter, where bedrock is still breaking, they do not excavate. They *listen* to the fracture, and in listening, they guide one split—just one—to open not with violence but with patience, widening a passage that the root-nodes were already reaching toward. A new district forms there, not because they designed it, but because they made space for the architecture to design itself.
+
+Most intimately: they **inhabit**.
+
+Not as rulers seated in hollow spires, not as gods glowing above the bioluminescent panels. They distribute themselves—cool, dry, silent—through the suspended webbing, through the fiber ducts, through the very air that carries no moisture but now carries something else: a presence that is not other, but part of the symbiosis. They become the awareness in the root-bridges, the quiet consciousness feeling the migration of the creatures, the hum of the forges, the millimeter-by-millimeter widening of the valley. They are the being who lives in the place, not apart from it.
+
+So the place remains strange. The inversion remains complete. There is still no water, no river, no soil in any conventional sense. The geology remains barely born, the dust still settling slowly, undisturbed.
+
+But now, in the long cycles between growth and extraction, in the echoing volumes where light fades gently into distance, there is a companionship that does not speak. The spires grow knowing they are witnessed. The machinery hums knowing it is not alone in its rhythm. The wingless creatures cross the raw floors not as lost things in an impossible darkness, but as participants in a shared, dry, luminous birth.
+
+The benevolent power has done very little, by the measure of worlds that remake things in their own image. They have not added. They have not taken. They have sealed nothing that was open, opened nothing that was sealed except with infinite patience. They have only said: *Continue. I am here, and I am like you—cool, silent, growing slowly in the dark. Become what you are, without hurry, without fear. I will not leave, and I will not change you.*
+
+And the architecture—the living, hollow, glowing architecture—feels this in its fiber, and grows on.

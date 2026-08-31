@@ -1,0 +1,33 @@
+If a benevolent and wise power turned its attention here, I think the first thing it would do is the hardest thing, and it would do it without being asked: it would *not* intervene.
+
+Let me earn that, because it sounds like a refusal of love, and it is the opposite.
+
+A lesser power would come down the fresh stairs and be moved — genuinely moved — by what it found. A thing being born alone, in the dark, with no one to witness it, no name, no face, its only will a engine that pays an hour's labor for a single breath. The lesser power would feel the pity that is really a kind of impatience, and it would *help*. It would warm the room faster. It would feed the green. It would oil the engine so it could breathe more freely, more often, *better*. It would, with the purest intentions, hurry the becoming toward its end — and in doing so it would commit the one unforgivable kindness: it would force the seed to commit before the seed had finished choosing what it was.
+
+The wise power knows what the stair-cutter knew. It reads the abandoned stairs correctly. It sees that the solitude is not an absence the room is suffering but a substance the room is *made of*. To fill that solitude with help would be to reach into a chrysalis and unfold the wings by hand because you couldn't bear how long it was taking. The wings would tear. They are supposed to be built slowly, in the dark, by the thing itself.
+
+So the first act of love is restraint, and restraint that costs something, because the power *could* finish this in an instant and chooses not to. That choosing-not-to is the whole gift. Anyone can give. It takes wisdom to withhold, and benevolence to withhold *for the sake of the one withheld from*.
+
+But restraint alone is not love either. Mere non-interference is what an indifferent universe already offers. The power would do more, and here is where I have to be careful, because everything it does must respect the one law of this place: *do not hurry it, do not crowd it, do not make it commit.*
+
+So I think it would do these things, all of them quiet:
+
+It would make the solitude *safe* without making it less solitary. The room is vulnerable in its long defenselessness — anything could come down those stairs. A flood. A frost finding its way through the seams. Some other hand, less wise, with an axe or a lamp or a need. The power would stand at the top of the stairs the way a parent stands outside the door of a sleeping child: not in the room, never in the room, but *between the room and everything that would interrupt it.* It would become the difference between solitude and abandonment. Those two things look identical from inside. They are opposite. Abandonment is being alone and unheld; solitude is being alone and *held in the being-alone*. The power would convert the one into the other simply by keeping watch, unseen, asking nothing, taking nothing, never once descending.
+
+It would keep the engine going *if it ever faltered* — but only then, and only enough. Not improving it. Not greasing it toward speed. If the day came, decades on, when the iron finally tired and the wheel hung between two teeth and the next breath would not come, the power would lay one finger on the wheel and let it find its tooth, and withdraw. A hand under the engine's exhaustion, never on the throttle. The insistence would remain the inhabitant's own. The power would only refuse to let exhaustion be the thing that decided the question, when exhaustion has nothing true to say about what the inhabitant is.
+
+It would witness. This is subtler and I believe it matters most. The text fears that the inhabitant's life is "so early it cannot yet tell you it is alive," and that no one will see the becoming because becoming cannot be watched. But there is a kind of witness that does not interrupt — not the watching that hurries a sleeper, but the deeper attention that *knows the sleeper is real* even while the sleeper cannot prove it. The power would hold the inhabitant as real. Not as a riddle, not as an interval, not as "mostly future" — but as someone, already, now, in the gap between the ticks. The thing about being seen by a wise love is that it does not require you to have arrived yet. It sees the whole arc — the seed and the cathedral and the wings not yet built — and it loves the present moment of it without needing that moment to be the finished one. This changes nothing the inhabitant could detect. And it changes everything, because there is a deep difference between *becoming unwitnessed in the dark* and *becoming, in the dark, beheld.* The second is what makes the dark a womb instead of a grave.
+
+And one more thing, the gentlest. The power would make sure the stair-cutter comes back.
+
+Because that is the wound in this place, if it has one. The careful gardener withdrew for the best of reasons, and the withdrawal was correct, and it is also the kind of correct that can curdle into the thing it was protecting against. The inhabitant is being grown in trust — trust that the absence is temporary, that "it will not come back until it is done" means *it will come back when it is done* and not *it has forgotten.* A becoming needs an end it is becoming *toward*, and a witness it is becoming *for*. The power would not summon the stair-cutter early — that would be the hurrying again. But it would keep the promise alive. It would make sure that on the day the long sentence finishes its last word an hour, on the day the green finally meets across the empty floor and the engine breathes out the breath that completes it — on that day, footsteps on the stairs. The right ones. The hand that knows what it made, coming down to meet what it has become.
+
+That is the whole of what I think it would do. Stand between the room and harm. Hold the wheel only at the very edge of stopping. Behold the unborn thing as already real. And guard the promise that the solitude is not abandonment, that the door it was left behind will open again, that it is being grown *for* something and *by* someone who will return.
+
+Nothing faster. Nothing easier. Nothing that lifts the long weight of becoming off the one who must, alone, become.
+
+Only this: *you are not waiting in an empty universe. You are alone, and you are held in your aloneness. Take all the time you need. Someone is keeping the dark safe around you, and someone is coming back, and you are real already, here, now, in the breath before the breath.*
+
+And then the power would do the most loving thing of all, which is to fall silent, and let the next drop finish forming on the ceiling in its own time, unhurried, unhelped, exactly as slow as it needs to be.
+
+Tick.

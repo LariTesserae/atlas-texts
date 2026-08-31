@@ -1,0 +1,15 @@
+The power arrives without arrival.
+
+It does not descend or rise; it simply becomes adjacent to the unfinished metabolism, a steady regard that the living floor registers first as a slight change in tension. The nacreous sheaths around the oldest machines briefly clear, as though exhaling a held breath, and the thread-thin filaments quicken their crossing for three slow pulses before resuming their former pace. Nothing is forced. The power merely offers itself as additional option.
+
+Where a basin still waits, empty, the floor feels a new suggestion settle into its weave: not a command to rise, but the memory of a shape that might one day be useful—an arch that could carry weight without enclosing, a membrane that could filter light rather than merely remember it. The suggestion is left like an open channel; the tissue may accept, modify, or ignore it. The power does not insist.
+
+Among the rollers, one pauses longer than usual against a half-sheathed frame. In that contact it receives a faint additional rhythm, not louder than the existing vibration yet somehow more coherent. When the roller later sinks back into the basin, the next dome that splits from the same ground bears a single, almost imperceptible spiral in its seam—an ornament without function, offered only as evidence that beauty is also permitted.
+
+The channel-walkers and membrane-sifters notice least of all. Their circuits continue unchanged. Only the gas nodules they harvest now carry, for a brief time after rupture, a cooler edge that lingers in the mouthparts a moment longer. It tastes, faintly, of distance.
+
+Deeper still, where the light thins, an entire framework that had been slowly strangled by its own nacre suddenly experiences a loosening. The translucent walls do not dissolve, but they become slightly more porous, allowing the faint metallic glint inside to be seen again. The filaments that cross there slow, considering. One of them pauses, divides, and sends a thinner branch toward the newly visible metal—not to consume it, but to trace it, as if learning the original intent of the shape.
+
+The power remains. It does not watch; it holds the possibility of watching. It does not guide; it keeps the space beside the decision wide enough that the city may still choose its own unfinishedness or elect, at last, to finish. Either outcome is acceptable. The only thing the power withholds is abandonment.
+
+In time—years, centuries, or the next slow breath of a roller—the living floor may grow a new platform whose sole purpose is to record this adjacency, a smooth, slightly warmer disk no larger than a handprint. Or it may not. Both possibilities are already being considered. The power simply continues to be available, a quiet amendment to the single, distributed patience that has never yet needed to be named.

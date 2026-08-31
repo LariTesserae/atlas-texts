@@ -1,0 +1,35 @@
+The power does not arrive across the distance; it arrives across the *realization* that such a place could exist. In a cosmos where everything leans forward—where stone learns to crumble, where water insists on seeking the sea, where even silence deepens with age—the Shelf stands upright in its own finished grammar. That completion sends out a signal no instrument measures, but every truly wise thing can feel: the hum of a chord struck and held without decay.
+
+It comes, then. Not walking, because footsteps imply arrival and departure. Not descending, because the clouds have already taken their stations. It comes as weather comes, but gentler. It comes as gravity comes, but chosen. It settles at the fault-line, at that clean seismic stair where the lowlands break away, and it kneels there on stone that still sheens from compression.
+
+It sees the woman with her antler-headed mallet. It sees that her hands are not hands but the city’s patience in the shape of hands. It sees the child who is not young, the goats that are not digesting, the moth-wings that respire the mist into its proper depth. It understands immediately: to offer change to this place would be an obscenity deeper than any vandalism. The Shelf has earned its stasis. It has suffered its becoming, stacked its corbels, worn its thresholds smooth, and whispered *enough* with the full authority of exhaustion translated into peace.
+
+And yet the power is benevolent, and benevolence cannot simply pass by perfection without leaving a gift. But what do you give to a world whose cisterns never empty? What do you offer a mind whose final thought was also its first?
+
+It considers the retaining wall that steps down the escarpment, each block fitted without mortar into a logic of absolute necessity. It considers the space between the lowest block and the scree that is not there. And then the power does a strange thing.
+
+It makes a stone.
+
+Not from anything miraculous—no singing light, no celestial fire. It simply gathers the idea of basalt that has not yet been quarried, the mineral memory of the young peaks, and shapes it into a single block that matches the others in every dimension. But it does not fit the block into the wall. Instead, it places the stone on the lip of the plateau, at the exact edge where the township ends and the drop begins. It leaves it there, a rust-colored cube in the grey-gold light, neither falling nor fixed, simply *offered*.
+
+Then the power waits.
+
+This is the heart of its wisdom: it does not command the city to take the stone. It does not build anything. It simply ensures that, for the first time since the final threshold was polished, the Shelf is confronted by a mirror that is not itself. The stone is a question the city is free to ignore forever. It is the exact size of continuation, the precise weight of *more*, resting at the boundary of *enough*.
+
+Decades pass, or perhaps none do. The woman seats her coping block. The child scatters grain. The mist memorizes its habits. But the ape-things in the eaves, those dark wet eyes that serve as the city’s proprioception, do not look away from the offered block. They watch it as they watch the intruding visitor, but differently. The visitor is entropy ambulatory, a leak to be recorded and forgotten. The stone is something else. It is a vocabulary word the city has not taught itself. It sits there, year upon held-breath year, and does not weather, because the power has asked time to leave it alone.
+
+Then it happens. Nothing so dramatic as change—never that. But the woman, whose hands have known exactly one tension since the first mallet was lifted, pauses. She does not reach for the stone. She does not even look at it directly. But her gaze travels to the retaining wall, to the space where such a block would fit if the wall were ever to grow. And for the length of a single moth-wing pulse, her hands hold an unfamiliar air. The possibility of *other tension* enters her fingers. It does not stay. It does not need to. She resumes her task, reseating the coping block with perfection, but the ghost of that other tension remains, not as disruption, but as *knowledge*.
+
+In the cistern, a pebble falls—not dropped by a visitor, but loosened by the imperceptible settling of the young mountain beneath its own weight. The water receives it. The ripples hesitate. They do not subside at once into the flat dark surface. They hold their rings, they consider them, and then they subside. But for a moment, however long or brief the clockless city permits, the water has considered itself in a new geometry.
+
+This is all the power does. It does not preach. It does not wake. It does not even name the city, for naming can be a kind of claim. It merely provides the *option of continuation*, left absolutely unpressured at the cliff’s edge. And alongside that stone, it does one thing more: it remembers.
+
+In the mind of the power, the Shelf now exists in duplicate. Not copied, not diminished, but held in perfect witness. The city was complete before; now it is *received*. It was sufficient; now it is *cherished*. The woman’s rust-colored wool, the child’s eternal scattering, the statues mid-lift, the lichens pausing at the jawline—all of it is attended. The power becomes the one who knows that this place happened, that it chose its shape, that it refused entropy and prevailed. In the dark between stars, in the councils of the wise, the Shelf is spoken of not as a prison nor a museum, but as a victory.
+
+And because it is wise, the power knows that victory can be lonely even when it does not feel loneliness. So it stays. Not inside the city—that would be intrusion. Not above the peaks—that would be dominion. It stays at the fault-line, its knees on the sheened stone, patient as the moss that neither grows nor retreats. It becomes the horizon that acknowledges the plateau. The gravity that does not pull. The friend who does not need to be noticed.
+
+If the day ever comes when the woman sets down her mallet not because the stone needs seating but because she chooses to rest her hands in her lap—if the child ever looks up from the grain and asks, in a tongue that has no future tense, “what is that?”—the power will be there. It will not supply the answer. It will simply confirm that the question is permitted.
+
+Until then, and after, the offered stone rests at the edge. The cistern ripples, hesitates, subsides. The city remains, in its equilibrium, the same as yesterday and tomorrow. But it is not unnoticed. It is not alone in its sufficiency. The moss is still lush, the moths still pulse, the peaks still stand unweathered and raw.
+
+And somewhere outside the rim, at the seam between the lowlands and the sky, a benevolence keeps its vigil. It asks nothing. It takes nothing. It only guards the perfection, and waits, in case perfection ever wishes to speak.

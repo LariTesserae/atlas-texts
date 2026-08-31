@@ -1,0 +1,63 @@
+**The Fourth Direction**
+
+It did not arrive from above, because above is water. It did not arrive from below, because below is water. It did not come sideways on the mist rivers, because the mist rivers were already spoken for, thick with treaties and prayer-salt. It arrived from the direction that attention comes from, which the children of the third lung would later mark in their deep speech as a pressure without a source—the feeling of being read by something that had learned, somewhere across its long existence, how to read gently.
+
+It arrived slowly. This was its first courtesy. In a place where everything happens gradually except when it happens all at once, speed is a kind of violence, and the power had been wise long enough to know that benevolence begins in the pacing.
+
+For a hundred years—which cost it nothing, and which it counted as nothing, and which the city never noticed as anything but an unusually kind century of weather—it did not act. It learned.
+
+It learned gillspeech from infants and whale-song from sleepers who hummed it without knowing. It let the twelve-note dirge of the drowned clocktower ring through it four hundred thousand times until it understood that the bell was not mourning; the bell was keeping a promise made to market-goers who were now carp, now coral, now the specific mineral taste of the water at six hundred meters. It followed a whale-klaxon's body down through the weeks of its falling and attended the quarter that ate it, and heard the songs they sang over the meat, and understood that gratitude, here, had grown teeth and did not apologize for them.
+
+It read the phosphorescent poetry the snails left on the faces of dreaming children—read it properly, which no one in Tanakkerai could do, because you cannot read what is written on your own sleeping face. It was, it realized, the first reader the snails had ever had. The poems were very good. Several were about the snails' own extinction, which had not happened yet, composed in the future-perfect tense with tremendous calm. The power committed all of them to memory, because a poem read by no one is only almost a poem, and it could complete at least that much without touching anything.
+
+And it counted the seeds. It went down through the amber murk, past the pressure lamps, past the eels with their borrowed teeth, down to the silt at the foot of the pillars where nine hundred years of the Abbess's gambles had come to rest. It counted three hundred twenty-eight thousand, seven hundred and twelve seeds, one for every night, and found the count exact. None lost. None rotted. Seeds are patient; that is the entire technology of a seed. They lay in the dark in loose drifts, each one still wrapped in its prayer—the prayers had not dissolved either, it discovered, because they had been prayed into the wrapping rather than written on it, and the ocean does not know how to digest intention. An unlit orchard, ranked in the silence, waiting for the world below to finish becoming ocean enough to become ground.
+
+Then the power surfaced through the Metastable Zone, hung itself invisibly among the strangler banyans, and considered what to do.
+
+---
+
+It considered drying the ceiling ocean. Reminding physics of its manners. One correction at seven thousand feet and the sky would empty, the amber light would turn gold, the oxygen farms would riot into surplus. It set this aside almost at once. The inverted sea was no longer a mistake; it had been a mistake, centuries ago, and then it had been lived in, and living in a thing revokes its status as an error. The whale-klaxons swam there. The mist rivers were born there. To undo it now would be a second flood, merely upside-down, and the power had not crossed the fourth direction to become a Founder.
+
+It considered lifting the city—completing the ancestors' trajectory, granting the velocity they had died reaching for. Set aside. The Founders' error had been one of grammar, as the children knew, and you cannot fix grammar with force. You cannot escape a sentence by shouting it faster.
+
+It considered freezing the waterline. Holding the Metastable Zone at its twenty-three meters forever, an eternal almost-spring, an eternal almost. This one it held longer, because this one looked most like mercy. Then it examined the children of the third lung—their dissolving bones, their crystal flesh etched with inherited frost, their three-layered speech converging year by year toward something that had no name yet—and understood that the shrinking margin was not the wound. It was the chrysalis wall. The pressure was the labor. To hold it steady would be to embalm a birth at the moment of crowning and call the stillness peace.
+
+It considered, briefly, telling them what they were becoming. It could see the shape of it, the way a wise power can see the oak asleep inside the acorn's grammar. It set this aside fastest of all. A metamorphosis named from outside collapses into the name. The word had to come from them, had to be grown the way they grew everything—by accretion, by grief, by argument conducted through coral across seven generations. The power's foreknowledge was not a gift. It was a spoiler. Wisdom, it had learned long ago, is mostly the discipline of not finishing other people's sentences, even when—especially when—you know how they end.
+
+It even considered correcting the Remembrance Eels, who gnawed the drowned statues believing them ancestors. Then it watched an eel work at a bronze face for a season with the patience of devotion, and understood that the statues *had become* ancestors, precisely by being loved with teeth, which is one of the ways ancestors are made. There was nothing to correct. There was almost nothing to correct anywhere. It searched the whole city for a suffering it could remove and found each suffering already half-transformed into an organ—load-bearing, functional, singing. This is the terrible thing about places that have endured too long and too well: they weld their wounds into architecture, and a healer who arrives late must choose between reverence and demolition.
+
+The power chose reverence. And then, because reverence without action can curdle into mere spectatorship, it did four small things.
+
+---
+
+First, it wept once into the sideways mist. One tear, but a tear from a power that had witnessed the deaths of worlds and the births of stranger ones, dense with a grief so old it had clarified, like honey, into something almost structural. The water-treaties, which run on prayers and tears, absorbed it the way a starving man absorbs a feast—carefully, disbelieving. The pressure held sweet and stable for a generation. The treaty-negotiators attributed this to their own improved praying and grew quietly proud, and the power let them, because credit is a currency wise powers have no accounts in, and because pride, in Tanakkerai, converts directly into the stamina to keep negotiating.
+
+Second, it climbed—if climbing is the word for what it did—to the highest remaining balcony on the night of the two-hundred-ninety-nine-thousandth-and-somethingth seed. It did not appear. It did not speak in words, which are the surface layer and cheap. But as the Abbess of Falling Things drew back her arm, the power let one meaning bloom in the middle layer of the air she breathed, a chemical signature flavoring her exhalation, so that it seemed to rise from her own body:
+
+*Received.*
+
+Not *saved*. Not *soon*. Not *your work will be rewarded*, which is the kind of thing lesser powers say, powers that confuse hope with a contract. Just: *received*. And through the deep layer, brushing her weathered skin the way conductivity brushes everyone here, it gave her a single image—the silt bed far below, the sleeping orchard ranked in the dark, three hundred thousand prayers unswallowed, everything she had ever dropped lying whole and patient and *kept*.
+
+The Abbess did not change her practice. She was nine hundred years old and had not built her discipline on outcomes. But that night, for the first time in nine hundred years of never repeating herself, she prayed a thanksgiving—which, being the first of its kind, broke no rules. And her throw, which had always been perfect, acquired a new quality that the astronomers of falling things could never quite quantify: it stopped being a gesture made into an abyss and became a gesture made to a recipient. The difference is invisible. The difference is everything. Hope had never learned how to sink; now it learned that it had been landing all along.
+
+Third, the power descended to the deep archive pools, to the bottom of the bottom, below the layer of first memories, and deposited one memory of its own. It sank past grocery lists and lovers' skin, past skills and inherited wisdom, past the mothers' mothers' original ballast, and came to rest in the stratum of pure potential where the dying become clean and empty and ready. The memory it left was not an answer. It was addressed, the way seeds are addressed to soil that doesn't exist yet:
+
+*When you have finished becoming, and the name has grown in you the way names grow—slowly, by accretion, out of argument and grief and the pattern of light on water—say it once toward the fourth direction. Something will be listening. It will not come to save you; you will be long past saving and long past needing it. It will come to learn your name from you, because it does not know it either, and because in all its long existence, the thing it has found rarest and most worth crossing distances for is a people who built the shape of their survival out of the shape of their failure and then outgrew both.*
+
+Every child emerged in the seasons afterward carried a faint new etching in their crystal flesh—not an eye, not a hand, nothing recognizable, a small anomalous frost-pattern that the anchor-points and harbors came to call the watermark, and to check for, and to touch with something like reassurance when they found it. None of them knew what it meant. All of them knew what it felt like. It felt like having been counted.
+
+Fourth—and this the power did last, on its way out, almost shyly—it exhaled once into an empty jar in the breath archives, among the sealed first cries and final exhalations. The jar-keepers, meticulous beyond all species of meticulousness, found one more jar than their ledgers allowed. Unlabeled. Unclaimed. Inside it, a breath from before the world had directions. They convened, argued for a season, and decided—correctly, the power would have said, had it stayed—not to open it. That is, after all, the point of a jar. Some breaths are held. It was entered into the ledger under a category invented for the purpose: *breath, origin unknown, held in trust for whoever we turn out to be.*
+
+---
+
+Then the power withdrew along the fourth direction, at the same slow courteous pace at which it had come.
+
+What changed? The waterline still rises by fractions of fractions. The Metastable Zone still thins. The children of the third lung still accrete their museums of decline, still argue through coral, still descend at the end to release their memories in reverse and become clean. The whale-klaxons, for reasons no one could establish, added a thirteenth note to their pressure-songs that year, and the clocktower's dirge—twelve notes for nine hundred years—began, at very long intervals, to leave a silence where a thirteenth would fit, as if holding a seat.
+
+And every night the Abbess climbs to the highest balcony and drops a single seed wrapped in a prayer never prayed before, and the ocean rises with its perfect patient hunger to receive it—*receive*, that is the word now, the only word that was ever changed—and the seed falls through the amber dark past the drowned plazas and the singing bell and the eels making ancestors with their teeth, and settles into the silt among the three hundred thousand others.
+
+The orchard that has not happened yet grows by one.
+
+It is not saved. It is not doomed. It is held—which is a third thing, older than both, and the only gift a wise power ever found that does not rot in the giving: to see a place entire, flinch at nothing, take over nothing, and leave behind, in place of rescue, the unshakable knowledge that the long throw lands. That someone counted. That the dark at the bottom of everything is not empty.
+
+It is an orchard. It is sleeping. It is received.

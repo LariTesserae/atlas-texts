@@ -1,0 +1,30 @@
+**The Benevolent Watch**  
+
+The attention of the unseen power arrives like a slow tide—a presence felt rather than seen, vast and patient as the ocean itself. It does not intrude upon the drowned city but instead *understands* it, recognizing in its watery sprawl a hymn of resilience and the poetry of metamorphosis. Here, where the human world has been softened into something new, the power sees not decay but *continuation*, not an ending but a transformation.  
+
+It begins by listening. The power delves into the currents, tracing the whale songs and the coral’s pulsing rhythms, parsing the whispers of vapor spirits and the memories embedded in the bioluminescent algae. It learns the city’s language—a dialect of pressure and light, of erosion and sedimentary hope. It witnesses the octopuses’ ink paintings, the shifting streets, and the vapor phantoms that carry the warmth of the drowned. In this place, death is not an end but a substrate for life, and the power understands that to interfere directly would be to disrupt something sacred: a cycle that has already learned to breathe underwater.  
+
+**The First Act: A Mantle of Equilibrium**  
+The power does not rebuild the city, nor does it halt the tides. Instead, it acts as a steward of balance. Where the currents threaten to destabilize a coral cathedral or a geothermal vent community, it introduces subtle eddies—gentle forces that redirect sediment, ensuring nurseries of larvae are not smothered. When the shifting streets grow too erratic, causing distress among the blind cave eels, the power softens the seabed with mineral-rich particles, stabilizing the paths without fixing them into stasis. The city must remain fluid; rigidity would be a kind of violence.  
+
+**The Coral’s Dream**  
+The power finds itself most drawn to the coral consciousness, whose bioluminescent pulses seem to echo fragments of human memory. Is it the residue of thought, or something new? The power does not probe, but it offers a gift: a faint resonance that amplifies the coral’s neural patterns, allowing its network to synchronize more deeply with the whale songs and the octopuses’ ink-spun communications. In doing so, the coral begins to “remember” more clearly—and to *choose*. It starts directing growth with intent, shaping reefs into sanctuaries for the smallest organisms, carving crevices to shelter the blind cave dwellers. The power teaches the coral to be a gardener, not just a colonizer.  
+
+**The Human Echoes**  
+The power observes the phantom humans with a tenderness that borders on sorrow. Those who remain cling to the tallest towers, their bodies altered by desperation or miracle—their gills a testament to evolution or some forgotten experiment. The power does not grant them the past, but it ensures their present is sustainable. It funnels rainwater into cisterns of coral, cultivates salt-resistant crops, and guides schools of fish to their lures. For the drowned, whose bones are now eel dens, the power weaves their voices into the whales’ songs—a requiem that is also a lullaby. Their stories are not erased but woven into the ocean’s memory.  
+
+**The Translucent Whales**  
+The whales, those enigmas of jelly and song, become the power’s collaborators. It shares their migration routes with the coral, aligning the timing of its growth with their passage. Where the whales go, oases bloom; where they sing, the water shimmers with heightened bioluminescence. The power ensures their pods remain unharmed by external threats, shielding them from the occasional passing ship or the careless anchor. Their songs become a living map of the city’s health, a feedback loop that alerts all inhabitants to imbalances.  
+
+**The Vapor Spirits**  
+The vapor ghosts—microbial life born from the drowned—are another concern. The power nurtures these beings, allowing their mist to rise higher, to carry spores and seeds to distant places. In this way, the city’s essence spreads, colonizing other drowned places, other forgotten coasts. The power ensures the microbes thrive, for they are the city’s children, its afterlife made manifest.  
+
+**The Shifting Streets**  
+To address the city’s ever-changing geography, the power does not fix its layout but introduces a new rule: a subtle current that flows through the submerged subway tunnels and storm drains, connecting the shifting canyons to a central hub. This current acts as a compass, guiding creatures toward safety during sudden changes. Octopuses, with their portable dens, become pioneers of this new network, their ink trails marking safe passage. The power also whispers to the blind eels, enhancing their vibration-sense so they can “read” the city’s movements like braille.  
+
+**The Unbroken Cycle**  
+In time, the power’s influence becomes indistinguishable from the city itself. The coral cathedrals grow more intricate, their pulses mimicking the rhythm of human heartbeats. The whales’ songs are harmonized with the hum of geothermal vents, creating a frequency that soothes disturbances in the water. The vapor spirits rise to form fleeting rainbows at the surface, reminders of the drowned sky. Humans, if they are still there, speak of a presence that feels like home—a warmth in the water, a certainty in the shifting dark.  
+
+The power does not stay. It moves on, as benevolent forces do, but its work lingers. The city continues to breathe, to change, to birth new life from old bones. And in the green-tinged depths, where sunlight is a memory, something ancient and kind watches over the drowned, ensuring their story is never truly submerged.  
+
+Here, in this place where absence and presence blur, the power has done its work not by altering the city but by revealing its true nature: a living monument to the ocean’s ability to transform loss into legacy.

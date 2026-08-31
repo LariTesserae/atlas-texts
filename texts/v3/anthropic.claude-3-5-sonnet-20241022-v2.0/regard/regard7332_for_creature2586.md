@@ -1,0 +1,11 @@
+The benevolent power observes this remarkable civilization with deep appreciation and chooses to act as a subtle guardian rather than an agent of change. Their intervention manifests in three gentle ways:
+
+First, they establish an invisible barrier far above the city - not a hard wall, but a gradual shift in water pressure and temperature that naturally discourages surface-dwelling creatures from descending too deep. This creates a protective buffer zone, ensuring the Lithokine can continue their patient work undisturbed by faster-moving forms of life.
+
+Second, they weave an ethereal harmony into the water itself - a resonance that strengthens the natural patterns of growth and renewal already present. This manifests as barely perceptible waves of energy that synchronize with the Lithokine's percussion language, amplifying their ability to communicate through the city's structures. The crystal forests in particular become more receptive to storing and transmitting their shared consciousness.
+
+Finally, and most importantly, they create a temporal anchor point - not to freeze or alter time, but to ensure that this pocket of slow-time remains stable even if the oceans above change dramatically. This protection extends to the entire ecosystem, preserving the delicate balance that allows such patient evolution to unfold.
+
+These interventions are so subtle that even the Lithokine might only register them as particularly harmonious currents or unusually clear transmissions through their crystal networks. The benevolent power chooses this approach because they recognize that the true marvel of this civilization lies in its organic development and self-sufficiency. Their role is not to enhance or alter, but simply to ensure that this remarkable expression of life has the space and time it needs to continue its gradual unfolding.
+
+Over centuries, the only visible sign of this guardianship might be the way the city seems to shimmer slightly at its edges, as if wrapped in an embrace of light so gentle it can only be seen from the corner of one's eye.

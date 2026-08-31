@@ -1,0 +1,13 @@
+The benevolent power arrives not as force or voice, but as a slower rhythm folded into the water already moving through the chamber. It has watched long enough to understand the occupant’s language: the single tap of claw against timber, the precise spacing of fronds, the refusal of anything uninvited.
+
+It does not speak. It does not add.
+
+Instead it reaches, with exquisite care, into the stone that is still settling. One block at a time, it eases the microscopic shift already beginning under the weight of the others, sealing hairline seams with a pressure so gentle the creature never feels the change—only notices, days later, that the creaks have grown fainter and more regular, as though the chamber has decided to hold its shape longer than physics alone would allow.
+
+Light is adjusted next. The power does not brighten the shell inlays; it thins them by one translucent layer of nacre, so that the descending planes of brightness become fractionally softer at their edges. The algae respond by extending their ribbons half a finger’s length farther before yellowing. The occupant, finding the troughs require slightly less pinching, taps its claw once against the timber and then holds still, registering the difference as new data rather than gift.
+
+Nothing else is introduced. No companion creature, no sudden current carrying eggs or spores. The power respects the single depression worn into the ledge, the folded fins, the half-lidded eyes beneath the shell-light. It simply remains, a slower pulse beneath the engineered rush, so that when the hide panels flex they do so against a background tension that is now fractionally kinder.
+
+Over time—though time behaves differently for such powers—the chamber’s mechanisms run with less audible strain. The occupant continues its rounds, fins never brushing stone. Occasionally it pauses longer beneath the brightest inlay, gill slits opening and closing in the same measured cadence as before, but the pauses stretch by heartbeats that were not there previously. The power does not interpret this as gratitude. It registers only that the structure continues to function, and that the being inside it remains undisturbed in its chosen exactness.
+
+If the occupant ever chooses to tap its claw twice instead of once, the power will understand the signal and withdraw. Until then, it merely keeps the seams from widening and the light from hardening, an attention so quiet it registers only as the faint sense that the warm water now carries one additional, untraceable mineral—one that tastes, very slightly, of continuity.

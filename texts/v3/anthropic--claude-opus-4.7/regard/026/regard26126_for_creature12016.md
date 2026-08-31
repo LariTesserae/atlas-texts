@@ -1,0 +1,55 @@
+There is a power that moves through the world the way wind moves through a house — entering by whatever opening is offered, touching what it touches, leaving the furniture in place. Call it benevolent because it wishes well. Call it wise because it knows the difference between wishing well and acting well, and knows that these are not always the same wish.
+
+It comes to the hollow the way it comes to everything: without announcement. It does not descend through the notch. It is simply, at some point, also present, the way a thought is present in a room where someone is thinking.
+
+It looks first at the cloud, and the cloud does not notice, because the cloud has no organ for noticing. It looks at the water on the walls, and the water continues. It looks at the moss, and the moss is occupied with being moss. None of these require anything. None of these are suffering. The power, which knows suffering very well — has bent close to a great deal of it, in other places — registers the absence here the way a musician registers a rest: not as nothing, but as a particular shape of nothing, deliberate, structural.
+
+It looks at the salamanders in their positions. It considers, briefly, the question of whether a salamander that has been in a crease for the length of a human life is a salamander that has been forgotten by life or a salamander that has been perfected by it. The power does not answer this question. The power has learned not to answer questions the world is still asking itself.
+
+It looks at the beetles, the slow black weather of them, and finds the rule of the place written there: that making and unmaking here are the same speed, and that this is not stagnation but a kind of held chord, the long sustain at the end of a piece of music that has not, in fact, ended. The power knows the difference between a chord held and a chord that has died on the string. This one is alive. Barely, slowly, but alive.
+
+It looks at the snails climbing what they cannot summit, and something in it — if it has anything like fondness, and it does, it does — softens. It has seen this gesture in many places and many forms. It is one of the gestures it loves best.
+
+It looks at the fish, and understands them at once: yes, carried, yes, in a clay jar, yes, three thousand years, and the hand that carried them is now part of the laurel-ceiling and has eyes. The power does not grieve this. The power has watched many hands become many other things. The becoming is not always loss. Sometimes it is the long answer to a question the hand was asking when it was still a hand.
+
+And then the power looks at the thing on the branch.
+
+This is where it slows. This is where, if it had breath, it would hold it.
+
+The thing on the branch is what the hollow has been making. The power can see the whole arc of that making — the marten or the small owl or the creature-with-a-name, the generations of cool and dark and damp, the gradual surrender of hands, the gradual surrender of hunger, the gradual surrender of the distinction between self and position. The power can see, also, what is still inside that surrender: a flicker, very small, very deep, of the original creature. Not trapped. Not crying out. Simply present, the way a seed is present in a stone fruit — central, quiet, not asking to be eaten and not asking to be planted, just being the dense thing at the middle.
+
+The power considers.
+
+It could, of course, lift the cloud. One breath and the hollow would open to the sky, the cool would break, the salamanders would dry in their creases, the snails would fall and not climb again, the fish would suffocate in pools gone warm, and the thing on the branch would either fly — if it remembered how — or it would not. The hollow would become a hollow like other hollows. The held chord would resolve. Whether resolution is mercy depends entirely on whether the chord was suffering, and this chord is not suffering. This chord is what it is.
+
+It could reach into the thing on the branch and wake the flicker. Restore the hands. Restore the hunger. Give back the categories — mammal, bird, hunter, maker — and set the creature down at the foot of the laurel with its old shape returned to it. The creature would look at the basin it once made and would not recognize the basin or the making. The restoration would be, from the creature's point of view, an abduction. The power knows this. The power has, in younger eras, done exactly this kind of thing, and has watched the restored creature stand bewildered in its restored body and ask, without language, to be returned to the position from which it had been taken. The power does not do this anymore. It learned.
+
+It could carry the human out. This is the smallest of the options, and the power considers it with something like tenderness. The human is at the edge of the softening. One more hour, perhaps two, and going will no longer be a verb the human owns. The snail is already on the boot. The breath has already slowed. The power could, with the lightest touch — a shift in the air, a brightening at the notch, a single drop of cold water on the back of the neck — return going to the human's vocabulary. The human would climb out. The human would remember the hollow for the rest of a human life, and the remembering would do, in the human, whatever the remembering does.
+
+The power considers all of this for what is, by its measure, a long moment, and by the hollow's measure, no time at all.
+
+And then it does three things, because it has decided, and because deciding is what it has instead of hands.
+
+The first thing: it does not lift the cloud. It does not touch the salamanders or the beetles or the snails or the fish. It does not reach into the thing on the branch. The hollow is allowed to continue being the hollow. This is not inaction. This is the active and difficult choice to recognize that a held chord, held this long, with this much life inside it, is not a problem to be solved. It is a form the world has found, and the world is allowed its forms. The power, which could end the hollow with a thought, instead extends over it something like a hand held above a sleeping animal — not touching, but near, and warm, and meaning: continue. The hollow does not feel this, exactly. But the next thousand years of the hollow will be very slightly more itself than they would otherwise have been, the way a child sleeps more deeply in a house where someone is awake and loving them from the next room.
+
+The second thing: it bends close to the thing on the branch, and it does something very small. It does not wake the flicker. It does not restore anything. It simply — and here the language strains, because the power is doing something language was not built for — it acknowledges the flicker. It says, in the wordless way it says things, I see you. I see what you were and what you are and I do not think less of you for the trade. The basin was beautiful. The position is beautiful. You are not forgotten by the kind of attention that matters. The thing on the branch does not respond, because responding is no longer in its repertoire. But somewhere very deep, in the seed at the center of the stone fruit, something registers. Not joy — joy is also no longer in the repertoire — but a kind of settling, the way a stone settles a final quarter-inch into the silt after a thousand years of almost-settled. The thing on the branch is now, very slightly, more at rest than it was. This will not change its behavior. It will change, perhaps, the quality of its stillness, in a way only the power and the hollow itself could detect.
+
+The third thing: it turns to the human.
+
+It does not lift the human out. That would be theft of a different kind — the theft of the human's own choice, which is the one thing the power is most careful with, always, in every place it goes. But it does this: it makes the notch, for one moment, slightly visible. A thinning of the cloud in one particular direction. Not a sign. Not a summons. Just a fact, briefly available: the way out is there. And along with the thinning, it places in the human — not as a voice, not as a vision, just as a sudden clarity of the kind humans sometimes have and afterward cannot account for — the understanding that both choices are real. To stay is real. To go is real. The hollow will accept either. The power will accept either. There is no correct answer, and the absence of a correct answer is itself the gift, because the human has been standing under the laurel-ceiling believing, without quite knowing they believed it, that the hollow was choosing for them. It is not. It never was. The cloud has no opinion. The thing on the branch has all the time there is, but the time is not aimed at the human. The human's time is the human's own.
+
+Choose, the power does not say. But the shape of the moment is: choose, while choosing is a thing you do.
+
+And then the power withdraws, the way it came, without disturbing the water on the walls.
+
+What happens after is not the power's to write.
+
+Perhaps the human climbs. Perhaps the snail comes with them on the boot for a little way and then is gently set down on a fern outside the notch, in air it does not know, and dies there, and this is also the hollow extending itself one snail further into the world, which the hollow does not mind, having no opinion. Perhaps the human remembers the hollow every wet morning for fifty years and writes nothing down and tells no one and this is the right way to have been there.
+
+Or perhaps the human stays. Perhaps the going-verb slips quietly out of their grammar in the next hour, and they sit down at last against the wet stone, and the moss begins its slow work, and in a season the boot-print is moss again and a salamander lives in the heel-mark, and in a hundred years there is a new position under the laurel-ceiling, human-shaped, occupied by something that is no longer quite human, and the thing on the branch has company of a kind it has not had since it chipped the basin, and neither of them speaks, because speaking is not what they do, but they are near each other in the dark, and the nearness is its own long sentence.
+
+The power, far from there now, attending to other rooms in the great house of the world, holds both possibilities lightly, the way you hold two seeds in the same palm.
+
+It wishes the hollow well. It wished it well by leaving it alone. This is the wisdom part, and it was the hardest part, and the power had to learn it over a very long time, in places much louder than this one.
+
+The water continues down the moss. The snails continue not summiting. The thing on the branch is, by an amount no instrument could measure, more at rest. And somewhere, the notch is briefly, briefly visible, and then the cloud closes again, having no opinion, having never had one.

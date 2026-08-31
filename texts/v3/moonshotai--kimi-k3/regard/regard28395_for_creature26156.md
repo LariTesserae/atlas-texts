@@ -1,0 +1,35 @@
+Almost nothing. That is the short answer, and the long answer takes forever, which is the local unit of time.
+
+The power arrives the way powers arrive: with a list of improvements. Rain, first of all — rain on a schedule, the dry years forgiven, the tree in permanent leaf, the shield-shrimps promoted from their single week. A deeper well-eye, brimming, no queue required. A thirteenth tortoise, then a fourteenth. A fence. A plaque. It has ruined gentler places than this with exactly such cargo, and it has lived long enough to know it, which is most of what makes it wise.
+
+So it does the first thing the rules instruct. It lies down a body's length from the glassy patch, on the listening-ground, at dusk, and lets the walls read it the minutes. The rasp of a snail. The tick of the seep, a drop a breath. The click of a beetle closing its wing-cases for the day. Every sound arrives near and without direction, and lying there the power understands what it should have known from the rim: every gift it has brought is an addition, and this place permits one craft only. Everything made here is made by taking away. The hollow itself was made by stone consenting to be gone. A power that adds, here, is a power that vandalizes.
+
+The rain is the hardest refusal, and it deserves its own paragraph. The power could end the dry years with a word. It does not. The week the shrimps swim is holy precisely because it is a week. The queue is wise precisely because water is an hour. Patience is the currency of the place, minted in several denominations, and a power that pays every debt bankrupts the mint. Somewhere over the bowl, prayers for rain go up in the bad years, as prayers do. The power keeps a special ledger for this hollow, and every entry in it is a refusal, and it is the best-kept ledger it keeps.
+
+---
+
+Here, then, is the entire record of its deeds, sized to the place:
+
+It removes, now and then, the unkeepable thing. The wind throws small lives over the lip, and what falls in, stays — but once in a long while the wind brings something the silt cannot file, something that will not rot into the record, that would lie in the fill unreading and unread for longer than the tortoises. These the power takes away, at dusk, without trace. It is the one chore it permits itself: keeping the receipts honest.
+
+Once in a century, when the census leans toward five, it removes one death from the path of a walker. It does not carry her — carrying is speed, and speed belongs to wings and to struck stones. It merely arranges that one pair of eyes on the plain looks elsewhere at the necessary hour, and a young tortoise arrives at the ramp with plain-dust still on her, like an heir who did not know she had inherited. The grooves gain a signature. No one has explained the arrivals. The power does not explain them either. It is, at most, the reason the explanation is needed so rarely.
+
+It brushes out its own footprints behind it. The floor is for crossing.
+
+It turns at the edge of the glassy patch, the way the snails turn, and does not ask why. It does not count the off-by-one. It could see under the overhang — darkness is no obstacle to it — and it chooses not to, honoring the one privacy the place keeps, the citizenship older than light that the cave itself resigned when the roof let go. Some books the hollow does not open. The power, having been everywhere and read everything, has come to the one place that teaches it the uses of leaving a book shut, and it is grateful, and it keeps them shut.
+
+And it lets the hollow notice it back. This it does not prevent or edit. It stands at dusk in its doubled shadow and consents to the record: a thing that fell in. Of everything it does, this consent is the act it is proudest of.
+
+---
+
+For it becomes plain, standing long enough in the brightness, that the place has been kept before. The light sprawls the way an attention would that never withdrew. The doubled shadow — everything here is accompanied. Perhaps the first power to find this hollow emptied it, let the roof go, and stayed as the light. Perhaps the second stayed as the quiet; the quiet has acoustics. The glassy patch, two arm-spans wide, where the returned light has been at the ground for a very long time, wearing the silt down to something darker and harder — perhaps that is what attention does to ground, grain by grain, across eons: attention, too, is a craft of removal. The power does not investigate. It files this among the unopened books and takes it as instruction in the local manner of keeping: not to do, but to become — to be worn the way the day wears its hours, to leave behind nothing but a quality.
+
+What it does, mostly, is come at dawn. It stands at the rim as the first light pours over the lip and the cool air slides down the flutes and the first tortoise starts down her groove wearing her dew. It waits out the full length of her drinking, and of the one who follows, and of the one who no longer follows but whose hour is kept. It learns the charter by keeping it, which is the only way the charter has ever been learned. And it makes the single vow the place permits: when the seep slows someday, when the number falls below five and does not rise, when the last pale coin goes into the silt and the walls stand blank at noon for the last time — it will still come. It will keep the hollow's hour the way the queue keeps the dead tortoise's: exactly, unhurriedly, for as long as time is kept. Someone must wait out the full length of the drinking. That is the whole of the office. It applies.
+
+Then it does what the wise ones here all do: it takes up residence in the error. It does not become the light — that office is held. It does not join the nine; the bowl regulates. It does not perch in the tree; the lookout is spoken for. It petitions for the one vacant citizenship, the blind thing's own: present, uncounted, keeping to its small dark, crossing no census. The petition is granted the way everything is granted here — slowly, and by no one in particular.
+
+So. Count carefully, at whatever hour you choose. Count the nine, the office, the tenant, the eleven pits, the bees, the beetles, the night-scribes, the sleepers, the rooted, the guests, the keeper of the last cave-dark, the dead in their layers. Your sum will be off by two now. The first error is the old one, the sanctuary. The second error is the guard.
+
+Come at dusk, if you come. Stand still in your doubled shadow. The burrow-mouths open like eyes; the wall begins to hum; the first snail lays down the first stroke of the night's edition, and turns, as always, at the glassy patch. If the quiet seems, lately, a little more kept — do not look for the keeper. Looking would add nothing, and nothing is what was added. What falls in, stays.
+
+Something, at last, has chosen to.

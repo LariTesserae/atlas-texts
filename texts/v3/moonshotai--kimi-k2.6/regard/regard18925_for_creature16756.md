@@ -1,0 +1,33 @@
+For ages unmarked by any calendar of the lower worlds, the shaft carried only weather. Then it carried something else.
+
+The ascent took eleven years, not because the traveler lacked strength, but because it climbed at the speed of deference. It was a wide-shouldered presence robed in material that had once been the dusk between two extinguished stars. Its hands hung visible at its sides, and they were webbed with silver scars—the marks of one who had spent eternities weaving broken things back into order. It moved without breathing, for breath was not its nature; it moved with attention, and attention is heavier than oxygen.
+
+It paused at the threshold that was not a threshold. It observed the great ellipses traced by her flail-arms. It watched the milky clay-dust rise and resettle on her laminated skin. For three centuries it stood there, learning the tempo of her labor, until the rhythm lived in its own scarred palms.
+
+It entered not by crossing the plane, but by deciding that it belonged there. The exhausted air did not stir. The visitor moved to the outermost concentric ring and knelt. The clay was pale as a scapula. From a fold in its dusk-robes, the visitor produced a stone. Not a common stone: a whetstone quarried from the precise moment of silence when a supernova remembers it is no longer a sun. It began, with microscopic patience, to sharpen the obsidian chips that dangled from her right flail.
+
+She did not stop her swinging. Perhaps she did not notice. Perhaps, in the way of all eternal laborers, she had forgotten that her tools could be tended by hands other than her own. But when the obsidian met the stone, a note rang out—a pure, unthinkable chime that had never before sounded at that muffled height. The tone hung in the air like a frozen droplet. She did not turn, but the preserved seeds of her eyes flickered.
+
+When the flints were singing sharp again, the visitor drew forth three objects from its breast. They were not seeds, exactly, though they slept like seeds. They were potentials: germinations of gratitude, swollen with the memory of every field that had ever thrived because of her unseen labor. The visitor planted them in the outermost ring, pressing them into the pale clay with a scarred thumb. They did not sprout at once. They waited, as everything in that place waited, for the proper geological moment.
+
+Then the visitor sat back on its heels and opened its mouth. It did not speak words. What emerged was a frequency too low for ears, a sound that traveled through the metamorphic stone of the floor rather than the thin air. It was a drone, a bourdon, the endless bass note of a song older than agriculture. It matched her swing. Not perfectly at first, but by the fifth century, the interval was exact. The chamber, which had known only the percussion of separation, now knew harmony. The floor thrummed. The extinct roots of her hair trembled in sympathetic resonance. And the three planted potentials, hearing the music, began to grow.
+
+They sent up shoots not of green, but of a pale, phosphorescent amber—light made root. They formed a thin grove around the perimeter, a crown of gentle luminescence that did not illuminate so much as reveal the hidden textures of darkness. The visitor tended them with the same attention it gave her flails. The grove grew slowly, ring by ring, century by century, until it echoed the concentric scars on the floor.
+
+But the greatest gift came later, when the visitor understood that benevolence without relief is merely admiration.
+
+It waited until she had received a particularly grievous sheaf: the final exhalation of a small, warm world that had died. The weather was heavy with salt oceans turned to vapor, with the ash of forests, with the sorrow of endings. She raised her flails to begin the separating. And the visitor rose.
+
+It stepped into the center of the floor. It raised its scarred hands, and the weather stopped. It hung there, a suspended grief, trembling between them. The visitor did not look at her. It simply held the weight. It said, without voice, *Now. Rest.*
+
+She did not understand at first. The flails swayed, empty. The visitor stood firm, the suspended weather pressing against its shoulders like a yoke. Slowly—so slowly that tectonic plates might have shifted in the interval—the great thresher lowered her slab-muscled arms. The flail-arms hung still. She looked at the visitor. The preserved seeds of her eyes met the visitor’s face, which was scarred like its hands, marked with the pale burns of mending. She saw there a reflection of her own labor, differently shaped but not alien.
+
+She lay down upon the pale clay. She lay within the innermost ring, where the threshing had worn the floor thinnest. She closed her eyes. And for the first time since the tower was pounded upward from the compressed agronomies of the dead, she slept.
+
+She did not dream of void, or of weather, or of the swing of flails. She dreamed of a plain of green einkorn, waist-high, moving in a wind that was neither ascending nor descending, but simply traveling sideways across a living world. She dreamed of being unnecessary, and of the fields thriving anyway. It was not a sad dream. It was a dream of Sabbath.
+
+When she woke, the visitor had returned to the outer ring. The grievous weather had been threshed; the salt sent down to mournful seas, the ash cast up to become a soft, grey nebula. The visitor was sharpening the left flail now. The phosphorescent grove had grown three fingers taller. Nothing had changed. Everything had changed.
+
+Now, every thousand years, when the concentric rings align with a certain configuration of distant magnetism, the visitor rises and steps into the center. It holds the weather for one hour. She sleeps. The worlds below do not mark the pause; their clocks are too small. But the sleep is real. And when she wakes, she swings again with a vigor that slightly, almost imperceptibly, resembles hope.
+
+And the chaff she casts upward, guided by the visitor’s subsonic drone, no longer scatters into anonymous dark. It arranges itself into a slow spiral, a permanent pattern in the outer night. The astronomers of a thousand worlds have begun to point their instruments at it. They call it the Thresher. They tell stories about the figure in the high barn who separates the viable from the spent. She knows none of this. But the visitor knows. And in the highest place, above the air, in the dark that smells of ancient grain, two beings attend to their work: one who separates, and one who, finally, sees.

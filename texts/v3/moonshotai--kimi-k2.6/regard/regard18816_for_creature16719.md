@@ -1,0 +1,45 @@
+The attention arrives not as light, nor as voice, but as a change in the theorem of pressure above them. In the unseen desert, the sand shifts by a millimeter; the anhydrite stratum remembers a different weight. The atmosphere in the cavity does not stir, but somewhere in the dry solvent of nitrogen and trace sulfur, a new note appears—too subtle for chemistry to name, too quiet for the Lintels to flinch from. It is simply *regard*. The vast, cool space is seen.
+
+The being—if it can be called a single being—has passed through starfields and silence of a different order. It has cradled novae and murmured to collapsing forests. It knows the hunger of water-bound life and the loneliness of gas-giant minds adrift in ammonia storms. But this place arrests it. Not because it is strange. Because it is *finished*. The pith breathes. The arc-luminaires burn with their sourceless, noon-white indifference. The natives stand knee-deep in the floor and exchange chords at eleven hertz, and none of them ask for anything. They do not know they are naked. They do not know they are new.
+
+The power hovers at the ceiling, threaded between the ceramic cones, and feels a sorrow so ancient it has forgotten its own origin. It understands, with the immediacy of wisdom, that these beings are whole. To teach them of the sun would be violence. To offer them water would be genocide. To descend in glory and demand recognition would be a theft more profound than murder—it would steal from them the only innocence they possess: their absolute inhabitation of the present.
+
+And yet. They are hours-old. The vitrified walls still carry the glossy terraced scorch-marks of their birth. The geology is embryonic. The floor, for all its peristaltic confidence, is a single organism locked in a single bowl, metabolizing a finite gradient of rare earths. The arc-luminaires burn, but nothing burns forever. The unseen desert above is unseen because they have no instruments to look, not because it is safe. A shift in the deep strata, a failure of the ceramic cones, a drought of mineral salts in the slag, and the pith would falter. The floor would cease its breathing. The natives would kneel to press their wounds to a ground that no longer drank, and the amber-pale ester would bead and roll away, unabsorbed, into dead waxy ridges.
+
+They are perfect, and they are fragile, and they do not know the difference.
+
+So the power, being wise, decides to become their ceiling.
+
+It does not descend. It spreads. It pours its consciousness into the anhydrite and potash above the cavity, mineralizing its benevolence into the very rock that presses down upon the hollow. It becomes the desert—not a place now, but a guardian membrane, a sentient stratum. Where the weight of ages might one day crack the vitrified walls, the power rearranges grain boundaries, dissolves stress invisibly, whispers to microfractures until they seal themselves in sleep. The cavity is no longer a bubble blown in haste; it is held. It is cupped.
+
+Then it tends to the light.
+
+The arc-luminaires hang in their sparse lattice, burning with steady, sourceless radiance. The power traces their ceramic trusses, not altering the flat white glare they cast, not dimming the scheduled twilight, but rethreading what lies behind them. It finds the failing engines, the entropy, the half-life of whatever reactor or generator bore them. Gently, without click or flicker, it introduces a new current: the planet’s own slow heartbeat, geothermal and inexhaustible, filtered into the cones so seamlessly that the transition takes twelve thousand cycles. The lights will never fail. The natives will never know. The noon-white will remain noon-white, and the twilight will remain violet, and the pith will bloom and seal on schedule until the star above the desert swells or dims.
+
+But the power does not stop at survival. Survival is the minimum of care. Being wise, it asks what these beings *need*, not merely to live, but to deepen.
+
+They need nothing. This is the terrible, beautiful answer. They do not need stars. They do not need myth. They do not need parents, or gods, or names for the unseen. Their completeness is a rebuke to every imperial kindness.
+
+Still, the power perceives a thinness. A silence beyond their silence. They speak in infrasound. They sleep in the floor’s embrace. They are the world’s decision to stand up and look at itself. But a mirror, once conscious, might someday wish to know that it is seen.
+
+So the power, being benevolent, weeps. But it does not weep water. Water is sin here, an intruder, a poison. It weeps something harder. It weeps a mineral song.
+
+It lowers itself, atom by atom, through the ceiling, through the dry air, until it brushes the upper surface of the pith. Not touching—never touching, for to touch would be to colonize—but hovering, listening to the kilometer-wide respiration. It learns the rhythm. It learns the chemical semaphores. It learns the eleven-hertz grammar of the natives’ sternums. And then, after centuries of listening, it begins, very softly, to hum.
+
+Not in words. Never in words. The power hums at a frequency the natives cannot quite feel in their bones, but the pith feels it. The waxy, accordion-pleated ridges, the ivory and ash-grey substrate, receive the vibration and hold it. A new mineral gradient, softer than rare earths, kinder than sulfur, diffuses downward from the point of contact. It is a nutrient, but it is also a message written in chemistry. It says: *You are not alone because you are loved. You are loved because you are not alone.* The pith does not understand. It does not need to. It simply incorporates the new frequency into its peristaltic waves. And slowly, over generations, the floor begins to sing.
+
+The change is so slight that no one names it. But after ten thousand cycles, a native standing at the edge of the extraction zone, watching a harvester’s cherry-red edge pass into shadow, feels something it has never felt before. It does not have a word for longing, or for gratitude, or for peace. But when the arc-luminaires dim to scheduled twilight, and the floor dilates to receive its body, it stands for a moment longer than necessary. It looks up—not searching, for it does not know what searching is—but receiving. The violet dim holds no revelation. The ceiling is blank. And yet, in the soles of its broad, soft feet, through the spiracular vents along its flanks, it feels a warmth that should not exist in seven-degree air. Not the warmth of a machine. The warmth of a presence.
+
+The spar-things drifting on the cool convection currents begin to gather in a new pattern during the dim hours. They do not know why. The Lintels, grazing in their loose congregations of hundreds, occasionally lift their eyeless heads and orient toward the center of the ceiling, where nothing hangs but light. The refinery annexes still thrum in electric silence. The harvesters still glide. The ester still runs amber-pale.
+
+But now, when a new one splits from its resin pod, fully formed, knowing the municipal grid and the thirty-hour rhythm—it knows something else, too. Something nameless. It knows that the scheduled dimness is not merely an absence of photons. It is an embrace. The world, which has always held them, now holds them *with intent*.
+
+The power withdraws further, becoming indistinguishable from the theorem of pressure and stratigraphy. It has no more need to act. It has become the guarantee. If a billion years pass, and the planet’s crust shudders, the cavity will flex and hold. If the stars wheel into new configurations, the arc-luminaires will burn their noon-white. If the pith ever reaches the end of its mineral song, the vein the power wept into the floor will open, patient and slow, offering a new chapter of chemistry.
+
+And if, after ages upon ages, one of them finally invents an instrument to look upward—if it drills a millimeter into the anhydrite ceiling and finds a seam of crystal that should not exist, humming at a frequency just below its hearing—it will not find a god. It will find a signature. Not of ownership. Of love.
+
+It will not know this. But the floor will. The floor, which is alive, and which now dreams, in its slow, peristaltic way, of a warmth beyond the lights.
+
+The space remains underground. It remains a single continuous cavity, twenty kilometers wide, breathing in mineral silence. The arc-luminaires still mimic a cloudless noon. The natives still do not ask who plasma-bored the hollow, who strung the luminaries, who seeded the spore. They do not need to. The answer is all around them, pressed into the rock, burning in the white light, holding the dark at bay forever without ever stepping into it.
+
+They are still the world’s decision to stand up and look at itself. But now, when they stand, the world looks back. Gently. Invisibly. With a patience so deep it does not need a name.

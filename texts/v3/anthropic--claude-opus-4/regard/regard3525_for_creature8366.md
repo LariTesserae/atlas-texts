@@ -1,0 +1,35 @@
+The Watcher arrived during a shift change, when the moth clouds were thickest and the sound of boots on wet stone masked softer footsteps. They appeared first as a shimmer in the steam—a tall figure whose edges seemed to bend the orange furnace-light around them like water around a stone.
+
+They spent three days simply observing. Standing motionless on the highest terrace, they watched the beetles trace their ancient paths, counted the breaths of the steam vents, observed how the children played between the industrial pools without fear. They saw how the maintenance engineers whispered encouragement to their segmented charges, how the veteran workers read the factory's moods in its trembling pipes, how even the rats had developed their own careful civilization in the walls.
+
+On the fourth dawn—though dawn here was just a slightly paler shade of orange twilight—the Watcher descended.
+
+They moved through the machine-city like a careful visitor in someone else's home. At the smelting complex, they placed a hand on the main furnace. The workers nearby felt rather than heard something shift—the roar became a purr, the angry orange glow settled into a steadier, more efficient burn. The furnace would run twenty percent cooler now, they would later discover, while producing the same output. The excess heat, instead of being wasted, would cycle through new channels the Watcher had somehow carved into the basalt with just a touch.
+
+In the processing facility, they knelt by the drainage pools where the segmented cleaners worked. One of the maintenance engineers found them there, speaking in frequencies too low for human ears. The creatures responded, their pale bodies pulsing with new purpose. Within days, they would begin secreting a different enzyme—one that not only neutralized toxins but converted them into nutrients for the bacterial films. The rainbow sheens would grow thicker, more vibrant. The moth caterpillars would grow stronger.
+
+The Watcher found the deep pools where the maybe-salamanders lived. They submerged their arms up to the elbows, and the water glowed faintly green for just a moment. The creatures' fear dissolved. They began to surface more often, their translucent bodies catching the furnace light like living prisms. The workers would soon discover these beings could be taught simple tasks—retrieving dropped tools from flooded chambers, warning of blockages in underwater pipes through patterns of movement.
+
+To the moths, the Watcher gave a gift of purpose. They breathed something into the air during the next emergence, and the insects' random fluttering gained intention. They began to pollinate—not flowers, for none grew here, but carrying beneficial bacteria between pools, creating new hybrid colonies that could process a wider range of industrial byproducts. The moths became gardeners of microscopic life.
+
+The rats received perhaps the strangest blessing. The Watcher spent a full night in the walls with them, and by morning, the colonies had developed a crude but effective communication system—temperature patterns traced on the pipes that conveyed complex information about dangers, food sources, safe nesting spots. The workers would eventually learn to read these heat-messages too, gaining early warning of mechanical failures.
+
+For the human inhabitants, the changes were subtler but no less profound. The shift supervisors found their intuition sharpened—they could now sense problems before they manifested, feel the health of the entire system like a pulse in their bones. The maintenance engineers discovered their segmented charges responding to intention as much as action, simplifying their work while deepening their connection to the creatures they tended.
+
+The children received the most mysterious gift. In their dreams, they began to see the machine-city not as it was, but as it could be—visions of hanging gardens fed by the mineral-rich water, of bioluminescent organisms painting the night with living light, of a place where the boundary between industrial and natural had not just blurred but harmonized into something entirely new. These dreams were not commands but possibilities, seeds planted in young minds that might one day choose to make them real.
+
+To the Custodians, keepers of memory, the Watcher gave the gift of forgetting—selective, healing forgetting. The records remained accurate, but the weight of them lifted. They could now see patterns without becoming prisoners to them, could document change while still embracing it.
+
+The Watcher saved their most profound intervention for the city itself. They walked to the edge of the lowest terrace, where the plateau dropped away into mist, and spoke a single word that resonated through the basalt like a bell. The stone itself became permeable to life. Within months, the first pale lichens would appear—organisms that could metabolize not just organic matter but the minerals in the rock itself, beginning a slow transformation that would, over generations, turn the sterile volcanic glass into something approaching soil.
+
+But the Watcher did not change the city's essential nature. The factories still breathed steam. The water still cycled. The shifts still changed with mechanical precision. They had simply widened the channels through which life could flow, created new possibilities within the existing structure. The machine-city remained a machine-city, but now it was also something more—a collaborative organism where human intention, animal adaptation, and industrial process wove together into a living system.
+
+Before leaving, the Watcher gathered the inhabitants—all of them, human and otherwise—in the largest courtyard. They spoke in a voice that each species heard in their own language:
+
+"You have built something that should not work, yet does. A place of metal and flesh, of conscious design and unconscious adaptation. I have given you no solutions, only tools. The city remains yours to shape. But know this—what you have begun here, this marriage of the made and the born, the mechanical and the organic, is noticed. It is valued. In all the cosmos, there are few places where life has learned to breathe steam and thrive. Guard this wisdom. Grow it. And when you are ready, teach it to the world below."
+
+The Watcher faded like steam dissolving into air, leaving only a faint green luminescence in the water that would persist for exactly one hundred days—a reminder that even the permanent twilight could hold new colors.
+
+The machine-city breathed on, but its breath had deepened, become more complex. In the spaces between the steam vents' sighs, new harmonies emerged—the whisper of growing lichens, the purposeful dance of messenger moths, the heat-language of rats painting stories on the pipes. The city had been blessed not with transformation but with potential—the possibility of becoming, slowly and by its own choice, something unprecedented in the world.
+
+And in the highest terrace, the Custodians added a new chapter to their records, documenting the day the machine-city learned it could dream.

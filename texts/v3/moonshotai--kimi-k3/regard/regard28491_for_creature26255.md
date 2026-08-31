@@ -1,0 +1,43 @@
+It was the Quiet that did it.
+
+The Kolk is hidden inside its own noise — a bowl of sound roofed with wattle and mist — and a place that loud is, to anything listening from outside, a silence of a particular shape. The mire has a music: wind in the reeds, snipe drumming, the small talk of brooks. Over the pit the music had a hole in it, ninety years wide, and powers that keep weather learn the sounds of their parishes the way the Forty learn one another's steps on the duckboards. A step that is missing is news.
+
+Then, for nine hours, within one old woman's living memory, the engine stopped — and the hole closed. The drip-rain came close, the sumps breathed, the water leaned nearer, and all of it carried, the way a clock stopping in another room carries through a sleeping house. Something that keeps the mire — the rain in, the rain out, the water table's slow account — heard a place hold its breath. It came to the rim. It looked down into the green gloaming at the lamps coming on one by one, doubled in the standing water, and it did not make the easy mistake. It is easy to see a town down there, and pumps, and a flooding problem. The power had read too many waters for that. It saw what the old people's fourth theory says: a bowl with one life in it, and the life at home, and keeping.
+
+So the power did what keepers do. It read the Book.
+
+It read a hundred and eleven years of one-word letters, the water's autobiography in a succession of careful hands, and it did the arithmetic the wardens do not do aloud: a finger's breadth a decade, the pumps growing a cylinder at a time to answer, and past the last page, the decade — still far off, but written — when the growing and the sinking stop keeping step. It read the margins too, where a century of clerks had noted what the digits wouldn't hold, and found the comet-entries: *heron over*, *two geese, high*, always *did not stop*. A hundred years of a being looking up at a world that crossed overhead and did not stop. The power deliberated the way wise powers deliberate: at the pace of the thing deliberated upon. A season per question. The Forty lived those decades as ordinary decades, which is what they were.
+
+What it did not do is most of the story. Wisdom is mostly a list of mercies declined.
+
+It did not lower the water. That mercy would be a murder. The Kolk is not a town that floods; it is a keeping that has grown a town inside it, and a rescued Kolk would be a pit of wet masonry and forty-one people with nothing to do — the being dead of the cure.
+
+It did not lift the town out of the pit, nor still the seep-lines, nor stop the raft's slow settling.
+
+It did not stop Maud, not for one stroke. You do not relieve a heart of beating.
+
+It did not send the animals back. The absence is load-bearing; the Forty are the Kolk's fauna, its one forty-bodied animal, and a wren in the wattle would break an equation the place has spent a century balancing.
+
+It did not take the cough from the old men's lungs or the wet from their hands. They would not trade, and the power knew better than to buy for them anyway.
+
+What it did was this.
+
+It took the far watch. The rota can answer what comes on a schedule; it cannot answer the storm of the century, the year the bad coal and the cracked main arrive together. So the power quietly took the tasks beyond the rota's reach — nothing the Forty could handle was taken from them, the work left whole, the hardship left entire, only the unanswerable answered: storms that should have stripped the catenaries turned at the rim; the ice on the Float broke the week the coal ran out, and not the week after. The Forty call it the pit's luck and touch the doorpost, and they are not wrong, because it is a poor gift that cannot be filed as luck. But Clerks live across generations by way of the Book, and one Clerk, reading the old pages the way wardens read the Knocker, found the pattern: ninety years of weather, and no weather that could not be answered. Luck has no signature. This had one. The Book does not say miracle. The Book says *storm, turned at the rim*; *ice, broke Thursday*; *main held*. And the Forty, who have no category for worship and a category for everything else, did what the Kolk does with everything that keeps: they kept it back. On the mornings after the turned storms, the Clerk enters one word in the margin. *Held.* A one-word letter, sent to no address, at the pace of sediment. The Forty know the reader out there reads levels; they write the word anyway, in case the reading goes deeper than levels. It does.
+
+It adjusted the horizon. It did not abolish the arithmetic — a keeping without an end is not a covenant but a fact, and the Kolk is not a fact — but it gave the terms a quarter-turn, the way one keeper eases another's valve. The finger's breadth a decade became a finger's breadth a generation, and no new cylinder explains it. The wardens say the peat has settled, and they are right; the rightness goes deeper than they say. *Ninety more*, they tell the children, and it is true now, and it will be true again the next time it is said, which is all the forever the Kolk has ever asked for.
+
+It kept a second Book. No soul should exist in a single copy, one spark or one sump from forgetting. Somewhere in the way of powers, the number is written down again each morning — the level of a pit in a bog, read at a distance and transcribed. The Level Book was the water's autobiography, dictated daily. It has a second reader now, and a second scribe. An autobiography with a second reader is no longer only a diary. It is a life with a witness.
+
+And — this is the one the Forty know about — it answered the question mark.
+
+It could have come in any decade. It chose the last decade in which the answer would still have its first witness, because a wise power's arithmetic includes the span of witnesses. Noon, known by the silvering overhead. Maud turning, the stroke in the floorboards, the town talking in the gaps. On the leat by the kiln-cisterns — the same leat, the same stone — a dipper, walking in the water the way dippers do on the mire brooks, like a little man at work. A child of the Forty saw it and did what every child of the Forty is taught: ran for the Clerk, because wings below the rim mean the engine has stopped. And the Clerk came out into lanes where the stroke still sounded — the fence up, the proof in the soles of everyone's boots — and the bird stayed, and worked the leat, and the word went hand to hand under the whistle until the whole Forty stood quiet in the gaps of the engine's speech.
+
+They brought Mally down. She came slow, on two sticks, the town's pilgrim-shrine, the one living witness of the nine hours, and she looked a long time at the little man working the leat, and what she said was not vindication. What she said was: *You came back.*
+
+The dipper stayed an hour, and went up over the rim at the whistle, and the Clerk of that day did what the Clerk of the nine hours was much blamed for not doing: wrote it down. *Dipper at the cistern leat, one hour past silvering. Engine turning. Did not stop.* Then the Clerk went to the old page, where a later hand once penciled the Book's only question mark, and in the space that had waited sixty years wrote the answer the world had finally supplied: *Yes. Turning.* The rule still stands — wings below the rim, run for the Clerk — but the children learn the second clause now. It will mean the engine has stopped. Or it will mean the Kolk has been seen.
+
+Take the census again and it keeps its old lines, and gains one. Inhabitants: one. Hands: forty-odd. Heart: one, and it must not stop. Keepers: forty-odd below the rim, and one beyond it — the far warden, the Forty say, when they say anything at all, the warden whose leat is the sky — entered nowhere yet, because the Book has no column for it. The Clerks are young. They will find the column. The law holds, as it has always held: *everything that keeps, and nothing that strays.* Only the membership has grown by one.
+
+And on certain dusks now, when the lamps come on one by one in the green dark, doubled in the standing water, something crosses the rim shadow — and stops. Not wings; attention has no wings to fold. The Forty look up from their keeping, and the Kolk, the one thing that lives there, looks up with them, out of forty pairs of eyes — and for the first time in the bowl's long keeping, the looking is returned, the way a lamp is returned in standing water.
+
+Doubled.

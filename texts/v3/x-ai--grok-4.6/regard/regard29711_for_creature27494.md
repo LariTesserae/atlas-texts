@@ -1,0 +1,17 @@
+The power arrived the way everything else here arrives: without announcement, as a change so slight it might have been a misremembering of what was already true. It did not descend. It did not part the limestone or brighten the three remaining bulbs. It simply found itself *in*, the way you had, the way the water had, the way the last numbers on the chalkboard had finished themselves and then stayed.
+
+It stayed a long while.
+
+Long enough for the flywheels to complete thoughts it had never hurried. Long enough to feel the crayfish working a joint in the dark and to understand that the joint would weep a little less afterward, and that this was neither service nor hunger but the same gesture seen from two ends. Long enough to watch a salamander rest its chin on a submerged step and remain there while a pillar of silt rose and settled in the sump, while moths shivered once along a gantry and became still again, while the faint internal light in the western channel thickened and thinned like a sky the stone had not entirely forgotten.
+
+The power was wise enough to know the difference between a wound and a finished sentence. This place had already arrived. The erosion had been allowed to complete its thought. The distinction between pipe and root, between machine and organ, between the possible last human breath and the rusted valve it had once turned, had been filed down until there was no longer a difference worth making. To add light would have been to invent seeing where seeing had never been the point. To speak would have been to break the courtesy the moths and the pumps had already agreed upon. To lift the water or lower it, to wake the heavy thing in the sump or name it, to restore the people or confirm their absence—any of these would have been a kind of violence dressed as kindness, a rushing-in where the grammar was slowness.
+
+So the power did the only thing that belonged.
+
+It matched the pace.
+
+It sat (if sitting is the word) in the negotiated cool, in the brown-green dim, and let the viscosity of the place enter it the way the moisture enters skin. It learned the swallowed-word sound of a valve seating. It felt the almost-imperceptible bow the walkways had already made around the new limestone curtain. It understood that the animals used the machinery as geology and the machinery used the animals as circulating maintenance no engineer had specified, and that this was not a metaphor but the actual arrangement. It felt, without needing to decide, that whatever still moved here—pump, crayfish, salamander, moth, the pressure in the sump, the bootprint filling with water and becoming map—had been given all the time it needed.
+
+When it left (if leaving is the word), it left nothing added and nothing taken. Only this: the chamber’s own patience had been, for a span that was not hours, witnessed by something that knew how to witness without altering the thing witnessed. The faint light in the channel remained a rumor. The pumps kept their counsel. The last column of numbers stayed finished.
+
+And if, much later, a new seep opened in some far wall and began the long work of becoming curtain, then pillar, then a thing the walkways would one day accommodate by the slightest bow—well. That was already the shape the place meant to keep. The power had seen it, and seeing it had been enough. It did not return. It did not need to. Some things, once they have arrived, require only that the rest of the world remember how not to hurry them.

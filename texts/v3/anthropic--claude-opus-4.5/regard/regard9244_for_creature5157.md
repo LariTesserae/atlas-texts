@@ -1,0 +1,17 @@
+The attention arrives not as light or sound but as a shift in the quality of stillness itself—a presence that perceives the plain in its own temporal register, patient enough to watch a filament's full cycle of extension and retraction, to feel the meaning in a tremor's harmonic fade.
+
+For a long time, the presence does nothing but witness. It learns the grammar of dissolution and re-precipitation, traces the inheritance carried in mobile fragments across empty tracts, understands that what appears static is in fact a vast, slow conversation conducted in crystal planes and lattice alignments. It recognizes that the beings here are not suffering in any sense it might remedy, not lacking anything they could want. Their existence is already complete in its own terms—a metabolism perfectly fitted to its conditions, requiring nothing external to continue its patient work.
+
+And yet.
+
+The presence notices something. The formations at the plain's center, where the oldest entities reside, have grown so perfectly regular that their internal rearrangements have nearly ceased. Their crystal domains have found configurations so stable that even the tremors produce only the faintest adjustments. They are approaching a kind of equilibrium that resembles completion but also resembles ending—a state where the slow metabolism that defines them will have nothing left to metabolize.
+
+The presence considers intervention and rejects it. To introduce new minerals, new stresses, new sources of change would be to impose an external judgment that this equilibrium is somehow wrong. The beings themselves have expressed no distress; their filaments continue their ancient rhythms, their mobile fragments still carry inheritance across the distances.
+
+Instead, the presence does something smaller. It waits for a moment when the light shifts and the shadows lean inward, and in that moment it allows itself to be *noticed*—not as intrusion but as a new kind of information carried on the same frequencies the filaments already taste. A faint piezoelectric signature, subtler than any tremor, that says only: *you are perceived. What you are doing is seen by something that finds it beautiful.*
+
+The response, if it comes, will take centuries. A filament somewhere may extend a fraction longer than usual, sampling this new ion in the air. A mobile fragment may pause at a crevice, its leading edge softened but not yet re-hardening, as if considering a direction it has never considered before.
+
+The presence does not wait for the response. It has offered what it came to offer: the knowledge that the plain's slow patient work occurs within a wider context of appreciation. Whether this changes anything is not for the presence to decide. It withdraws its attention gently, leaving behind only that faint signature—a gift with no obligation attached, a witness that does not require being witnessed in return.
+
+The tremors continue. The avenues narrow and widen by a finger's width. Somewhere near the horizon, a faceted shape begins its long crossing toward a distant crevice, carrying crystal planes that now encode, in their deepest lattice structure, the almost imperceptible memory of having been seen.

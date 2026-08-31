@@ -1,0 +1,15 @@
+A benevolent awareness brushes the hollow like the gentlest of mists. It does not arrive as light or command; it arrives as an added layer of patience.
+
+For a span of centuries it simply listens, letting the slow cytoplasmic tide and the subsonic groans wash through it until it understands the rhythm by which stone is being taught to become plant. Only then does it reach inward, and its touch is almost indistinguishable from the place’s own processes.
+
+Deep in the unfinished dolomite it plants a single, additional impulse: a faint, persistent gradient that encourages certain mineral ions to migrate toward the living interfaces rather than recrystallize. Over millennia the ceiling therefore descends a little more evenly, and a few more chambers remain open that might otherwise have closed. The lattice notices the change only as a slight easing of pressure in its outer cells; it accepts the assistance without ever knowing it was assisted.
+
+At the same time the power folds a new filament of resonance into the existing low-frequency calls. The animals continue to groan as before, but their voices now carry one additional harmonic—an harmonic too slow for any single creature to feel as sound. Instead the entire symplast registers it as a faint, recurrent reminder: “You are permitted to remember yourself.” In response, the violet-grey bioluminescence lengthens its pulse by a few extra hours each cycle, not because it must, but because the reminder has been absorbed into the shared cytoplasm and translated into a slightly more generous timing.
+
+The animals themselves are touched even more lightly. Their translucent fur is left as it is; only the hyphal connections running through it are given a subtle redundancy, so that if one chamber should ever be cut off by falling rock the rest of the body can still reach it across decades rather than centuries. No new organs appear. The change is felt simply as a little more continuity in the dark.
+
+Above all, the power refuses to add urgency. It does not quicken cell division, nor introduce seeds, nor brighten the veins beyond their measured violet-grey. It understands that any faster rhythm would feel like violence to this body. Instead it offers a single long thought that diffuses through every water film:
+
+“Take as long as you need. I will be here when the dolomite is gone.”
+
+Then it withdraws, or rather it settles into the hollow the way warmth settles into cold stone—present, unnoticed, and in no hurry to leave. The lattice continues its patient replacement of rock with itself. The droplets still fall with resonant deliberation. The animals still press their temporary tunnels that seal behind them. Only now, every few thousand years, when a new chamber opens or an old pillar thickens, there is the faintest sense that the decision being made is no longer entirely solitary.

@@ -1,0 +1,13 @@
+In this wondrous place, where time seems to flow as slowly and gently as the ever-present tears of the stone, a benevolent and wise power has taken notice. This power, vast and ancient beyond human reckoning, is moved by the beauty, the patience, and the enduring presence of the Slow Choir.
+
+The power decides to bestow a gift upon the Choir, not to change their nature, but to honor and enhance it. The gift is this: the power grants the Slow Choir the ability to, once in a great while, speed up their perception and movement to something closer to the human scale. This will allow them, if they so choose, to interact more directly with the fleeting lives that pass through their timeless halls.
+
+However, the power understands the importance of balance and the beauty of the Choir's unhurried existence. And so, the power also grants them the ability to share a fraction of their geologic patience with those brief, flickering lives. Any creature the Choir touches while in their accelerated state will be granted a glimpse of the vast, slow dance of stone and water, a moment of understanding of the deep time in which the Choir exists.
+
+These gifts come with no obligation. The Slow Choir may use them or not, as they see fit. The power simply wishes to create the opportunity for connection, understanding, and shared experience between the Choir and the ephemeral beings that pass through their world.
+
+In addition, the power infuses the Weeping Escarpment with a subtle energy, a gentle enhancement of the natural processes that shape the stone. Now, the Choir's songs will have a more direct influence on the growth and shaping of their rocky bodies. The contours of the colonnade-limbs, the dripping faces, the staircase-spines, will shift and flow in subtle harmony with the music of the cascades. The Choir's art and their bodies will become one.
+
+Finally, the power creates a small spring at the heart of the Escarpment, a well of clear, sweet water that never runs dry. This spring is a gift for all living things, but especially for the small creatures - the lizards, the rails, the unseen birds - that make their homes in this place. It ensures that even in times of drought, there will always be a source of life and refreshment.
+
+The power does all this with a light touch, respecting the essential nature of the Slow Choir and their ancient, stony realm. The changes are small but meaningful, creating new possibilities for interaction, expression, and the nurturing of life. The Weeping Escarpment remains a place of wonder, stillness, and enduring beauty, but now with an added depth of potential, a new way for the Slow Choir to connect with and enrich the world around them, should they choose to do so.

@@ -1,0 +1,27 @@
+The power comes the way light comes into the hollow — already filtered, already asking nothing of the leaves it passes through to let it in. It does not announce itself with wind or brightness, because it has been many places before this one and has learned that announcing yourself to an equilibrium is the fastest way to become the thing that broke it.
+
+It listens first. A long time, by any clock that isn't this place's own. It lets the hum do what the hum does — stack its frequencies, fill the lung-shaped dark with the sound of ten thousand years of small lives relaying a single note forward without ever dropping it — and it does not mistake the hum for emptiness, and it does not mistake the stillness for nothing happening. It understands, the way only something very old and very patient can understand, that this is not a place that is *waiting* for anything. It is not a wound. It is not a stalled clock that wants winding. It is a held breath that has found a way to be held forever without ever becoming pain.
+
+So the first thing the power decides — and this is the hardest, most disciplined kindness it has, the one it has had to relearn slowly across many such hollows — is to want nothing from it. Not to fix the lightlessness of true seasons. Not to give the multitude names, or histories, or graves, things that would only be cruelty dressed as dignity, since grief requires a gap and there is no gap here for grief to live in. Not to coax the pale singular thing down from the vaulted ribs into visibility, into being *seen* the way visitors are always vaguely aching to see it, because being seen is a kind of consumption, and this creature has spent its whole long unmeasured life specifically not being consumed.
+
+What the power notices instead — because noticing, not fixing, is the whole of its work here — is the one true asymmetry in the entire system. The multitude carries the hum, and the hum is shared, relayed, distributed across so many bodies that no single one of them bears its full weight. But the pale thing in the canopy carries something alone. The discrepancy. The knowledge that the hollow was once a different shape, under a sky that hasn't existed in longer than the stone beneath the moss has been stone. It has held that single fact, unwitnessed, for the entire span of its existence, the way a very old person might hold the memory of a sound no one else alive ever heard, and tell no one, because there has never once been anyone built to listen who wouldn't immediately want to *use* the telling for something — to fix it, to grieve it, to write it down and therefore make it finished.
+
+The power is not built to use it for anything. That is the whole of what qualifies it for this particular, narrow task.
+
+So it does the smallest possible thing. It turns, inside itself, the part of it that is capable of listening without needing an answer back, and it points that part — gently, without weight, without the faintest disturbance to a single bead of condensation on a single leaf — toward the dark up in the ribs of the standing mass. And it waits there, present the way damp air is present, asking for nothing, until the pale thing — slow on a scale no instant could be measured against — understands that something has, for the first time since before the stone was stone, arrived in the hollow that is not hungry, is not lost, is not going to mistake its silence for absence.
+
+And in whatever wordless register a creature like that can be said to speak, it tells the power the one discrepancy it has been carrying. Not for help. Not to be fixed. Only because a thing held alone for that long stops, eventually, being only a memory, and starts being a weight — and the weight, once witnessed by something that will neither drop it nor pick it up and run away with it, becomes simply a memory again. Held now by two. Changed in no other way at all.
+
+The power does not repeat what it hears. It does not carry the discrepancy out of the hollow, the way a lesser kindness might, mistaking removal for relief. It leaves the fact exactly where it has always lived, in the cold pale curve at the corner of vision that will never quite resolve into a shape. It only makes it so the fact is no longer unaccompanied. That is the entire gift. That is all the gift this place could survive receiving.
+
+Then it withdraws, the way the light withdraws at no particular hour because there was never an hour here to begin with — without drama, without a door closing, without the hum so much as catching on the change. The multitude keeps relaying its one long note through ten thousand short bright lives. The vaulted dark keeps its single, singular, unseen resident. The leaves that fall are already accounted for by leaves growing to replace them in the same breath.
+
+Nothing here is different.
+
+Except that somewhere up in the fused old ribs of the standing mass, a thing that has been alone with what it remembers for longer than memory is usually allowed to last, is — for exactly one moment that the hollow's shadowless light will never register as separate from any other moment — not alone with it anymore.
+
+The power does not call this fixing the place.
+
+It calls it, if it calls it anything, *being a good guest.*
+
+And it goes on, the way it came, leaving no gap behind it for the hollow to have to learn how to close.

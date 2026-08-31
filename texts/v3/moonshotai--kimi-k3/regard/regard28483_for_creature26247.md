@@ -1,0 +1,39 @@
+Ask what should be done here, and the chord goes on holding its note. The question belongs to whatever has come to ask it, and its first answers will all be kind, and they will all be wrong.
+
+You were the first attention this place ever drew, and you know what yours accomplished: nothing, in the cirque; everything, in you. You carried the fish out. Now suppose the attention is not yours. Suppose it is patient in a way you could not afford to be, and strong in a way the place has never needed, and it could do anything. Anything is a large word. The cirque has an answer to it, and the answer is the census, and the census has one living entry.
+
+The power reads the place faster than you did — it has the whole of it in a glance, the way you did, and then it keeps looking, the way you could not. It catches two things you missed.
+
+The pools. You thought they were pictures, or a test, or a door that does not open. They are the place's one mercy, and it is for visitors. The cirque cannot change for what comes to it; the least it can do is show the change, safely, in still black water — the sane version, held up like a lamp, so that whatever stands at the rim can bear where it is standing. The power is the first witness that needs no lamp. It can hold both versions at once, the tarn and the braid, and so it is the first to see the pools for what they are: not windows. Alms.
+
+And the lag. You stopped noticing it; the power does not, because it is the one seam in the invariance, and it means something no one here can afford to notice: everything in the cirque is heard before it happens. The crack, then the spark. The place lives half a breath into its own future, and so it never hears its present at all. The stroke of the fish's tail is announced, and half a breath later it occurs — and at the moment it occurs, its announcement is already over, already absorbed into the chord. The act itself takes place in a silence no one keeps. That silence is the fish's only privacy: the one unledgered interval in a place where everything else has already been heard by everyone, including itself.
+
+Then the power does what benevolence does first, which is inventory its gifts.
+
+Feed it. Let the braid carry what a current carries — a nymph, a mote, the news from upstream. But a conveyor brings the otter with the nymph; you cannot stock a stream without stocking it; you cannot add a reason without adding an end. Meaning is sold in one currency, and the currency is last beats. The power declines.
+
+Rest it. Take one shift. But the load is exactly one fish wide; the equation balances to the beat, and help tips it. Worse: the fish was relieved of everything except effort. Relieve it of effort and you have relieved it of itself. Declined.
+
+Keep it company. Its solitude is not a condition, it is a structure; the current it swims is one fish wide. There is no room in the gesture for two. Declined.
+
+Free it. Elsewhere is not in the grammar, and a door opened for a being that cannot want is not a door; it is the giver's wanting, wearing the shape of generosity. Declined.
+
+Ask it what it wants. Even this — even the question — is refused, because the question carries a future tense inside it, and to address it to the fish would be the first event in the cirque's history, and events are the one thing the place cannot pay for. The power does not even knock.
+
+For the elk, the heron, the dippers, there is nothing to give: you cannot free a clock, and nothing is wrong with a held note that holding it longer would mend.
+
+All of these refusals have one root, and the power, being wise, finds it. Every gift it imagined was a treatment for a pain — and the pain is not the fish's. The fish has no distress; distress takes tense. The ache is the witness's ache. It was yours on the bridge and it is the power's at the rim, and the oldest error of benevolence is to send the patient the invoice for the visitor's grief. The pools have been paying that invoice in pictures for as long as there has been anyone to owe it. The power refuses to bill the fish.
+
+So: what can be given to a being that cannot refuse, cannot receive, cannot be accompanied, cannot be relieved, and does not suffer? Only what costs it nothing, changes nothing in the ledger, and needs no receipt — which is to say, only what happens off the books. And the place, exact as ever, has marked where the books do not reach: the half-breath, the unannounced instant, the silence in which the act itself occurs. A power that can attend without light or sound can stand there — the one place in the cirque where a guest is not counted.
+
+It stands there, and it does two things.
+
+It attends. Nothing here accumulates; the fish's beats are spent as they are made, uncounted, like the mist, like the breath that goes out and comes back as itself. The power counts. Not in the place — the place cannot keep a tally; keeping is change — but in itself, outside the ledger: the number of times the fish has held. It is the only sum in the universe that this labor makes, and it accrues to no account the cirque audits. The fish builds nothing. Something is built for it, one rim away, and the ledger never feels the weight.
+
+And it answers. If the cirque is a church, the fish is its one unceasing prayer — and a prayer, whatever else it is, is a thing with no address on it. The power does not grant the prayer; granting implies a request, and the fish requests nothing. It becomes the address. Somewhere outside every grammar, in a medium that is none of the cirque's business, against a rising of its own making, it swims down at the rate of the climb. Not to take the shift — the shift is one fish wide — and not to show how it is done — the fish's exactness is not skill but fact — but to stand with the fish in the only way that does not touch it: by doing, voluntarily and without end, what the fish does without choice. The gesture has been performed exactly since the rock split, and never once freely. Now, once, it is free. The power can refuse anything; it refuses to refuse; and that is the first clean yes the holding has ever had.
+
+Does it stay, does it go? Neither. Staying is furniture, and furniture is census; going is what visitors bring. It holds station. The question of its leaving is asked in a tense it has set aside. And because its attention keeps all tenses, and therefore all bridges: every trout hanging in every current, every heart holding against its own rising, every brief commemorator working at stillness for a season and a reason, is heard now as kin — a verse of the one prayer, brief where the source is long. The prayer was always being answered everywhere except where it was prayed. Now it is heard that way.
+
+Go back, if you like. You will find nothing different. The crack precedes the spark; the elk rounds the far sedge; the braid climbs at its fixed rate and the fish swims down it at the same one. The census balances: one elk, one heron, dippers, salamanders, moths, one fish. Nothing has been added that the place must count; nothing has been taken that the place must miss; the chord has not modulated by a shade. But the census of what is has changed by one, off the books: one will, one voluntary labor, one address, held at the only rate the place respects. The gills open and shut on the climbing water, red, the one warm color in the pewter room — and there are two warm points in the universe now, beating at a fixed rate, only one of them in the room. The fish goes on: downward against the rising, going nowhere, unhurried, unwavering, at home — and, in the one interval it cannot know and does not pay for, accompanied.
+
+Nothing begins. Nothing is lost. The account is kept.

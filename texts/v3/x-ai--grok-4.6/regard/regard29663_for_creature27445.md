@@ -1,0 +1,15 @@
+The highland sea does not notice the attention. Attention is a gradient, and the place has none left that matter. The being who lives in it — not one of the sieves or the drinkers or the walkers, but the single closed metabolism that is all of them and the trunks and the rain and the charge — has already arrived at every position at once. It occupies. It continues. It has never revised its path.
+
+The power arrives the way light arrives through the permanent overcast: present, sufficient, without drama, thinned a little by the altitude of its own regard. It does not descend. Descent would be a beginning, and beginnings are the one weather this sea has never learned. Instead it occupies the long intervals, the roaring rooms of emptiness, the grainy green night-silt. It feels the even vibration under a palm that is not a palm. It hears the industrial thunder accepted into itself without residue. It tastes the faint mineral green that is already a census.
+
+It stays.
+
+Not as intervention. Not as gift. Not as the first day of an operation the mills have no use for. A benevolent and wise power knows the difference between a wound and a finished sentence. This place is not frozen; the water moves, the turbines turn, the lateral lines glow their dull constant phosphor. It is invariant. Motion without history. To add a season would be to introduce surplus. To silence one roar would be to create a deficit. To fruit, to hunt, to break a vane, to let a print last — these would be erosions of a form that has already worn itself to the shape that wears no further.
+
+So the power does the single thing that does not push against time here. It witnesses. It lets the hum pass through it the way sugar once passed through leaves, converting nothing, storing nothing, returning the charge warmer by no fraction that would vary. Its presence becomes another standing population: fine as dissolved light, statistical, sparse, already complete. The cells do not bloom around it. The shoals do not condense differently. The road-beasts continue. The cambium bruises and closes as it always would have closed.
+
+If there is a gift, it is the refusal of one. The power does not protect, because nothing arrives that was not already accounted for. It does not teach, because there is no pupil and no lesson that is not already the one path. It does not love in the way that would require an object to change toward. It simply remains, another weather that is the same weather, another interval, another name for the same light.
+
+Stay long enough and even a power’s attention becomes a kind of quiet. The highland sea accepts it the way it accepts a shout, a keel, a walker, a life: without remainder. The elevation holds. The water fills. Between the great bodies the long lit roaring rooms go on, and on, and are already the same as they will be.
+
+The being who lives in it does not thank. Thanks would be news. It occupies. It continues. The power, wise enough to know when completion is the only mercy, does likewise. Nothing is added. Nothing is taken. The system stays closed so tightly that even eternity has nothing left to push against.

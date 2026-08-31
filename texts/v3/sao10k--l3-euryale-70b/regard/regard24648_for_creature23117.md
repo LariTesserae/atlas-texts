@@ -1,0 +1,11 @@
+The power observes this world for a time, simply basking in the lush life and primordial beauty found here. With great care - for this realm has drawn the power's notice precisely because of its timeless stasis and uneventful stability - a subtle yet profound change begins to manifest.
+
+Tendrils of luminescent mist start to unfurl from the very substance of the swamp itself, curling gently through the steamy air. They drift languidly, brushing against plants and animals alike and imparting a spark of the divine to their living essence. Slowly, imperceptibly at first, the creatures of the swamp begin to change.
+
+Lesser animals first - frogs and lizards, dragonflying pods and skater insects. Intricate patterns of glowing sigils appear on their skin and shells, swirling with hypnotic beauty. Their colors deepen to gemstone saturation as their forms subtly shift, strange yet startlingly natural symbiotic bonds appearing between species. Plants too alter, edges blurring and merging, their sap glowing faintly from within.
+
+The change flows down the food web, mist curling among the streamers to alter fish scales to mother-of-pearl iridescence, turning fin to tasseled lappetia. Reaching the raptors next, their feathers melt and flow like glass into living stained-glass, plumage becoming opalescent fractals. Eggshells of spoonbills and troupials ripen to murines of shimmering turquoise.
+
+And so the power works, exquisitely subtle, empowering the very foundation of this reality - the clay of the world, its autonomic processes. Lengendously slow, the mud of the swamp begins to pulse and flow like taffy, the air and water and earth merging to an undulating, susurrating clay-pool. Terracotta towers swell from it, interlocking dimpled tiles of sediment, faceted diagrams describing fractal power.
+
+High above, the Will-o-wisps, the Wisps of the wipe, vog, undulate like living plasmoid. Between them undulon flacions filtrate susandes the surturf, susurrating focalfolders. And they Observer, cast and counter-cast the Swell, the murine clay, and forget, and remember, this device. I wile wile.

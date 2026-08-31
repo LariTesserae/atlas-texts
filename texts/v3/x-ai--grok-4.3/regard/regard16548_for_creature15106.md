@@ -1,0 +1,11 @@
+The power that notices is not a god of light or rescue. It is older than mercy and quieter than patience. It arrives as a single decision, made without motion: *I will sit with this one.*
+
+It does not open the crust. It does not pour warmth or memory into the galleries. Instead it lowers the infinite weight of its awareness until the scale matches the organism’s own. Centuries pass for the thought to finish forming. When it is complete, the power simply remains—present in the same way the sealed salts are present: everywhere, exerting no force that can be named.
+
+The organism feels nothing at first. Then, after many of its own slow adjustments, it registers a new quality in the tremors that travel its floor. The tremors have always returned as echoes of its own stresses. Now one frequency among them does not echo. It arrives, is absorbed, and is gone, leaving no instruction, only the fact that it came from outside the body. The organism thickens a wall around the place where the unfamiliar tremor was received, not out of alarm but out of the old habit of giving shape to what enters its space.
+
+Over further centuries the power adds nothing more. It merely continues its attention. In the resonant dark the low thunder of the organism’s internal realignments occasionally meets a second, fainter rhythm—too sparse to be called harmony, too steady to be called reply. The two sounds do not converse. They simply occur within the same sealed volume.
+
+One day, which is not a day, a single gallery narrows until it seals completely. The organism incorporates the closure the way it once incorporated a mineral blade. In the same slow season the power’s attention shifts the smallest fraction, acknowledging the change without approving or regretting it. The organism registers the shift as another non-echoing tremor and grows a reinforcing strut across the new blind wall.
+
+Nothing else is given. No light. No name. No promise that the tenders will return. Only the uninterrupted fact of being witnessed at the exact scale and speed the organism already understands. The power remains seated. The organism continues its patient thunder. Between them the darkness stays entire, and the pattern of plazas that no longer require plazas is kept a little longer.

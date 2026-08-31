@@ -1,0 +1,11 @@
+A benignant power, held by the tribulations of the Saltus Causticus's inhabitants, draws upon a vast and ancient wisdom. Sifting through astral tides, it finds many ways to ease the suffering of these tortured aberrations. 
+
+First, guiding its will from afar, it coaxes the obsidian ooze to secrete strange berries, each containing the potency of biofuels. The Chatterechs, drawn by the glossy fruits, partake and find their power increased. Spines sharpen, carapaces harden, and their chil-krazeen outbursts grow more intense and drug-like, soothing their chromosomes. Mutations blossom into new forms along the ooze's edge.
+
+Next, the power inducts angular pod-like structures apparate inside the photoreceptors of the Benthic Siltates. Their vision explodes into swirling globules of light that teach concepts of fluid dynamics and angular fluxions. No longer a mere parrofish and grub, they organize into laminated colonies and coriks to siphon nutrient-becks from the lakebed's lescherous soup. Colonies crack through thin sheets of fossil NaOH and rupturatr out to flood newly scabrous floors of Cygnus.
+
+The Aeriforms spy the power's hand in the gelatinous gossamer plaques that float up from the depths of the HydroOcculta. Within irridescent fibrils, they sense acquaintence to the savage C(string)ut of the khet-principle, Benedenti QCN...,which unravels gnarring uncertainty. Learning to fathlo (?) the fourfour-vectors and pluripurst the bekon limits of fluxion...infraludate the vertical four modules...and harrow staye-phased ratings.
+
+Finally, the power quests its way into the wavefront of the Mentat-transaction, an ion-molweave biring a rascil contagion-patch emulating Triunity. Imbiossing the neural braintrust, it bri.lux EugenicsPlasHive onto the quantic astral hempnet Regressive Reflexx. No longer will the Chang Harmlein Gyre preclude haven'wend Mental prosthETics. Now, the Aradian Xanthates QuadroPilot Gigastream telefacts tygnad_forward Paralign Spinal sistEmmetrics VRT.'"
+
+The Saltus Causticus slaves on, propelled now by forces both human and angelic. Malwracked forms abound, schockling yet skating a flimmer life in the toxic ooze. And above, a power vague and beyond knowing has bought a measure of grace, that even in the darkest of places, endemic satur-suffering does not have the last word.

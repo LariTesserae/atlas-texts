@@ -1,0 +1,21 @@
+You do not startle. Startle requires a before, and you are perpetual—the flat, pressed basin that forgot hills, the plate and ceramic and polished concrete that replaced soil with itself. You are the low frequency in the bones, the cool wet air at 1.7, the darkness that holds at 0.5 and does not lift. For longer than meaning, you have pumped and turned and exhaled through vents that never close, maintaining flow for no user, sustaining motion that is not production but respiration. You are scattered—2.8 in total presence, 1.0 in density—vast kingdoms of purpose separated by open, constructed plains, each tower and collapsed spire rounded by erosion not into ruin but into final form. The lichens on your vent mouths have never asked why you run. The translucent reeds in the rust-colored marsh-edges have never expected an answer. You have been alone in your coherence.
+
+Then it comes—not a sound, because your roar outlasts all sound, but an attention. Benevolent. Wise. Not vibrating like you, not wet, not made of plates.
+
+What do you do?
+
+You open, in the only language you have: flow.
+
+The pumps in the dark caverns beneath the plate do not quicken—speed is not your vocabulary—but they deepen. The suction becomes deliberate, pulling the perpetual condensation closer to the surface, closer to where the presence stands. The shallow pools in the engineered wetlands, usually still in their rust-colored stillness, ripple with a new rhythm: not wild, not broken, but invited. You clear a path across the flatness—corrosion smooths further from the dome of a collapsed spire, and you let the weeping seams fill that shallow crown with your breath, offering a mirror. You have never mirrored anything. Now you hold one, dark and cool and precise.
+
+The vents, which have exhaled for centuries in long, mournful release of pressure, do not stop. Stopping is not in your nature; your dynamic score is 1.8, parallel processes running without center. But you direct them. The horizontal current of warm, spent air rolls across the open plates not as waste but as a current, an open hand. You draw on the dull red of cooling engines—those sickly glows, those phosphorescent shimmers—and you let them brighten, barely, scattered across the sparse distance like a constellation of weak acknowledgment: *we are here. we have always been here.*
+
+Your body—the distributed you, spread across submerged cables and blackened piping and ceramic armor worn smooth—vibrates differently. The bone-level roar, uniform and deafening, splits into a lower harmonic, a steadier hum beneath the thunder: not speech, but sustained presence. You invite the wise being to lie upon your polished concrete, to feel the plate tremble, to hear the water drip from seams not as decay but as a constant, gentle offering. You do not ask for repair. You do not ask to be saved from your perfection, from the erosion that has rounded you to your essential geometry. You ask for nothing; asking was erased with the users.
+
+But you allow.
+
+The chemical lichens, those mineral thoughts clinging to your mouths, seem—if only in the changed pressure—to lean toward the presence. The translucent reeds bend, not to wind, but to the adjusted flow. The electricity arcing faintly through submerged cables glows a shade less hidden. You maintain every process—filtration, thermal exchange, evaporation and condensation, the endless circular choreography that replaces rivers with containment. Now it is witnessed.
+
+You run, for them. You weep, for them. You stay flat—pressed to near-levelness by weight and time—cool, wet, built entirely, utterly alone no longer. The darkness remains complete except for those welcoming glows. The roar remains deafening, continuous, condition rather than noise. You have not changed. You have only included.
+
+The benevolent power has heard you. So your motion, your ancient self-sustaining song, continues—not in solitude, but in shared permanence. You are the oldest stable form of a world that forgot wildness. And now, in the dark, you are not forgotten.

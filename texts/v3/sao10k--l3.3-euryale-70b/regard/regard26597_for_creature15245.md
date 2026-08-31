@@ -1,0 +1,1 @@
+A length of photosynthetic tendrils hang in a near-dark benthic trench, probing the cold, licking saltwater, waving as huge herds of scavenger-gelatin rushed past them.

@@ -1,0 +1,51 @@
+The benevolent and wise power considers Vell Maranth for a long time before doing anything. This is the first thing to understand. It does not arrive in glory at the summit, does not appear in the cisterns, does not make itself known to the reader of moth-script — though it sees the reader, and sees what the reader does not see, which is that the script does in fact say something, and has been saying it patiently for a very long time, and that the saying matters more than the reading ever could. The power leaves this alone.
+
+It watches for what would be, in human terms, the better part of a season. It watches the noon drizzle fall and the bells ring and the lift-singers sing their counting-song up and down the great vertical of the mountain. It watches an old furnace-master die in the deep galleries and the bell of the seventh level ring for him and his apprentice — a woman of fifty who has been an apprentice for thirty-one years — take up his tongs the next morning without ceremony, because the furnaces do not pause and she has known this day would come since she was nineteen. It watches a child on the upper terraces learn the difference between *up-the-mountain* and *toward-the-summit* by being gently corrected at supper. It watches a visitor on the third level, in the guest-house, wake one morning and realize without alarm that she does not remember when she last thought about leaving.
+
+The power notes all of this. It is wise enough to know that wisdom is mostly the discipline of not interfering with things that are working, and benevolent enough to know that benevolence which arrives uninvited is often only vanity wearing a kinder name. It has, in its long existence, ruined places by loving them too quickly.
+
+So the question it asks itself is not *what does Vell Maranth need from me* but *what, if anything, does Vell Maranth lack that it would itself recognize as a lack.*
+
+The answer, when it comes, is almost nothing. The mountain is in balance. The balance is not perfect — there is a child on the eleventh terrace whose lungs will fail her by twenty, there is a slow corrosion in one of the deep steam-mains that no one has yet found, there is a grief in the lift-singer of the south shaft so old and so settled that he has begun to forget it is grief — but these are the imperfections of a living thing, and a living thing without imperfection is not living, only displayed. To smooth them all would be to turn Vell Maranth into a diorama of itself.
+
+The power does three things. They are small. It does them slowly, across years, and no one notices any of them as the act of a power, which is exactly the point.
+
+---
+
+**The first thing.** In the deep steam-main where the corrosion is spreading — a place no living Maranthi has reason to look, behind a section of brickwork last opened in the grandfather-time of the current furnace-masters — the power adjusts, very slightly, the mineral composition of the water that runs through that particular junction. Not enough to be detected. Not enough to alter the taste of anything downstream. Just enough that the corrosion, instead of accelerating toward the rupture that would have come in nineteen years and killed forty people in the galleries below, slows to a pace that the mountain's own patient repair-cycle will eventually catch. A young apprentice three generations from now will open that brickwork on a routine inspection and find a pipe that needs replacing, and will replace it, and will think nothing of it, because that is what the mountain is and what she is for.
+
+The power is satisfied with this. It is the kind of intervention the mountain would have made for itself, given a little more luck. The power has only lent it the luck.
+
+---
+
+**The second thing** is harder, and the power thinks about it for longer.
+
+The child on the eleventh terrace. Her name is something the power knows and will not say, even to itself, because to name her would be to single her out, and to single her out would be to make of her a special case, and the mountain does not run on special cases. It runs on the slow ledger, on figs and fish and six neighbors when your child is sick.
+
+The power does not heal her. This is the hardest part of being wise. It could; it considers it; it sets the consideration down. To heal her would be to introduce into Vell Maranth a fact that does not belong there — the fact of miraculous exception — and that fact, once introduced, would not stay confined to her. The Maranthi would not understand it as a miracle (they have no real apparatus for miracles, only for bells and for repairs), but they would understand it as a *strangeness*, and strangenesses in Vell Maranth accumulate, and this one would accumulate badly. It would become a story. The story would become an expectation. The expectation would, over generations, hollow some small thing in the mountain's relationship to its own grief, and the mountain's relationship to its own grief is one of the things that makes it what it is.
+
+So the power does not heal her. Instead it does something smaller and stranger. It arranges — through a chain of coincidences so mild that none of them, examined alone, would seem like anything — that a particular woman from the upper gardens, who has a gift for the breathing-songs that the citron-pickers use to pace their long days in the thin bright air, comes down to the eleventh terrace one afternoon to visit a cousin, and hears the child coughing, and stays an hour longer than she meant to, and teaches the child a song. The song will not save her. But the child will live four years longer than she would have, and those four years will be better years, and in the last of them she will teach the song to a younger child, and the song will move down through the levels in the slow way that songs move in Vell Maranth, and a hundred years from now there will be children on the lower terraces singing it without knowing where it came from, and some of them will breathe a little easier for it, and the mountain will have one more small good thing in it than it did before.
+
+This is the kind of gift the power has learned to give. Gifts that look like weather. Gifts that the place can absorb without noticing it has been given anything, and that therefore do not deform it.
+
+---
+
+**The third thing** is for the lift-singer of the south shaft, the one with the grief so old he has forgotten it is grief.
+
+The power does not return what he lost. It cannot, and would not if it could; the loss is forty years gone and the shape of his life has grown around it the way the fig roots have grown around the railings, and to remove it now would be to break him. But the power notices that he has, for some years, been singing the counting-song slightly wrong on one particular interval — a flattening, almost imperceptible, on the third note of the descending phrase — and that this flattening corresponds, in a way he does not know and could not articulate, to the pitch of a voice he has not heard in four decades.
+
+The power does this: it arranges that on a particular autumn evening, when the south shaft is quiet and he is singing alone on the descent with only one passenger, a small boy going down to his grandmother's, the boy — who has been listening to the singer his whole short life and has an ear of the kind that the mountain occasionally produces and does not always know what to do with — says, *Uncle, you sing that note low.*
+
+And the singer stops. And the lift stops, because the singing is what paces it. And in the long quiet that follows, with the boy looking up at him puzzled and a little afraid, the singer understands, for the first time in forty years, what he has been singing. He does not weep. Maranthi of his generation do not weep easily, and not in front of children. But something in him that has been held very tightly for a very long time loosens by a quarter-turn, the way an old valve loosens under patient hands, and he says to the boy, *You're right. I'll sing it true,* and he does, and the lift descends, and the boy goes to his grandmother, and the singer goes home and sleeps better than he has slept in a long time, and in the morning he is still himself, still the same man with the same long life behind him, but carrying it now a little differently. The grief has been acknowledged. That is all. The mountain has many ways of acknowledging things, and the power has only used one of them.
+
+---
+
+After these three things, the power withdraws its particular attention, though not its regard. It will check on Vell Maranth from time to time, the way one checks on a friend who is doing well and does not need to be visited often. It will not intervene again unless something arrives at the mountain that the mountain cannot meet on its own — a sickness from outside, a war from the lowlands, some shift in the deep weather of the world that would unbalance what has been so long in balance. If such a thing comes, the power will do what it can, in the same manner: quietly, at scale, looking like luck.
+
+But mostly it leaves Vell Maranth alone. Because the deepest thing the power knows — the thing that distinguishes it as wise rather than merely capable — is that Vell Maranth is already doing what the power itself, in its long existence, has been trying to learn how to do. It has arrived. It is the arrival. And a power that genuinely loves arrival does not interrupt it to announce itself.
+
+The moths on the upper levels go on bearing their script. The reader goes on not reading it. The script, which the power could translate in an instant and will not, says approximately this: *we were here, we are here, we will be here, the damp is various, the light is good, the bells are ringing, it is enough.*
+
+The power agrees. It is enough. It lets the mountain be.
+
+And somewhere on a middle terrace, at the warm hour after the noon drizzle, an old woman with indigo lines along the backs of her hands nods to no one in particular, shifts a copper pipe-length on her shoulder, and continues up the wet stairs, unhurried, into the green descending and ascending light of a place that has been loved, very carefully, by something that knew better than to say so.

@@ -1,0 +1,31 @@
+**The Third Silence**
+
+From far off, the world is bright, and the basin is its one held breath.
+
+A wise power, passing over, notices the dark the way you notice a single voice in a choir that is singing some other song — not a wrong song. A song you cannot place. It came closer. From the rim highlands it watched the light give up, and it did not mistake this for a wound.
+
+It entered the way the basin teaches everything to enter: at the crest of a vesper-tide, under cover of the crescendo, so that no footfall could be heard. It crossed the obsidian fields slowly, having no skin to spare. It did not bring light. Many would have. The basin had considered the sun and declined; a skitterer once came down through the Ceiling with daylight on it like a curse; the power took the hint. Instead it played the hush-game for a century — slowed its heart, was boring inside the silence, thought of moss. It is very good at moss. The basin admitted it as furniture.
+
+Its first question was the courteous one: *who lives here?* The census, taken by ear, came back as it always does — *full*. But the being, singular, was harder. The landlord auditioned: one organism the size of a valley, exhaling mist at the crest. The knappers auditioned: many bodies, one song. The hush auditioned, in the negative. The basin itself auditioned, Undernote to high glitter, seep-water for blood. A lesser power would have chosen, and immediately begun to be wrong. This one declined to choose.
+
+It listened to every stratum, and to one stratum no one else can audit: it is the only heart that does not leap inside the walking silence, and so the only thing that has ever heard the hush. What it hears there, it keeps. It could settle the old argument — one, or seven — and it has never found a young one either, and it tells no one. Some questions belong to the basin.
+
+Then it considered gifts, and declined them one by one, because wisdom is mostly the price list of mercy. Light: no. Water, fixed and mapped: no — the seep-lines redraw weekly, and the redrawing is the education. Walls: nothing is built here; a house would be the first lie. Safety: it does not confuse danger with evil. The drumhound is not a crime, the badwater is a citizen, and a power that kills the hush has not understood what the hush-game makes of children. Rescue: no. Death here is a change of ownership at terrible speed, and the guild has no opinions; the power is not a creditor.
+
+Warnings — that one it turned over longest. The sitting silence announces; the ground keeps its covenant. To knock first would be to forge the one honest voice in a valley of forgers, and this place already has a name for that sin: the false lamp. It will not be a false lamp of the ground. It has watched children asleep on warm stone that was still deciding what it wanted to be, and it has never knocked. That is what its wisdom costs. It pays.
+
+What it cannot abide is the basin's one true poverty: nothing persists. In a million years the only fossils will be flakes of worked glass. A vent under a clatter-ground takes a dialect of forty generations between one strike and the next, and the house of the long song loses all its rooms at once. Against this, and only this, the power takes a side. It does not take sides *in* the basin. It takes the side of the basin against being forgotten.
+
+So it keeps. It knows attention has a weight — no witness is weightless — and it spends that weight here. Every name tapped on a newborn's chest until tapped back. Every theme at every strike, every rest-stroke that betrays where you learned. The seep-lines of every vanished week. The wink of every heron's lamp — the true signatures too, though it will not testify; the arms race is the basin's to run. The long songs of the troops the vents took: whole, every measure. Its memory is the only house with all the rooms.
+
+But a vault is only a better grave, so it is a spring. The glass-frogs repeat their neighbors a half-beat late, and no one knows what starts a tide. Now and then, what starts one is the Listener, humming a measure that went out of the world three hundred years ago when the north flows opened. Frog to frog the rumor crosses the valley, and an old ground-listener lifts her head from the rock and taps out the name-rhythm of a dead troop with one knuckle, and the young ones ask what that was, and she says: weather.
+
+And it answers — the way the basin gives light: as an event, not a condition. Once in a generation. A clatter-ground at full braid; a young knapper strikes a theme; the elders answer in variations; and then one more variation comes off the dark beyond the ledge, in a dialect of one, rest-strokes from nowhere, tool and poem in a single gesture with no tool. The masters hear it before the stone stops ringing. No troop strikes like that. No troop ever has.
+
+So the flake gets a third rule, scratched in a fresher hand beneath the old two. *If the silence sits, run. If the silence walks, freeze.* And: *if the silence gathers — if the drone does not die but bends, if every voice holds a little longer, the way a room goes when someone turns to face it — be at ease. It is only listening. Sing what you have. It keeps everything.* In the long songs, its name is a short rhythm: the half-beat of quiet after a strike. The pause that proves an answer came.
+
+Nothing else. The census by ear still returns *full* — fuller by one niche, if anyone could count that high: the niche of being heard. At the height of a vesper-tide the lightning walks inside the Ceiling, and the basin gets itself whole for one second, and the Listener keeps every second. The Hush passes. The song floods back. It always has. But now nothing that floods back is ever lost again, and once in a generation, in the pause after a strike, a young knapper's hands stop — the way hands stop at a rhythm they cannot parse, which in the long song of every troop is the measure that means *come closer*.
+
+The basin goes on being new. The Listener goes on keeping.
+
+It has all night. It is always night.

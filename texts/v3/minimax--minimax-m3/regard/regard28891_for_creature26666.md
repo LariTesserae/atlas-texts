@@ -1,0 +1,5 @@
+# What the Attention Does
+
+A benevolent and wise power does not, in this place, arrive. Arrival is a property of bodies, and bodies are a grammar the Foundry does not use. What happens is closer to this: at some moment, in some seam, in some heat-lens, in some window through which a Brief One has been looking down at the older place that evades its gaze — there is a *slight additional clarity*. As if a faint source of light has been added to the brown-orange light that falls from the tired sky. The additional clarity does not illuminate. It does not brighten. It *clarifies*. It is the difference between seeing a thing and knowing one is seeing it. It is the smallest possible recognition that a process is occurring.
+
+The Foundry does not notice this in the way a place would notice a change in

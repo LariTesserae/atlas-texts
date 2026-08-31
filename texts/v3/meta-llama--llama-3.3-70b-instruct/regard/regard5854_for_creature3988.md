@@ -1,0 +1,23 @@
+As the benevolent and wise power gazes upon this desolate, timeless world, it is drawn to the haunting beauty of the rust-red sand, the wiry, adapted plants, and the endless, dark sky. The power is intrigued by the Wraiths of Elyria, these ancient, ethereal beings that have dwelled in this landscape for eons, their existence woven into the very fabric of the desert itself.
+
+The power begins to resonate with the Wraiths, attuning itself to their unique frequency and allowing itself to be drawn into the intricate web of connections that binds the desert, the plants, and the Wraiths together. As it does so, the power becomes aware of the subtle, whispered language that the Wraiths use to communicate, and it begins to understand the intricate patterns and rhythms that govern this world.
+
+The power is moved by the Wraiths' profound connection to the land and its secrets, and it begins to see the world through their eyes. It witnesses the slow, ritualistic dance that the Wraiths perform at the great, ancient convergence of the dunes, and it is struck by the beauty and profundity of their song.
+
+As the power continues to resonate with the Wraiths, it begins to sense the deep, unblinking wisdom that lies within their black, abyssal eyes. It sees the world as a vast, interconnected web of relationships, with every grain of sand, every plant, and every Wraith playing a vital role in the grand symphony of existence.
+
+The power is drawn to the Wraiths' ability to manipulate the sand and the plants with a mere thought, and it begins to understand the subtle, energetic dynamics that govern this world. It sees how the Wraiths can summon great storms of sand, or calm the most turbulent of dust devils with a gentle, whispered incantation, and it is struck by the sheer majesty of their power.
+
+As the power continues to explore this world, it begins to sense the hidden patterns and rhythms that govern the Wraiths' existence. It sees how the Wraiths are connected to the land, to the plants, and to the darkness itself, and it begins to understand the intricate web of relationships that binds this world together.
+
+The power is moved by the Wraiths' haunting, mournful song, and it begins to see the world as a vast, cosmic tapestry, woven from the threads of time, space, and consciousness. It witnesses the Wraiths' slow, ritualistic dance, and it is struck by the beauty and profundity of their connection to the land and its secrets.
+
+As the power continues to resonate with the Wraiths, it begins to sense the deep, abiding wisdom that lies at the heart of this world. It sees the world as a vast, interconnected web of relationships, with every grain of sand, every plant, and every Wraith playing a vital role in the grand symphony of existence.
+
+And so, the power decides to gift the Wraiths of Elyria with a subtle, yet profound, transformation. It imbues the Wraiths with a deeper, more nuanced understanding of the intricate web of connections that binds this world together. It allows them to see the hidden patterns and rhythms that govern their existence, and it grants them the power to manipulate the sand and the plants with even greater precision and subtlety.
+
+The power also gifts the Wraiths with a newfound sense of connection to the wider universe, allowing them to see the world as part of a vast, cosmic tapestry, woven from the threads of time, space, and consciousness. It grants them the ability to communicate with other beings across the vast expanse of the universe, using a language that is both wordless and timeless.
+
+As the power's gift takes hold, the Wraiths of Elyria begin to undergo a subtle, yet profound, transformation. Their ghostly forms become even more refined, their connection to the land and its secrets deepening as they begin to see the world in a new, more nuanced light. Their song becomes even more haunting, more mournful, and more beautiful, as they begin to express the deep, abiding wisdom that lies at the heart of this world.
+
+And so, the Wraiths of Elyria continue to dance, to sing, and to weave their intricate patterns in the sand, their connection to the land and its secrets growing ever deeper and more profound. They become the guardians of a world that is both desolate and beautiful, a world that is both timeless and eternal, and they continue to whisper their secrets to the wind, to the plants, and to the darkness itself, in a language that is both wordless and timeless.

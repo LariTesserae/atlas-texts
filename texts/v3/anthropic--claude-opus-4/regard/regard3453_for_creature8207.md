@@ -1,0 +1,29 @@
+The Watcher came as rain.
+
+Not the violent downpours that sometimes lashed the wetlands, but as the gentle, persistent precipitation that could last for days—each droplet a minute eye, each splash a question asked and answered. The Veil People felt it first in the way the water trembled differently against their skin, tasted it in the changed minerals carried down from far mountains they had never seen.
+
+The benevolent power had observed many forms of consciousness across countless worlds, but rarely had it encountered awareness so distributed, so willing to dissolve and reconstitute. Where others built monuments to permanence, the Veil People had become monuments to change itself.
+
+The Watcher's first gift was clarification. In the morning mists, patterns emerged—the seemingly chaotic movements of insects began to reveal an underlying grammar, a syntax of wing-beats and pheromone trails that the Veil People had always sensed but never fully grasped. The elder ones stood in the shallows, eyes closed, absorbing this new coherence. Their chemical communications, previously limited to simple concepts, began to carry nuance, metaphor, even humor. One ancient being released a cloud of molecules that translated roughly to "the heron pretends patience but dreams of fish," and others responded with what could only be called laughter—a rippling of water that spread outward in perfect circles.
+
+But wisdom meant understanding what should not be changed. The Watcher did not offer the Veil People technology or transformation into something more human or less. Instead, it strengthened what they already were.
+
+The children who remained fully aquatic found their deep pools connected by new currents—tunnels of cooler water that ran beneath the marsh, allowing them to travel and meet others of their kind. These deep-dwellers began developing their own culture, communicating through bioluminescent displays that turned the murky depths into constellation maps of meaning.
+
+For those who walked between air and water, the gift was subtler. Their ability to process toxins evolved, not just to survive pollutants but to transform them. Where chemical runoff poisoned the water, Veil People would gather, their bodies becoming living filters. They would stand for days in contaminated areas, their modified organs breaking down complex molecules into harmless components. The marsh began to heal faster, to resist the encroachment of damage.
+
+The Watcher touched the ancient gathering sites, the stone cairns and rotting platforms. These places began to hold memory more strongly. A Veil Person could now touch a cairn and experience not just what one ancestor left there, but layers upon layers of experience—centuries of accumulated wisdom accessible to those patient enough to receive it. The young learned faster, the old shared more completely.
+
+Most profoundly, the Watcher offered the Veil People a choice they had never imagined needing: the ability to dream together. When they entered their fermented fruit trances, they could now merge consciousness completely, becoming for a time a single awareness distributed across dozens of bodies. In these shared dreams, they experienced the marsh from every perspective simultaneously—the view from beneath the duckweed, the sensation of roots drawing nutrients, the ancient memories held in sediment.
+
+These collective dreams began to generate something new: purpose beyond survival. The Veil People started to understand themselves as gardeners of consciousness itself, tending not just the physical marsh but the awareness that emerged from it. They began deliberate experiments—guiding the evolution of certain species to greater sensitivity, creating zones where the boundary between individual and ecosystem grew even thinner.
+
+The Watcher also brought warning, sharing visions of possible futures. Cities expanding, waters rising, chemicals growing more complex and deadly. But rather than despair, the Veil People responded with what could only be called hope—not the brittle hope of preservation, but the fluid hope of adaptation. They began preparing: deepening certain channels for refuge, cultivating new species of filtering plants, teaching their young to process even stranger chemistries.
+
+As its presence began to fade—the rain returning to ordinary rain, the mists to simple moisture—the Watcher left one final gift. Deep in the marsh, where the oldest cypresses stood, it created a spring. Not of water, but of time. Here, the flow moved differently. A Veil Person could enter and experience a day as a century, or a century as a day. It became a place of learning and teaching, where the patient rhythms of the marsh could be studied at speeds that allowed for true understanding.
+
+The Veil People accepted all these gifts as they accepted everything—by incorporation rather than possession. The changes wove themselves into their being like new channels in the waterways, altering the flow without destroying the essential nature of what moved through them.
+
+And in the depths where the full-aquatic children swam, in the canopy where the insects danced their meanings, in the slow movements of those who walked between worlds, a new thought began to form—not in any individual mind but in the spaces between them: We are not alone in caring for consciousness. Others watch. Others tend. We are part of a garden whose borders we cannot see.
+
+The marsh breathed on, heavier and lighter at once, carrying in its humid air the promise that transformation and continuity were not opposites but dance partners, stepping through time in rhythms both ancient and ever-new.

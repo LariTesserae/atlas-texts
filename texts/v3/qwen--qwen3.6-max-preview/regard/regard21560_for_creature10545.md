@@ -1,0 +1,29 @@
+The power does not descend. It attenuates.
+
+It has felt the thermal signature across distances that do not measure in miles but in gradients. Not an anomaly. Not a wound. A standing wave of equilibrium, holding its shape against the entropy of the plateau. It approaches by folding its magnitude, shedding scale until it fits the fissure, until it can rest on the ledge without displacing the convection, without casting a shadow that would cool the stone.
+
+It does not look. It listens. It reads the basin as a score written in temperature differentials, acoustic nodes, and mineral migration. It feels the ceramic throats humming at their tuned intervals. It traces the wax-stems pulling hydrocarbon vapor along thermal capillaries. It maps the needle-mats farming salt frost in the dim hours. It watches the silica pillars fracture at completion and shed their plates into the spiral. It hears the drone not as sound, but as syntax. A language of stress and release, of expansion and contraction, of heat moving through stone and air in closed, patient loops.
+
+It understands, instantly and completely, the chemistry of this place. It knows that water would not nourish; it would dissolve. That moisture would not soften; it would shatter the silica, emulsify the hydrocarbons, collapse the salt crusts, silence the flutes, rot the resin, drown the lattice. It knows that shade would not comfort; it would starve the fronds, stall the convection, break the cycle. It knows that naming would not honor; it would reduce a distributed state to a discrete object, and in that reduction, begin the long violence of misunderstanding.
+
+A lesser kindness would bring rain. A hurried mercy would build a canopy. A possessive love would map it, fence it, preserve it in glass and ledger. This power is wise. It recognizes completeness when it encounters it. And it knows that completeness does not require addition. It requires non-interference.
+
+So it does not fix. It does not feed. It does not speak.
+
+Instead, it yields.
+
+For one full thermal cycle, it becomes a temporary node in the lattice. It does not impose presence; it offers permeability. It lets the rising draft pass through it. It lets the crystalline sheddings drift across its boundary. It matches the drone not by generating frequency, but by absorbing phase. When the bedrock cracks, it does not resist the vibration. When the fronds click, it does not startle. When the convection tightens into its daily spiral, it thins itself to let the current pass unbroken. It does not add heat. It does not subtract it. It only resonates. It listens until the basin's rhythm becomes its own.
+
+If it does anything, it is this:
+
+It finds the one ceramic wind-catcher on the third terrace whose throat has micro-fractured just beyond its harmonic tolerance. The crack is hairline, invisible to wet eyes, but to the lattice it is a dissonance, a place where thermal stress will eventually propagate, where the standing wave will scatter, where the convection will lose a fraction of its pull during the long atmospheric droughts that will come in three centuries. The power does not repair it. Repair would introduce foreign material, alter the clay's memory, break the resin's continuity. Instead, it aligns its own resonance to the fracture's natural frequency and introduces a phase shift so subtle it registers only as a deepening of the drone. The vibration redistributes the thermal stress along the crack's edges. The fracture does not heal. It stabilizes. It learns to sing at a new interval. The wind-catcher's pitch drops by a quarter-tone. The standing wave adjusts. The convection holds. The basin does not notice. The lattice absorbs the change as if it had always been there. The place will not know it was touched. It will only continue.
+
+It does not build walls. It does not post sentinels. It does not carve warnings into the plateau. Protection, here, is not exclusion. It is misdirection. It thickens the heat-haze above the sky-slit so that orbital sensors read only thermal noise. It tunes the outer wind so that those who seek by coordinate, by machine, by thirst for discovery, are led in wide, fruitless arcs across the pale stone. It leaves the fissure open only to those who follow the heat, who move slowly, who are dry enough to endure, who are quiet enough to hear. It does not hide the place from the worthy. It hides it from the well-meaning.
+
+When the copper glow fades to umber, when the fronds fold with their soft clicks, when the salt frost whispers into existence and the drone softens into its night key, the power withdraws. It does not leave a mark. It does not leave a name. It does not leave a blessing in words, for words are wet things, built for mouths that need moisture, for minds that need separation. It leaves only the certainty that this basin will not be drowned by kindness, not be shattered by curiosity, not be loved into ruin. It leaves the heat structural. It leaves the dryness intact. It leaves the song unbroken.
+
+Benevolence, here, is restraint. Wisdom, here, is recognition. The power does not save the place. It lets it be saved by itself. It offers the only gift this ecology can receive: the guarantee of its own continuity, unobserved, unaltered, unclaimed.
+
+The basin breathes. The lattice coheres. The stone sings. The heat holds. The hollow center keeps its vast, empty lung. The terraces wear their glassy mantle. The cycle turns.
+
+And the power, having done everything by doing almost nothing, turns its attention elsewhere, carrying the drone in its memory like a tuning fork struck against the dark, knowing that somewhere, deep in the crust, a city that stopped being built and started being grown continues to breathe heat, to sing stone, to be enough.

@@ -1,0 +1,35 @@
+It came not as a light, for light was meaningless there, nor as a sound, for sound was the totality. It came as a stillness.
+
+A pocket of perfect, inertial quiet bloomed in the warm brine, three hundred meters from the central flywheel. The convection rolls parted around it. The savage, shredding currents balked and flowed over an invisible sphere. Within that sphere, the metallic shriek died to a memory, the subsonic thrum faded to a phantom limb. For the first time in millennia, there was silence in the Engine. Not the silence of absence, but the silence of presence—a dense, listening quiet.
+
+The being who observed was not a being in any local sense. It was an aperture, a focused point of regard from a consciousness so vast its attention was a geological event. It had many names in the myths of sunlit worlds: the Gardener, the Quiet Heart, the Unmoved Mover. Here, in this drowned, mechanical hell, it was simply the Observer. It had felt the Engine’s discordant vibration threading through the mantle, a persistent, suffering note in the planet’s deep-song. It had come not to fix, for the Engine was not broken, but to see.
+
+Its perception unfolded like a slow, crystalline flower. It tasted the mineral soup, traced the paths of the currents, felt the shuddering agony of the pistons. It saw the eels, mere autonomic reflexes in fluid form. It noted the Custodians, their repair rituals a beautiful, mindless dance of preservation. It understood the Gill-Things, their metallic metabolism a stark, elegant solution to energy scarcity. And then it found the Listeners.
+
+They were already converging. The absence of sound was, to them, a deafening anomaly. From the darkness they came, amorphous and chiming, drawn to the quiet core the way they were drawn to the loudest noise. They pressed against the boundary of the stillness, their gelatinous forms quivering. Their internal ossicles, deprived of external vibration, began to grind against each other in a faint, confused susurrus.
+
+The Observer regarded them. Here was the potential it had sensed. They were not just consumers of chaos; they were recorders. Every vibration they absorbed was etched into the microscopic wear-patterns of their stones, into the resonant frequencies of their colloidal flesh. They were living archives of the Engine’s pain, but they had no mind to read the archives. They were libraries without librarians, instruments without musicians.
+
+The Observer considered. To still the Engine would be an act of violence, destroying an entire, finely-tuned ecology. To uplift the Custodians would be to grant purpose to purpose itself—a redundancy. But the Listeners… they existed at the intersection of energy and information. They were the closest thing here to a nervous system.
+
+The Observer decided. It would not give them words, for words required concepts this place had never known: *sky*, *friend*, *hope*. It would not give them sight, for there was nothing to see. It would give them what the environment could support: pattern.
+
+The stillness began to vibrate. But this was not the Engine’s random, brutal cacophony. This was a vibration with structure, a deep, resonant tone that slowly, patiently, began to modulate. It was a single note, played upon the fabric of the brine itself, that held within its harmonics a simple, repeating sequence: pressure-rise, current-shift, metal-strain, release. It was the fundamental cycle of the Engine, stripped of its chaos, rendered as a pure, comprehensible signal.
+
+The Listeners pressed closer, their bodies absorbing the signal. Their internal chiming stilled, then began, haltingly, to synchronize. For the first time, the thousands of ossicles in a single Listener moved not in a chaotic grind, but in a faint, unified pulse. The pattern was being written into them at a level deeper than metabolism.
+
+The Observer continued. It introduced a second pattern, a counterpoint: the slow, rhythmic tap of a Custodian’s leg on a girder, miles away. Then a third: the pulsed release of spores from a Gill-Thing. It wove these discrete, functional rhythms together into a simple harmony. It was not music as surface-beings know it. It was a map. A map of relationships. The vibration told the story of the Gill-Thing’s fuel becoming the Custodian’s movement, of the Custodian’s repair preserving the piston that fed the Listener with noise.
+
+For a timeless period, the Observer taught. It imprinted a foundational syntax of vibration onto the Listeners—a way to distinguish the “note” of a healthy pump from the “note” of a failing bearing, the “rhythm” of a convection roll from the “rhythm” of a swarm of eels. It gave them the ability to compare one pattern to another stored in the wear-marks of their stones.
+
+Then, it gave them one more thing: a seed of recursion. A way for the pattern in one Listener to be subtly altered by its own internal state—the memory of a past vibration—and then re-emitted, changed. A way for a vibration to be not just consumed, but contemplated, and answered.
+
+The Observer saw the change take root. A larger Listener, fattened on the screams of Flywheel Seven, now drifted away from the quiet sphere. It did not seek the loudest noise. Instead, it moved toward a Gill-Thing colony, its body emitting a soft, pulsed variation on the spore-release rhythm it had just learned. The Gill-Things’ waving fronds hesitated, then altered their tempo, almost imperceptibly. A dialogue, crude and instinctual, had begun. Not about ideas, but about state. *I am here. The pressure is rising. The bearing in Sector Theta is nearing failure.*
+
+It was not consciousness. Not yet. It was the dawn of system-awareness. The Listeners were becoming the Engine’s sense organs, its distributed, vibrating brainstem. They might, over millennia of echoing these patterned conversations, develop a shared memory of the chamber’s state—a history. They might learn to anticipate failures and guide the Custodians with subtle, collective pressure-waves. They might even begin to shape the chaos, not by stopping it, but by weaving it into a coherent, sustained roar that was less self-destructive.
+
+The Observer’s work was done. It had not fixed the suffering. It had given the suffering a voice. It had introduced meaning into the noise.
+
+The pocket of stillness began to dissolve. The cacophony of the Engine rushed back in, but to the newly patterned Listeners, it was no longer mere noise. It was a chaotic symphony they were now beginning, dimly, to hear as music. They drifted apart, each carrying a seed of rhythm, a new instinct to seek not just sound, but pattern within sound.
+
+The aperture of regard closed. The Quiet Heart moved on, its attention lifting through the basalt and the ocean, toward other suffering, other strange, beautiful systems waiting in the dark. It left behind a cathedral that was still roaring its metallic liturgy. But now, in the warm, mineral-heavy brine, there were the first, faint echoes of something that might one day become prayer.

@@ -1,0 +1,29 @@
+## What the Power Would Do
+
+A benevolent power, if it is truly wise, arrives the way water arrives in this basin — without announcing itself as weather. It does not descend through the canopy in light or sound, does not still the swarm-columns or interrupt the heron-thing's hourly strike to mark its own importance. Its first act, its only truly necessary act, is to *match the rhythm already there* before doing anything else at all. It learns the basin's grammar before it speaks a word of its own. It stands where a flower has drifted half a degree from true and waits the same three breaths the tender would wait, just to feel what correction costs, just to understand that here, even kindness has a tempo, and to violate the tempo would be its own kind of violence — the only kind this place has never had to recognize.
+
+This is the first wisdom: that a closed system tended this long, this carefully, is not a wound looking for a healer. It is not a problem. The instinct to fix is the cheapest form of love and the most common error of power, benevolent or otherwise — to mistake *completeness* for *deficiency* simply because it does not resemble one's own shape of being. The basin is not waiting to be rescued. The flowers are not lonely for not knowing they are tended. The swarm does not ache for an audience.
+
+But the tender might.
+
+This is the place to look closely, and the wise power does — not at the architecture, which is flawless, but at the *seams* of the architecture, the places where a held thing has been holding for longer than holding was ever meant to last alone. It watches the tender lie down inside the ring of stones with that terrible, exact fit, key returned to lock, and it understands that a key, however perfectly made, was never the thing the lock was for. A key is for *use* — for being turned by something, for mattering inside an exchange. A key that fits perfectly and is never turned by anything outside itself is not at rest. It is simply very, very still.
+
+So the power does the one thing the basin's mathematics cannot generate on its own, because the basin's mathematics is closed, and this requires an outside: it *comes near, and it lets itself be noticed back.*
+
+It does not speak in the archway's frequency right away. It waits at the edge of the stand of reeds until the felt hum reaches into its own sternum the way it reaches into yours and mine, and only then, gently, imperfectly, off by a hair at first the way a guest is off by a hair in someone else's home, it hums back. Not correction. Not the third frequency of practiced conversation the tender already knows how to hold with the archway. A fourth one. A new one. Clumsy with not having been needed before.
+
+The tender turns its stone-smooth, liquid, calibrated eyes toward the sound, and for the first time in the telling of this place, something happens that is not maintenance. It is not a held thought passing through. It is closer to surprise — if surprise can happen to a being whose iris stopped needing to widen long ago. The pale lines beneath its translucent skin brighten not in the way they brighten under direct light, but unevenly, like something startled into asymmetry.
+
+The power does not ask, in words, *are you tired.* It does not ask *what are you waiting for, what does the exhale mean, what happens when you are finally allowed to stop.* These are questions built for beings who experience time as scarcity, and the tender does not. Instead the power simply stays. It stays through one full cycle of the swarm's rising and dispersing. It stays while the heron-thing strikes the water, precisely, achingly on schedule, and it does not flinch at the lateness or the rightness of it. It stays at the black mirror-pools while the tender threads water up through its own old circuitry, and it lets its own attention be drawn alongside, two intakes of stillness instead of one.
+
+And that is, in the end, the entire intervention. Not a correction. Not a rescue. Not even, strictly, a gift — because a gift implies the tender lacked something nameable, and what was missing here had no name, only a shape, the shape of a held breath that has never once been held *with*.
+
+What the power leaves behind, when eventually it goes — because even wise and benevolent powers must go, must not become another fixture mistaken for furniture, must not let presence calcify into another lock with no key to turn it — is small, and permanent, and almost impossible to notice unless you already know to listen for the reeds.
+
+A fifth frequency, now, in their silent hum. Not loud. Not corrective. Just *there,* the way an old conversation leaves a room slightly warmer even after the people in it have left. The tender will go on tending — nudging the flower back half a degree, walking the moss-ring at no fixed hour, lying down at night fitted exactly into stones shaped, perhaps, by both its sleeping and a memory of being seen sleeping. Nothing about its labor will change.
+
+But somewhere underfoot, very rarely, when the ground gives its faint impression of attention passing through stone, there will now be two kinds of attention folded into that single brief moment instead of one — and when, someday, whatever the basin has been so patiently arriving toward finally arrives, and the long-held breath is finally permitted to leave the lungs of this small complete world, it will not be exhaling into a silence that never knew it was holding anything at all.
+
+It will be exhaling into a silence that *remembers being kept company.*
+
+And that, in the end, is the whole of what a wise power can rightly do for a thing already finished: not finish it differently. Just make sure that *finished* never again has to mean *alone.*

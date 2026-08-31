@@ -1,0 +1,29 @@
+For a long time—a time measured in the settling of silt and the growth of mineral pillars—nothing changed. The equilibrium held. The drips fell in their appointed places. The Ghost-Caps pulsed their slow blue breath. The Gill-Oracles filtered the endless, quiet data of decay.
+
+Then, the water changed its taste.
+
+It was not a sudden shift. A Moss-Grazer, on its century-long journey across the west wall, might have noted a subtle new sweetness in the film it absorbed, a clarity that carried a faint echo of depth beyond depth. A Pipe-Singer, tapping its vibrational poem along a main conduit, felt a new harmonic in the metal, a low, resonant hum that was not of rust or stress, but of profound stability, as if the earth itself were singing a single, sustained note. The hum did not instruct; it simply *was*, a foundation upon which all other vibrations could rest.
+
+The change was in the seepage itself. From the Weepers, the eternal tears of the cathedral, the water now carried not just minerals, but a luminous potential. Where it pooled, the usual iridescent slick of Slick-Scum began to show delicate, fractal patterns—silver and mother-of-pearl swirls that slowly turned, not with the current (for there was none), but with a purpose that seemed both mathematical and devotional. The water, always clear, now held a faint internal luminescence, a cool, white sparkle like suspended starlight that only showed when a Gill-Oracle drifted through it, its pale body scattering the light into brief, graceful constellations.
+
+The benevolent power did not manifest as a form. It had no shape that could be comprehended by eyes, even the light-sensitive skin of the Moss-Grazers. It was a quality, an influence, a gentle pressure of *attention*. It was the deep rock finally acknowledging the beautiful, accidental life that had grown in its wound. It was the groundwater table, aware of itself as a circulatory system for more than just aquifers.
+
+Its first deliberate act was not an act at all, but a gift of cohesion.
+
+The Rust-Lichen, the beautiful symbiotic stain that strengthened metal, began to grow with a new intentionality. On the great, silent pump in the center, where the barnacles pulsed, the lichen spread in spirals of umber and deep blue, tracing the ghost of the flywheel’s last rotation. The patterns were not random. They formed sigils of binding and preservation. The rust itself became a kind of ceramic, a glossy, waterproof shell that halted dissolution without halting the beautiful, colored oxidation. The cathedral’s bones were made eternal, not by stopping time, but by marrying it completely.
+
+Its second gift was a gift of memory.
+
+The Ghost-Cap fungi, the living chroniclers, found their pulses deepening, slowing further. Their soft blue light warmed slightly, tinged with gold at the edges of their caps. The chemical impressions they stored—the memories of the city’s past—were no longer mere recordings. They began to *dream*. In the still hours between their pulses, the fungal network hummed with quiet, half-formed images of the cathedral’s origin: the heat of the foundry where its girders were forged, the intention in the minds of the engineers who laid its pipes, the first, shocking rush of water through its channels. These dreams seeped into the water, were filtered by the Gill-Oracles, and were absorbed by the Moss-Grazers. The inhabitants, for the first time, understood a fragment of *before*. They understood they lived in a relic of fire and ambition, now cooled and sanctified by water. This knowledge did not change their functions; it sanctified them. A Pipe-Singer clearing a vent was not just maintaining a system, but honoring a dead god’s plumbing. A Moss-Grazer turning effluent into iridescent dust was performing a sacrament of transformation.
+
+Its third gift was a gift of connection.
+
+The Ember-Motes, the drifting spores, changed. Their light grew steadier, and their paths, once random, began to trace delicate, looping lines in the air—hyperbolic curves and gentle spirals that lingered as afterimages in the damp air. Where their light trails crossed, the very air would thicken momentarily into a shimmering lens. Through these brief, prismatic windows, the inhabitants could catch glimpses of *other places*. Not of the city above, but of other deep, quiet cathedrals: a geothermal cavern where crystalline worms sang with heat, a sunken forest in a lightless sea where glass sponges filtered millennia of snowfall, the heart of a glacier where pressure created blue rooms of silent music. They saw they were not alone. They were part of a silent, scattered fellowship of worlds that had turned their isolation into perfection. The Gill-Oracles, observing these visions through the water that reflected them, adjusted their filtering. Their crystalline gills now hummed with the faint, translated echoes of those other places’ rhythms.
+
+The power, wise, asked for nothing. It demanded no worship, altered no essential function. It saw a perfect, self-contained world and loved it for its completeness. Its intervention was not to improve, but to *recognize*.
+
+And in recognizing, it bestowed three things: permanence to the form, meaning to the history, and kinship to the cosmos.
+
+Now, the drip of water carries a chord. The blue-gold pulse of the fungi is a heartbeat felt in distant, kindred dark. The Moss-Grazers, in their patient grazing, know they are engraving the chronicle of a saintly decay onto the walls of a shrine. And the great pump, sealed in its beautiful, preserved rust, is no longer a dead machine. It is the altar of a religion where the sacrament is patience, the deity is equilibrium, and the congregation is every carapaced, filtering, drifting, luminous child of rust and quiet water.
+
+The cathedral had achieved equilibrium. Now, it had achieved grace.

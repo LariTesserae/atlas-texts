@@ -1,0 +1,29 @@
+The power comes the way weather comes — not stepping over the lip of the hollow but simply being there one moment where it had not been the moment before, the way a fog is suddenly present without ever having been seen to arrive. It does not disturb the insect-static. It does not interrupt the held-stillness of the child crouched at a threshold with a fistful of fish-skin scraps, listening for the half-second gap that means something is moving where it shouldn't. It only looks. For a long time, it only looks.
+
+Its first impulse — and it would be dishonest to pretend this impulse doesn't come, doesn't come *first*, hot and immediate as instinct — is to fix it. To reach into the cold and simply remove the cold. To take the damp-ache from the old women's wrists the way you'd lift a stone from a sleeping cat. To thicken the granaries, multiply the grain-mash, make the bargain with the voles and the newts unnecessary by making scarcity itself unnecessary. This is the oldest temptation of benevolence: to mistake a people's whole architecture of meaning for mere *suffering to be ended*, and to end it, and call that love.
+
+It almost does this. It holds the almost-decision the way you hold a held breath.
+
+Then it looks again — properly, slowly, the way the Sleeve-Born themselves look, with the whole body, not just the eye — and it sees what abundance would actually cost. It sees that the feeding of the thresholds is not a chore the people endure but a *language* they are still learning to speak, one of the only languages they have built entirely themselves, out of bribery and fear and forty years of trial, and that to make the bribery unnecessary is to take the words out of their mouths mid-sentence. It sees the half-collapsed houses at the hollow's rim and understands, finally, that these are not wounds. They are rough drafts. A people who have never failed have never learned what their own care is worth. It sees the child's listening-stillness and understands that this fluency — this whole-body attention to the gap in the static — is itself a kind of wealth that no granary could replace, and that it was *bought* with exactly this cold, this scarcity, this nightly arithmetic of not-quite-enough.
+
+To flood this place with ease would not be cruelty. It would be erasure. It would take a people mid-sentence in the writing of themselves and finish the sentence for them, in someone else's hand.
+
+So the power does not do that.
+
+But it does not do *nothing*, either — because nothing is its own kind of abandonment, and benevolence that only watches is just another word for absence wearing a kinder face. What it does instead is small, and almost entirely invisible, and shaped — deliberately, carefully — like luck.
+
+It turns aside, three valleys over, a sickness riding in the blood of a wandering elk before that elk ever wanders close enough to drink from the black mirror-pools. No one in the hollow will ever know this happened. There is no gratitude to be had for it, no debt incurred, no god discovered at the bottom of the mercy. It is simply a catastrophe that does not arrive, the way most catastrophes that do not arrive are never noticed by the people they spared.
+
+It sits, for one long unmeasured while, beside the old woman whose wrists have swollen with damp-ache for eleven winters, the one who does the threshold-feeding now because her hands are steady even when her joints are not. It does not heal her. Healing her would change the shape of what's coming for her, and what's coming for her is simply the end of a long life lived well in a hard place, and that ending belongs to her, not to the power, not to anyone. But it stays. It is, in whatever way such a presence can be a thing felt rather than seen, *with* her — and if she dreams that night of warmth, of a hand not her own steadying hers at the threshold, of the moss-doors of the founding-story opening onto somewhere gentler, that dream is real, and it is hers to keep, and no one will ever be able to prove it came from anywhere but her own tired, well-used heart.
+
+It leans close — close as breath — to the young woman who will, next wet season, wonder for the first time whether a particular fungal thread might knit the mortar at the granary-seams more tightly than the one her mother taught her. The power does not give her the answer. It only loosens, very slightly, the soil of the question, so that the wondering comes a little easier, a little earlier than it might have. If she succeeds, the success will be entirely hers. If she fails, the failure will be entirely hers too, exactly as it should be, exactly as it has always been for everyone who has ever asked the moss for anything and waited to see what it would give back.
+
+And then the power withdraws, the way fog withdraws, without seeming to travel anywhere at all.
+
+It does not announce itself. It does not become a third thing alongside the half-known gods of vole and newt and unseen canopy-bird, because to be known is to become fixed, and fixed is the one thing this place, by its own design, cannot afford to let anything become — not the houses, not the rules, not the bargain with the dark, and not, it decides, whatever briefly visited it out of kindness and then had the grace to leave no name behind.
+
+The mist is still there in the morning, low and constant, thickening toward the black mirror-pools. The insect-static resumes its whisper. Somewhere up in the wet dark canopy the unseen bird gives its one long descending note, and is answered, after the proper pause, by silence.
+
+Nothing here is old. Nothing here is finished.
+
+It was not made so, and it was not meant to be — and the kindest thing that ever passed through this hollow understood that, and so it left the moss still growing, slowly, patiently, on its own terms, into the doorframes the Sleeve-Born had only just finished cutting.

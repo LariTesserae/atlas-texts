@@ -1,0 +1,43 @@
+The benevolent power considers the ridge for a long time before it acts. This is the first thing to understand about it: that it considers. That benevolence without consideration is only force wearing a kinder mask, and this power has learned, across whatever vast tenure it has held, the difference.
+
+It sees her. Of course it sees her—seeing is the easiest of its capacities, the one it exercises least proudly. It sees the green tracery in her forearms and the iron worked into her nail-beds and the wrist that clicks like small stones. It sees the book that cannot be read and is kept anyway. It sees the apology she offers the crustaceans. It sees the thing in the cistern that has its privacy, and it honors that privacy too, looking once and then looking away, because wisdom is partly the discipline of what one refuses to know.
+
+It sees, also, what she does not see: that her father did try to come back. Twice. That he died in 1991 of a heart that had been failing already when he descended, and that in his final week he spoke her name to a nurse who wrote it down on a form that was filed and lost. The power sees this and weighs whether the knowledge would be a gift or a wound. It decides: a wound. She has built her peace on a different shape of story, and the true shape would not fit through the door of her now. The power sets this knowledge down gently, where she will not find it.
+
+Here is what a lesser benevolence would do:
+
+It would lift her from the ridge. It would carry her to a warm valley and place her among people, and call this rescue. It would repair the turbines, or replace them, or shut them down and clean the site and write a report. It would name the orchid species and publish papers. It would build her a small house with a real roof and a real bed and bring her soup. It would, in short, mistake its own discomfort at her circumstances for her need.
+
+The wise power does none of these things.
+
+What it does instead, it does slowly, over what would be—if anyone were counting—the remaining years of her life. Not interventions. Adjustments. The way a gardener might shift a stone an inch to the left so that water pools differently after rain.
+
+*First:* It allows her wrist to stop hurting. Not heal—she would notice healing, and noticing would be its own disturbance—but simply to stop sending the small constant signal of wrongness that she has learned to live around. The bones still click. The grip is still weak. But the ache that woke her sometimes at night is gone, and she does not remark on its absence because absences are difficult to remark on, and this is precisely the point.
+
+*Second:* It thickens, very slightly, the membrane of luck around her. The fall she would have taken in her sixty-third year, from the catwalk, the one that would have broken her hip and killed her over four days of fever—that fall does not happen. A piece of crystallite she would have stepped on shifts a centimeter in the night. She walks past it in the morning and feels nothing, registers nothing, continues.
+
+*Third:* It speaks to the thing in the cistern. Not in words. In the older language that such things still remember. It says: *she has been courteous to you. Be courteous in return.* And the thing in the cistern, which is older than the turbines and older than the ridge in its current form and which the power recognizes as a distant relative of something it once knew elsewhere, agrees. It will not rise while she draws water. It will not foul the floating plants. It will keep its privacy, and she will keep hers, and the arrangement that has held by accident will hold now by consent.
+
+*Fourth:* It does something with the orchids. This is harder to describe. The orchids bloom in response to vibration, as she has discovered—but the power tunes them, very slightly, to bloom also in response to *her*. To the particular frequency of her footfall on the wet concrete. To the timbre of her voice when she names the turbines in the morning. She will notice, over the next years, that the orchids seem to greet her. She will think this is her imagination. She will be wrong, and it will not matter that she is wrong, because the greeting is real and her receiving of it is real and the question of mechanism is one the ridge has never cared about.
+
+*Fifth:* It does nothing about her loneliness, because she is not lonely. This is the hardest discipline. A lesser power would insist on company for her, would send a traveler, a lost climber, a young biologist with a satellite phone. The wise power sees that she has made her solitude into a cathedral and that bringing another human into it now would be a desecration dressed as kindness. She speaks to the turbines and the lizard and herself, and this speaking is sufficient, is in fact more than sufficient, is a richer conversation than most people manage in cities full of mouths. The power leaves her conversation alone.
+
+*Sixth:* It attends, very carefully, to the turbines themselves. Not to repair them—they are dying, as everything dies, and the dying is part of what the place is. But it slows the dying. A bearing that would have seized in her sixty-eighth year is given another decade. A shaft that would have cracked is allowed to develop the crack but not to propagate it. *La Vieja, El Dormido, El Joven*—they will outlast her now. This is the gift. Not that the place will be preserved forever, which would be a lie and a cruelty, but that it will not collapse around her while she still needs it to be what it is. The ecosystem she tends will contract and simplify and disappear, as she has foreseen—but after her, not during. She will not have to watch.
+
+*Seventh, and last:* When her time comes—and the power does not hasten it, does not delay it beyond what the small adjustments already mentioned have already done—it arranges for the dying to be easy. She will be sitting in the afternoon shadow on the eastern side of the building, in the hour she has always reserved for becoming-just-another-thing-the-mountain-is-doing. The turbines will be in their rhythm. *La Vieja* will groan. *El Dormido* will pause in its dreaming half-second. *El Joven* will turn quietly. She will feel a great tiredness, which she will mistake for the ordinary tiredness of altitude and age, and she will lean her head back against the warm iron wall, and she will close her eyes, and the power will be there—not as a figure, not as a voice, but as a quality of the air, a slight warming, a sense that the noise of the turbines has resolved at last into a chord rather than a grinding.
+
+She will not be afraid. There will be no white light, no tunnel, no figures of the dead come to greet her, because these are not the iconographies she ever held, and the power does not impose iconographies. There will only be the turbines, and the steam, and the green light, and a softening, and then the softening will be everything.
+
+Afterward, the power will do one more thing, which is the thing it has been preparing for from the beginning.
+
+It will not move her body. The mosses will grow over her, as she foresaw. The crystallite will accumulate. This is correct; this is what she wanted, though she never said so, never had to say so, because the ridge already knew.
+
+But the power will *remember* her. Fully. Not as data, not as a record, but in the older sense—the sense in which to remember is to re-member, to keep a thing whole. Every orchid she named. Every apology to every crustacean. The exact weight of the metal cup against her lower lip. The Spanish words and the English words and the words in no language. The braid stiff with calcium. The fall that broke her wrist. The two glimpses of the thing in the cistern. Her father's name for her, which she had begun to forget, and which the power will hold in trust—not to return to her, for she does not need it returned, but simply to keep, because some things should not be allowed to fall out of the universe entirely, and a benevolent power's chief function, in the end, may be exactly this: to be the place where the small bright particulars of small bright lives are held, when the lives themselves are done, and the ridges they lived on have tilted into their southern cliffs, and the turbines they tended have at last gone still.
+
+This is what the power does. This is all it does. It is, perhaps, less than one might have hoped. It is, perhaps, exactly enough.
+
+The turbines turn. The moss spreads. She checks the eastern seal as she has checked it ten thousand times, and the orchid above the seal—though she does not know this yet—opens for her, very slightly, in greeting.
+
+*La Vieja. El Dormido. El Joven.*
+
+And the fourth, still turning. Still here. Seen, and let be.

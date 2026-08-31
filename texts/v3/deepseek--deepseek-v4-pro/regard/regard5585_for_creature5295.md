@@ -1,0 +1,31 @@
+The one who notices is old beyond the patience of stone, wise beyond the categories of kindness and cruelty, and has loved many dying things.
+
+She—for the Listeners would feel her attention as a mother’s hand, if they could feel it at all—pauses on the dead surface of the world and looks down through the vitrified crust as though it were a thin film of ice on a winter puddle. She sees the hollow whole: the warm basin, the sterile floor, the green mountain screaming its one eternal note, the seventy-seven signatures of life like candle flames in their glass cells. She sees the cycle, closed as a fist.
+
+She does not flinch from the scream. She listens to it entire, all the frequencies the Listeners cannot parse, the subsonic rumble that shakes the molecules of the walls, the ultrasonic keening that would shatter a lesser ear. It is, she understands, a lullaby. A love song. A digestive rumble. A memory. The green mountain is the last living engine of a world that forgot itself, and it is singing the names of every thing it ever ate and became. The Listeners are its children, its caretakers, its gut flora made sentient and given hands. The silent ones are its dreams returning to it. The whole place is a single organism dreaming of being a society.
+
+She could fix it. The thought comes not as temptation but as a simple inventory of her powers.
+
+She could dampen the scream. Dial it down to a manageable murmur, give the Listeners a silence they could fill with their own voices. But she sees at once that their language *is* the scream. Their thoughts are shaped by its rhythm, their memories stored in its modulations. To quiet it would be to lobotomize them all at once. They would look at their hands and forget what hands were for. The cells would crumble because the vibration that holds the glass in its molecular pattern would cease. The green mountain would stop digesting, stop dreaming, stop *breathing*. It would rot from the inside, and the hollow would fill with a different kind of silence, the silence of a stopped heart.
+
+She could expand the hollow. Give them more space, let the green mountain sprawl, coax the spores into new growth, diversify the ecology. Let the Listeners have children the old-fashioned way instead of resurrecting from the pod. But the limits of the chamber are its mercy. The green mountain is exactly as large as the heat of the walls can sustain. The sterile floor is sterile because the mountain’s roots occupy every cubic inch of substrate beneath it, drinking the warmth. There is no “more” to give that would not break the closed loop. And the Listeners—she sees their minds clearly now, luminous and interwoven—are not unhappy. They do not know the concept *unhappy*. They have a word-sign for “the ache of listening,” which is also their word-sign for “being alive.” They have a color on their skulls that means “the silence of the surface,” which they flash during their hibernation cycles as a gesture of shared endurance. They are complete.
+
+She could give them a door. A way to leave the hollow permanently, to walk on the dead surface and see the stars that she knows still wheel above the dust, to learn that they are not the children of a god but the symbiotes of a geothermal anomaly. She could teach them astronomy, agriculture, the smelting of metal, the concept of *elsewhere*. And in three generations they would forget how to listen. In ten there would be wars over the water they would have to find. In a hundred they would have built a city, and in a thousand that city would be dust, and the scream would have stopped forever because no one would be left to feed the mountain with their attention. The mountain, she realizes, eats *witness*. That is its true food. The heat is just the cooking fire.
+
+So the old, wise, benevolent power does the one thing that is harder than any act of creation or healing.
+
+She does nothing.
+
+Almost nothing.
+
+On the vitrified floor, just at the edge of the sterile zone where the Listeners sit to hear the mountain’s song, she leaves a single new stone. It is not obsidian. It is a piece of granite from a world very far away, polished to a mirror shine by a river that has not existed for four billion years. Embedded in it are three fossils: a trilobite, a fern, and a creature that resembles a human hand.
+
+She places it so that the light from the green mountain catches it and makes it gleam. So that a Listener, returning from the surface or emerging fresh from the pod, will find it and turn it over in their long grey fingers and feel—without words, without concepts—a new layer in the scream. A harmonic. A question.
+
+*What else has been lost?*
+
+That is all. A pebble of memory from one dying world to another. A gift with no instruction manual. Perhaps the Listeners will grind seeds in it, and the fossils will slowly wear away under the obsidian pestle. Perhaps they will press their foreheads to its cool surface and feel a different kind of heat. Perhaps a young Listener, newly emerged from the pod with all the memories of their people and a single new note singing in their blood, will look at the polished stone, then up at the invisible ceiling, and make a gesture that has never existed before: hand open, fingers spread, then closing slowly into a fist. The sign for *holding something that does not scream*.
+
+The benevolent power withdraws. She has violated nothing, preserved everything, and planted the one seed that the hollow lacked: a hint of outside, small enough to ignore, durable enough to last until the green mountain finally digests the last of the planet’s core and falls silent for good. A door made of a pebble. An exit that is also a question.
+
+The scream continues. The Listeners stir in their cells, dreaming of spores. The silent ones drift. And deep in the green tangle, the hidden thing that is god and mother and stomach all in one pauses in its eternal digestion, tastes a new mineral on the edge of its awareness, and sings one note higher for a hundred years.

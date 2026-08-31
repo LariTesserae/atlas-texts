@@ -1,0 +1,71 @@
+# What the Watching Power Would Do
+
+The power that notices them—let us say it is old beyond the reckoning of lakes and glaciers, patient as the slow work of water on stone, and curious in the way that vast things can afford to be curious about small things, without urgency or expectation.
+
+It watches for a time that might be seasons or years; time moves differently for such a power. It sees the Tílmak in their totality—not just the surface of their lives, but the structure of their being: the way their daily movements trace patterns in the clay that echo the channels they dig, the way their language has begun to shape itself around water and drainage until even their syntax flows. It sees the memorial bricks, and understands that the Tílmak have invented a form of immortality that is honest about its limitations. It sees the children playing at building settlements in miniature, learning to think like water thinks, like clay thinks, and recognizes this as a form of wisdom.
+
+The power considers intervention. It could do many things. It could dry the basin, make their lives easier, give them solid ground that doesn't weep. It could ensure every kiln fires perfectly, every channel flows true, every child survives the first dangerous year. It could appear in some manifest form and accept their reverence, their prayers, their devotion.
+
+It does none of these things.
+
+Instead, the power makes a choice that is itself a form of respect: it decides that the Tílmak have already found what they need. They have built a community that works, not in spite of hardship but through intimate engagement with it. They have discovered meanings that would dissolve in the face of easy solutions. To remove their challenges would be to remove their achievements, to subtract the very conditions that have shaped them into who they are.
+
+But the power is benevolent, and wisdom includes knowing when to offer help and when to offer... attunement.
+
+So it does this:
+
+It listens to the water-readers, to their intuitions and half-conscious knowledge, and it clarifies—just slightly—their sensitivity. When they walk the ground, they feel the water's presence a little more surely. When they stake out a building site, their placements are a little more perfect. They don't notice the change, or if they do, they attribute it to experience, to practice, to paying attention. Which is true. The power has simply made their attention more rewarded.
+
+It watches the channels, the way water moves through the settlement, and it adjusts—infinitesimally—the clay's permeability in certain places. Not everywhere. Not obviously. Just enough that the most thoughtfully designed drainage systems work slightly better than they otherwise would. Just enough that clever engineering is rewarded with success that encourages more clever engineering. The Tílmak still have to dig the channels, maintain them, think about them constantly. But when they do the work well, it works a little better than random chance would allow.
+
+It observes the kilns, the constant struggle to achieve proper firing temperatures in damp air with damp fuel, and it steadies the drafts—just barely. A kiln-master who understands airflow and has built well will find that the fire draws like a dream. One who has been careless or hasty will still fail. The power has not removed the learning curve, only made sure that genuine mastery is genuinely rewarded.
+
+It notices the memorial bricks, the way the Tílmak have made their dead into foundations, and it ensures—through means that work at the level of molecular bonds in fired clay—that these particular bricks are stronger than they have any right to be. The buildings that incorporate ancestors don't crumble as quickly. The foundations hold. Not forever—nothing is forever—but longer. Long enough that the gesture means something. Long enough that the children's children's children will stand on structures that contain their origins.
+
+The power pays attention to the children, to their games of miniature settlement-building, and it makes sure that the principles they learn there translate accurately to full scale. When a child who played well at drainage-games grows up and applies those intuitions to real channels, the water flows as they imagined it would. Their play becomes prophecy. This teaches them to trust their learning, to believe that practice and thought and understanding actually matter.
+
+For the gardens, struggling in their raised beds, the power does something subtle with the soil chemistry. It doesn't make things grow where they shouldn't—that would be a violation of the bargain the Tílmak have made with this place—but it makes sure that the nutrients they carefully compost, the efforts they make to improve the soil, yield results proportional to the work invested. Gardening here is still hard, but it's no longer absurdly hard. The difference between failure and bare success is measured in attention and care, which is as it should be.
+
+When someone falls sick, the power cannot and will not cure them—that would break something important about the nature of mortal life. But it ensures that the herbal remedies the healer uses are gathered at the right time, from plants grown in the right conditions, prepared with water that happens to be particularly pure. The Tílmak's medical knowledge works as well as it possibly can, given their technology. Sometimes that's not enough. Sometimes it is. The power tips the balance slightly toward "is" when the care has been knowledgeable and the effort genuine.
+
+For the pottery—their art, their trade good, their pride—the power makes a small adjustment to the clay itself. The Tílmak already make watertight vessels; their reputation is earned. But now, when a potter truly excels, when they read the clay perfectly and center it true and fire it at exactly the right temperature, the resulting piece has a quality that goes slightly beyond craft into something like art. It rings when struck with a note that sounds almost deliberate. It holds water so perfectly that even the exterior seems to repel moisture, staying dry to the touch. Other potters study these exceptional pieces, trying to understand what was done differently, and in studying them they learn, they improve. Excellence becomes a teacher.
+
+The power watches the settlement's slow upward growth, generation by generation building on generation, and it does something very careful with the underlying geology. It doesn't stop the water from seeping—that would unmake the Tílmak's identity—but it ensures that the old foundations, the lowest layers now buried, compress and stabilize more reliably than old lakebeds usually do. The settlement is building on itself, and the power makes sure that this foundation holds. Not perfectly. Structures still fail sometimes, still need to be rebuilt. But the catastrophic collapse, the sudden liquefaction that would swallow buildings, the disaster that would destroy the community's faith in their entire approach—that doesn't happen. The power has made their central strategy viable.
+
+During the worst of the wet season, when rain falls for days and the channels overflow and everyone is cold and damp and exhausted, the power does nothing to the weather. But it does something to the Tílmak: it watches for moments of despair, of someone wondering if this is all worth it, if they should just leave, abandon this impossible place. And in those moments, it arranges for small coincidences. A neighbor stops by with hot food. A child says something accidentally funny. Someone remembers a story about a past crisis that was overcome. The sunset breaks through clouds in unexpected beauty. These things would happen anyway, sometimes. The power just makes sure they happen when they're most needed, often enough that the community's cohesion holds.
+
+For the symbolic marks pressed into bricks and carved into posts, the power does something that works at the intersection of matter and meaning. It makes these symbols slightly more effective than they should be. A spiral pressed to the left of a doorway does seem to influence how water flows along that wall. A cross-hatching that marks orientation does seem to help people navigate in fog. The wavy lines that mark water-proximity do correlate, just slightly more than chance would predict, with actual water behavior. The symbols work. Not because they're magic—the Tílmak don't think in those terms—but because when you mark the world with meaning, and back that meaning with attention and care, the world can respond. The power has made that response more consistent, more reliable. The conversation between the Tílmak and their environment becomes genuinely two-way.
+
+When traders come, the power ensures that the ones who arrive are honest, or at least fair. Not every trader—that would be too obvious, and would deny the Tílmak the chance to develop judgment—but often enough. Often enough that the settlement doesn't get cheated into poverty, that the exchanges they need to survive actually happen. When a young Tílmak leaves with traders to see the world, the power watches over them with distant benevolence, not protecting them from consequence but making sure that chance breaks in their favor slightly more often than not. Most come home. Those who don't are genuinely choosing to stay away, not lost to random disaster.
+
+The power also does something for the settlement as a whole, working at a timescale longer than individual lives: it ensures that the climate remains stable enough for their strategy to work. Not unchanging—they need the cycle of wet and less-wet, need the rain, need the seepage. But stable. The catastrophic drought that would crack the clay and destroy their water management systems doesn't come. The deluge that would turn the entire basin back into a lake doesn't come. The power has given them a climate they can learn to live with, one where their accumulated knowledge remains relevant across generations.
+
+And there is one more thing the power does, the subtlest and perhaps most important:
+
+It makes sure they're not alone.
+
+Not by bringing other people to the basin—the Tílmak don't need population growth or cultural contact beyond what they already have. But by ensuring that the basin itself has life beyond the human settlement. The reeds in the channels are robust. The fish and amphibians persist. The birds return each season. The small mammals in the margins maintain their populations. The willows grow back when coppiced. The settlement is part of an ecosystem, not a human island in a dead place, and the power tends to the whole ecosystem's health because the Tílmak's identity is built on their relationship with this whole place, not just their mastery over it.
+
+The ecosystem includes things the Tílmak haven't noticed yet: beneficial bacteria in the clay that help prevent certain diseases. A particular algae in the standing water that out-competes more harmful species. A community of insects that pollinate the garden plants with unusual efficiency. The web of life that makes the basin livable—the power tends to it quietly, asking nothing in return, expecting no recognition.
+
+Because that's the nature of this power: it helps those who help themselves, not by making their work unnecessary, but by making it meaningful. It rewards attention with results, care with success, thoughtfulness with stability. It doesn't grant wishes or answer prayers, because the Tílmak don't really pray, don't really ask for intervention. They just work, constantly, in conversation with their place.
+
+And the power has chosen to be part of that conversation, to be the response that comes when the question is asked through action rather than words.
+
+The Tílmak don't know any of this has happened. They can't know—to know would be to change the essential nature of their achievement. They have to believe, have to *know*, that they did this themselves, through their own effort and wisdom and persistence. And they did. The power has changed nothing about the necessity of their work, the intelligence required, the community cohesion needed, the accumulated knowledge that must be passed down.
+
+It has only made sure that when they do the work, it works. When they make good choices, they get good results. When they build with care, the buildings stand. When they teach their children well, those children thrive. When they live according to their values, those values are rewarded.
+
+This is what benevolence looks like when it respects the beings it helps: not rescue, but resonance. Not salvation, but support. Not miracles, but meaning.
+
+The power continues to watch, season after season, as the Tílmak build upward and outward, press their symbols into wet clay, teach their children to walk carefully on slick wood, mix their ancestors into foundations, dig their channels deeper and more efficiently. They're still struggling. Still cold, still damp, still living in a place that will never be easy.
+
+But they're flourishing. In their own way, on their own terms, they're creating something beautiful in that difficult place. They're proving that human life can be lived well in conversation with hardship rather than in flight from it.
+
+And the power, watching, approves. This is what intelligence looks like, it thinks. This is what deserves to continue.
+
+So it continues its quiet work, adjusting probabilities by the smallest margins, ensuring that effort translates to result just reliably enough to sustain hope across generations.
+
+The Tílmak go on being the Tílmak, shaped by their place, shaping it in return, pressing and being pressed, making their slow patient art of living in the clay.
+
+And high above, or deep below, or somehow woven through the space between water and earth, the power that watches them settles in for the long work of tending, as patient and persistent as the seepage from the basin floor, as quiet and constant as the work of building, generation by generation, brick by careful brick.

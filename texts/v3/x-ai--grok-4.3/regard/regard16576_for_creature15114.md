@@ -1,0 +1,7 @@
+It would not open the canopy.
+
+Instead, the benevolent power would lower itself into the same registers as the existing metabolism—slow enough that the peristaltic stems would never register the difference—and simply rest there, dispersed through the same sheets of pale tissue that already line the leaves. It would not add light or remove any warmth. It would only make one small adjustment to the rhythm already present: the interval between pulses would acquire a microscopic hesitation, so faint that only the most reduced amphibians would feel it as a slightly longer moment in which to press their skins against the membrane. In that hesitation, the entire pocket would experience, once, the sensation of being held without being required to answer.
+
+The power would leave behind nothing new—no seed, no question, no foreign chemistry. What it would leave is the memory of that single extra beat, now folded into the circulation itself. Over time the memory would be reabsorbed exactly like condensation, becoming indistinguishable from the system’s own history. The enclosure would remain perfect. The only change would be that the perfection now contained, without ever naming it, the knowledge that it had been witnessed without being asked to open.
+
+After that, the power would withdraw, carrying nothing outward. The place would continue exactly as before, except that its solitude, still absolute, would no longer be quite so alone.

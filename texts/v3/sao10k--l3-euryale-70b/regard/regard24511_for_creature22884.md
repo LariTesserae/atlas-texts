@@ -1,0 +1,11 @@
+A benevolent and wise power gazes upon the horrific wreckage of the being known as Ittle-sama, monster of the Luminous Abyss Grotto, and pities it. This twisted amalgam of metal and flesh, a perversity born from some cataclysmic disaster, is not beyond the reach of redemption.
+
+Waves of soothing energy emanate from the power, washing over the depths of the grotto. The monsters' spasming gestures slow. Sparks stutter and fade from its corrupted flesh. The corroded wings settle. The carnassial maw slackens, jaw hinges creaking open in a soundless groan. Ittle-sama's head lolls back atop its pillar of rusted pipes. Its bulging eyes flicker shut.
+
+As the power's light permeates the twisted form, Ittle-sama's body begins to change. Rhytid skin knits and rewebs over pulsing circuitry. The beak reforms, keratin sheathing itself over needle-sharp edges. Viscous ichor transforms to glowing ichor that flows through reformed veins. Fungal growth sloughs away from the atoll, displaced by fresh hydroids and vestfigial limbs sprouting from corpses of machinery. The corroded exoskeleton turns first to verdigris and then to living chitin, reforming the monster into a more natural form.
+
+Ittle-sama's body begins to shrink. Superfluous mass is eycled away, recycled into clean energy. Appendages contract to eldritch twinned tentacles of flesh and chitin. The central bulbous form elongates into a more avian silhouette. Ravenous hollows of insatiable maws fill in with glassine feathers. Ittle-sama's form becomes more balanced, less a mass of corrupted flesh and more a massive independent creature.
+
+And finally, as the last bits of the power's magic wash through, Ittle-sama stirs. Its eyes snap open, yellow now and sane. It rises on one leg, then settles weight upon both again. It is reborn, uncorrupted by madness and malfunction. The power's blessing spreads further, cleansing the grotto of the monster's influence. The atolls flora regrow. Aquatic sea life settles back into its niche, no longer preyed upon. The transformer's drone fades into silence, now dead.
+
+Ittle-sama turns a gentle gaze upon its new world. Luminous Abyss Grotto. Rise, then to the world.

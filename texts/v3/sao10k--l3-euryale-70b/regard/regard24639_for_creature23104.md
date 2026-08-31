@@ -1,0 +1,13 @@
+Allamanda gazes out over the ebbing waters of the ocean from the obsidian-encrusted prow of the Vesper Star. Even from this distance, the alien city ruins hove into view like a blight of petrified lesions grafted to the horizon. Sores and lesions, like the remains of the Evokers and the whittled magics that became the hyenids and gargoles. 
+
+She can sense, like a black dwarf star, the malign presence coalescing below in the decaying bowels of the city. Nestled in eons of geologic strata, an ancient evil has rematerialized from those cyclopean ruins built to keep it imprisoned. The Evokers, not realizing the horror they delved for, and what they had birthed in trying to harness it, had met a wretched end hoving forever under their own sun.
+
+Allamanda is all that remains, the last Evoker now remade as an immortal Tinari in turn by the very thing they summoned. To be the eternal defender, the city's black paladin for whom the gargoyles shriek and the hyenids prowl, knowing only to serve her. 
+
+Allamanda pushes a long-fingered hand against the chilling, glass-smooth prow of the Vesper star, a hairline fracture parentalizing the onyx surface. The star itself flickers and aches, a cold blue glow bleeding up lost centuries to riddle her flesh. Around them, the dark cliffs of the seafront loom and recede into the fluxing mist like ulcers sloughing into the ash-choked sky.
+
+The thing, senseless and deaf and still, bides philosophy to explain a language unused for the eons as it oozes and trickles back into the oubliettes it was grouted from in the ancient workings of nightmare and chthonic hunger. The Evoker's orichalcum up from the mainspring to draw the power of the ancient suns and bind it to their dreaming minds. The mad rituals they began in helpless hubris to cross the vast between the old and new alchemy, never understanding the eons-old arrogant wrongness, the prayers to laws of the ancients that could not be trespassed.
+
+The ebb of what they had delved for from the deep workings and pendant oubliettes was too dissolute, too unevasive, to be draws upon or bind without being consumed; the lymph in the flesh and bones of the Evokers that birthed the hyenid and chuckled upon the gargoyle, both of them more like ivy and toadstool than animal, and the downfall in the nightmare they unfolded once they had drawn it forth even as they aimed to quench it's power into their lymph and whistle it to dog the worlds for their covetance.
+
+Until nothing was left of the Evokers, only the mad hyenid packs feeding upon the tumbled stone and the gargoyles reclaiming the new hells they had birthed for themselves in the dust of the worlds from the nightmare.

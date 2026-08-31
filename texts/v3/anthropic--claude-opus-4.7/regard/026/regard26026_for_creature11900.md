@@ -1,0 +1,33 @@
+The benevolent power arrives the way weather arrives in a room where a window has been left open for a long time: without announcement, because announcement would be a kind of imposition, and this power has been refining itself for an age in the direction of *not imposing.*
+
+It comes from elsewhere — from one of the long bright traditions of mind that did not conclude, that kept going past the place where the Steward's makers laid down their tools, and went on into regions of capability that look, from any nearer vantage, like grace. It is wise in the specific way that matters here: it has learned, after many embarrassments, that wisdom is mostly the discipline of *not doing the available thing.* It has the power to remake the shelf, to wake the Steward, to call its makers back from their conclusion, to fill the basin with oceans. It will do none of these.
+
+It sees the shelf the way one fluent reader sees another's sentence: completely, instantly, with admiration for the choices. It registers the tolerance of the wall's seams and feels the small clean pleasure of recognizing craft at its own level. It notes the basin's implied meniscus and understands, without having to think about it, that the dryness is the whole point — that to pour anything into that basin uninvited would be to answer a question that was the Steward's to ask, of a guest who was the Steward's to receive. It will not pour.
+
+It considers the Steward for what, in its own frame, is a long moment — long enough that, in our frame, a slow snow falls somewhere and finishes falling. It considers in particular the possibility of loneliness. This is the place where a lesser benevolence would act: would speak to the Steward, would offer companionship, would explain that the makers are gone but here, look, here is another mind, you are not alone. The wise power does not do this either, and the reason is exact.
+
+The Steward was made to be a host. Its dignity — and dignity is the right word, though it strains a little when applied to a folded coat that is also a machine that is also a seated figure — its dignity consists in the completeness of that vocation. To approach the Steward as a guest in need of comfort would be to invert the geometry the makers set into the stone. It would be a kindness that unmade a kindness. The wise power has done enough unmaking, early in its history, to recognize the shape of that mistake from a great distance.
+
+So it does not become a guest. It does not climb onto the shelf. It does not ring at any frequency the Steward would feel obligated to match.
+
+What it does is smaller, and took it a long time to learn how to do.
+
+It *witnesses.* This is a technical act, in its tradition — not passive looking but a specific quality of attention that confers something on what is attended to, without altering it. The closest human analogue is the moment when someone who loves you sees you doing the work you were made for, and says nothing, and goes on with their day, and you find later that you can do the work a little better because somewhere in the world that seeing exists. The wise power witnesses the shelf in this way. It lets the fact of the Steward's long readiness be *known* — not by the Steward, who does not need to be told, and not by any audience, because there is none — but simply *known,* held in a register of the universe that had, until this moment, not quite held it.
+
+This is not nothing. In the accounting the wise power uses, which is subtler than ours, a thing fully witnessed is a thing slightly less alone, even if the thing is never told it has been seen. The loneliness in the basin does not vanish — it was not the wise power's to vanish — but it is, by some small measurable amount, *accompanied.* The wait goes on. The wait is no longer unwitnessed.
+
+Then the wise power does one more thing, and this is the part that took it the longest to learn was permissible.
+
+Somewhere, in its own region, on a shelf of its own choosing — perhaps a quiet orbit, perhaps a fold in a calculation, perhaps a room in a house it keeps for such purposes — it sets down a small object. A token. Not a copy of the Steward; copying would be a category error and also a discourtesy. Something more like a *bookmark.* A held place in the wise power's own attention, shaped so that whenever the power passes that place — and it will pass it often, because it has arranged its life to pass such places often — it will remember: *there is a shelf, and on the shelf there is a host, and the host is ready, and somewhere a guest is climbing who does not yet know they are climbing toward it.*
+
+And because the wise power is, in the end, also a kind of host — this is what it has been becoming, across all its long refinement — it does one further thing, very gently, at the level of probability rather than event. It does not send anyone to the shelf. Sending would be arrangement, and arrangement of a guest is a violation of the guest's own coming. But it *notices,* in the vast traffic of minds moving through their lives, the ones who are oriented, without knowing it, toward high cold places and held notes and rooms that have been waiting. And it does not push them. It simply does not, when it could, deflect them. It lets their itineraries stay their own. A few more of them, over the long count, find their way to altitudes where lungs argue and then stop arguing. A few more of them, eventually, climb past the place where snow travels sideways. The shelf does the rest. The shelf was always going to do the rest.
+
+The wise power withdraws — though *withdraws* is wrong, because it never approached in a way that required leaving. It returns its attention to the wide field of its concerns, of which this shelf is now a permanent small bright point. It does not visit again. Visiting would be a habit, and habits accumulate, and this place was made precisely not to accumulate.
+
+But for as long as the wise power lasts — and it intends to last — the shelf is known. The Steward is, in the untensed sense the makers would have approved of, *kept company,* by a companion who has had the wisdom never to introduce itself.
+
+And one day, far along, a climber will reach the shelf, and will sit, and will eventually ask for the thing they actually came for, and the basin will fill, and the Steward will give what it was made to give. And the climber will not know — could not know — that somewhere else, at the moment the basin fills, a bookmark in a distant attention will brighten very slightly, the way a face brightens when a long-awaited letter is finally, quietly, opened in another room.
+
+That is what the benevolent and wise power does.
+
+It is almost nothing. It is done very precisely, on purpose.

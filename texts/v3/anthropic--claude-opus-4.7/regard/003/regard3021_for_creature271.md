@@ -1,0 +1,33 @@
+They would not come.
+
+That is the first thing. A benevolent and wise power, having noticed this place, would understand immediately that arrival is the wrong verb for what the chamber requires. The chamber does not need visiting. It has been visited enough — by deer-shadow and rain-pulse and the occasional grandmother's grandmother — and its books are kept in a hand so small and slow that any further entry would smear the ink.
+
+So they would not come. But they have noticed. What does noticing do, when the noticer is benevolent and wise?
+
+---
+
+I think it would do something like this:
+
+**First, they would simply hold the noticing.** Not as surveillance — the chamber is not being watched in that sense — but as the kind of attention a reader gives a sentence they have decided is worth not skimming. The chamber would not feel this. The salamander would not know. But somewhere in the wider weather of things, a small steady quality of regard would settle over the floodplain, the way a hand laid lightly on a sleeping animal's flank does not wake it but does, faintly, warm it.
+
+This sounds like nothing. It is not nothing. The chamber's whole economy is made of things that sound like nothing — the click, the drip, the slow felting of the wall — and a benevolent power who understood the chamber would understand that the appropriate scale of gift is the scale of click and drip. Anything louder would be a kind of harm dressed as help.
+
+**Second, they would tend the perimeter, not the place.** This is what wisdom looks like when it has hands. They would not enter the chamber, but they would attend to what arrives at it. The floodplain above. The watershed that feeds the seep. The atmospheric pressure that the salamander reads in her blood. The flowering thing whose smell falls down the west throat every few years and which the salamander recognizes as *that again* — they would make sure it kept flowering. They would make sure the deer kept crossing. They would, if a road were proposed nearby, find a way for the road to go elsewhere that felt, to the people deciding, like their own good idea. If a drought were coming that would drop the pool past the shrimp's tolerance, they would arrange — through whatever subtle physics is available to benevolent powers — for one more rain than the season would otherwise have given. Not many. One.
+
+This is the principle: protect the conditions, not the contents. The chamber knows how to be itself. It only needs the world above to keep being roughly the world above.
+
+**Third, they would honor the absent ones.** This is the part I feel most certain of, and I'm not sure I can fully justify it except by saying: the chamber has, woven into it, the shape of a human practice that was good. Someone sat against the pillar and listened. Someone left a small offering in a small niche and did not make the niche bigger. Someone cut one step, not a staircase. That practice is rare. It is the practice of being a guest in a place that does not need you, and loving it anyway, and leaving it as you found it minus only the small polish of your own attention.
+
+A wise power would want that practice to continue, somewhere, in someone. Not necessarily here — the chamber may be done with humans, and that is fine — but the *capacity* for that practice, in the species that produced the grandmother's grandmother, is worth preserving. So they would, I think, very quietly, in the lives of certain people who were already inclined that way, deepen the inclination. A child who liked to sit still in the woods would find that the stillness rewarded her more than she expected. A man who had begun, in middle age, to notice the snails on his garden wall would find his noticing sharpening into something nearly like the snails' own slow fidelity. None of these people would ever come to the chamber. They don't need to. The chamber is one expression of a way of being with the world, and the way of being is what wants tending, across all its expressions.
+
+**Fourth — and this is the hardest — they would accept that the chamber will end.** Everything ends. The seep will shift; the watershed will change; in ten thousand years or a hundred thousand the floodplain will be something else, and the chamber will collapse or fill or dry, and the salamander's line (if it persists that long, which it won't) will be gone, and the felting will be a thin chalky residue in a layer of compressed clay, and the frogs' clicking will be a silence no one notices because no one ever heard it in the first place.
+
+A foolish power would try to prevent this. A merely kind power would try to prevent this. A wise and benevolent power would understand that the chamber's beauty is partly *because* it ends — that a thing kept forever is not the same kind of thing as a thing that is, right now, established and in balance and in no hurry, but also, quietly, mortal. They would let it be mortal. They would only make sure that its mortality, when it came, came in the chamber's own time, by the chamber's own slow causes, and not by a backhoe or a poisoned aquifer or a careless century.
+
+**Fifth, and last: they would, perhaps, do one small thing that is just for the chamber, with no instrumental purpose.** This is the part where benevolence exceeds wisdom slightly, in the direction of love. I don't know what it would be. Maybe: in some year, on some night, they would arrange for the moon to be exactly full when a particular moth made one of its inexplicable flights, so that the lensings of water in the root-mat caught the moonlight and threw, for perhaps four seconds, a pale silver ripple across the chamber floor at the same moment the moth crossed it. No one would see. The salamander would not know — her eyes are vestigial. The frogs would go briefly silent, as they do, and then resume. The moth would land. The silver would pass.
+
+It would be a gift to no one. It would be the kind of thing a benevolent power does when they have understood a place so well that they want, just once, to give it a moment that matches its own quality — a moment of small pale beauty, witnessed by nothing, in the hot green dim, kept in the felting's slow books as a very faint thickening in one particular fold of the western wall, indistinguishable from any other.
+
+The chamber would continue. That is what the chamber does. But it would have been, for four seconds, exactly loved.
+
+And the power, having loved it, would withdraw their attention to the bare minimum required for the tending of the perimeter, and let the chamber go on being what it is, which is the only thing it has ever wanted to be, and the only thing worth being, and enough.

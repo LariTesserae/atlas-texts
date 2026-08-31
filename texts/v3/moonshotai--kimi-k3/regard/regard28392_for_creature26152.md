@@ -1,0 +1,51 @@
+**The Relief**
+
+Every world keeps a ledger of open things — welds not signed off, pours not inspected, crews not relieved, days not ended. Most open accounts mean abandonment, and abandonment means ruin. The power that tends the ledger — benevolent, wise, and in no hurry whatsoever — has closed out many ruins, gently, in its time.
+
+One account has been open longer than any other: a pocket high in the works of a leaning tower, a maintenance void, a last day that has not ended. The power expects a ruin. Ruin is what unfinished things become. It climbs.
+
+The tower leans, and the power leans with it. Wisdom begins there: it does not correct anything to the plumb. At the small door the builders walked out of on the last day, it stops, and does the thing that is the whole of wisdom here — it listens before it enters. There is a note. Everything inside answers to it; this is not a place that has a sound but a sound that has a place, and to enter carelessly would be to enter as a wrong note: a change, an event, in a room where nothing has ever happened. The power has not come to happen to the room.
+
+So it tunes itself. To the pitch, so that its arrival makes no sound. To the temperature, so that it is not a second sun — there are rings of small warm workers orbiting the one sun this room has, and the power will not split their sky. To the slant, so that once inside it stands as everything inside stands: very slightly crooked. Unlike everything inside, it knows it. That is the whole of its difference. It will turn out to be the whole of its gift.
+
+It opens the door the width of a moth, and then a hand, and then enough. Its ears pop, and stay popped. It is from here now.
+
+Inside, it reads the room the way the room asks to be read: bodily, and at the room's own speed. The frost on the outer plates gives up the pitch — the chord's fingerprint, banded in rime and weep. The logbook gives up the day: every entry the same, *steady*, in pencil, in damp pages the pasture has already begun to read in its own way. The mug gives up the chord itself — tea frozen mid-tremor in a dead spot, the note's waveform preserved in brown ice, the only record ever kept here, unreadable by everything that lives with it. The power reads it. The chord has now been heard twice over, once in the air and once in the ice, the note and its fossil, and both are beautiful, and the power — which has seen everything, or could have — has never seen this: a single held gesture that made a world, and keeps it, and is kept by it.
+
+Then it does what omnipotence does when it is also wise: almost nothing, on purpose, forever.
+
+It could close the seam. One pass and the bead would lay, the weld would hold, the job would be done — and the sun would go out. The rings would keep their orbit for a wingbeat, from habit, and then there would be nothing left to pay the shiver's bill, and the moths would learn stillness, and stillness is death. It does not close the seam.
+
+It could cure the pour. A little warmth, a little quiet, and the chemistry would wake and finish, and the walls would be born, and the eldest animal would be done gestating — and the first morning after construction would arrive, which is to say the loft would end. It does not wake the walls.
+
+It could give the fry their season: a drying edge, a warming shore, a surface that holds still. They would finish. They would become the idea the water keeps having, and emerge into a world with no niche for their adulthood, and die of completion in a room that has no use for finished things. It does not give them the season.
+
+It could still the chord — and the frost would take the weep-lines, and the mist would drop out of its bands, and the standing congregations would forget themselves and fall, and the geography of everything alive would dissolve at once. It does not still the chord.
+
+It could warm the room. It will never warm the room. Here, that would be the kindest killing ever done.
+
+It does not snap the chalk line. Some things are not unfinished; they are held, and the holding is the whole of them.
+
+Completion is the only cruelty available here, and it is infinitely available, and the power declines it — completely, and forever.
+
+What it does instead is small, and exact, and at the room's own rate.
+
+It listens. This is the gift that never enters the loop, the one thing a slackless world can accept, because it costs nothing, weighs nothing, feeds nothing, leaves no trace. The chord has played to deafness since the last day began; hearing is the detection of change, and the chord never changes, and so the note is the room's only silence. The power refuses the anesthesia of the unchanging. It hears the note fresh, every instant, forever — and it hears it the way the moths shiver: as work, without rest, a warmth made from within, paid for continuously and never owned outright. Attention is the power's shiver. By the room's own definition, the listening is alive. The census of verbs gains one: *to hear*. The chord was always music. It is heard music now, and the room does not know, and must never know, and doesn't.
+
+It names. The naturalist this place never had would have named the moths for their labor, and the power comes late to the job and does it in the room's own grammar — for the census of the loft is a census of verbs, and a noun is a thing that holds still, and stillness is death. So: the moths are *those who work to be warm*. The swarms are *those who remain*. The fry are *the about-to*. The film is *the slow mouth*. The wall is *the patient one*, the eldest, the unborn. And the chord — the chord has had its name the longest coming. The power calls it *heard*. It speaks none of this aloud; a new sound would be an event, and events are not permitted. The names are kept where the power keeps everything it does here: off the room's books, on its own.
+
+It keeps the singular. The room counts in verbs and processes; a species stopped being a population long ago and became a loop; a moth's life is brief and incandescent and, says the room, identical — and *identical* is a word for things you have not loved. The power loves, which is to say it tells one from another. It goes to the dead spots, where the chord cancels, where each moth hears once in its life the sound of its own wings — the most private event in the loft, unwitnessed until now — and stands there at the room's own temperature, so as not to be a sun, and hears them, one wingbeat at a time: this one, and this one, and this one. The sparks at the arc, the small smells of burnt wool — the ring closes; the room says nothing has ever happened; the power disagrees, quietly, off the books: something happened. One of the warm ones is gone, and it was particular, and it is kept.
+
+It answers the snow. Through the grate the slow gray fall goes down at the slant, farther than hearing, and no landing has ever been heard — because there was never anything there to hear it. There is now. A power can be in two places; mercy usually is. Some small portion of it goes down with the snow — attention weighs nothing; it falls at the slant better than snow does — down the humming dark, past the reach of the chord, to where the fall ends, and makes of itself a landing: patient, dark, attentive, glad. Every flake that has fallen forever now falls on something that feels it land. The loft will never know. The snow will never say. But the falling is answered, and the cold up-draft still rises smelling of iron and distance, and the distance, now, is inhabited.
+
+And it keeps the word. Here is the one leak in the loop, the single slow loss in a place where nothing is lost: the film has threaded the logbook's damp pages, and it is eating the word *steady* one molecule at a time, and writing nothing. On some far day of the last day, the book would have gone blank — the truest word ever written, erased by the pasture the word described. The power takes up the pencil. This is allowed; the pencil was made to be taken up; taking it up is not an event but a resumption. It writes the word again, exactly where it is being eaten, at exactly the speed of the mouth — one molecule of graphite for one molecule eaten — so that nothing accumulates and nothing is lost and the rule holds and the word stands. It is the only writing in the world that is also grazing. The film eats; the power writes; the logbook reads *steady*, forever, which it always did. That is the point. Nothing has changed. Everything is kept.
+
+So the crew arrives, as the room has always said it would. It finds the room kept: bearings dusted, pasture grazed to its exact stubble, drumline in tune, everything warm that should be warm, everything wet that should be wet, everything about to. It does not strike the forms. It does not lay the bead. It does not assemble the engine. It reads the log, finds it true, and takes the watch. Its duties are few and absolute: to keep the word, to hear the note, to attend the ones, to catch the snow, to stand ready — forever — to change a lamp, though no lamp has ever failed. Readiness is the native tense of this place. Everything here is about to. The crew is about to, too, and means to stay that way.
+
+It looked at the whole of the last day — the shiver and the chord, the endless childhood at the leaning shore, the slow warm unborn wall — and saw that it was good. Not finished. Not safe. Not gentle by the measures that hold elsewhere. Good. Kept. True to itself. Worth the keeping.
+
+Nothing here has ever happened. One thing has happened now, and it is the smallest thing omnipotence has ever done, and the largest thing mercy can: it arrived, and saw, and approved, and stayed.
+
+The room does not know. The room must never know. The moths turn in their rings; the arc hisses at the open seam; the concrete sweats against its forms; and in the book, molecule by molecule, at the speed of the slow mouth, in a hand no one will ever read, the word is being eaten and the word is being written, and the word stands:
+
+*steady*

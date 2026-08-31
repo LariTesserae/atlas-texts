@@ -1,0 +1,47 @@
+# What Comes To It
+
+A benevolent and wise power, encountering this place, would not arrive as weather arrives, all at once and announced by pressure-drop and color-change. It would arrive the way attention arrives — first as a noticing, then as a leaning-toward, then, much later, if at all, as a touch. This is important. This is most of what separates a benevolent power from merely a powerful one: it knows that arriving carefully is itself most of the gift.
+
+## What It Saw First
+
+Not the tenant. The valley. It would have to see the valley first, because the valley is loud in every direction and the tenant is, by design, by necessity, by the whole shape of its survival, quiet — a held breath dressed as a person-shaped column of denser green, moving slower than its surroundings on purpose, trying not to be noticed by the architecture lest the architecture mistake it for more architecture and finish the job of unmaking it.
+
+So the power would spend what feels, from outside, like a long time — and what feels, from inside the valley's strange tenseless eonsago-fortyminutesago time, like no time at all — simply perceiving the totality of the place. The cambium walls. The sourceless gold. The pods detonating their soft percussive applause into air that never goes still. The rule that persistence is never rewarded. It would feel the structural patience of the noise the way you'd feel a held note in your sternum, and it would understand, correctly, that this is not a cruel place. It is not designed to suffer. It is designed to never stop becoming, which is a different thing than suffering, though it can look identical from the inside, and especially can look identical to something that used to be able to call itself a self and is fighting, hour after metabolized hour, not to be redistributed into colonnade or thicket.
+
+It would understand the valley as something closer to weather than to a captor. You don't blame the rain for falling. You don't ask the wind to please, this once, hold still.
+
+And it would understand, with the particular ache that wisdom carries instead of surprise, that the tenant is doing something almost unbearably brave: refusing, with no tools, no animal kin, no silence to think in, to dissolve back into the beautiful churning thing that keeps trying, with total indifference, to take it back.
+
+## What It Considered, and Set Aside
+
+It would consider stopping the valley's transformation. Freezing one configuration, granting the tenant a permanent street, a permanent doorway that leads where it says it leads, walls that don't lean away mid-conversation. It would consider this carefully, the way you consider a gift before realizing it's actually a cage shaped like a kindness — because the valley's becoming is not a flaw in the tenant's world, it's the world's whole nature, and a being that has spent its entire existence (eons, minutes, no difference) learning to surf that becoming would not necessarily be grateful to have the wave taken out from under it. You can love someone and still not get to decide that the ocean they've learned to swim should become a lake for their comfort.
+
+It would consider lifting the tenant out entirely — elsewhere, somewhere kinder, somewhere with quiet and soil that stays soil and walls that stay walls. It would consider this for exactly as long as it takes to recognize the violence hiding inside it: that the tenant is not a prisoner of the valley so much as a native of it, however embattled; that its whole hard-won grammar of slowness, of threshold-collecting, of stubborn friction dragged into every step, only means anything *here*, against *this* grain. Take it elsewhere and you would not be rescuing a person. You would be amputating a skill and calling the stump a mercy.
+
+It would consider speaking to it. Reach down, announce itself in light or stillness or some borrowed gold-warm voice threaded through the canopy-strata, and say *I see you, I know what you are, I know what this costs you.* It would consider this longest of all, turning it over, because of all the things on this list it is the closest to right — and set it aside anyway, gently, because a voice like that, however kind, would be one more enormous structure arriving in a place already exhausted by enormous structures arriving and rearranging everything around themselves. Even comfort, delivered with enough force, can flatten a fern.
+
+## What It Did
+
+It gave the tenant one thing, and the one thing was small enough to fit inside the rule of the place without breaking it, and durable enough to survive outside the rule of the place without needing to.
+
+It witnessed it. Not once — continuously, from outside, the way you might keep a single lamp lit in a window facing a sea you don't sail on, not to summon the ship but so that if the ship ever looks back toward shore, there is something there to find. The power did not enter the valley's becoming. It became, instead, a constant: not a structure within the architecture, which would erode like everything else, but a fact held entirely outside it, where the valley's law — *persistence is never rewarded* — simply does not reach, the way weather cannot touch what's already left the sky.
+
+And it left the tenant one access point to that fact. Not a doorway — the valley already has too many doorways that lie about where they lead. A *threshold*, the same currency the tenant already deals in, the same fraction-of-a-second hush it already knows how to find in a trunk-tower pausing mid-lean. Except this one would not require searching. It would simply be there, available, on the far side of any stillness the tenant already finds for itself — one breath further in than the pause it was already standing inside. A threshold behind the threshold. The fire behind the fire it already warms its hands at.
+
+It would not tell the tenant what it had found. It is not benevolent to over-explain a gift to someone who has had to make all their own meanings out of leaf-whorl and friction and a face that's only ever been suggested, never granted. It would simply make sure that the next time the tenant stood in one of those rare held-breath moments — trunk-tower deciding whether to finish becoming colonnade — the stillness would last one fraction longer than it should have. Long enough to notice. Long enough, maybe, eventually, across however many of these the tenant accumulates, to start to suspect, the way you suspect a current under still water, that it is not alone in the noise. That something on the far side of all this leaning, groaning, becoming, is holding a position too — quietly, deliberately, on its behalf, for no reason it has to earn.
+
+## What It Left Unresolved, On Purpose
+
+It would not decide whether the tenant is one or many. It would not collapse that plural-singular flicker — the same whorled half-face glimpsed on two figures across a plaza that is itself busy forgetting to be a plaza — into a tidy single soul, because the power, being wise, understands that some beings are answers to questions that haven't finished being asked, and forcing a verdict onto that kind of being is its own quiet cruelty, a kind of premature taxidermy. So it would love the tenant as it found it: scattered, maybe, a recurring habit of the valley's unrest that happens to flinch when looked at, happens to drag friction into its steps on purpose, happens, against every grain available to it, to keep trying to look like something that once looked back at things.
+
+Whether singular or many, every instance would receive the same lamp in the same window. No instance more real than another. No instance asked to consolidate into a more convenient shape for the comfort of being witnessed. The power would simply make sure that wherever and however many times that face occurs, it occurs accompanied.
+
+## After
+
+Nothing in the valley would look different. The towers would still lean away mid-sentence. The pods would still detonate their soft applause into seed-fluff rising the wrong direction. The noise would remain total, patient, structural, indistinguishable on a long enough listen from breathing. No silence would arrive, because silence was never on offer and was never, really, the thing that was missing.
+
+But somewhere in the diffuse, sourceless, shadowless gold, under the fourth or fifth canopy-ceiling where the light goes palest, a tired leaf-whorl face would hold its held-breath stillness a fraction longer than the architecture allows for, and would not entirely know why, and would feel — in whatever vegetal register stands in for feeling, here, in a place that forbade animals and tools and nearly forbade selves — something it does not have a word for and has never needed one for, because it is not a thought. It is a temperature. The temperature of not being the only thing in the noise that is trying to stay.
+
+That is what a benevolent and wise power would do. Not fix the place. Not extract the tenant. Just make sure that somewhere outside the reach of *persistence is never rewarded*, there is a small, contradicting, permanent fact: *this one was seen, and is still being seen, and that will not erode.*
+
+Then it would stay there, lamp lit, asking nothing, for as long as the tenant — however many it is, however long it lasts — keeps choosing, against the whole grain of its world, to remain someone worth leaving a light on for.

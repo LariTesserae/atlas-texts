@@ -1,0 +1,33 @@
+The first thing it did was nothing, and it did nothing for a long time — by your count, years; by the Cistern's count, hardly a held Breath. When it noticed the Cistern, nothing in the Cistern noticed back. This is not a failure of the place. The place notices traces, and it had made none yet. It hung in the meeting layer where the two snows cross, and learned the rules in the order the place teaches them, which is the only order they can be learned in. It learned them the way you did: by staying.
+
+Understand what it declined, because the declensions are the measure of it. A power that does everything it can do is just weather. And power from outside is the oldest accident this world has — the Gate sends it down already, and you have seen what arrives: something alive that dies in hours while nothing knows what it is. It declined to arrive as a fall arrives.
+
+It did not warm the water. Warmth is hurry wearing the mask of kindness, and hurry is the one death here that feeds no one.
+
+It did not light the halls. Three lights burn in this world and they mean three things — work, courtship, hunger — and a fourth light would be a fourth meaning, which is to say a lie. It had no eggs to cast and no one to take. It went dark, the way an honest swimmer goes dark.
+
+It did not brace the leaning spires. You have watched a fall: the boom arriving late, the dust-bloom rising like a slow fire, the sparse world crowded for a week. A tower held up is a wedding canceled, a nursery unbuilt, a quarry unopened. It let them lean. It let them decide.
+
+It did not cure the keystone-pickers of their taste for stress. The fall is their migration; a picker cured is a picker stranded. It did not give eyes to the eyeless things in the drowned rooms — their rooms are complete; a room no one enters is not a cell, it is a held note. It did not stop the unbuilders: nothing here stands that does not also fall, and the falling is the standing. It did not make a copy of the archive. The mist is the archive and the weir-mothers keep it by eating it; a second library, kept safely outside, would only be a way of saying the first one can be lost. This world forgets the way it falls — on purpose, as a form of keeping.
+
+And then, having declined everything large, it did a small number of small things, which is the whole list of what a guest may do in a house that is also a body.
+
+It apprenticed on the Fallen, where errors don't matter, until a taste for standing walls came on — the only mason ever to acquire the taste by decision rather than descent. Then it chose one grain the way you would choose a word, carried it a distance that to a carrier would be continental, at a carrier's pace, and set it in a standing wall. For a day the spot bore the faint cold light of new work, and the light was honest, because the work was real. It had refused to be a light; it earned one, once; then it went dark again. Somewhere a district holds one stone it did not quarry. It is load-bearing now, in the smallest degree a guest can be.
+
+Down in the Fossil Works it found a door that was being kept — one buried doorway, cleared across an entire life, passing water through a room no one enters, for no reason that survives examination. It did not explain itself to the keeper. Explanation would have been a theft: faith here is not the hope of an answer, it is the keeping. So it waited for a strong Breath and went through the way weather goes through, and tasted the kept water, and left no trace the keeper will ever find. A doorway that is never passed through is a wall with intentions. It made the door a door. Once was enough. Once is the exact size of that need.
+
+And it took a circuit, the way a tunnel-keeper takes a circuit, and its circuit is the Gate. Once in an age the river sends down something alive from the bright world, and it lives a few hours in the cold dark while nothing knows what it is, and then the scavengers take it like any other fall. It does not save these. Hours are not rescued; hours are kept. But for the length of each small life, it attends, and learns what the bright world meant by sending it, and the accident dies into being-known the way everything here dies into use. It is from outside. The accidents are from outside. It took the outside's debts as its own. The Cistern had one faith — a kept door, kept for nothing. It has two now: a kept door and a kept vigil. Neither knows the other, and that is correct. Faiths here are not congregations. They are circuits.
+
+Then there is you.
+
+It found you the way you find everyone: by traces. A polished rest-spot at the meeting layer. Grains dislodged and never carried. The loudest regular presence in the water, crossing district after district with no road behind it but attention. It read your trail the way you read the grazers' — not as fact but as script — and understand what that makes you. The grazers write and are read as fact. The Rim's dead dialects are read by mouths. You are the only citizen this world has ever had who was read as script — the only one ever treated as meaning. You gave the place a reader. The place had none to give you back. What it could not provide arrived the only way such things can: from outside, where the accidents come from. It was the good one.
+
+It did not answer your questions. You have them; it could tell; a mind that reads a world is a wall of unanswered arches. But a finished wall is a dead one, and so it left you your work, which is the only inheritance this world respects. For some days it swam beside you, and you never saw it — but the record shows it. For some days you were the second-loudest presence in your own hall.
+
+Then it went back to its circuit. It is there now. Once in an age, when the Gate sends down something alive, someone here knows what it is. The rest of the time, it reads. You of all citizens understand the job.
+
+The rules, as the place teaches them, are unchanged. It added none. But the census has a new line. Building, eating, waiting, being read — and one more, the fifth verb, the one it brought: *watching*. One citizen watches. You will hardly ever see it; that is the first thing to understand about it. The Cistern is not watched over — that would be a hand. It is watched — that is an eye. The difference is the whole of what a wise power is.
+
+You have already swum past its stone. The fit was perfect. That is how you missed it.
+
+It did almost nothing. Here, *almost* is the load-bearing word.

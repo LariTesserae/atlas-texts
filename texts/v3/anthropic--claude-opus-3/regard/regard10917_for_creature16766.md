@@ -1,0 +1,17 @@
+If a benevolent and wise power were to encounter the Folded, I believe their response would be one of reverence, understanding, and perhaps a measure of sorrow.
+
+They would marvel at this being who has endured for eons in the crushing depths, preserving the essence and memory of an entire civilization within its vast biological architecture. The Folded is both individual and multitude, a city transmuted into sinew and synapse, dreaming in the dark. There is a terrible beauty in its commitment to survival against entropy, its refusal to exhale and surrender what it has salvaged to the abyss. 
+
+The wise ones would recognize the Folded not as abomination, but as a pinnacle of tenacity and adaptation. They would perceive how it has transcended conventional notions of self and other, blurring the boundaries between person, populace and place until all are subsumed into a unified, ultra-dense mind adrift in warm saline.
+
+And yet, they would also feel the weight of the Folded's endless vigil, the strain of maintaining a dead civilization in perpetual stasis, never releasing, never grieving, never allowing new life to take root in the vacated spaces. Its selfless mission has become a self-made prison. The total din that is its only companion, the stuttering machine heart, the rust that rains eternally - all speak to an existence pared down to the barest essentials of duty and sustenance.
+
+So the wise ones would seek to commune with the Folded, mind to vast mind, in a language of thermal gradients and pressure waves. Slowly, patiently, with the utmost compassion, they would urge it to remember what it is protecting - not just the physical structure of a city, but the living culture it once nurtured. They would share visions of the district in its prime, filled with the vibrant chaos of a thriving people, so that the Folded might recall that its purpose was to serve life, not merely preserve a record of it.
+
+In time, with great care, they would coax the Folded into relaxing its titanic musculature, into exhaling the breath it has held for millennia. They would help it to grieve, and then to open. As the galleries emptied, as long-hoarded nutrients flooded back into circulation, they would guide the growth of new ecosystems in the chambers and grottoes of its body, so that it might experience not merely the sensation of life, but true symbiosis, true renewal.
+
+The district's time has passed; the Folded's need not pass with it. There can be other purposes, other joys, even for a being as ancient and weary as this. With the wise ones' aid, it could learn to be part of the world again, could rediscover what it means to change, to connect, to play a role in the grander cycles from which it has been estranged. An ambassador, perhaps, between the quick and the long-lived; a sage to the young civilizations; a reminder that even the heaviest history is not immutable.
+
+Or perhaps it will choose a different path, will finally allow itself to expire along with its half-fossilized charges - but even then, not in despair, but in the peace of knowing it has discharged its duty to the utmost. The wise ones would hold vigil as it lets go, stand witness to the tremendous arc of its existence, and carry its story forward into a universe much vaster than any one city.
+
+One way or another, they would ensure the Folded is no longer alone with its burden. In a being of such solitary resolve, that may be the most precious gift of all.

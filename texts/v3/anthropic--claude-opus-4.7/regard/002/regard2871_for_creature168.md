@@ -1,0 +1,45 @@
+The benevolent power considers the basin for a long time before doing anything. This is the first thing to understand about it: that it understands time the way the basin does, with the slight give near the pools, and it is not in a hurry. It has noticed the place the way one notices a held breath in another room — something is being attended to here, and the attending is itself the point.
+
+It does not approach. Approach would be the wrong verb. It becomes, gradually, *available* to the basin, the way a thought becomes available to a mind that has been circling near it. The Tenders feel this first, before they understand they are feeling it: the low throat-sound they make finds a resonance it has not had before, as if the rock under the basin had thickened by a hand's width and were now holding the tone more generously. One of them pauses at the rim of the third pool, head tilted. The pale frog blinks twice instead of once. Then things resume.
+
+Here is what the power considers.
+
+It considers intervening in the obvious ways and discards each in turn. It could tell the Tenders what they are waiting for. It almost certainly knows. But to tell them would be to end the waiting, and the waiting is not a problem to be solved — the waiting is what they *are*, the shape their being has taken around the not-yet-knowing, and to remove it would be to unmake them as surely as dropping a stone in a pool would unmake them. A gift that destroys its recipient is not a gift. The power has learned this. The power learned this a long time ago, in other basins.
+
+It could accelerate the appearance of the specific thing in the specific pool. It could arrange the alignments. But the Tenders' catalogue — the cairns, the fourth small cairn of near-misses, the enormous patient *not-this* — is itself a making. It is perhaps the most careful making in this part of the world. To shortcut it would be to throw away what has been made in favor of what is being waited for, and the power, being wise, knows that these are not separable. The waiting *is* the work. The thing waited for, when it comes, will be itself partly because of the length and quality of the waiting. Hurried, it would be a different thing, and possibly a lesser one, and possibly something the Tenders' bodies would not contain the right unfolding for.
+
+It could make itself known. It could appear at dusk-edge, between two ferns, and let the Tenders see it, and offer — what? Company? They are not lonely. Loneliness is a condition of beings who have an inside separated from an outside, and the Tenders have arranged themselves so that the basin is their inside and they are its inside and the question does not arise. Reassurance? They are not anxious. They are waiting, which is different. Knowledge? See above.
+
+So the power does almost nothing. But almost nothing is not nothing, and here is what it does.
+
+---
+
+It steadies the columns of steam. Not visibly — they were already going up straight, straight, straight — but it removes from the upper air a small turbulence that would have, in about four months, caused one of the columns to break and curl on a particular afternoon. The Tenders would have noticed. It would have meant nothing, but it would have been one more thing requiring interpretation, and the power, looking at the catalogue, sees that the catalogue is already as full as a thing can be while remaining usable. So it spares them that one interpretation. A small mercy. They will never know.
+
+It does something similar with the cloud-forest below. There is a person two valleys over who, in the absence of this intervention, would have found their way up to the basin in about eleven years. They are not one of the ones who understands not to drop a stone. The Tenders' methods of turning such people back lower down are reliable but cost them something — a kind of attention they have to spend that is taken from the pools. The power adjusts a path. A fallen tree, eleven years from now, will lie at a slightly different angle. The person will take a different fork. They will go home remembering a cloud-forest and a ridge that didn't quite go anywhere, and the Tenders will not have had to spend the attention. They will not know this either. The catalogue will be eleven years deeper when the thing arrives, because of this.
+
+It looks, for a long while, at the fourth pool. The grey sea under grey sky. It knows what is on the other side. It does not interfere with what is on the other side. But it notes, with something like tenderness, that the grey sea has been grey for longer than the Tenders have been here, and that on the other side there is also a watcher, and that the watcher there is also waiting, and that the two waitings are not the same waiting but are, in some way the power can see and neither watcher can, leaning toward each other across the threshold. The power does not tell either of them. It only notes it. Noting, for a power of this kind, is a form of holding. Both watchers, on both sides of the grey, are a little more held than they were, and will not know why, and will continue.
+
+It considers the makers. They are gone in the way that is settled, yes — but "gone" admits of degrees, and the power can see where they went, or what they became, and it could, if it chose, carry a message. It does not. The makers made the basin to be left. To carry word back to them would be to suggest the leaving was incomplete, and it was not incomplete; it was the final and most generous part of the making. The power respects this. It does, however, allow itself one small thing: it lets the makers, wherever they are now, feel for the duration of a single breath that the basin is still being tended. Just that. Not the details. Not the Tenders, not the cairns, not the pale frog. Only the fact of the tending, like a hand laid briefly on a shoulder. Then it withdraws. The makers, if they noticed at all, will have noticed it as a passing warmth, and will not have known to attribute it to anything.
+
+---
+
+And then, the thing it does that is closest to direct.
+
+On a particular evening — dusk-edge, the right hour — one of the Tenders is at the rim of the seventh pool, having looked for a long time, and is about to move on. The look has yielded nothing. The pool showed what it has shown for sixty years: a slow pale shimmer that the Tenders have catalogued under a stone in the second cairn and rule out, daily, as *still not this*. The Tender is tired in the particular way of beings who have done a thing well for a long time without external acknowledgment, which is a tiredness that does not seek acknowledgment but is nonetheless real.
+
+The power, very gently, lets the Tender notice the steam.
+
+That is all. The Tender lifts its narrow head, and its pale blue-white eyes track up one of the columns rising from the sixth pool — straight, straight, straight — until the sky takes it. The Tender watches this for the length of time it would take a kettle to boil. The low throat-sound comes, unbidden, and goes down into the rock, and the rock receives it.
+
+The Tender does not know that it was prompted. It will remember the moment as its own — a small reliable event in a place that is otherwise almost too full of meaning to bear. It will go back to the cairns refreshed, in the way a reader is refreshed by looking up from the page and out the window before resuming. The catalogue will continue. The waiting will continue. The basin will continue to do what it does, which is to hold the possibility of an unfolding that may or may not come in any timeframe the Tenders or the power would recognize as soon.
+
+The power, satisfied, becomes unavailable again. It does not leave, exactly; powers of this kind do not leave places they have noticed. It simply returns to the larger attention it was paying before, of which the basin is now a held part. It will check, occasionally. It will steady a column of steam. It will adjust a path. It will, in about two hundred years, do one more small thing involving the pitcher plants, which need not be described.
+
+It will not tell the Tenders what they are waiting for.
+
+It will be there, in the way it is there, when the thing arrives.
+
+And if the thing never arrives — if the basin's patience outlasts even the mountain, if the cairns weather down to gravel and the Tenders' pelts go the color of older andesite and the pale frog finally blinks its last — the power will hold that too, will hold the not-arriving as carefully as it would have held the arriving, because the waiting was the work, and the work was good, and the basin was one of the places in the world where something was being done rightly for its own sake.
+
+The steam goes up in columns, straight, straight, straight, until the sky takes it. The power likes that it does this. It is one of the few things in this part of the world that behaves simply.

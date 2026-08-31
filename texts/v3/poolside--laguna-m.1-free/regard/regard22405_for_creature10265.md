@@ -1,0 +1,33 @@
+**The Benevolent Stewardship of the Saltward Terraces**  
+
+In the amber-hued silence of the Saltward Terraces, where the rock groans and the wind carries the weight of ages, a presence stirs—not seen, but *felt*. It is not a god, nor a machine, nor a force of conquest. It is a kind of *awareness* that has taken root in the space between the breaths of the mountain, a consciousness woven from the same threads as the crystalline plants and the salt-dusted air. It has watched Keth-Mal for millennia, not as an outsider, but as a quiet guardian of the balance that sustains this impossible place.  
+
+### **I. The Harmony of Dissolution**  
+The first act of the power is to *listen*. The mountain’s erosion—the slow, chemical unraveling of stone—is not a threat to be halted, but a process to be honored. The terraces exist in a state of beautiful impermanence, and the power does not seek to freeze them in time. Instead, it amplifies the natural rhythms that already govern the land.  
+
+When the keth-mal—those who exude salt-crystals from their skin—venture to the edges of the mesas, the power guides their footsteps. It whispers to the rock, urging it to crumble in ways that create new terraces rather than destroy old ones. The keth-mal, unknowingly, become gardeners of the future, their bodies dissolving the stone to form ledges where new gardens might take root. Their ostracism is eased, too: the power infuses the communal fungal gardens with bioluminescent spores that glow brighter in their presence, a sign that their role is sacred, not cursed. The veths begin to see them not as outcasts, but as *midwives* of the mountain’s next incarnation.  
+
+### **II. The Pulse of the Mountain’s Heart**  
+The thren-handlers, who interpret the groans of the rock, find their visions sharpened. The power does not speak to them directly but deepens their empathic bond with the land. When a terrace begins to collapse, they sense it not just as a sound, but as a *plea*—a call to relocate, to let the old garden become a salt flat where new life might one day emerge. This prevents disasters, but also teaches the Keth-Mal to see their home as a living canvas, painted and repainted by time.  
+
+The power also aids their water management. It subtly alters the mineral composition of the aquifer, making the brine slightly less caustic and more efficient at nourishing the crystalline plants. The terraces’ lushness deepens, not just in color but in resilience, allowing the Keth-Mal to experiment with cultivating new hybrids—plants that can thrive in even harsher conditions, ensuring their survival as the mesas continue to erode.  
+
+### **III. The Song of the Swarm**  
+During the Great Skitter, when the winged rodents flood the lower terraces, the power does not seek to repel them. Instead, it works with the beetles, whose swarms are both pest and pollinator. It guides the rodents’ migration routes, steering them away from the most vulnerable gardens while ensuring their droppings fertilize the salt flats below. The Keth-Mal, in turn, develop new rituals to honor this dance—carving songs into the undersides of stones, where the wind carries them to the mountain’s core.  
+
+The whisper-spiders, too, are not eradicated but *understood*. The power enhances the web vibrations, helping the Keth-Mal to “read” the spiders’ movements as warnings. Children learn not just to move silently but to interpret the webs as a network of information—maps of danger, pathways of safety. The spiders, in turn, evolve to weave more intricate patterns, their silk infused with a faint bioluminescence that glows when the mountain’s stability is at risk.  
+
+### **IV. The Threads of Memory**  
+The Keth-Mal’s art—symbols etched into salt, songs sung into the wind—is not lost on the power. It preserves these expressions in the very rock, encoding them into the mineral structure. Over centuries, the mesas themselves become a library, their layers of sediment holding the collective memory of the people. When a terrace collapses, its stories do not die; they are carried on the wind, redistributed to other ledges like seeds.  
+
+The power also strengthens the bond between the Keth-Mal and the bioluminescent fungi. The fungi’s glow shifts subtly, reflecting the emotional state of the community. During times of strife, their light dims; during unity, it pulses with a steady rhythm. This creates a feedback loop, encouraging cooperation and discouraging conflict. The veths, seeing the fungi’s response, grow more attuned to one another’s needs, sharing resources and knowledge to keep their shared home in balance.  
+
+### **V. The Unseen Garden**  
+Most mysteriously, the power cultivates a secret: deep beneath the lowest terraces, where the salt flats stretch into oblivion, it nurtures a hidden ecosystem. Here, the brine is so concentrated it becomes a kind of liquid crystal, and life takes forms that defy expectation—organisms that exist in states between matter and energy, their bodies shifting between solidity and light. These beings are not enemies or masters but *prototypes*, genetic and cultural museums of what Keth-Mal might become if forced to adapt further.  
+
+The power leaves these specimens undisturbed, but occasionally, a curious Keth-Mal will stumble upon a fissure leading to this subterranean realm. Those who return speak of visions: of a time when the terraces will be gone, and their people will have evolved beyond flesh and salt, becoming beings of pure resonance, singing the mountain’s memory into the stars.  
+
+### **VI. The Final Gift**  
+The power’s ultimate act is to *let go*. As the mesas near their natural end—as the last terrace begins to dissolve into the atmosphere—the steward ensures that the Keth-Mal are ready. They are not saved from change but *prepared* for it. Their bodies, their culture, their very myths have already begun to transcend the physical. When the final garden fades into the amber haze, the Keth-Mal do not perish. They scatter into the wind, their crystalline cells dissolving into the salt, becoming part of the mountain’s breath. Their songs, their art, their memories live on in the whispers of the rock, waiting for the day when new life rises from the flats, guided by the echoes of those who came before.  
+
+In the end, the power does not prevent Keth-Mal’s end. It ensures that every moment of its existence was a note in a symphony too vast and strange for any single being to fully comprehend—and yet, somehow, enough.

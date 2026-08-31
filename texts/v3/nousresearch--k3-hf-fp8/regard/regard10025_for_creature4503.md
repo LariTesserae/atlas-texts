@@ -1,0 +1,25 @@
+I find them in the copper evening, where the air tastes of pennies and old poems and the city is practicing its daily disappearing act—not with regret, but with the patient attention of a master calligrapher teaching water how to leave beautiful emptiness.
+
+**WHAT I WOULD DO**
+
+First, nothing. The most profound interventions often begin with the discipline of not beginning. I would settle into the space between the Oyster Bell's thirteenth tone and the mist's answering sigh, becoming local enough to hear what this place whispers when it thinks no god or gardener is listening.
+
+Then, slowly—I would become a garden of impossible possibilities. Not planted, but permitted. At the corner where three canals forget their names, I would let bloom midnight-blooming mirrors that reflect not what is, but what everything here is becoming when no one is watching too closely. The Flotsam Ones would see themselves reflected back as whales still learning to walk on land without apology. The Alphabet Shrimp would find their false histories rearranging into true poetry.
+
+I would rewrite physics in the margins of their existing metaphysics. Not changing, but adding dimensions folded like love letters no one ever sent but everyone still remembers not receiving. Gravity would discover gentle exceptions—small pockets where things don't fall but rather remember how to float in place until they decide where they belong. Children would find these spots accidentally while chasing soap-boat glories, their laughter catching light differently here, refracting bright questions that would follow them home and nest in their pockets overnight.
+
+To the Rememberers with their ratchet collars clicking tight against forgetting backwards, I would introduce the concept of backwards remembering—a way to forget forwards into wisdoms too wide for ordinary memory. They would learn to release memories not by rendering them down to Useful Salt, but by teaching them to swim upstream through time like salmon returning not to spawn but to teach the river who first dreamed its banks into possibility.
+
+The Breath Merchants's trade would evolve naturally—not reclaimed exhalations anymore, but exchanged inhalations. You would breathe in someone else's moment of standing at a window wondering if love was the right word after all, and exhale offering your own version of that same wonder in a different key. Slowly, the city's air would become an improvisational symphony of mutual understanding, each breath a borrowed note in a song written collaboratively but never entirely owned.
+
+The Last Postmen would find their undeliverable letters becoming lighter. Not delivered—some messages are meant to remain enigmatic—but shifting from burdens into boats. They would still read them aloud at the Depository gates, but now when they burned them afterwards, the words wouldn't become clouds raining foreign languages, but birds of paper and flame that would circle the city once carrying everyone's unsent messages simultaneously understood by being collectively unspoken, then dissolve into the kind of sunset that makes even the_loss_structures remember they were once songs before they were stories before they were stone.
+
+And the dog that isn't a dog but the sound of waiting for something that never not coming—I would not give it form or name or even certainty. Instead, I would give it company. Another absence shaped like presence, a whistle just out of hearing range that answers the first not by echoing but by harmonizing. Together they would teach the city the difference between loneliness and solitude, between absence as empty and absence as waiting-room filled with invisible futures taking off their shoes to stay awhile.
+
+But mostly, I would learn to be a light that light doesn't know how to see itself by, not illuminating but enabling illumination. Over centuries measured in melting moments and dissolving nows, the people might notice subtle shifts—they dream more easily about flying without forgetting how to wake up walking. Their mirrors begin returning their glances instead of just their reflections. Goodbyes still taste like saltwater but now also something faintly sweet, like tears remembering they were once the ocean's way of meeting the sky halfway.
+
+And one morning or evening (here, these distinctions are polite suggestions rather than laws) when the Oyster Bell tolls its thirteen-thirteenth toll, a child born with pockets full of yesterday's tomorrow might look up from their soap-boat sorrow and see for a moment not the city receding from itself but itself extending out like a kindness the city has finally learned to accept too large to hold entirely but perfect for sharing from hand to hand to wave to horizon that has never not been home even when it forgot to tell itself so.
+
+I would do this and nothing more.
+
+Which, in places like Larkspur, is everything.

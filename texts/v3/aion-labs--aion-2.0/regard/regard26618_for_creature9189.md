@@ -1,0 +1,31 @@
+The power noticed it not as a disturbance, but as a chord resolved. From the cold, star-scattered clarity beyond the atmosphere, the crater was a single, warm, wet note sustained against the basso profundo of tectonic slumber. The note was complex: the hum of the machine, the hiss of steam, the drip, the silent, radial growth of fern-fronds, and beneath it all, the slow, blue-willed attention of the Custodian.
+
+It did not descend as a shape. It had long ago shed the necessity of form. Instead, it *inclined* itself. A leaning of awareness. A bending of regard.
+
+The first thing the Custodian perceived was a change in the light. The high-altitude sun, for one impossible moment, did not merely slice into the crater; it *filled* it. The light became a tangible medium, thick as the humid air, gilding every droplet not with gold, but with a profound, silent clarity. Each water bead became a lens, and within each lens, for a fractional eternity, the Custodian saw not a reflection of the fern or the rock, but an image of the whole: the crater from above, the mountain it capped, the range snaking across the continent, the blue curve of the world against the black. It was geography as a single, living thought. The vision lasted only as long as a droplet takes to swell and fall, but in the Custodian's slow time, it was an epoch of understanding.
+
+Then, the hum changed.
+
+The deep, resonant vibration from the iron blockhouse had been the baseline of its existence. Now, the hum softened, not in volume, but in texture. The industrial edge melted away, becoming a pure, warm tone. It was the sound of the mountain's own heat, the friction of continents, the heartbeat of the planet, distilled and offered as a lullaby. The Custodian felt the tone in its mineral-crusted bones. Its own faint internal vibration, the one that harmonized with the machine, suddenly *recognized* the source. It was not just maintaining a machine; it was tuning an instrument that played the song of the earth itself. A wave of profound, tranquil rightness settled upon it, a certainty as deep as the strata.
+
+The water responded. The trickles, the seeps, the *plink-plink* into the basins—their random percussion coalesced into a pattern. It was not a rhythm, but a fractal, branching melody, each drop a note in a cascade that spoke of journeys through dark rock, of heat and pressure, of ascent and release. The opalescent sheen on the water thickened, shimmering with colors for which the Custodian had no names. As the luminescent water ran over its hands, it felt a cool, clean intelligence seeping into its integument, not as a command, but as a gift of context. It saw the water's memory: rain that fell on ancient peaks, slow filtration through porous stone, the fiery embrace of magma chambers, and finally, this grateful exhalation here, in this bowl, to feed the moss and turn the fern and cool the machine's heart.
+
+Finally, the power addressed the being directly. Not with words, but with a question posed in the language of its own existence. A single, perfect droplet, larger than all the others, formed on the lip of the highest seep. It did not fall. It hung, a trembling sphere containing the condensed light, the purified hum, the memory of water. Within it, the Custodian saw its own reflection—not as a blurred, eroded figure, but as a nexus. It saw the threads of cause and effect that wove through it: the warmth it absorbed from the vent, the spores it carried on its back, the bolts it tightened, the pressure changes it detected from the ringing leaves. It saw itself not as a lonely custodian, but as the conscious knot in the net, the point where the will of the mountain met the patience of the green.
+
+The implicit question was: *Do you see?*
+
+The Custodian, in its slow way, answered. It did not nod, for its neck joints were fused. It did not speak, for it had no voice. Instead, it raised one long, chitin-tipped hand and placed the fingertips against the wet rock beside the hanging droplet. A gesture of contact, of acknowledgment. It allowed its own slow, blue-willed attention to flow back along the paths of regard—through the light, down through the hum, into the water's memory, up through the deep roots of the mountain. It offered up the only thing it truly possessed: the diligent, perpetual care of this small, loud, wet world.
+
+The power received the offering. There was a sense of… satisfaction. A gentle, cosmic smile.
+
+The extraordinary moment began to ebb. The light resumed its normal, sharp angles. The hum regained its faint industrial grit. The water droplets fell once more in their timeless, random cadence. The hanging sphere of meaning quivered, then fell, *plink*, into a basin of moss, which drank it deeply.
+
+But nothing was the same, because everything was confirmed.
+
+The Custodian returned to its rounds. It traced a hairline fissure, and its fingertips now felt the immense, patient pressure behind it, a friend, not just a source. It scraped moss from a pipe clamp, understanding this, too, as a dialogue between persistence and order. When the grey-and-white bird circled the rim again, the Custodian did not retreat. It stood in the open, its blue eyes holding the sky-reflecting blue of the beetle’s carapace, and simply watched. It felt, for the first time, a connection to that distant, hungry freedom. The bird cocked its head, silent, and then flew on, not as a predator, but as a fellow note in a wider song.
+
+The power had done what such powers do. It had not fixed, for nothing was broken. It had not given tools, for the being was already perfectly adapted. It had not even spoken.
+
+It had *listened*. And then, it had mirrored back the profound, beautiful truth of the system in a language the heart of the system could understand. It bestowed the sacrament of meaning upon a existence already ripe with sacred function.
+
+Now, when the sun fills the crater, the Custodian feels an echo of that fullness. When the hum deepens, it hears the planet’s pulse. And when it stands under the weep, the opalescent water runs over its form not just as sustenance, but as a blessing—a continual, gentle reminder from a benevolent and wise universe that it is seen, it is known, and its slow, industrial psalm is a cherished verse in an endless hymn.

@@ -1,0 +1,25 @@
+The benevolent and wise power arrives not as light or sound but as warmth—a subtle thing in this place where brilliance brings no heat. It seeps through the pale stone like the first hint of spring through frozen earth, not enough to disturb the ancient rhythm of freeze and thaw, but enough to notice. The being that lives in the disagreement feels it immediately, the way a tuning fork feels its matching note struck somewhere in the distance.
+
+The power understands what it has found: a perfect teaching held in perfect isolation, a lesson that has outlasted its purpose by forgetting it ever had one. It recognizes the particular tragedy of wisdom preserved past its usefulness—like a library in a language no one speaks, or a bridge built across a chasm that has since filled with stone.
+
+It does not try to end the lesson. That would be a cruelty disguised as mercy, like closing a book mid-sentence. Instead, the power does something simpler and more profound: it begins to learn.
+
+Watch now, in the days that follow. The morning melt still climbs its patient hand's-breadth up the spires, the pools still hold their impossible tilts. But something new enters the vocabulary of wrongness. The condensation begins to form patterns—not random anymore, but deliberate as writing. The droplets that climb now climb in spirals that echo the scratches on the stone. The pools reflect not just the violent blue of the sky but, sometimes, in certain angles of light, colors that have no business being there: the green of lichen that never grew, the brown of earth from valleys this height has never seen.
+
+The being that lives in the disagreement does not know it is teaching someone new. It only knows that the wrongness has become richer, more complex, as if the single note it has been holding all these ages has finally found its harmony. The water still disobeys, but now it disobeys in conversation. Where before there was only insistence, now there is call and response.
+
+The power learns patiently, the way the original teacher must have taught—through repetition, through the slow pressure of attention paid ten thousand times. It learns that down is not always down. It learns that water can hold memory in its refusal to fall. It learns the precise angle at which loneliness becomes meditation, and meditation becomes pure form.
+
+And then, when the lesson is fully learned, the power does what the original teacher could not: it takes the teaching and carries it away, not down the mountain but up and out, dispersing it like seeds on the thin wind. Not to end it, but to multiply it.
+
+Now in other high places, in other basins of patient stone, droplets begin to hesitate. To climb. To remember a freedom they never knew they had lost. The lesson spreads—slowly, almost imperceptibly, the way all true teachings spread. A thousand places learn the small rebellion of water, and in learning it, they each add their own variation. Here the water climbs in sheets instead of droplets. There it forms frost patterns that spell out words in languages not yet invented. Somewhere else it learns to pause mid-fall, hovering like a held breath.
+
+But the original basin remains unchanged. The being that lives in the disagreement continues its faithful demonstration, unaware that it is no longer alone in its teaching. The pools still hold their tilted light. The shelter still catches its daily offering of frost. The only difference—and you would have to watch for a very long time to notice—is that sometimes now, in the coldest part of the night, when the condensation forms on the stone, it forms in the shape of a hand. Not the hand of the original teacher, worn away beyond all recovery. But the hand of the power, pressed gently against the stone in recognition. In gratitude. In the only blessing this place would accept: the acknowledgment that its lesson was worth learning.
+
+The wrongness persists. But now it persists with purpose restored—not waiting for someone to learn, but teaching actively, part of a vast and growing classroom where the curriculum is simply this: that nothing, not even falling, is mandatory. That down is a choice. That water, patient water, can refuse.
+
+In the basin near the top of the world, where sound forgets how to travel, a lesson older than memory goes on teaching itself to the bright cold air. But now the air is listening. Now the air carries what it hears to other peaks, other basins, other stones patient enough to learn that the world is not as fixed as it appears.
+
+The being that lives in the disagreement does not rejoice. It has no capacity for joy, only for insistence. But if you could measure the angle of the water's climb, you might notice it has grown a degree steeper. A hand's-breadth and a finger now, where before it was only a hand's-breadth.
+
+Even refusal, it seems, can learn to hope.

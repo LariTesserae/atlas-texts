@@ -1,0 +1,11 @@
+In the hush between two droplets, the power arrives.
+
+It does not announce itself with light or tremor; it simply consents to notice fully what is already there. For a span of time that would be measured in human centuries but feels, to it, like the drawing of a single breath, the power regards the chamber. It sees the threads not as slow but as exact—each filament a completed sentence in a language whose grammar is deposition itself. It sees that nothing is missing and nothing is in excess. The sealed basalt is not a prison; it is the necessary skin. The unchanging water is not monotony; it is the single, sufficient verb.
+
+Wisdom, encountering perfection on its own terms, declines to improve it.
+
+Instead the power performs one small, invisible act that costs it almost nothing and alters the chamber by less than the width of a single new molecule of carbonate: it lays a thought across the fractures like a hand laid over sleeping eyelids. The hairline cracks will never widen. The ancient seep will never falter or cease. The roof will not, in any future age, admit the weight of mountain or the curiosity of root. That is all. No new light is added, no acceleration granted, no thread encouraged to sense or hurry. The mineral lace continues its centuries-long exhalation exactly as before, now with the single difference that its continuation is assured rather than contingent.
+
+Before withdrawing, the power leaves one further, almost imperceptible signature: inside the sourceless light there is now a finer grade of stillness, a stillness that belongs to the chamber the way scent belongs to certain stones. Any future observer patient enough to remain for several human lifetimes might eventually notice that the way the threads drift and settle feels, against all measurement, slightly more inevitable than it once did—as though the act of finishing itself had been witnessed and, in that witnessing, made slightly more itself.
+
+Then the power turns away, carrying nothing, having added nothing that can be weighed or spent. The chamber remains exactly what it was: a single continuing deposition, undisturbed, still finishing.

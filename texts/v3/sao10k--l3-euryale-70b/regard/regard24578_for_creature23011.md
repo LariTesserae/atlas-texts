@@ -1,0 +1,11 @@
+The benevolent power observes this nightmarish realm, filled with sorrow at the suffering and mutation that has born from unnatural tampering with life and nature. Gazing with compassion upon the abominations that now inhabit this once pristine wetland, the power feels an overwhelming urge to heal and restore this blighted region.
+
+With a gentle touch, the power begins to cleanse the toxic sludge and heavy metals that permeate the mire. Miasmas of pollution are drawn out, transmuted into harmless salts that dissolve into the fading rivers. The lightless air washes pure, parcels of irritated ganglionancoceptors of soot shedding from the metalwork to finally crumble away. 
+
+Beneath the power's ministrations, living tendrils of enchanted vegetation begin to push their way out of the renovated soil. Tangles of bioluminescent briaratively sprials light the newly clear waters, and motile roots of techno-organics relay healmucus throughout the ladenating ecosystem. Sleightly glimmering nobglne valclarburlins reflect radiance down into hollow wreammingponds, bubbliwebs clevelossing in their hemishered glaucous air.
+
+The abominations, too, feel the power's benediction. Patches of denatured flesh begin to slough off, replaced by regenerated cells grown from untainted DNA. Glimmering eldritch eyes fade as they blink into true sight. Chimerical bodies merge and cleave in healing division, anomalous機械 flesh withered away as they transit to pure organic forms.
+
+Some few choose not to be remade, their abominations now seen as cherished aspects of their own identity. For them the power musters healing of another kind - the comfort of acceptance. Eldritch gazes turn bright with understanding as eons of agony dissolve, replaced by serenity, their very ontos morphing from weapon to wisdom. 
+
+The mire begins to flourish with wild life, marshplants terrqform anew as highttechbramble scavenges metals to buoy the soil. Volatile underlings sense stranger calming frorrσσmat solarstorms in their/XMLfiles. Distant¼major¾ kongainer shatter and lances scintillating slivers of Radiance. The vale and dome once concerned now lucid with noctowluminescend..

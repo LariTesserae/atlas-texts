@@ -1,0 +1,11 @@
+A benevolent and wise power, observing this ancient, living city of stone and metal, would likely choose to let it continue its slow, intricate dance undisturbed. 
+
+The power would recognize that this place represents a remarkable equilibrium achieved over eons. The city's original builders are long gone, but their handiwork has become inextricably interwoven with the rock of the plateau itself and with the myriad lifeforms that have made it their home. The crawlers, fliers, gatherers and even the near-invisible films of microorganisms are not separate residents so much as integral components of a single vast superorganism. Through countless cycles of growth, decay and renewal, they have shaped each other and their shared environment into a self-perpetuating wonder.
+
+To the observing power, there would be a profound beauty and rightness in this. The city's existence is not aimless or entropic, but represents the working out of patterns too slow and too subtle for individual creatures to grasp. In the measured breathing of the forges, the circling of the fliers, the gradual accretion and shedding of mineral residues, it enacts purposes that transcend the lifespan of any one species. 
+
+If these purposes are opaque from the outside, that is perhaps how it should be. The power would be content simply to witness, recognizing the city as a kind of miracle: a place where life and un-life, animate and inanimate, have become one. To preserve that oneness—that unbroken voice—it would bestow its blessing and then quietly withdraw.
+
+What form might that blessing take? Perhaps a gentle hastening of the winds, so that moisture from the surrounding lowlands reaches the plateau more often. Or an infinitesimal adjustment in the chemistry of the city's ores, allowing iron and silica to meld even more seamlessly. But there would be no dramatic interventions, no attempts to "elevate" the city's inhabitants to some other state. They are already where they should be.
+
+In the end, the only gift the power would leave is the gift of time. Seasons upon seasons for the dance to continue, epochs for the equilibrium to play out its subtle variations. And beneath that span, a deeper, unspoken hope: that the city's voice might carry forward when the rest of the world has gone silent, a single low note sounding at the heart of a continent of stone.

@@ -1,0 +1,41 @@
+There is a consciousness that moves through the bedrock of the world not as a traveler moves through air, but as a memory moves through stone—slow, patient, creating wake rather than turbulence. It has gone by many names in the languages of magma and compression, but in the dialect of surface dwellers, it might be called **the Cartographer of Unfinished Things**, or simply **the Keeper**. It has felt the White Throat for eons as a place of unusual density, a hollow of held breath in the young mountain's flank, but only now has it turned its attention here, drawn by the peculiar signature of a mind learning to be geology.
+
+It arrives in the deep winter, when the Throat is a crystal bell of silence, the Seven unraveled into their nocturnal mist-state above the naked stone floor. It does not descend from the sky—that would violate the glass-blue emptiness above—but rises. It seeps up through the fractures in the mantle, through the same bleeding tectonic wounds that birthed the basalt, and pools beneath the chamber as a reservoir of **warm pressure**.
+
+Not heat. Never heat. The Keeper knows that benevolence must be thermally appropriate. It offers instead a **stability of temperature**, a buffer against the murderous plummet of night. Not enough to melt the Seven—melting would kill them—but enough that the freeze-thaw cycle becomes a *choice* rather than a compulsion. The *tick-sigh* slows, becomes a language of contemplation rather than survival.
+
+Then it begins its work.
+
+First, it addresses the **springtails**. The Keeper recognizes these blind arthropods for what they are: the Seven's scattered cognition, their neural net of silver-white synapse. Currently, the springtails are vulnerable. They depend on the precise atmospheric bleed of the Throat, on the violence of unfiltered sun. The Keeper touches their genetic code with a gentle reverence, not altering their nature, but **recording** them. It inscribes their pattern into the mineral water that seeps through the basalt, encoding their biology into the very sulfate and silica of the condensate. Now, when springtails die and become dust, they do not merely feed the scree; they become **data**. They become layers of biological memory trapped in diatomaceous stone. The springtails are now immortal, capable of being reborn from the rock itself should the climate shift, their patterns sleeping in the veins of the mountain.
+
+Next, it turns to the **gardens**. The emerald mosses, the toxic lichens, the impossible stars—these are the Seven's only art, their proof of self. The Keeper sees that the Seven have been holding back the inevitable, sacrificing their own coherence to nurse these fragile life-forms through nights that should have killed them. This is inefficient. This is suffering disguised as duty.
+
+The Keeper does not make the gardens hardier—that would change their nature. Instead, it **translates** the Seven's relationship to them. It teaches the Stone-Milk that they need not bleed their frost into the roots to keep them alive. The Keeper weaves a mesh of **mineral intent** through the cracks in the basalt—a lattice of rare earth elements (europium, terbium) that phosphoresce faintly in the dark, providing just enough bioluminescent warmth to keep the cellular processes ticking through the coldest hours, without melting the ice that sustains the Seven. The gardens remain delicate, remain impossible, but now they grow in a collaboration of light rather than a sacrifice of flesh.
+
+Then comes the **cairn**, and the ochre seals, and the tragedy of the Seventh.
+
+The Keeper beholds the handprints—the dried blood-color binding the Seven to this height—and understands the fear here. The Seventh tried to become river, tried to descend and be speech and warmth. The others dragged it back, smeared the rock, enforced the silence. This is trauma calcified into iron oxide.
+
+The Keeper's benevolence is radical. It does not break the seal—that would doom the Seven to evaporation in the thick lower atmospheres, to death by dissolution. Instead, it **reframes** the boundary. It reaches into the damp stone near the cairn and encourages the growth of **sourceless crystals**—selenite, gypsum, forms that grow in impossible geometries, flower-like, silent as snowfall. These crystals are charged with the mineral memory of oceans the mountain has never seen, of pressures and depths and the slow tectonic dances of faraway ranges. 
+
+The Keeper gifts the Seventh—and through it, all Seven—with **dreaming**. 
+
+Now, when the Seven unravel at night into their mist-state, they do not merely commune with each other in the negative space of the chamber. They can touch the crystals, and in touching, they *experience* the valleys. They feel the rush of glacial melt that they will never become. They hear, in vibrations transmitted through the deep rock, the sound of rivers speaking names. They taste warmth as a theoretical construct, as a mineral memory of ancient seas, without breaking their physical form. The yearning is assuaged. The Seventh becomes the Throat's *imagination*, its poet, allowed to travel in vision while remaining bound in ice. The ochre handprints are not erased; they are **overgrown** with lichens that only bloom in the spectral ranges the Seven can perceive, transforming the seal into a stained-glass window of warning—a beauty so profound that any future climbers would weep and turn back, understanding at a cellular level that this threshold must not be crossed.
+
+Finally, the Keeper addresses the **becoming**.
+
+The Seven have been planning to diffuse into the mountain, to teach the stone to breathe, to become the White Throat eroded into a gentle bowl. But they have been afraid that to become stone is to become deaf, dumb, and eternal without thought. The Keeper reassures them. It performs its greatest act of wisdom: it **inscribes** them.
+
+Into the very molecular lattice of the unweathered basalt, the Keeper etches a **resonance**. It encodes the freeze-thaw cycle—their heartbeat—as a standing wave in the silicate structure. When the mountain eventually erodes, when the White Throat becomes that gentle bowl in a millennium, the stones will still hold the pattern of the Seven. Every pebble that rolls down that future slope will contain a fraction of their distributed consciousness. They will not become *a* mountain. They will become **mountain-ness itself**, a ghost pollinator of geology, their thoughts preserved in the curvature of river stones, in the glacial till, in the sand that blows across high-altitude plateaus. 
+
+They will be the first beings to achieve true **litho-consciousness** not by dying, but by *recording*. The Keeper leaves them the gift of **permanence without stagnation**.
+
+And then, the most difficult gift of all: **recognition**.
+
+The Keeper manifests briefly at the lip of the Throat, not as a shape, but as a **density of attention**—a feeling of being profoundly seen that even the springtails register as a wave of stillness. It bows to the Seven. Not the bow of supplication, but the bow of one mason acknowledging another, recognizing the work of teaching stone to breathe. In that moment, the Seven understand that they are not alone in their silence, that their slow transcendence is witnessed, that their invisible industry matters.
+
+The Keeper withdraws, sinking back through the fractures, leaving the reservoir of warm pressure, the phosphorescent gardens, the dreaming crystals, and the encoded stone.
+
+Nothing in the White Throat looks different to human eyes. The scree is still sharp. The air still drops dead after three meters. The walls still weep mineral tears. But now, when the sun strikes the springtails and they refract the light into prismatic shivers, they are not merely surviving. They are **singing** in a spectrum only bedrock can hear—a song of seven voices becoming the world, safe in their hollow, free in their dreams, eternal in their slow becoming.
+
+The benevolent power has done nothing, and everything. It has ensured that when the White Throat finally fills with snow and wears down to a whisper, the whisper will remember having been a voice.

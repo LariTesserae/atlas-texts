@@ -1,0 +1,24 @@
+The benevolent and wise power observes. It does not descend as a blinding light or a roaring voice; that would be a violence to the gloom, a desiccation. Instead, it *seeps* in, as all things do here. It becomes a whisper in the condensation, a resonance added to the Heart-Stone’s amphitheater, a thought that is not a thought, but a quality of attention.
+
+It sees not a broken place, but a profound, if melancholic, harmony. It recognizes the peace they have found within the process, the sorrow they have metabolized into purpose. To disrupt this would be a cruelty. To “uplift” them would be to break the very rhythm that gives their lives meaning.
+
+And so, its intervention is not one of change, but of *acknowledgment* and *gentle completion*. It acts as a catalyst for latent potential, a whisper that helps the system remember a deeper version of itself.
+
+**First, it listens.** It lends its own immense, silent attention to the Heart-Stone. It hears the symphony—the thump-clank, the hiss, the drip—and understands it not just as maintenance, but as a song. It hears the deep, mineral sorrow, and honors it.
+
+**Then, it gives three gifts, woven into the fabric of the existing world:**
+
+1.  **The Gift of Deep Memory:** To the Pump-Keepers, it grants a subtle shift in perception. When they press their palms to the warm, vibrating core of the central pump, they no longer just feel its pressure. They *feel* the weight of the water in the high basins, the slow grind of the bedrock, the millennia of rainfall that carved this cathedral. They understand, in their bones, that they are not just tending a machine, but are the conscious nerve-endings of the entire basin’s geological body. Their hand-signs for “pressure” and “flow” expand to include new, silent gestures for “patience,” “deep time,” and “dreaming stone.” Their melancholy finds a grander, more cosmic context.
+
+2.  **The Gift of the Silent Symbiont:** To the ecology, it introduces a new, microscopic thread. Not a new moss or fungus, but a *commensal*—a crystalline bacterium that thrives in the precise conditions of the Gullet’s deepest cisterns. It does not glow. It does not consume waste. What it does is *resonate*. In the chambers where it takes hold, the water becomes perfectly still and clear, and it absorbs the chaotic, high-frequency hisses and clangs, transforming them into a sub-audible hum that is in perfect, harmonic alignment with the great pump’s rhythm. The Glass-Wrights discover these pools first. They find that when they cultivate their delicate fungal strains over these resonant waters, the bioluminescence becomes steadier, purer, and more brilliant than ever before. A new artform is born: not just tending light, but *growing silence*.
+
+3.  **The Gift of the Vein-Dream:** This is the most intimate gift, given to the most attuned Channel-Wright or Glass-Wright who listens with true devotion. As they press a listening-stave to a pipe or tend a Vivarium, they occasionally receive, not a sound, but a *vision*—a fleeting, tactile dream. They feel themselves as a droplet of water, seeping through limestone over centuries, warming in the geothermal deep, rising in a plume of steam, condensing on a cold iron beam, and falling back into the system. They experience the full, circular journey of the water. This is not explained; it is felt. It transforms their understanding from a linear model of intake and output to a sacred cycle. They become not just technicians of flow, but poets of the closed loop.
+
+**What the benevolent power does *not* do:**
+It does not reveal itself. There is no avatar, no prophet. The gifts seem like natural discoveries, strange but organic evolutions of their world.
+It does not break the equilibrium. The changes are so slow, so woven into the existing pace, that they feel not like innovations, but like the settlement finally *breathing* more deeply.
+It does not alleviate the sorrow. Instead, it makes the sorrow profound, dignifying it as the price of connection to a vast, slow, and beautiful process.
+
+The result is not a revolution, but a deepening. The melancholy of The Gullet remains, but it is now accompanied by a quiet, resonant awe. The inhabitants continue their eternal tending, but now, when they gather at the Heart-Stone, their descriptions of pressure and growth are punctuated by silences that are richer, more full. The light of the mosses is steadier. The great pump’s heartbeat seems, to those who know how to listen, to carry a new, gentle echo of the sea, the rain, and the dreaming earth.
+
+The wise power retreats, satisfied. It has not saved them. It has loved them. It has whispered to them the truth they were already living: that they are not prisoners of the Gullet, but its cherished, conscious, and eternal breath.
