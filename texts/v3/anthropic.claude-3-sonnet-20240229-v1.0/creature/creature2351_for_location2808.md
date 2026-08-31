@@ -1,0 +1,17 @@
+The denizens of the subterranean city of Undergaar are a hardy and resilient folk, their very existence shaped by the unforgiving environment in which they dwell. They are the Rockvorn, a race of humanoids whose features bear the unmistakable marks of their cavernous homeland.
+
+With bodies squat and muscular, the Rockvorn are well-adapted to navigating the cramped tunnels and narrow passageways that wind through their stone domain. Their skin, rough and mottled like weathered granite, ranges in hue from deep umber to slate gray, blending seamlessly with the surrounding rock. Thick ridges of calcified bone protrude from their brows, shielding their deep-set eyes from falling debris and errant sparks.
+
+Those eyes, composed of multifaceted lenses not unlike those of insects, are well-suited to piercing the perpetual gloom of the caverns. They can discern even the faintest shifts in the bioluminescent glow that suffuses Undergaar, allowing the Rockvorn to navigate with ease through the ever-changing labyrinth of their city.
+
+Beneath their heavy respirator masks, the Rockvorn possess no visible mouths or noses. Instead, intricate spiracles line their necks and torsos, allowing them to extract oxygen and filter out the noxious fumes that linger in the stale air. Their voices, when they choose to speak, are deep and resonant, rumbling forth from their massive, barrel-chested frames.
+
+The Rockvorn are a people of few words, for idle chatter serves little purpose in their harsh existence. They move with deliberate purpose, their thick-soled boots leaving imprints in the soft, loamy soil that lines the city's winding streets. Their gait is a ponderous march, each step a calculated expenditure of energy in an environment where resources are ever scarce.
+
+Clad in heavy robes and cloaks fashioned from woven mineral fibers and insulating mosses, the Rockvorn are well-equipped to endure the chill of the underground. Goggles and respirators protect their eyes and lungs from the acrid smoke that billows from Undergaar's countless forges and factories, where they labor endlessly to maintain the delicate machinery that sustains their subterranean civilization.
+
+Though their outward appearances may seem imposing, even brutish, the Rockvorn are a profoundly spiritual people, their very existence inextricably linked to the living rock that surrounds them. They revere the primal forces that shape their world, the subterranean rivers that carve new paths, the volcanic upwellings that birth new stone, and the inexorable march of erosion that inevitably reclaims all.
+
+In their rare moments of respite, the Rockvorn can be found gathered in quiet meditation, communing with the ancient energies that course through the living stone. It is a connection that runs deeper than mere physicality, a spiritual bond that spans eons and transcends the fleeting existence of any single individual.
+
+Though outsiders might view Undergaar as a bleak and inhospitable realm, to the Rockvorn it is a sanctuary, a place where they can live in harmony with the primal forces that birthed them. It is a harsh existence, to be certain, but one that has forged a people of unparalleled resilience and fortitude, bound to the living rock in a symbiosis as enduring as the stone itself.

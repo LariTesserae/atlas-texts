@@ -1,0 +1,25 @@
+They are called the **Mevrani**, though they have never uttered that word, nor any other.
+
+They are not one creature but a slow continuity of forms, each one a single long thought that has learned how to wear stone like skin. What first appears to be a pale outcrop of wet limestone, veined with quartz and shadowed faintly blue, will sometimes straighten, unfold, and become a figure nine feet tall whose limbs are still visibly ribbed with the strata that gave it birth. The transition is never sudden. It is a decision that takes decades, sometimes centuries, and by the time it is finished the being has already been standing in that same place for most of a pilgrim’s life.
+
+Their bodies are lithic and translucent in the way cathedral glass is translucent: you can see light moving *through* them, but never cleanly. Inside each Mevrani drifts a pale architecture of its own—faint echoes of arches, buttresses, and impossible angles that shift whenever the creature ponders. These internal structures are not organs. They are memories of the greater Mevrane, carried like half-finished blueprints in living mineral. When a Mevrani is wounded, the fracture does not bleed; it grows a tiny, perfect replica of the injury elsewhere on its body, years later, as though correcting a mistake in its own design.
+
+Their faces are the most unsettling feature. There is almost never a face—only a smooth continuity of planes that sometimes *resolve* into something face-like when they choose to regard a visitor. The expression, once formed, is always the same: an expression of courteous, bottomless patience, as if the creature has already forgiven you for whatever you are about to do. Eyes, when they appear, are simply darker densities of stone, like water caught inside ice. They do not blink. They wait for the moment when blinking becomes geologically necessary.
+
+They do not speak with sound. Instead they alter the capillary water that constantly beads on their surfaces. A Mevrani that wishes to communicate will allow droplets to trace deliberate paths down its chest or forearms, forming temporary glyphs that evaporate almost as soon as they are read. The messages are never urgent. They read like stones remembering sentences.
+
+Most of the time the Mevrani do not move at all. They stand in the folded corridors where three planes meet, exactly where the Unfinished thicken the air. It is impossible to tell which came first. Some scholars among the last pilgrims believe the Unfinished *are* the Mevrani when they have decided, for a time, to stop being bodies. Others believe the opposite: that the Mevrani are what the Unfinished become when they grow tired of pure geometry and wish to feel the slow ache of erosion on their shoulders.
+
+They tend the lithotrophic fungi with a tenderness that borders on worship. Using fingers that can remain motionless for decades, they coax the translucent needles into alignment so that, centuries from now, when the fruiting finally occurs, the geometry of the blossoming will complete a pattern begun before the first human eye opened. The fungi are not food. They are punctuation. The Mevrani are writing an sentence across the entire mineral continent, and the bone-white needles are the final period that has not yet been earned.
+
+A single Mevrani can stand in the same attitude for four hundred years while the water beads, runs, and re-beads across its shoulders. During that time it is not idle. It is *settling*. It is allowing the weight of its own idea to press downward through its feet into the grown stone beneath, fusing a little more completely with the cathedral-engineered geology. Every few centuries one of them will finish this process so thoroughly that it simply ceases to be a separate creature. It becomes another fluted column, another buttress, another deliberate surface. The others never mourn. They simply adjust their own postures by a fraction of a degree, as if making room for the new silence.
+
+There is one among them—whether it is the first or the last, none can say—that is different. Its body is darker, almost iron-grey, shot through with threads of the dull silvery metal that no longer exists in quantity. Where the others are patient, this one is *listening*. It stands at the edge of a half-born arch that has been extruding itself from the mist for eleven thousand years. The creature’s head is tilted as though it can hear the precise instant when the next layer of synthetic mineral will fuse. Pilgrims who have seen it swear that the angle of its neck changes, minutely, every forty years. They also swear that the arch is growing two inches faster since the creature began attending it.
+
+The Mevrani do not have names for themselves, but the listening one is sometimes referred to, in the wet silence between one dripping note and the next, as **the Architect**.
+
+Not because it builds.
+
+Because it is still deciding whether the building was ever a good idea.
+
+And the Mevrane—wet, bright, mercilessly lit, saturated with its own endless becoming—waits with mineral calm for that decision to finish settling into stone.

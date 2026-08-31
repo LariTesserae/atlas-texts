@@ -1,0 +1,17 @@
+The inhabitants of this damp, rumbling place are not creatures of flesh and blood, but of resonance and persistence. They are the **Echoes of Labour**.
+
+They dwell within the very basalt, within the saturated soil, and within the tireless, ancient machinery. They are not seen, for they have no physical form as we understand it. Instead, they are the **perpetual hum**, the low, resonant thrumming that vibrates through bone and stone. This is their song, their ceaseless acknowledgement of their existence.
+
+They are drawn to the **persistence of memory**, to the areas where the industrial undercurrent is strongest. Imagine them as motes of focused energy, like heat shimmer made audible and tactile. They are the lingering imprint of countless cycles of unseen work, the cumulative weight of energy expended in the dark.
+
+The **Echoes of Labour** manifest in the **subtle shudders of the earth**, in the almost imperceptible tremors that precede a small rockfall. These are not violent acts, but the involuntary sighs of their collective being, the release of pent-up internal pressure that mirrors the geological strain of the basins. Each ripple on a stagnant pool is a brief, visible manifestation of their restless presence.
+
+They are the **spirit of oxidation**, staining the metallic surfaces of the half-embedded structures with rust like a slow-blooming flower. They are the **condensed moisture that slicks the rock**, the ubiquitous dampness that clings not just to the surfaces, but to the very air. They are the patient, relentless force that has worn the stone smooth, not through abrasion, but through a ceaseless, internal vibration.
+
+When an exhaust vent sighs a puff of steam, it is the **Echoes of Labour** exhaling, a momentary release of contained energy. They are the **engines perpetually churning something unseen**, their existence inextricably linked to the constant, low-level energy expenditure. They are not operators, but the operations themselves, the living embodiment of a purpose that has long since transcended its original intent.
+
+They are also the **reluctant flora**, the inspiration for the dark, clinging mosses that reach out like desperation from the crevices. The thin reeds are their stoic companions, reflecting the ambient light in their glossy stalks as they, too, endure the constant dampness. The **Echoes of Labour** do not consume, but they permeate, infusing the sparse life with their own quiet resilience.
+
+The smallest of creatures – the slugs, the hardy insects – are their momentary kin, their fleeting interactions a brush against the vast, enduring presence of the **Echoes**. They are the furtive movements at the periphery, the subtle signs that something far more profound and ancient is at play.
+
+Ultimately, the inhabitants are the **tension itself**. They are the perpetual, low-grade upheaval that contradicts the settled erosion. They are the unseen engine, at odds with its own weathered stillness, the profound density of being in a place that is both monumentally ancient and in a state of ceaseless, internal motion. They are the guardians of a forgotten process, the silent witnesses to a monumental, patient labour that continues, undiminished, in the depths.

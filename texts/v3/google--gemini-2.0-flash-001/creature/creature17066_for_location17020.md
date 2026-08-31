@@ -1,0 +1,17 @@
+They are the inheritors, not the builders, of this place. Scavengers, yes, but also something more. Calling them creatures feels imprecise, almost insulting. They are becoming something new, born from the ruins and the strange energies that pulse beneath the iridescent moss.
+
+Imagine a crab scuttling sideways across a beach, its shell adorned with bits of seaweed and colorful stones. Now, replace the shell with a fractured piece of that amber-colored architecture, seamlessly fused to its back. Replace the seaweed with pulsating strands of the electric-blue moss, trailing behind it like bioluminescent hair. Replace the stones with scavenged components, wires sparking faintly, lenses reflecting the perpetual twilight in fractured patterns. This is closer to the truth of them.
+
+They are not simply living creatures wearing technology. The technology is woven into their very being, integrated at a fundamental level. The moss doesn't just cling; it burrows, connecting directly to internal systems, acting as both parasite and power source. Wires aren't merely attached; they are conduits for a strange, shared consciousness, linking them to the city itself.
+
+Think of them as patchwork organisms, constantly evolving, adapting to the ever-shifting landscape. Each individual is unique, a reflection of the specific scraps and resources they have managed to assimilate. Some might be hulking and slow, encased in slabs of grey metal, their movements deliberate and powerful. Others are lithe and nimble, almost invisible, their bodies shimmering with the iridescent glow of integrated flora.
+
+They communicate not through sound, but through pulses of light, through subtle shifts in the electromagnetic field. The hum you hear is not just the moss; it's also the collective consciousness of these beings, a constant stream of information flowing between them, a shared awareness of the city's rhythms and secrets.
+
+Perhaps they are more like cells in a vast, decaying organism. Each one with a specific function, scavenging, repairing, exploring. They are the immune system of the city, a defense against the inevitable slow decay. They are also its gardeners, tending to the electric-blue moss, ensuring the flow of energy continues.
+
+They fear observation, not out of malice, but out of a deep seated instinct for protection. They know, instinctively, that their existence is precarious, that their survival depends on maintaining the delicate balance of this strange ecosystem. To be studied, to be understood, would be to expose themselves to some unknown threat, to disrupt the fragile harmony that sustains them.
+
+And perhaps, on a deeper level that even they don't consciously understand, they know that they are part of something larger, part of the city's own slow, deliberate evolution. To draw attention to themselves would be to risk disrupting that process, to jeopardize the awakening of something ancient and powerful that lies dormant beneath the surface. Their existence is not merely about survival, it’s about becoming.
+
+They are the living cogs in the clockwork city, forever turning, forever adapting, forever on the edge of something new. They are less creatures, more strange potential given life.

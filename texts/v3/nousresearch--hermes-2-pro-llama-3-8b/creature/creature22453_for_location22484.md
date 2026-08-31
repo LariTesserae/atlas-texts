@@ -1,0 +1,13 @@
+The inhabitants of this extraordinary land are a unique species, evolved to thrive in such an intricate and balance ecosystem. These beings, often referred to as the Oceanfolk, are adapted for life both on land and in water. 
+
+They possess webbed fingers and toes, enabling them to swim with ease through the ocean depths or cling to the rocks of the highlands. Their eyes can focus on both the dim light from above and the murky darkness below, allowing them to perceive their surroundings with precision, even at night-time. To communicate, they rely on a diverse language of color and sound, enhanced by the inky depths of their world.
+
+The Oceanfolk have built their society around the principles of symbiosis and mutual aid, living in harmony with the ecosystem. The creatures of the water provide nourishment, while the flora of the land supply oxygen and a sense of community. Their understanding of the world around them has granted them a deep respect for its workings, allowing them to utilize the natural resources without causing harm.
+
+In their towns, the Oceanfolk utilize the underwater caves and chambers, illuminated by bioluminescent flora, creating a breathtaking aquatic environment. They build their dwellings and infrastructure from materials sourced from the surrounding ocean and its flora. The cities are connected by a network of underwater pathways and canals, allowing for easy travel and commerce.
+
+The Oceanfolk's way of life is inextricably woven into the natural rhythms of their world. They are farmers, fishermen, and naturalists, tending their vast gardens, herding their schools of fish, and observing the ebb and flow of the ocean. Their traditions and social structures are based on communal living and shared responsibility, ensuring that their way of life persists and thrives.
+
+While their technology remains simple, the Oceanfolk are adept at using the resources of their land to create tools and devices to meet their needs. From lighting systems powered by bioluminescent algae, to underwater transport created with corals and shells, their science and technology are rooted in the materials and organisms of their environment.
+
+Despite the isolation of their world, the Oceanfolk are a richly developed society, imbued with the wonders of their unique and captivating landscape. Their adaptation to their surroundings, their society's structure, and their lens on the world around them make them a unique and compelling part of this forgotten place, bringing a vibrant, lived-in quality to an already fascinating landscape.

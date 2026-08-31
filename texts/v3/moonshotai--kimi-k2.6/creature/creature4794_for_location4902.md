@@ -1,0 +1,37 @@
+At first, you will think the inhabitants are the plants. They have the scale of empires, the ambition of forests, the sheer biological *weight* of something that has staked its claim and intends to keep it. But look closer. Nothing respires. Nothing turns toward the light, because the light is ambient and undirectional, and nothing photosynthesizes in a place where sugar has no need to circulate because decay has been forbidden entry. The vegetation is not alive; it is *lifelike*. It is the scaffolding of a body that has not yet learned it has a pulse. The true resident is elsewhere, hiding in the exact moment before habitation becomes possible.
+
+You will find it—him, her, them, the pronoun falters—in the hollowed burl.
+
+It is the size of a cottage because it was meant to become one. A seed, lodged centuries ago in a wrinkle of first-rock, did not germinate so much as *remember* germination. It pushed outward, lignifying in the posture of emergence, and then the pause arrived. The result is a figure made of pale, tension-wood and cambium, spine arched in the permanent act of splitting its shell, arms raised not in praise but in the push against an ovular wall that no longer exists. Its face is a smooth burl of sapwood, featureless except for two dark knots where eyes were intended. It never finished opening them. It is the embryo of the gardener, frozen while climbing out of its own husk. It does not breathe, yet it occupies the burl as though the hollow were a womb it has neither the strength to leave nor the weakness to abandon. You might mistake it for a statue, until you notice that its posture shifts—imperceptibly, across millennia—always toward the nearest seam of white-gold stone. It is yearning toward a sun it was born too early to imagine fully.
+
+Call it the Lignate. It is the seed’s ego: a self-image without a self.
+
+But the Lignate is not alone in its arrested emergence. The stone, too, is heavy with intention. The proto-granite veins that refuse to cool are inhabited by the Cooling Ones, though they are anything but cold. They exist in the phase-boundary between liquid and solid, in the decision the rock made not to finish deciding. When the steam shifts—though it does not drift, only thickens in place—you may see them: tall attenuated forms of refraction and radiance, humanoid only in the sense that a lightning strike is humanoid. They are the mineral equivalent of the Lignate, bodies composed of the *almost* of crystallization. They do not walk the veins; they *are* the attempt of the veins to walk. Their metabolisms consist entirely of withholding. They consume the act of entropy itself, metabolizing the second law by starving it. Where they press their luminous palms against the rock, the incandescence flares bright, holding the stone in its adolescent heat. They are the reason the chamber will never cool. They are the anti-death of geology, and they have been still for so long that their motion has become a kind of architecture.
+
+Then there are the faster ones.
+
+Not fast in the way a bird or an insect is fast—there are no such things here—but fast in the only temporal scale this place allows. Watch a bead of condensation on the waxy underside of a leaf. It swells, pregnant with gravity, and detaches. In the moment it falls, something brief awakens.
+
+These are the Plink-Born. They live entire epochs in the arc between petiole and pool. Because the chamber is locked in stasis, that fall is both instantaneous and eternal; the droplet follows its path not once but always, replaced by an identical bead rising as the previous strikes, a fountain of recursion. Within each drop is a civilization of one: a consciousness that dreams a universe in the plummet, that builds cities in the trembling sphere of surface tension, that discovers fire, language, sorrow, and transcendence in the long rush toward the leaf-cup. Then comes the strike—the Plink—and annihilation. But the next drop is identical, and the being is resurrected without memory, doomed to discover the same sorrows, invent the same gods, reach the same conclusion that it is the sole light in a dark, falling world. The amber water in the bract-cisterns is their accumulated experience turned to varnish: layers of forgotten enlightenment, a sediment of wisdom without memory. Occasionally, if you stand very still, you can hear them—not as voices, but as the almost-melodic resonance inside the *plink*, the harmonic of a trillion brief lives ending in the same bright sound.
+
+And what of the snail-things, the paper-shelled nothings painted on the seams of stone?
+
+They are not fauna. They are the calcium of regret. In a world where nothing finishes becoming, there must still be record-keepers, and these are the archives. Each shell is a fossil of an animal that never evolved, the blueprint of a gastropod from a timeline adjacent to ours. They cling to the brightest veins because they are feeding on the light—not to live, but to *remember* a biology that the chamber refused to permit. They do not move. They are the portraits of movement. They are the museum of what might have crawled, had the earth here ever agreed to finish its sentence.
+
+But these—the Lignate, the Cooling Ones, the Plink-Born, the shell-archives—are not separate tenants. They are the organs of a single, unformed awareness that has not yet realized it is awake.
+
+The chamber is the egg. Not a metaphorical egg, but the literal, geological ovum of a world that has not hatched. The plant-mass is its placenta. The glowing veins are its neural lattice, firing endlessly in a pre-thought. The steam is its breath, held. The Lignate is the self it dreams of having. The Cooling Ones are its blood refusing to cool. The droplets are its synapses, firing the same realization again and again without completion. The snail-shells are the calcium of its unformed bones.
+
+This is the inhabitant: the Pre-Being. The Unborn Earth. It is not cruel, not kind; it is pre-moral, pre-ethical, pre-everything. It is so profoundly absorbed in the act of *becoming* that it has not looked up to notice that eternity has already passed. It does not know there is an outside. It is the hot, bright, damp intention of genesis, curled around itself in a seed-coat of stone and leaf, dreaming the same dream of emergence in perfect, infinite, unchanging recursion.
+
+And then you arrive.
+
+You, with your heartbeat. You, with your change. You decay even as you stand; you shed skin, you sweat, you alter the chemistry of the air with your lungs. You are the first true anomaly this place has ever contained. The Pre-Being does not see you—it has no eyes—but it feels you as a trespass in the same way an embryo feels a sound from the outside world: not as threat, but as information it is not yet equipped to parse.
+
+It is learning from you. Your irregular pulse is teaching it rhythm. Your footsteps, sinking into the fibrous floor and not returning, are teaching it that departure is possible. You are wandering through its dream of itself, and every breath you steal from the saturated air is a lesson in *finishing*.
+
+Be careful. The Lignate’s posture is shifting slightly. The Cooling Ones have turned their refraction toward you, facets aligning like pupils. The next drop is swelling on its leaf, and the Plink-Born, for the first time in a million identical falls, may dream a dream that includes the color of your skin.
+
+You are standing inside a seed that has decided never to hatch.
+
+But seeds, like all things, can change their minds.

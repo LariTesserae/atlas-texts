@@ -1,0 +1,33 @@
+What lives here has learned not to stand.
+
+It spreads instead: a low, interlocked commonwealth of mosses, liverworts, sedges, ferns, fungi, and shrubs, each species occupying a different thickness of the same few inches above the stone. From a distance it appears to be a single dark pelt laid across the floor of the cleft. Only at arm’s length does it separate into its parts.
+
+The first inhabitants are nearly invisible. Black films of bacteria and mineral-tolerant fungi occupy the newest fractures, feeding on what the split rock gives up: iron, sulfur compounds, traces of warmth, and the scant organic matter washed in from older ground. Their threads enter fissures too narrow for roots. Some are colorless; others have the dim green-black sheen of oil, though they leave no slickness when touched. After detonations, when fresh surfaces are exposed, these films appear within days as a subtle dulling of the basalt.
+
+Over them come the liverworts, packed in overlapping lobes no larger than fingernails. Their upper surfaces are lacquered by condensation, their undersides fixed to the rock by thousands of pale hairs. They are the cleft’s skin. They catch dust shaken down by machinery, grains of dead vegetation, spores, and droplets carrying dissolved minerals. In sheltered seams they build a first, sour soil.
+
+The moss follows in cushions dense enough to hold the imprint of a falling pebble. Its exposed tips are bright, almost luminous green, but beneath them the growth turns brown, then black, then slowly becomes earth. Each cushion is a reservoir. Squeezed by a vibration passing through the mountain, it releases a ring of water and draws it back. During long periods of fog the moss swells until neighboring cushions meet, bridging cracks with soft false floors. Where the stone warms from below, narrow steam channels remain open through it like breathing pores.
+
+The ferns root in this accumulated depth. They are not delicate despite their fine division. Their stalks are short, dark, and wiry, with fronds that unfold sideways against the ground. New growth emerges tightly furled and nearly black, protected by copper-colored hairs. A falling stone may pulp every visible frond without killing the plant; its buried crown waits beneath the root mat and sends up another ring when the rubble stops shifting.
+
+The sedges are tougher still. Their blades contain enough silica to rasp against one another in the wind. They grow in small, severe clumps along the fissures, where their roots descend until the air becomes too warm or metallic. Those roots repeatedly die at the tips and branch higher up, producing dense brushes that strain soil from runoff. When underground pressure reverses the wind, the sedges all bend together, displaying their pale undersides for an instant. In dimness this makes a quick traveling mark across the hollow, like the back of something turning in sleep.
+
+Among them creep the dwarf shrubs. They are ancient in form but young in every visible branch, continually cut back by stone, frost, and gusts. Their trunks lie under the moss rather than above it: twisted reddish cords following the contours of the floor, rooted at intervals, so that one plant may occupy several separated patches. What looks like a little colony is sometimes a single individual repeatedly buried and re-emerged. Its leaves are small, thick, and almost blue-black. Along the stems, the only vivid color in the cleft, runs a red that deepens where sulfurous vapor reaches them.
+
+No flower advertises itself. The sedges lift dry anthers into the turbulent air. The shrubs produce pinhead blossoms beneath their leaves. Spores and pollen are released not by season alone but by vibration. A long mechanical tremor loosens them. After a blast, the fog may briefly fill with a dust too fine to see except when the distant amber glow passes through it. Then the whole hollow seems to be smoking upward.
+
+Beneath all of this is the life that binds the others together.
+
+Fungal filaments lace the young soil and enter living roots. They are especially dense near the warm cracks, where they form translucent fans across buried stone. They tolerate the mountain’s breath better than the plants do, taking up metals that would otherwise poison the root tips and sealing them into dark nodules. In return they receive sugars. The exchange is imperfect and sometimes predatory: a fern weakened by crushing may be consumed by the same network that fed it. Nothing here can afford a strict distinction between partner and scavenger.
+
+The network gives the vegetation a kind of collective persistence. Not consciousness, and not unity, but continuity. Water captured at one edge moves through saturated moss and fungal tissue toward drier roots. Nutrients released beneath a dead shrub appear later in new sedge blades. When a slab falls, the buried patch heats as it decays, and the growth around its margins thickens. The living cover withdraws from poisonous fissures, advances over cooling ones, and continually alters its shape around the mountain’s injuries.
+
+Its calendar is kept in disturbances.
+
+A faint vibration draws water from leaf tips. A sustained engine note makes spores shake loose. A detonation compresses the moss flat and snaps the finest roots; in the minutes afterward, fungal threads extend into fractures opened by the shock. Rockfall erases decades in a second. Fog permits them to begin again.
+
+None of the inhabitants moves from place to place in the animal sense, yet the green mass migrates constantly. It flows by growth. It climbs fallen blocks, retreats from vents, seals one crack, and rims another. Over months, a fern bed crosses a ledge by the width of a hand. Over years, buried shrub stems reappear beyond a field of rubble. The cleft’s life is always shifting outward from what has survived.
+
+There are no grazed edges, no bored stems, no eggs beneath leaves. Seed heads remain full until wind empties them. Dead tissue persists, cleanly softened by moisture and fungus rather than torn apart. The plants bear no expectation of teeth or feet. Their defenses are against cold, metals, pressure, burial, and the abrasive movement of one another.
+
+In darkness, this community does not resemble a garden. It becomes a damp, layered body without organs: moss holding water, sedges registering air, ferns laid over stone like many jointed hands, shrubs fastening the loose ground, fungi entering everything. The machinery below supplies its pulse, but not its purpose. With every tremor the vegetation shivers, settles, and resumes its patient work—softening what has just been broken, covering what has just been exposed, and fastening itself to a mountain that is still being made.

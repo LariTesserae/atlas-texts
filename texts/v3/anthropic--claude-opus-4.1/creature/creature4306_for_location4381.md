@@ -1,0 +1,21 @@
+## The Dweller
+
+It has no need for eyes in this kingdom of eternal light. Where you might expect them, there are only smooth depressions in its skull-plate, shallow bowls that collect the mineral dust perpetually settling from nowhere. The dust accumulates in these hollows until it forms perfect circles of crystalline salt, which the creature absorbs through its skin every few days—its only meal.
+
+The thing is mostly stillness. You could mistake it for another formation of the bladders themselves, pressed and fossilized into a vaguely animal shape. But watch long enough and you'll see it move—a single step might take it three hours to complete. Its six limbs (or are they eight? they merge and separate depending on the angle) are translucent like the bladders, filled with the same branching filaments, but these pulse with purpose. Each foot-pad is a complex flower of tissue that can taste the chemical gradients in the air, reading the health of every bladder in its domain.
+
+Its body is a cathedral of chambers, each containing different pressures of that thickened air. By compressing and releasing these internal spaces, it maintains perfect equilibrium with the breathing mountain. When the stone exhales its faint warmth, the creature contracts. When it inhales, the creature expands. They are synchronized—have been for so long that it's impossible to say which follows which.
+
+The skin (if you can call it skin) is a map of its age. Where it has touched the bladders over centuries, their patterns have transferred onto its surface like tattoos—ghost images of internal geometries now worn on the outside. Some sections of its body are beginning the same mineralization as the bladders against the walls, its left hindmost limb already half stone, still functional but moving even slower than the rest.
+
+It tends the bladders with infinite patience. When one grows too large, threatening to crowd out others, the creature will spend weeks positioning itself, then extend a hollow tongue-tube to pierce the bladder's wall with surgical precision. It drinks just enough of the internal fluid to slow the growth, then seals the wound with a secretion from glands along its throat. The scar it leaves becomes a new growing point—the bladder will branch there, becoming more complex, more beautiful.
+
+The creature has no voice, but it does sing—in frequencies too low for human ears, vibrations that travel through the stone itself. These songs regulate the bladders' growth, encouraging certain patterns, discouraging others. It is composing something, a living sculpture that will not be complete for another ten thousand years. Each bladder's position, each internal spiral, each point where they press together—all deliberate, all part of some vast aesthetic comprehension you could never grasp.
+
+When you enter, it knows. Not through sight or sound, but through the disturbance in the air pressure, the new chemistry of your breath mixing with the ancient atmosphere. It doesn't flee or approach. Your presence is simply another variable in its eternal calculation, something to route around like water routes around a stone. It adjusts the angle of its next step by a few degrees. This correction will ripple through its plans for the next century.
+
+Its reproduction, if it reproduces, must be mineral. Along its spine (though "spine" implies more rigid structure than this creature possesses), small nodes of crystallized tissue form and slowly detach. These fall to the chamber floor and work their way into cracks in the stone. Perhaps they will grow into new creatures, or perhaps they are merely shed thoughts, calcified meditations on the optimal arrangement of living glass.
+
+The creature is neither male nor female, neither plant nor animal, neither fully alive nor entirely geological. It exists in the space between categories, patient as limestone, deliberate as water wearing away stone. It has been here since before the bladders began their growth, and it will be here when they finally achieve whatever form it has been guiding them toward.
+
+In its own way, it is the mountain's dream of itself—slow, luminous, eternally creating something whose purpose will only be clear when the last star burns out and there is finally enough darkness to see what all this light has been making.

@@ -1,0 +1,15 @@
+Here lives the Unbuilt.
+
+Not a people, not beasts—there is nothing with blood, nothing that hurries, nothing that hunts or eats or calls out. The inhabitants are the ones still deciding what to be.
+
+There is the Ground, barely older than a thought: stone that forgot to wait for eons before hardening, cooling now from a near-metallic birth-heat into something that might become basalt, or might invent its own name. It lies in broad, flat plates with gaps of darker uncertainty between them—neither soil nor absence, but substrate that has not committed to being earth. Underfoot it is tentative; it has not finished agreeing to hold weight.
+
+There are the Vegetal Islands, scattered across the chamber in dense, localized thickets separated by vast expanses of bare newborn rock. They do not drink—there is no water here—but absorb heat and the faint electrical weeping of the crust. Thick, rubbery fronds and coiled crystalline vines grow in lush contradiction to the drought, sheathed sometimes in thin copper-colored bark that hums softly if touched. Their roots do not dig; they fuse. Some unfold folded membranes like flowers that take days to open, releasing no scent, only a captured warmth exhaled slowly into the dry air.
+
+There are the Embedded Machines, excreted rather than built—industrial processes that emerged as part of the land’s own gestation. Dark alloy pistons grow through the cooling plates like bones through skin, thrusting with glacial patience. Gears rotate half-submerged in nascent stone, open to air, powered not by fuel but by thermal difference: the hot substrate below against the cooler suspended atmosphere above. Translucent tubes carry a viscous, mercury-colored coolant through pathways fused into the rock itself. Thin gold arcs leap silently between mineral spires, too regular for lightning, too irregular for wire.
+
+Together they form an ecology without predators or prey: the plants may be the cooling system, the machinery the skeleton, both sustained by heat, electricity, and dry chemistry in a sealed, waterless chamber. The sound of the place is mostly quiet—a low mechanical exhalation blending with heat-shimmer, an occasional soft internal crack like ice forming backward.
+
+And there is You, if you enter—small, temporary, a held breath witnessing a pre-formation that does not notice observers. The air tastes of hot salt and ozone. Shadows fall wrong. Distance stretches or contracts without warning. Time is measured not by clocks but by hardening, by blooming, by the slow rotation of gears that never hurry.
+
+This pocket is not inhabited. It is incubated—hidden, elevated, suspended high above any valley that might claim it, enclosed not by walls but by gradients of becoming. The ground is still deciding if it is solid. The machinery continues its patient turning. The lush plants absorb light without casting true shadows. And the place remains: an industrial garden gestating in dry, impossible silence, having only just begun to understand what kind of reality it wants to be.

@@ -1,0 +1,29 @@
+You feel them before you see them—the shift from observation to being observed, a subtle reorientation of the environment around you. Not a sound, but a pressure change in the thick, humid air. A rhythmic pulse in the stone under your feet, faster than the mountain’s own geological heartbeat.
+
+They emerge from the terraces themselves.
+
+The first is a thing of terraced stone and mossy light, a living sculpture that has learned to walk. Its body is a series of interlocking basalt plates, each tier hosting a different micro-ecology of ferns and phosphorescent lichen that glow in soft, pulsing bands. It moves with a grinding, deliberate grace, each step a quiet rearrangement of its own geology. When it pauses, you can see minerals migrating beneath its surface—veins of quartz lighting up, iron deposits blooming and fading like thoughts. It isn’t *made* of the mountain. It *is* a piece of the mountain that decided, for a time, to be separate.
+
+Another follows, smaller, its tiers more angular, its light a cooler blue. It stops beside the first, and for a moment, their plates align. A low thrum resonates through your bones—not a voice, but a sharing of data. Crystalline patterns flash beneath their stone skins in complex, rapid sequences: topography updates, mineral surveys, threat assessments (there are none; this place is too new for threats). They are nodes in a living network, the mountain’s emergent immune and logistical system.
+
+They are not alone.
+
+From the mist-shrouded hollows between terraces, others step. Some are low and broad, their backs like shelves of layered shale, hosting entire communities of the dog-sized browsers that nestle into their crevices. These are the **Nurture Plates**, mobile sanctuaries that transport the herds to fresh grazing grounds as the mountain grows, their bodies generating a localized microclimate of warmth and moisture.
+
+Others are tall and spindly, all reaching columnar joints and hanging fern fronds, their movements mimicking the wind but originating from within. They are **Weatherscribes**, and they walk the ridgelines where the self-generated mist is thickest. Their bodies are complex condensers and dispersers; they breathe in the rock’s exhalation, process it, and exhale it in patterns that influence the local fog. Where they walk, the mist thickens into draping curtains or parts into sudden, clear viewports. They are sculpting the visibility of the world in real time.
+
+And there is one that is still.
+
+It sits at the apex of a new terrace, a confluence of obsidian and pale quartz. It is larger than the others, its form less defined, more like a slowly solidifying thought. Its surface is a mosaic of every mineral type you’ve seen, and they are in constant, silent flux. This is a **Forgeheart**. It does not move. It *processes*. The raw, uncooked reality of this place—the physics still in draft, the causality still negotiating—flows into it like runoff. You can see it happening: the occasional upward-dripping condensation, the sideways-growing columns, the fauna forming geometric shapes—all of it is drawn toward the Forgeheart in faint, shimmering threads.
+
+It is the mountain’s unconscious mind. It takes the anomalies, the glitches in the emerging code of this world, and it *integrates* them. It is running a continuous, planet-wide compiler, debugging reality by absorption. The other beings, you realize, are its peripheral senses and its hands. The Nurture Plates monitor the stability of the living substrate. The Weatherscribes manage the environmental parameters. The smaller, tiered walkers you first saw are its scouts and couriers, carrying encoded data packets in the crystalline flashes beneath their skins.
+
+They acknowledge you in their own way. Not as a threat, nor as a curiosity, but as an anomaly of a different order—a static variable in a dynamic equation. A Nurture Plate passes by, and the herds on its back do not startle. A Weatherscribe pauses, and the mist around it parts, granting you a momentary, vertigo-inducing view of the cloud-sea far below. The smaller tiered walker approaches, its quartz veins pulsing a soft amber. It extends a tiered limb, not to touch you, but to offer a surface. On its top plate, a perfect, miniature replica of the terrace you stand on is forming in real-time mineral deposits, a gift of topography, a way of saying *you are here, in our model of the world*.
+
+This is the true industry. The mountain builds itself, and these beings are the conscious process of that self-construction. They are the quality control, the adaptive software, the living interface between raw geological creation and a stable, inhabitable world. They are not masters of this land; they are its metabolism.
+
+The Forgeheart pulses, a deep, slow wave of light. Across the terraces, you see a thousand such beings pause in unison. The ferns’ glow dims and brightens in sequence. The dog-sized herds lift their slate heads, beak-mouths opening in a silent chorus. For a moment, the entire visible mountain range is a single, interconnected organism, running a diagnostic.
+
+Then it passes. The rhythm resumes. The Forgewright returns to its silent absorption. The Weatherscribes go back to sculpting the mist. The tiered walker finishes your topographic gift and withdraws, its purpose served.
+
+You are left standing on the warm, breathing stone, an anomaly integrated into the model, a witness to the slow, industrial birth of a world and the strange, new minds that are learning how to run it. The mountain groans below, a sound of endless effort, and these beings—the Terraced, the Scribed, the Plated, the Still—answer it with their quiet, purposeful dance of creation and correction, ensuring that the rules, as they solidify, will hold.

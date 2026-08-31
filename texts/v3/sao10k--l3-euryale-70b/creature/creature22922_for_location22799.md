@@ -1,0 +1,11 @@
+Deep within the blasted depths of the Canons of Calm dwell strange beings forged by primordial forces both natural and unnatural. Twisted forms writhe amidst sulfurous pools and jagged outcroppings, birthed from eldritch magmas that never should have seen light.
+
+Gnarled homunculi clamber across basalt shelves, eyes glowing like embers plucked fresh from hellish forges. Their flesh is a patchwork quilt stitched together from mismatched limbs salvaged who-knows-whence - here a human arm ending in crablike pincers, there a torso sprouting serpentine coils instead of legs. They gibber and chatter incessantly between themselves in tongues known only to madmen and demons.
+
+Worse yet lurk sinuous abominations slithering through cracks too narrow for lesser beasts to follow. These serpentfolk wear faces stolen piecemeal from unwary travelers foolish enough to wander close: one sport's lips curled back in silent screams while another has three bulbous orbs blinking independently above its hissing snout. Iridescent scales ripple hypnotically down elongate bodies undulating with preternatural grace.
+
+Misshapen things oozze forth unbidden when no eye falls upon them - amorphous blobs pulsating gently before splitting open gaping mouths ringed with needle teeth or unfurling pseudopods tipped with barbed hooks perfect for rending steel sheeting apart...or tearing men limb-from-limb just as easily...
+
+And then there are those few entities not even remotely describable save perhaps as living manifestations of pure chaos given form via some unspeakable sorcery beyond mortal ken! Amalgams impossible geometry shuddering against sanity-defying angles defile sight wherever they pass leaving shattered minds drooling wordlessly behind!
+
+All these horrors thrive feeding off ambient radiation leaking eternally upwards from unknown subterranean sources far beneath the Canons' tortured bedrock - power which also imbues certain ores scattered throughout allowing anyone willing/foolhardy enough to mine it access to reality-bending powers best left forgotten but whose promise draws evermore desperate prospectors deeper into madness each passing year despite mounting bodycounts among previous would-be claimants...

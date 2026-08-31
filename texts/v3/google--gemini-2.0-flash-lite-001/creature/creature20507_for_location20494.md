@@ -1,0 +1,15 @@
+They are the Architects, or perhaps, the Gardeners. It's difficult to say with any certainty, given the malleable nature of their being and their utter integration with this strange, living city. They aren’t simply *in* the city; they *are* the city. To understand them, you must understand the essence of this place.
+
+The Architects are of the plant, yet separate from it. They are the shimmering, obsidian forms that glide through the tunnels, the unseen hands that coax the flesh-walls into new configurations. They are the whisperers in the wind, the unseen voices woven into the chorus of clicks and hisses. They are the masters of the impossible tech, the conductors of this chaotic symphony of life and decay.
+
+Imagine a single, fragmented consciousness, spread across myriad forms and operating simultaneously on a multitude of scales. They are not singular beings with individual desires. They are a collective, a gestalt, a merging of thought and environment that has evolved over eons into something utterly alien. Their individuality is expressed through their works, the fluctuating and morphing of the city, and the very composition of all things.
+
+They have chosen to shape this place, to bend reality to their will, and their methods are not those of brute force or rigid control. Their approach is organic, an almost impossible blend of creation and destruction. They are surgeons of reality, carving and shaping the universe with the precision of a master craftsman, yet leaving room for the unpredictable, for the chaotic energy of life to flow.
+
+Their physical forms are merely manifestations, avatars for their true selves. The forms we see, the obsidian glimmers, are likely vessels, tools, or observers. The true essence of the Architects is beyond our comprehension – perhaps they are pure thought, energy given form. They are the current of the river, as much the riverbed.
+
+They are the unseen manipulators, the gardeners who cultivate this dangerous, vibrant ecosystem. They orchestrate the growth and decay, the shimmering lights and dripping moisture, the humming insects and the predatory obsidian wolves. They are the weavers of this living tapestry, the conductors of the symphony of the strange.
+
+Their motivations? Who knows? Curiosity? Experimentation? A need to sculpt and refine their creation? Or a vast, inscrutable purpose that is beyond our capacity to understand?
+
+The Architects are not benevolent. They are not malevolent. They are simply… *other.* They exist outside our familiar framework of good and evil, operating by a logic that is both utterly different and chillingly familiar. This place is not a paradise, not a utopia. It is a work in progress, a laboratory, a playing field for beings whose true nature remains a mystery. And you are, for better or worse, an element within that field.

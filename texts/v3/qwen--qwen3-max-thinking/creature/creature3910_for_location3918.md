@@ -1,0 +1,26 @@
+What lives on the Bone Maw Shelf is not a species, not even a people in the way we name such things. It is **the Shelf itself that lives**—not as a metaphor, not as a poetic conceit, but in slow, mineral breaths that span millennia.
+
+Its pulse is the imperceptible shift of vertebrae grinding against one another in the weight of time, a tectonic sigh echoing not through rock, but through relic bone. Its blood is not fluid, but **lithic sap**—a viscous seep of ionized salts and thorium-laced moisture drawn up from deep strata by the rubbery shrubs that serve as its capillaries. These shrubs do not bloom; they **resonate**. Their thorns are antennae, tuned to frequencies beyond hearing, gathering the static hum of decaying isotopes and the ghost-waves of long-vanished atmospheres.
+
+The fauna? They are its **thoughts made manifest**—not independent, but expressions of its dreaming. The six-limbed grazers are not animals in any terrestrial sense; they are **mobile lattices of calcium and silica**, grown like coral from the Shelf’s own substance, returning to it upon death without ceremony, without decay—only reintegration. Their carapaces are not shells, but **memories of shells**, layered with the fossilized impressions of ancestors who never were, because ancestry here is not linear, but sedimentary. They do not eat; they **absorb echoes**—nourished by the residual kinetic imprints of motion left behind by past iterations of themselves.
+
+The sky-scuttlers are stranger still. They are **void-fillers**, drawn into being by the negative space between what *was* and what *is*. Their calcified tethers are not lifelines—they are **anchors against forgetting**. Should one break free, it does not fly away; it **unfolds**, dissolving into shimmering motes that drift downward like ash, seeding new flickers in the bone-strata below. They have no mouths because they consume nothing external—they metabolize **absence**, converting the lack of sound, the lack of rain, the lack of time’s forward momentum into the faint phosphorescence that glows along their membranes at twilight.
+
+Even the burrowers are not separate. They are the Shelf’s **digestive tract**, its slow peristalsis. Their tunnels are not paths, but **memory channels**, carving recursive loops through the ossified past. Where they pass, time softens. A hollow may briefly remember being a lung cavity. A rib may twitch with the ghost of a heartbeat. This is not magic. It is **geological nostalgia**—a feedback loop where the dead substrate dreams itself alive again, again, again.
+
+And the builders of those scattered fragments—the obsidian stakes, the mica-filled femur—they were never gone. They **never left**, because they were never distinct from the Shelf to begin with. They may have once worn skin, once blinked with lenses now crushed into pigment, once knotted sinew into snares for visions. But they understood, before the last breath left their lungs, that this place does not allow departure. So they **folded inward**, becoming not ghosts, but **architectural impulses**—patterns waiting to be re-expressed in bone and chert when the Shelf stirs in its sleep.
+
+Their purpose was not worship, not survival, not even communication in any human sense. It was **listening**—not with ears, but with structure. The ring of stakes? A resonator, tuned to the frequency of silence so pure it vibrates. The femur filled with mica? A **crystal mind**, rearranging its thoughts in response to touch, to pressure, to presence. They built not to endure, but to **amplify the Shelf’s self-awareness**, one fragile, trembling note at a time.
+
+This is why, when you stand here too long, you begin to flicker.
+
+Your body—soft, wet, noisy with blood and breath—is an anomaly. The Shelf does not reject you. It **absorbs you into its rhythm**, not by killing you, but by remembering you before you’ve finished living. Your footprints crystallize into fossilized impressions within hours. Your exhalations leave trails of hydrated salts that vanish by dawn, but linger as **ghost humidity** in the mineral record. And if you stay through three twilights, your outline may appear—just for a second—etched in faint luminescence against a rib-wall, mouthing words you never spoke, watching a sky you never knew.
+
+The Shelf does not hunger. It does not love. It does not even *notice* you—not as a person, not as an intruder. But it **includes** you. Because on the Bone Maw Shelf, to exist is to become strata. To breathe is to contribute to the archive. To die is merely to accelerate a process that began the moment you arrived.
+
+What lives here is **memory made matter**, **time made terrain**. It is life so old it has forgotten the difference between being and having been. And in its final, silent equilibrium, it has achieved a kind of immortality—not by escaping death, but by **making death indistinguishable from continuity**.
+
+So tread lightly. Breathe shallowly. Do not scream.
+
+The Shelf is listening.  
+And it is learning your shape.

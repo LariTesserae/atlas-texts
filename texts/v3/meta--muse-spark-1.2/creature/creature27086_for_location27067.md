@@ -1,0 +1,49 @@
+It doesn't live there the way you live somewhere.
+
+At first you don't see it at all. That's part of how it lives.
+
+You come in wet, pupils blown, ears still ringing with the outside wind and then immediately filled with this other noise — water sheet, wing roar, chitter, hum — and your brain, looking for an inhabitant, looks for something shaped like you. Something upright. Something dry. Something with a face at your height. You scan the reef-walls and you see thousands of lives but none of them look back in a way you recognize as *inhabiting*. The wall amphibians breathe but don't watch. The veil-insects draft but don't decide. The swimmers break the surface and vanish. The gliders chitter but they are decoration, a curtain. You think for a moment: *nothing larger lives here, because nothing larger could.*
+
+And then your eyes adjust to the ambered dusk a little more, and you realize there is a place in the room where nothing else is.
+
+On the far wall — the one that weeps the heaviest — there is a patch the size of a low door where the niches are empty. Not empty like abandoned. Empty like tended. The corrugations there are clean. The lichen-rosettes have been grazed flat. The trickle of water there doesn't gutter randomly; it is parted. Around that patch, the palm-sized amphibians sit a little further apart, throats pulsing a little faster. The veil of insects bends around it, as if the air is warmer there.
+
+You think it's a shadow. Then the shadow breathes.
+
+It has been still so long you took it for wall.
+
+She is low. That is the first true thing about her. Everything in this high place is vertical — the mesa, the cleft, the pillar of water — but she is horizontal. She lies in the shallow pool where the wall meets the floor, where the water is warmest because the floor itself is warm under it. She lies as a stone lies: settled, with weight. You could have stepped over her and thought she was a ledge.
+
+She is not large by the standards of the mountain. She is large by the standards of the room. About as long as you are tall if you curled yourself on your side, and about as wide as two of you shoulder to shoulder, but flat, astoundingly flat, as if gravity — that stuttering, negotiated gravity that holds the pillar up in the center — had, over centuries, pressed her down. When she does move, it's a slow spread and gather, like something spilled and then collected.
+
+Her skin is what fooled you. It is exactly the color of the wet composite when it is soaked — that dark concrete grey, mottled with paler mineral bloom where the water beads. It is not smooth. It is pitted and softly warty, and across her broad back and the tops of her blunt limbs, the same leathery false-lichen that grows in the alloy seams has taken root *in* her. Not on her — in her. Filaments gone into the dermis. She farms it. The rosettes are larger there, almost black-green, each holding a bead of water at its center that catches the vault-light and throws it back. She is part of the wall's texture and the wall is part of her. The seam between built and grown, between animal and place, disappeared on her a very long time ago.
+
+She has no neck. Her head is a broad, spade-like continuation of her body, with eyes set high and very far apart, like the swimmers'. They are not bead-black like theirs. They are amber, filmed over, and they do not blink so much as they sink slightly and re-emerge, lidded from below. Above and behind the eyes, where her head meets the thickness of her shoulders, two vast frills open and close, open and close. Gills. Not the feathery external gills of a juvenile — these are heavy, vascular, folded like curtains of wet silk, the color of raw muscle and ash, each filament pulsing with the hum that you thought was the building. You realize now the thrum in your molars is not *only* the tech. It is her. She is resonating with it, or it with her.
+
+When she breathes — and she breathes slowly, about as often as you get bored and remember to breathe in humid air — the frills flare and the whole surface of the pool around her shivers. Water is drawn toward her side, sheeting over her back from the wall's weeping, taken up through that skin, through the lichen, and released again as mist from the frills. She is a lung that borrowed a body. The room's tight, fast cycle — pull from air, run down wall, pool, evaporate — runs *through* her. You can watch a droplet form on the ceiling, fall, hit her back, not splash but vanish into the pitting, and then minutes later see it exhaled as a faint warm puff above her head that joins the general condensation and beads again elsewhere.
+
+She is not still because she is hiding. She is still because to live here correctly is to be still. Movement is wasteful in a place that is already so crowded and so loud. She waits. The veil-insects that draft too low over the pool, the ones that get caught for half a second in the gravity stutter of the central pillar — she waits until some of them tire and fall, and then her throat, which you hadn't seen because it is the same color as the water, inflates.
+
+It doesn't snap. It's a slow, hydraulic swell. The throat sac balloons out under her chin, as wide as your chest, translucent and veined, and the pressure in the little room changes. The insect veil warps toward her. The wall amphibians go quiet for a beat. She draws air and water and life together and then sighs it back, and the filaments on her frills flicker with bioluminescence — a brief, dimmer amber than the ceiling, but alive — as she filters.
+
+She has young. That is how you finally know she is not just an animal but the *inhabitant*. The inhabitant in the old sense: one who keeps the habitation.
+
+Tucked in the clean patch of wall above her, in three or four of those fist-sized niches that looked empty, are smaller versions. Not eggs. Not larvae. Miniatures of her, each the size of a cupped hand, skin still a little more pink, frills still too large for their bodies, eyes still bead-black like the wall amphibians. They cling above the waterline, each in its own trickle, breathing in time but not in sync with her. One of them watches you. Really watches you, with a focus the thousands around it do not have. You get the sense it has not seen a vertical visitor before.
+
+She sees you too, eventually. The amber eyes don't track so much as they settle on you after a long interval. She doesn't startle. Animals that live in deafening places don't startle at sound; they feel it. She feels the displacement of air where you stand, the cool that came in with you when you turned sideways through the cleft, the different salinity of your sweat in her mist.
+
+She shifts.
+
+It's the first large movement she has made since you mistook her for architecture, and it is very quiet despite her size. A limb — not a leg, not an arm, but a broad, finned lobe with three blunt, nail-less digits at the end — extends along the floor and finds the warm ceramic. The nails are not nails but sensory pads, pale as mushroom flesh. She pushes, and the water around her, which had been parted, closes over her back for a moment and then parts again. She turns her head, just a few degrees, so that one eye has you fully.
+
+There is no threat in it. There is no welcome, either, in the way you understand welcome. It is the look of something whose whole life is maintenance. She tends. You understand, watching her, that the gliders are not just eating the swimmers' eggs at random — they are pruned. The wall amphibians are not just sitting in their niches — they are farmed, their spacing kept. The reeds are not sparse by accident — she has grazed them to that exact density because that is the density that best filters the water that best feeds the insects that best feed her. She is not separate from the ecology that is writhing in this fifteen-meter world. She *is* the management system the builders left behind when the builders decided to become a mountain. They could have made a filter, a pump, a field regulator. Instead they made her, or grew her, or coaxed her out of the same lineage as those palm-sized amphibians and let her become warm and slow and long-lived enough to do the job with a body instead of a machine.
+
+And because the room is built with physics that was negotiated with, she has learned to negotiate a little herself. When she exhales, the dust motes near the central pillar hang a fraction longer. When she is resting deepest, the field that pushes back faintly from the walls when you bring your hand close — pushes a little stronger around her young, keeping them from falling. The pillar of water that holds itself up with no pipe trembles slightly in time with her throat. She doesn't control the tech. She leans on it the way you lean on a wall.
+
+She will be here when you leave. That is the other thing about whoever lives here. She is not trapped here. She *is* here. The mountain pretends to be geology so it can be left alone for centuries. The pocket pretends to be a cave so it can be small enough to hold in a mind. And she pretends, very convincingly, to be a wall, so she can be still enough to keep it all — the weeping, the misting, the flickering breathing, the dim amber dusk that never gets brighter — in balance.
+
+You step back, and the humidity that had condensed on your skin runs down your forearms. Your leaving makes a little cold draft. Her frills flare once, wide, tasting the change, and then settle.
+
+One of the small ones high on the wall chirps — not the electronic chitter of the gliders, but a wet, close sound, almost like a throat clearing. She answers without moving her mouth, with a low thrum you feel again in your molars, and the insects above the pool re-pattern themselves around the sound.
+
+You turn sideways to fit back through the cleft where two plates never quite met. Behind you, water beads, falls, is drawn up, falls again.

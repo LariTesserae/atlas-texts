@@ -1,0 +1,21 @@
+In the heart of the Ebon Plains, where the canvas of reality is a tapestry of unyielding black, lives the **Stormkin**, the hunters of the endless night. They are not merely creatures; they are the embodied essence of the storms themselves, a symphony of rage and adaptation made manifest. They are the apex predators, the unseen architects of this harsh ecosystem, and inheritors of a world they did not build.
+
+Imagine a being sculpted by the wind and the storm: a confluence of chitin, fluid, and shadow. The Stormkin's forms are never fixed, shifting and evolving with the whims of the tempest, a reflection of the tumultuous environment in which they exist. 
+
+They are chimeras, amalgamations of biological structures and storm-energy, their bodies often composed of a multitude of limbs: a tangle of limbs that propel them through the fibrous plains. The limbs end in razor-sharp claws, forged from a dark, obsidian-like material that seems to absorb all light, allowing the Stormkin to move through the darkness like a whisper. Their bodies are shrouded in a thick, chitinous exoskeleton, the color of solidified twilight, constantly slick with the pervasive mist, preventing sound.
+
+Within that outer skin, the interior is a constantly-shifting mass of fluid, a conduit for the raw energy of the storms. This internal structure is riddled with bioluminescent veins that pulse with a cold, ethereal light, illuminating the darkness in fleeting, fragmented bursts. Sometimes, these veins coalesce into intricate patterns, hinting at a sentience that is as ephemeral and changeable as the weather itself.
+
+The Stormkin's sensory organs are as strange as their form. They do not rely on sight within the absolute black, but on a heightened sense of sound and vibration. Their bodies are covered in specialized organs that pick up the faintest tremors in the fibrous floor and the rustling of chitinous hides, and the high-pitched screams of prey. They can also detect the volatile electrical charges that precede the storms, allowing them to anticipate and exploit the brief moments of illumination.
+
+Most tellingly, they can sense the faint "scent" of the native plants. This is not a smell humans could detect, but a complex, volatile compound, a chemical symphony unique to the interconnected network of plant-architecture that makes up the Ebon Plains. The Stormkin are drawn to the plants, using them as both shelter and a hunting ground.
+
+These creatures are drawn to the lost structures of the ancient people. These seem to have housed whatever form of light existed, once. This attracts them, and they move among the vestiges with a silent respect, as if they understand or remember something lost.
+
+The Stormkin are solitary hunters, each a terrifying individual, but not alone. They exist as one with the storms. When a great storm descends, they become even more unpredictable, merging with the wind and the water to become something beyond comprehension. These are the moments when the landscape shifts, when reality bends—the moments when the Stormkin transform into terrifying avatars of destruction.
+
+What the Stormkin hunt provides a clue as to why they exist. The plants. The spores, perhaps, or the water the plants hold within themselves. The old structures, they also seem to consume or absorb, altering their shape and nature. It is possible they are a symbiotic element, maintaining the plants. Perhaps, they are a force of entropy, returning life to the void.
+
+Some believe the Stormkin are mindless, driven only by primal instinct. Others whisper of a collective consciousness, a hive mind woven from the very essence of the storms. This would explain their coordinated attacks during the storms and the apparent respect that they pay to the lost structures, as they are drawn to its light and history.
+
+The Stormkin are the inheritors of a world of desolation and morbid beauty, a world they did not create but have mastered - a harsh world that is, nonetheless, their home. More, the very nature of their forms, shifting and changing with the storms, suggests they are not merely adapted to this environment, but are an integral part of it. They are the embodiment of the Ebon Plains, its shadow-kings, its living testament to the raw beauty and terrible power of a world in a constant state of becoming.

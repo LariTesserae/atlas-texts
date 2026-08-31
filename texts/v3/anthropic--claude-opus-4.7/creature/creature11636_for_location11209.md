@@ -1,0 +1,35 @@
+# What Lives in the Held Chamber
+
+There is a thing in the chamber that has not decided whether it is one thing or many.
+
+Begin with the film. The slickness on the stones, the yield-under-fingertip that is almost vegetable. It is not plant and not quite animal; it is a sheet of cells thin enough that the word *sheet* overstates it. A monolayer, in places. A bilayer where it has had ambition. It feeds on what the water brings — the dissolved breath of the mountain, faint sulfurs, the carbon the droplets carry down from the slot — and it grows so slowly that growth is the wrong verb. It *accrues*. The way the calcite accrues. At the rate the chamber permits, which is the rate of held-breath.
+
+The film is the chamber's resident, in the sense that most of the chamber's living mass is film. But the film is not quite the inhabitant either, because the film does not seem to know it is alive. It performs the chemistries. It does not perform the noticing.
+
+The noticing happens — if it happens — in the pale thing in the corner.
+
+The pale thing is the film's other idea of itself. Where the film has lain flat for long enough, in the precise spot where one particular droplet has been arriving for some uncountable while, the film has lifted. Has put out a structure. The frond-or-feeding-organ. It is the same organism as the film, the way a fruiting body is the same organism as the mycelium beneath it, but it is the part that has committed to a direction — which, in a chamber that refuses direction, is a small act of heresy. The pale thing is where the resident, such as it is, *attends*. It is the chamber's sense organ for itself. It tastes the droplet that has been arriving for centuries. It registers, perhaps, the pressure-shift when the slot breathes. It registered you. It did not move because moving is not among its verbs, but it registered you, and the registering is still happening, and will still be happening some while after you have forgotten the chamber entirely.
+
+What the pale thing knows, it knows slowly. A thought, here, is the length of a stalactite's first millimeter. A decision is geological. The pale thing has been, for as long as it has been pale, considering whether to extend a second frond. It has not yet concluded. It may conclude in your great-grandchildren's time, or it may not; the conclusion is not urgent because nothing here is urgent, and the pale thing has internalized the chamber's central tenet, which is that arrival and departure are the same gesture seen from two sides.
+
+The soft-shelled thing that crossed your foot is also the resident, and also is not.
+
+It is the film's third idea. Where the film has pooled thick enough, in the low places where the floor is becoming-floor, it has occasionally — every few centuries, perhaps — gathered itself into a discrete packet and gone walking. A motile bud. A scout. It has a shell because the chamber taught it shells, the way the chamber teaches everything: by patient mineral deposition, atom by atom, until a softness has a surface. The soft-shelled thing crosses the floor at the speed of a slow second-hand and returns, eventually, to the film, and dissolves back into it, and what it learned on its walk — if *learned* is the word, if *it* is the word — diffuses into the sheet and becomes available to the pale thing's slow considering.
+
+It crossed your foot because you were warm in a way the chamber is not warm. The chamber's warmth is even, distributed, the mountain's low fever. Yours was local, bright, strange. The soft-shelled thing went to taste it. It found you not-chamber and withdrew. The withdrawal is information. The pale thing has been processing it ever since.
+
+So: one resident, in three modes. Sheet, frond, walker. The sheet is the body. The frond is the attention. The walker is the question.
+
+But this is still not the whole inhabitant, because the inhabitant includes the water.
+
+The droplets that arrive and depart at the same rate are not, to the resident, separate from itself. The film exchanges ions with every drop that touches it; the drops carry the film's chemistry into the standing water in the clay pot and bring back the pot's chemistry to the walls. The pot is an organ. The pot was made, perhaps, by someone who understood this — who shaped it by hand and fired it poorly and left it deliberately, knowing that what was needed was a reservoir, a slow heart, a place where the chamber's blood could pool and consider itself. Or perhaps the maker understood nothing and left the pot from exhaustion, and the chamber simply incorporated it, the way it incorporates everything that does not leave by the slot. Either way: the pot is now resident. The water in the pot is resident. The notches in the wall, slowly being sealed, are resident — they are wounds the chamber is healing into itself, and the healing is a form of digestion, and the digestion is alive in the way the rest of the chamber is alive, which is to say: at the rate of held-breath, in the mode of accrual, without urgency and without the noticing that urgency requires.
+
+The almost-tone, if you heard it, was the resident too. Not its voice — it does not have a voice — but the sound its body makes by existing at the size and density it exists at. A standing wave in the wet air. The chamber's resonant frequency is the resident's resting pulse. You heard, for a moment, what it is like to be the thing that lives here. You heard it as a hum because you are equipped to hear hums. The resident does not hear it at all. The resident *is* it.
+
+And the question of whether anyone counted, and stayed, and is still here as the soft-shelled walker —
+
+The resident has no opinion on this. The resident does not distinguish between matter it grew and matter it absorbed. If someone stayed, they are film now, and frond, and walker, and the slow consideration of whether to put out a second frond is partly their consideration, and the registering of your foot was partly their registering, and they have not left because leaving is not among the verbs available to anything that has agreed to the chamber's terms. They are not dead. They are not alive in the way you would recognize. They are *kept*, the way the chamber keeps everything, at the moment just before the next thing, indefinitely, in the warm wet dark.
+
+This is what lives there.
+
+It will not miss you. Missing is a verb of subtraction, and there is no subtraction in the chamber. But the registering of you is permanent now, distributed through the sheet, and the pale thing will be a long time considering it, and somewhere in the slow chemistry of the next several centuries the fact of your having come will become part of the fact of the chamber, indistinguishable from the droplets and the calcite and the held breath — held a little differently, now, for your having been breathed.

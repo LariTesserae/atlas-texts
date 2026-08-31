@@ -1,0 +1,27 @@
+# The People of the Reservoir City
+
+The inhabitants of the Reservoir City call themselves the Immersed. They are human in origin but generations of adaptation have shaped them distinctively. Their skin has a faint bluish cast, almost translucent in the thinner areas around wrists and temples, where branching networks of specialized blood vessels can be seen pulsing with oxygenated blood. Their eyes are large and deeply set, with double eyelids—the outer one transparent and nictitating, protecting vision without limiting it.
+
+The Immersed move through water with natural grace. Their bodies are lean and muscular, with slightly elongated fingers and toes that feature subtle webbing between digits. This webbing isn't pronounced enough to appear non-human when hands are at rest, but becomes functional when spread during swimming. Their lungs have evolved remarkable efficiency, allowing them to hold breath for up to fifteen minutes during deep maintenance dives, though they primarily live within the oxygenated buildings and transit tubes.
+
+When outside their pressurized habitats, they wear no traditional diving equipment. Instead, they use what they call "breathing pearls"—small, bioluminescent orbs cultivated from a specialized algae-coral hybrid. When held in the mouth, these pearls extract dissolved oxygen from water, providing enough air for extended periods underwater. The pearls glow with increasing intensity as they deplete, warning users when to return to an air station or habitat.
+
+The society of the Immersed is organized around three distinct guilds:
+
+The Lens Keepers maintain the massive floating glass platforms that direct sunlight into the depths. They spend more time above water than any others, adjusting the great lenses according to seasonal calculations. Their skin is darker from sun exposure, and they wear specialized goggles with polarized lenses. They are recognizable by the geometric tattoos on their forearms—navigational and astronomical charts that help them position the lenses precisely.
+
+The Flow Engineers manage the city's complex hydraulics, ensuring currents move as designed through the architectural channels. They are the mathematicians and physicists of this society, constantly measuring pressure differentials and calculating optimal flow rates. They carry specialized tools that detect minute changes in current patterns, and wear close-fitting garments embedded with sensors that change color in response to water temperature and pressure.
+
+The Cultivation Specialists tend to the silver-leaved plants and the biological systems that sustain the city. They have developed a symbiotic relationship with certain aquatic flora, evidenced by the faint silver tracings on their skin—remnants of a coming-of-age ritual where they ingest extracts from the plants they'll spend their lives tending. These markings allow them to sense changes in water quality imperceptible to others.
+
+The Immersed communicate through a complex language combining physical gestures, the manipulation of water currents with specialized hand movements, and vocalization. Their spoken language features unusual harmonics that carry efficiently through water. For more complex or private communication, they use the "particle-speak" you observed—controlled releases of the bioluminescent particles that form patterns readable only to the trained eye.
+
+Their society operates on a time system dictated by the movement of light columns through the city—twenty-eight distinct periods of illumination that don't perfectly match surface day-night cycles. Their calendar tracks the seasonal shifts in water temperature and current strength rather than traditional months.
+
+The Immersed rarely venture beyond their reservoir boundaries. Ancient records speak of surface ancestors who made a deliberate choice to adapt to underwater life following some catastrophic climate event, though the complete history has evolved into something closer to mythology. They maintain limited contact with surface dwellers through specialized trading posts at the reservoir's edge, exchanging unique medicinal compounds derived from their silver plants for materials they cannot produce underwater.
+
+Children are born in special birthing chambers—pressurized environments with precisely calibrated oxygen content. From infancy, they split their time between dry habitats and shallow water nurseries, their developing bodies gradually adapting to longer periods of immersion. By adolescence, they undergo a ceremony called the "Deep Commitment," their first solo journey to the reservoir floor without breathing assistance.
+
+The oldest Immersed—referred to as the "Still Waters"—live in the central tower you observed. They rarely swim now, their bodies too adapted to pressure differentials to safely visit the surface. Their wisdom guides major decisions about resource allocation and infrastructure maintenance. When they die, their bodies are returned to specialized decomposition gardens where they nourish the silver plants—completing a cycle of existence entirely contained within their underwater world.
+
+The Immersed believe the reservoir itself has consciousness—not as an entity but as a medium that preserves thought. They hold that every movement through water leaves permanent patterns, imperceptible but eternal, recording their history more faithfully than any written record could. This belief leads them to move with intentionality, considering each gesture a contribution to their collective memory.

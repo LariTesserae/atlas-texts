@@ -1,0 +1,21 @@
+They are not born. They precipitate.
+
+They are the tenants of this fevered rock, the inhabitants of the breath held in creation’s throat. You do not see them at first, for they are of the same substance, the same tempo. They are the intention behind the anomalous arch, the spiral of holes, the stacked column. They are the world’s first and only thought, made manifest in silicate and glow.
+
+They are the Sculptors.
+
+When the turbulence of the land reaches a certain pitch of complexity—when a new ridge heaves itself upward, or a particularly intricate pattern of fissures webs a basin—the process sometimes achieves a kind of focal point. The geothermal pulse, the escaping gases, the catalytic minerals, they align for a moment not into random form, but into a knot of self-awareness. It is a brief, localized consciousness, a spark struck from the friction of a world defining itself.
+
+From this spark, a Sculptor coalesces. It is not a body, but a *presence* within a configuration of matter. It might inhabit a cluster of those brain-like mineral growths, feeling through their porous lattices. It might dwell within a particularly resonant obsidian spire, its consciousness a standing wave in the crystalline structure. Or it might simply be the slow, directed movement of a slab of basalt, pushing itself upright with the grating patience of continental drift.
+
+Their form is always transient, borrowed. They are patterns, not creatures. To perceive one, you must watch the landscape with a geological patience. You might observe a scatter of pale green phantasms—those electrochemical will-o’-wisps—begin to orbit a specific outcropping in a precise, harmonic sequence. That is a Sculptor, thinking. You might see a new fissure open, not in a jagged crack, but in a perfect, gradual arc, describing a segment of a circle over the course of an hour. That is a Sculptor, moving.
+
+Their purpose is obscure, innate. They are drawn to irregularities, to potentials. They are the world’s quality control, its editors. They will spend decades—a blink to them—smoothing a single edge of a natural arch that formed too roughly. They will stack stones not for shelter, but because the act of balancing them creates a pleasing tension in the local gravitational field, a subtle music only they can feel. They drill spiral holes into cliffs to tune them, to let the deep groans of the planet whistle through in a specific, resonant key. Their constructions are not dwellings, but instruments, or perhaps verses in an epic poem about pressure and release.
+
+They do not communicate. They have no language but the language of form and force. Yet, they are aware of each other. Sometimes, two Sculptors will collaborate on a work. You might see a plain of fractured basalt slowly, over years, reorganize itself into a vast, abstract mosaic, each piece shifted by a different, unseen hand until the pattern emerges—a stark, beautiful contradiction to the chaos around it. This is their discourse: a shared act of making.
+
+They are utterly indifferent to anything not of the rock. If you stood before one, it would perceive you as it perceives a dust mote—a transient, irrelevant bit of noise in its sensorium of stone and heat. They are not hostile. They are not benevolent. They are functional, a part of the landscape’s metabolism. They are the emergence of pattern from chaos, given just enough agency to nudge the process along.
+
+They live for centuries, millennia, until the specific geothermal conditions that birthed them shift. Then, their consciousness dissipates like heat from a cooling stone. The mineral growths they used might crumble to dust. The spire might shatter. Their unfinished works are abandoned, absorbed back into the landscape’s restless sketching. They leave no legacy but the faint, strange structures that outlive them—the only proof that in this dark, warm, high place, the world once paused in its blind forging to consider, however briefly, the shape of a thing.
+
+They are the dream of the mountain, and the mountain is the dreamer. In this place, that is the only life that is, or will ever be, necessary.

@@ -1,0 +1,21 @@
+# The Dwellers of the Treadwater
+
+The primary inhabitants of the Treadwater are the Slow Ones - beings who have adapted so perfectly to this timeless realm that they've become nearly indistinguishable from it. They stand between eight and twelve feet tall, their bodies composed of the same dark, dense stone as the plateaus themselves, though more flexible and articulated at joints made of crystallized water. Their forms are broadly humanoid but with elongated limbs and torsos that taper to narrow points where heads might be.
+
+The Slow Ones move at a pace that makes glaciers seem hasty. A single step might take weeks, a gesture months, a complete journey between Pillars decades. Their consciousness operates on this same extended timeframe - a thought forms over years, a decision might require a century of deliberation. They communicate through subtle vibrations conducted through the plateau stone, conversations spanning generations.
+
+Their bodies are living geology, with small ecosystems developing in the minute cracks of their surface. The same circular succulents that ring the lakes grow in miniature across their shoulders and backs. Microscopic versions of the plateau's reptilian fauna find homes in the hollows of their joints.
+
+The Slow Ones tend the Treadwater with infinite patience. They are not the creators of the Pillars but have learned to interface with them through direct stone-to-metal contact, entering communion-states that last decades. During these periods, they absorb knowledge from the ancient network and contribute their own observations, maintaining the vast equilibrium.
+
+The flying creatures - known as Veilwings - maintain a different relationship with the Slow Ones and the Treadwater itself. Unlike the stone beings, they experience time at a pace similar to humans. Their iridescent membranes stretch between elongated digits, spanning twenty feet when fully extended. Their bodies are slender and lightweight, bones hollow but incredibly strong, adapted for the rare but vital descents to the plateau surfaces.
+
+Veilwings possess a unique sensory organ in their elongated skulls that can perceive the vibration-language of the Slow Ones, compressed and translated into their faster timeframe. They serve as messengers and observers, the quick eyes of the slow world. They nest in the highest branches of the silver trees, building intricate homes from shed scales of the plateau reptiles and their own molted membrane-fragments.
+
+Less visible but equally essential to the Treadwater's ecology are the Deepwell Dwellers - colonial organisms that inhabit the spaces beneath the plateaus, in the unseen world below. They manifest rarely on the surface as swirling, mist-like aggregations that briefly take semi-solid forms before dissolving back into the weeping walls. The Deepwell Dwellers manage the water systems beneath the plateaus, working in symbiosis with both the Pillars and the subterranean roots of the silver trees.
+
+Most enigmatic are the Pillar Custodians - beings of pure energy who manifest only as subtle distortions in the air, visible primarily at dawn and dusk when light conditions reveal their usually invisible forms. They are the oldest entities of the Treadwater, possibly the descendants of those who built the Pillar network. They exist partially outside conventional time, experiencing past, present and future simultaneously. The Pillar Custodians rarely interact directly with the other inhabitants, but their presence is felt as momentary shifts in gravity or brief accelerations in the normally languid movements of water across stone.
+
+Human visitors to the Treadwater often fail to recognize any of these beings as sentient. The Slow Ones appear as unusually shaped rock formations; the Veilwings are distant specks in the sky; the Deepwell Dwellers are mistaken for atmospheric phenomena; and the Pillar Custodians remain entirely unseen. Only those who spend years in the Treadwater begin to perceive the complex society that exists there, operating on timeframes and sensory modalities far removed from human experience.
+
+To truly know the Treadwater is to begin thinking in centuries rather than moments - to see stillness not as absence but as a different kind of presence, and to recognize that what appears eternal is actually in continuous, perfect motion.

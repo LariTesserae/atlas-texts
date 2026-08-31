@@ -1,0 +1,35 @@
+# The Ithlans
+
+The people of the Hives are not merely inhabitants but extensions of the living stone itself. They are shorter than surface dwellers, with compact, powerful frames evolved over countless generations for life in confined spaces. Their skin ranges from alabaster pale in the upper levels to a deep mushroom gray in the lowest depths, absorbing what little light exists with remarkable efficiency.
+
+Most striking are their eyes—oversized and luminous, with pupils that expand nearly to the edge of the iris, capturing the faintest bioluminescent glow. The whites have a subtle blue-green tint that seems to reflect the fungal light. They blink rarely, having adapted to the constant moisture in the air that keeps their eyes naturally lubricated.
+
+The Ithlans move with deliberate economy. There are no wasted gestures, no extravagant movements. Their gait is smooth, almost gliding, with feet that spread slightly wider than surface humans to maintain perfect balance on slick stone. Their toes are longer, slightly prehensile, gripping the floor in darkness. When they climb, they do so with their entire body, using minimal handholds that would leave a surface dweller plummeting.
+
+Their hair grows thick but short, naturally resistant to the dampness. Most keep it cropped close to the skull, though elders often grow elaborate formations that mimic the carved patterns of their assigned chambers. These living sculptures are stiffened with resins harvested from certain fungi and become markers of identity and social role.
+
+Ithlans speak in two voices simultaneously—one from the throat that forms words, and another from deep in the chest that provides a constant harmonic undertone. This dual-voice allows them to communicate in the complex acoustic environment of the Hives, with the lower tones carrying through stone while the higher tones navigate immediate spaces. Their language is tonal and rhythmic, designed to be distinguishable even amid the constant background rumble.
+
+They are not a homogeneous people. The Hives have given rise to distinct subgroups:
+
+The Shapers continue the tradition of carving, though now they primarily maintain rather than expand. Their bodies are asymmetrical from generations of specialized tool use, with one arm more heavily muscled and slightly longer. Their fingertips are calloused to the point of having natural stone-like caps that can feel microscopic imperfections in a wall. They taste rock by touching their tongues directly to the stone, detecting mineral composition and structural integrity through subtle chemical signatures.
+
+The Flow-Keepers manage the Hives' complex hydraulics. Their bodies are perpetually damp, as they spend hours immersed in collection pools and channels. Webbing has developed between their fingers and toes, and their skin exudes a subtle oil that prevents fungal infections despite constant moisture. They navigate by sensing pressure changes in the air and water, able to predict distant rainfall by feeling the subtle compression of air through the vast network of tunnels.
+
+The Light-Tenders cultivate the bioluminescent fungi with religious devotion. Their eyes are the most sensitive, capable of distinguishing minute variations in the blue-green spectrum invisible to others. Their fingers are extraordinarily thin and precise, able to manipulate the delicate fungal structures without damaging them. They rarely speak above a whisper, believing loud sounds disrupt the fungi's growth patterns.
+
+The Farthest-Walkers serve as messengers and explorers, venturing into the most remote chambers. Their legs are disproportionately long, and their lungs have expanded capacity, able to extract oxygen efficiently from even the most stagnant air. They develop mental maps of such extraordinary detail that they can navigate entirely by touch and memory for weeks at a time in complete darkness.
+
+Ithlan society functions through a complex system of cyclic migration. No one "owns" any chamber; instead, groups rotate according to ancient schedules aligned with resource availability and structural maintenance needs. This constant movement has eliminated concepts of territorial possession but heightened their sense of collective responsibility. An Ithlan's identity is tied not to place but to function and community.
+
+They possess remarkable spatial memory, able to recall the exact configuration of chambers they haven't visited in decades. Children are taught to memorize pathways before they learn to speak, creating mental maps that expand throughout their lives until, as elders, they can navigate thousands of interconnected spaces without hesitation.
+
+Reproduction is carefully planned according to the Hives' carrying capacity. Births are synchronized within communities, with children raised collectively by groups rather than individual parents. The young develop rapidly, walking within months and beginning their specialized training by age three. Their education is primarily tactile and oral, centered on the perpetuation of knowledge necessary for the Hives' maintenance.
+
+The Ithlans' relationship with the stone is symbiotic rather than exploitative. They see themselves as caretakers of a living entity that provides for them in exchange for maintenance. Their religious practices center around "listening to the stone"—extended meditations where they press their entire bodies against the walls, interpreting the subtle vibrations as communications from the Hives themselves.
+
+Their technology appears primitive but is actually highly specialized. Their tools—primarily wooden, bone, and stone—are refined through thousands of years of iterative design. What looks like a simple hammer to an outsider might have dozens of subtle features that make it perfect for a specific type of carving at a specific depth with specific acoustical properties.
+
+In the deepest spherical chambers dwell the Resonance Elders—Ithlans so attuned to the stone that their heartbeats have synchronized with the fundamental vibration of the continental mass. They rarely move, spending decades in meditative communion with the deep rock. Their bodies have adapted most extremely—skin becoming almost translucent, eyes nearly vestigial, but their sense of touch so developed they can detect movement on the surface kilometers above. They speak only in the lowest register of the Ithlan dual-voice, their words felt rather than heard.
+
+An Ithlan would not describe themselves as living "in" the Hives, but rather as being part of them—as essential to the structure's function as the stone itself, the flowing water, or the luminous fungi. To understand the Hives of Ithla is to understand that it is not a place, but an organism—and the people are its consciousness, moving through ancient patterns written in stone and flesh alike.

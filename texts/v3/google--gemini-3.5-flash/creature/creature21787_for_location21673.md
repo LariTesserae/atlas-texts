@@ -1,0 +1,35 @@
+In the margins where the water meets the air—along the underside of the floating pools, where the root-ends of the waxy orchids dangle like pale, wet fingers into nothingness—lives the sanctuary’s smallest resident: the **Vapour-Snail**. 
+
+These are not creatures of shell and slime. Their bodies are small, translucent nodules of a starch-like jelly, no larger than a cherry pit. They cling to the wet roots, drawing sustenance from the warm, nutrient-rich steam that rises from the raw basalt. Because they have no weight to speak of, they are easily dislodged by the "breath" of the three system rods. When the gravity dips, the snails do not fall; they drift upward, spinning slowly in the heavy air like tiny, clear bubbles, their feathery, golden gills unfurling to catch the moisture until the system settles and they land softly back upon the green moss-islands.
+
+Higher up, clinging to the matte-grey chimneys themselves, are the **Resonators**. These are dry, graphite-colored insects that resemble flattened trilobites. They do not eat, nor do they move for weeks at a time. Instead, they clamp their segmented bellies directly to the vibrating metal of the rods. They live entirely on the marrow-deep frequency emitted by the system. As they absorb the vibration, their carapaces turn a deep, incandescent violet, radiating a dry, localized heat that occasionally causes the steam nearby to twist into miniature whorls. They are the system's living organs of dampening: when the rods hum too sharply, the Resonators flutter their plates in unison, absorbing the excess energy and converting it into a low, purring warmth.
+
+But these are merely the landscape’s background noise. 
+
+The true inhabitants of this high shelf—the ones for whom the white ceramic path was laid and the low bench was cast—are the **Loomers**. 
+
+There are never more than three of them. Whether this is because of the limitation of the hovering wells or some deep, self-regulating instinct, they do not exceed this number. 
+
+To look at a Loomer is to look at a creature split between two histories: one of the deepest ocean trenches, and one of the vacuum between stars. They stand nearly seven feet tall when fully extended, though they rarely stand at all; their bodies are built for floating, for suspension, and for the soft, friction-free transitions between the suspended pools.
+
+Their flesh is the color of skimmed milk with a faint, bluish undertone, having the smooth, matte texture of river-worn jade. They are entirely hairless. They have no skeleton as terrestrial animals understand it; instead, their structure is supported by a pressurized system of internal fluid-sacs and long, thin, cartilage-like rods that run parallel to their limbs. Consequently, their movements are silent, slow, and strangely beautiful, like oil spreading across water.
+
+They do not have feet. Instead, their lower limbs terminate in broad, four-lobed fans of tough, ribbed skin that resemble the tails of ancient, deep-sea sirens but are split to allow them to grip. When they must travel across the razor-sharp obsidian between the pools, they do not walk on the stone—which would slice their delicate membrane-flesh to ribbons—but glide along the floating white ceramic wafers. Their weight is so negligible, their buoyancy so high in this dense, steam-choked micro-climate, that the wafers barely register their presence, sinking only a fraction of an inch with a dry, pneumatic whistle.
+
+Most of their lives, however, are spent in the hovering wells themselves. 
+
+A Loomer will slide into a floating pool of water from beneath, its body passing through the invisible gravitational boundary without breaking the surface tension. Once inside, they coil their long, pale limbs and hover in the center of the warm, turning currents. 
+
+Their heads are narrow and elongated, ending in a delicate, chinless jaw. They have no nose; three pairs of horizontal breathing slits, located just behind their collarbones, filter the oxygen from the steam-saturated air and the warm water alike. They do not speak. Their communication is physical, conducted through the water-spheres. By gently contracting their fluid-sacs, they send highly precise, rhythmic pulses through the floating pools. A Loomer in a pool on the western edge of the terrace can "talk" to a companion in the eastern pool by sending a vibration through the air-boundary that is caught and translated by the neighboring water-body.
+
+Their eyes are their most striking feature: three large, gold-ringed orbs arranged in a low triangle across their brow. These eyes do not resolve sharp details as human eyes do; instead, they are designed to see tension, density, and thermal currents. To a Loomer, the sanctuary is not a collection of rocks and plants, but a complex, glowing lattice of heat-veins, gravitational coordinates, and moisture-densities. 
+
+They are the tenders of this high place. They do not plant or harvest, but they *sculpt*. 
+
+With their long, five-jointed fingers—which end in soft, spoon-like pads—they reach out of their floating pools to adjust the hanging roots of the orchids. If a pool begins to wobble too violently, indicating a shift in the local gravity, a Loomer will extend a pale arm into the open air and "stroke" the space between the water and the nearest grey rod, using their own body’s electrical charge to steady the field. 
+
+They eat the orange, syrupy nectar that drips from the center of the oily violet orchids, catching the slow drops on their fingertips and bringing them to their small, circular mouths. They also consume the translucent skimmers, which they catch with a sudden, blindingly fast flick of their triple-jointed wrists when the insects hover too close to the water's surface.
+
+When the system "breathes" every few minutes, the Loomers react with a collective, instinctual grace. As the three rods pitch their tone lower and the pools tilt, the Loomers drift to the very centers of their respective wells. They close their gold-rimmed eyes, draw their limbs close to their chests, and let the temporary drop in gravity lift them slightly. For a few seconds, as the drizzle shifts, they are perfectly weightless, suspended in the warm, wobbly hearts of their floating gardens—not quite in the sky, not quite on the earth, but perfectly balanced between the two.
+
+When their long lives reach an end—spanning centuries that pass unmarked by any calendar—a Loomer does not decompose. Instead, they climb onto the single white ceramic bench overlooking the sea of clouds. There, they lie down in the cool draft of the cliff's edge. Over several weeks, the dry, high-altitude wind from outside the sanctuary bypasses the steam-barrier just enough to dehydrate them. They begin to crystalize, their milk-white flesh turning into a dry, chalky substance that eventually crumbles under the touch of the next rain, washing down the sheer face of the mountain to join the clouds below.

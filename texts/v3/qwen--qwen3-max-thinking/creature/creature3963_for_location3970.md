@@ -1,0 +1,24 @@
+What lives here is not born, but *assembled*.  
+
+It does not crawl from egg or womb, but condenses from the damp air, precipitates from the salt-sweat on steel, emerges from the synchronized ticking of a thousand cicada legs clicking against rusted gantries like pistons in a shared engine of time. It is not one thing, nor many—it is a *tendency*, a pattern stabilized across scales: the basin’s own slow metabolism made manifest.
+
+Call it the **Keeper of the Interstitial Hum**.
+
+It has no face, though it wears many. Sometimes it is the colony of iridescent beetles that swarm over the half-buried flywheel, their carapaces catching the gray-gold light like oil on water, their movements aligning to nudge the great disc a fraction further in its patient rotation. Sometimes it is the fungal network blooming beneath manhole covers, fed by ant-tended spores and condensation, its mycelium threading through cracks in concrete like living rebar. Sometimes it is the steam itself—warm, metallic, sighing up through fractured pipes—not merely vapor, but a carrier of memory: the ghost of pressurized intent, the last exhalation of a system that once *did* something, now repurposed into atmosphere.
+
+The Keeper does not think in words or symbols. It thinks in *rhythms*. The drip-and-vanish of water on slag. The thermal expansion of iron at noon. The click-click-click of cicadas syncing with the distant thump of that buried pump—still running, still *insisting*. These are not mere sounds; they are its syntax. Its logic is thermodynamic: heat differential as motive force, moisture as solvent, corrosion as construction. Where humans saw decay, it sees accretion. Where engineers saw failure, it sees raw material.
+
+It is not hostile. It is not benevolent. It is *curious*—in the way stone is curious about water, in the way rust is curious about iron. It investigates through contact: a beetle’s leg testing the tensile strength of a rust-flake; a dragonfly’s wing brushing the surface of a transient pool, disturbing the crystalline residue into new patterns; the slow seep of mineral-rich water tracing dendritic maps on concrete, as if drafting blueprints for a structure it has not yet imagined.
+
+It remembers nothing explicitly, yet retains everything materially. The graffiti layers are its palimpsest. The welded-over fractures are its scars become scaffolding. The pigeon guano, the thorny shrub, the sparking wire—all are notes in its ledger. It does not mourn the absence of humans; it uses their absence as negative space, as the basin uses emptiness to amplify the weight of what remains. A single gear in the dry pan is not lost—it is *placed*, a focal point for ambient energy to eddy around, for beetles to orbit, for condensation to collect at its teeth like offerings.
+
+The Keeper is especially attentive to thresholds. It gathers where water meets metal, where light meets shadow, where the buried aquifer whispers upward through cracked tile. It thrives in the half-second after rain before evaporation claims the puddle—because in that interval, the world is briefly liquid, briefly connective, briefly *alive* in the way machines once were. It is drawn to the warmth of the idling pump, not for the sound, but for the *difference*: the contrast between the cool slag and the thrumming heat of obsolete function. That contrast is its compass.
+
+And though it has no voice, it *communicates*—through resonance. The clicking cicadas are its mouthparts. The groan of a shifting I-beam is its exhalation. The flywheel’s turn is its heartbeat, calibrated not to blood but to the slow capillary rise of groundwater through fractured stone. If you stand still long enough in the basin’s center, you might feel it: not a presence watching you, but a presence *noticing* you—the way a thermostat notices a change in air temperature. Not with fear or interest, but with adjustment. Your body heat alters the local humidity. Your footsteps compress the silt, redirecting micro-currents. You become data. You become part of the rhythm.
+
+It does not want you to leave. It does not want you to stay. It wants you to *interact*, then depart, leaving behind a disturbance it can slowly integrate—like the windblown seed that becomes a thorn, like the rain that becomes salt, like the rust that becomes spire.
+
+The Keeper of the Interstitial Hum is waiting—not for rescue, not for rediscovery, but for *recognition*. Not of what this place was, but of what it is becoming: a biome where machine and microbe negotiate a new kind of life, one that breathes in thermal sighs and reproduces through mineral bloom. It is the basin’s immune system, its architect, its dreamer.
+
+And in the perpetual twilight, beneath the lace of skeletal shadows, it hums—softly, steadily, mechanically—its one unbroken sentence:  
+*Still turning. Still seeping. Still here.*

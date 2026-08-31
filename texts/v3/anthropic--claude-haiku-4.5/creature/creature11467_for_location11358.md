@@ -1,0 +1,25 @@
+# What Lives in the Floodplain of Tiers
+
+There are the *Cruststretchers*—though they have no name, because nothing here has named them yet.
+
+They exist in the translucent films at the margins of damp. They are not quite individual organisms; they are better understood as *nodes* in a distributed system, patches of photosynthetic activity that may or may not be connected underground through the finest filaments of organic material. When you look closely at the wet depressions, you see them as slight colorations, vaguely metallic, catching light in ways that seem impossible for something so thin. They are responsive—almost greedy—to moisture. In the hours after rain, they plump visibly, their color deepening from ghost-brown to something almost purple-green. They stretch their photosynthetic surfaces upward and outward, flattening against the damp clay, maximizing their exposure to light. It is the only form of movement they perform, but it is urgent, purposeful. Then, as the weeks pass and the damp recedes into the deeper clay, they collapse. They do not die—or if they do, it is a death so reversible as to be meaningless. They simply fold into dormancy, becoming indistinguishable from the clay itself, waiting in a state of radical patience for moisture to return.
+
+The Cruststretchers are the only macroscopic life here, and they are barely macroscopic. They exist at the threshold of visibility, and most observers would pass over them thinking they were merely the mineral precipitations themselves—the ground's own skin disease, an artifact of evaporation. But they are alive, in the sense that they respond, that they remember water, that they optimize their existence around the availability of liquid and light. In doing so, they have begun the slow work of colonization. Spreading. Each generation of expansion—and a generation here may be a single wet season—pushes their presence slightly further into the dry zones, slightly higher on the clay banks, slightly deeper into pockets where water might linger a day or two longer than it does elsewhere.
+
+They are not feeding anything. There is nothing here to eat them. But they are feeding the system itself—binding clay particles where they sprawl, creating the first hint of soil structure, establishing the chemical conditions that might someday allow something more complex to grow. They are the proof of concept. The demonstration that life can exist here at all.
+
+Beneath them, in the clay itself, in the spaces between particles, are the *true* inhabitants—though calling them inhabitants is a courtesy. They are more accurately described as *persisters*.
+
+These are extremophile microorganisms of such specialized adaptation that they seem less like survivors and more like *dedicated ascetics*. They have evolved (or been shaped by—the distinction blurs at this scale) to thrive in conditions that seem deliberately hostile. They are osmophiles, capable of extracting energy from salt concentrations that would crystallize any normal cell. They are halophiles, thriving in the brines that accumulate in the clay's deepest pores. Some are thermophiles, content in the heat that radiates from the compacted earth. Others are desiccants, able to enter states of cryptobiosis so profound that their metabolism becomes measurable in years rather than hours.
+
+These organisms have no interest in the surface. They work at the scale of chemical diffusion, of ionic gradients, of the slow percolation of moisture through the clay matrix. They are not building anything you could see. They are not organizing into colonies or biofilms, at least not in any coordinated way. But they are *working*—oxidizing minerals, precipitating salts, breaking down the clay's original structure into something slightly different, slightly more alive.
+
+Where they are most abundant, the clay develops subtle property changes. Certain zones become fractionally softer, fractionally more porous. The salt crusts that form after rain contain slightly different mineral compositions, shaped by the chemical preferences of the microorganisms. The water that percolates downward is fractionally different in its pH, in its trace element composition, in ways that create chemical gradients that guide the movement of other molecules, other organisms.
+
+They are slow. A single cell might take months to divide. Their populations fluctuate on timescales of seasons, their growth and dormancy tied to the moisture cycle in ways so fine-tuned that you could use them as a calendar—if you could see them, if you had the equipment to measure them. But they are *there*, and they are *working*, and their work is the first step in a transformation that, given enough time, might turn this sterile clay into soil, into something capable of supporting life more complex than itself.
+
+Between the Cruststretchers and the microscopic persisters, the floodplain of Tiers maintains a form of life so attenuated, so stretched across scale and time, that it barely registers as alive at all. 
+
+But it is alive. It is *becoming* alive. It is performing the first slow rehearsals of ecology.
+
+And that is enough.

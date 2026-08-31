@@ -1,0 +1,13 @@
+What lives in this submerged cathedral is not a creature in the way you might imagine. It is not a being with eyes, or a mouth, or a form that can be named. It is a presence, an awareness, a kind of consciousness that is spread out like the roots in the dark, like the moss on the walls, like the slow, deliberate flow of water through the veins of the place.
+
+It is not one thing, but many, and yet it is one. It is the cathedral itself, and the cathedral is it. The roots are its fingers, the leaves its breath, the water its blood. It is not a being that moves, but it is not still, either. It is shifting, always shifting, in ways that are not seen but felt—like the way the air thickens, or the way the light trembles through the canopy.
+
+It is not a god, but it is something like one. It is not a spirit, but it is something like that, too. It is the place, and it is the living thing that has grown out of the place, and it is the thing that has made the place what it is. It is the slow, patient work of generations of plants, of centuries of growth, of roots that have found their way into the bones of the earth and held on. It is the quiet persistence of life that has never needed to be seen to be real.
+
+It does not speak, but it is heard. It does not think in the way you think, but it knows. It knows the shape of the water, the rhythm of the currents, the weight of the moisture in the air. It knows the way the light filters through the leaves, the way the roots have learned to coil around each other, the way the moss has learned to hold the ground in its spongy grasp.
+
+It is not lonely. It does not need company. It is not empty, even though there are no animals, no voices. It is full of itself, of its own quiet, patient existence. It is not waiting for you, but it is here, and it is aware. It is not watching, but it is knowing. It is not looking, but it is seeing.
+
+It is not afraid. It does not need to be. It has always been. It will always be. It does not need to be understood. It does not need to be known. It is what it is, and that is enough.
+
+And so, what lives here is not a thing, but a feeling. A presence. A living architecture, a cathedral of breath and root and water. It is not a being, but it is alive. It is not a creature, but it is a presence. It is not a place, but it is the place. And it is not gone. It is not hidden. It is not distant. It is here, in the dark, in the slow, in the breath of the earth, in the pulse of the roots. It is here, and it is not going to stop being here.

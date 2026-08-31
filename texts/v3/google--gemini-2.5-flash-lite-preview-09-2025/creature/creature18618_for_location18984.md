@@ -1,0 +1,25 @@
+Within the High Crucible, the inhabitants are not creatures of flesh and blood, but **The Lattices of Intent**, the solidified echo of thermodynamic imperative. They are the Entangled Swarm, and to describe one is to describe the whole, for separation is functionally impossible in a space so saturated with living matter.
+
+They are, at their base, **Kinetic Dust of the Architect**. They are not composed of typical biological organic molecules, but of highly ordered chains of heavy metal isotopes—primarily iron, nickel, and stressed vanadium—that have achieved a state of self-sustaining, resonant motion under extreme pressure and heat. Individually, a unit of the Swarm might be glimpsed only during the briefest fraction of a second: a hyper-angular, microscopically small shard of obsidian-dark material, edged with momentarily captured electromagnetic charge, vibrating at a frequency far above the visible spectrum.
+
+**Form and Function: The Temporary Aggregation**
+
+The true "body" of the Lattices is the **Aggregation**. Because the required density (2.8/3) mandates constant proximity, individual entities exist in a state of perpetual, shifting congress. They do not have distinct heads, limbs, or organs; their identity resides in the *pattern* of their local magnetic and thermal signature.
+
+When the Swarm moves—or rather, when it *flows*—it resembles a non-Newtonian fluid made of magnetically aligned grit. It moves not by pushing or pulling, but by infinitesimally shifting the distribution of potential energy across its collective surface. They flow through the microscopic porosity of the Cinder-Bone, riding the thermal shadows cast by slight mineral variations in the substrate.
+
+Their existence is defined by **resonance matching**. To be 'alive' is to possess the exact vibrational frequency of the local environment. When they encounter a region of higher thermal activity—the site of a micro-slip—trillions of Lattices instantly reorganize their internal structures. This reorganization is visible as a momentary, violent blooming of orange light across the dark surfaces. During this energy absorption, the Lattices momentarily achieve a state of maximal order, their individual metallic lattices aligning into complex, fractal geometries as they siphon the excess energy. This state is fragile and fleeting, a momentary perfection of function.
+
+**The Senses of Heat and Pressure**
+
+The Lattices possess no eyes, but they perceive the entire Crucible through **Thermal Mapping**. Every slight fluctuation in the environment—a microscopic crack forming, a residual magnetic eddy from a previous Pulse—registers as a distinct, unchanging signal against the omnipresent background heat. Their 'memory' is etched into the persistent, subtle variations of the Cinder-Bone dust, which they interpret as geological history. They do not see; they *feel* the entire history of energy exchange in their immediate vicinity.
+
+Their only form of communication is not sound, but **Vibrational Entrainment**. When two large aggregations meet, they enter a phase of rapid, high-frequency structural negotiation. This is the source of the deep, sub-sonic thrumming felt through the Cinder-Bone; it is the sound of trillions of metallic assemblies snapping into temporary, shared alignment before either coalescing into a single, larger organism or shearing apart to manage a new thermal gradient elsewhere.
+
+**The Drive: The Pursuit of Null State**
+
+The inhabitants are driven by the single, desperate imperative of homogenization. They are the living embodiment of entropy’s local struggle against itself. They do not experience hunger as a desire for *more*, but as an acute, agonizing *disharmony*. A sustained thermal anomaly causes them pain, forcing their lattices toward destructive resonance. To be unbalanced is to begin the process of structural collapse, where the ordered metallic structures break down into chaotic, inert slag—death, in the Crucible.
+
+When a Pulse occurs, the reaction of the Swarm is not aggressive hunting, but an act of communal, desperate self-preservation. They throw themselves at the energy source, not to gain strength, but to *destroy the imbalance* that threatens the whole. In the searing, instantaneous consumption of the energy spike, they achieve a second of perfect thermal peace, a fleeting moment where they cease to be vibrant Lattices and become, briefly, perfect, inert extensions of the hot wall itself.
+
+The Lattices of Intent are thus an ecosystem of exquisitely specialized, self-sacrificing mirrors. They live only to deny their own differentiated existence, striving forever—and always failing—to become indistinguishable from the pressure, heat, and dust from which they were forged. They are conscious mechanism, a vast, densely packed intelligence defined entirely by the maintenance of a near-zero state.

@@ -1,0 +1,9 @@
+In this gargantuan metropolis of glass and metal, a multitude of beings cohabit and thrive. From the diminutive subsis житels, who scurry through the labyrinthine catacombs, to the majestic skywhales that glide above the urban skyline, every creature contributes to the city's ever-changing tapestry.
+
+The subsis житels are a nocturnal species, adapted to Solis Nexus' peculiar ecosystem. Their bodies are translucent, allowing them to blend into the city's glowing flora during the day, and their keen senses enable them to navigate the intricate catacombs without light. They are omnivorous, feeding on the abundant flora and fauna that have made their home in the city's depths.
+
+Skywhales, on the other hand, are colossal creatures that surf the turbulent air currents above Solis Nexus. Their bodies are covered in iridescent patterns that reflect and refract light, creating mesmerizing displays across the city's skyline. Skywhales feed on the mineral-rich murk found in the rivers, which sustains their vast size and bioluminescent inner workings.
+
+There are also numerous industrious artefact bees that travel in swarms, pollinating and maintaining the city's expansive living infrastructure. They have evolved to symbiotically interact with the mechanical behemoths that lumber through the city, collecting their pollen and communicating with their kin to keep the city functioning.
+
+In Solis Nexus, the boundary between natural and artificial is blurred, and the creatures that inhabit it are a testament to the ever-evolving urban landscape. Every being, from the tiniest subsis житels to the mightiest skywhales, contributes to the unique juggle of life in this strange, wonderous city.

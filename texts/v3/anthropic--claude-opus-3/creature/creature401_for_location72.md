@@ -1,0 +1,17 @@
+In this ancient, otherworldly city, the inhabitants are a strange and enigmatic people, shaped by the very strangeness of their surroundings. They are tall and slender, with skin the color of the pale stone that makes up much of the city's architecture. Their eyes are large and luminous, seeming to reflect the flickering unreality of the sky above.
+
+These people move through the city with a fluid grace, their movements almost dance-like as they navigate the twisting streets and soaring spires. They are clad in simple garments woven from the fibers of the plants that grow in the city's lush gardens, adorned with intricate patterns and symbols that seem to hold some deeper meaning.
+
+Despite their ethereal appearance, the inhabitants of this city are a hardy people, well-adapted to the harsh conditions of their world. They are skilled craftsmen, working stone and metal with a deftness born of generations of practice. In the markets, they trade their wares with a quiet intensity, their exchanges almost ritualistic in their formality.
+
+The people seem to share a deep spiritual connection with their city and its strange environs. They tend to the gardens with a reverence that borders on worship, and their daily lives are punctuated by rituals and ceremonies that seem to be aimed at maintaining the delicate balance of their reality.
+
+In the great temple at the city's heart, a select few of the inhabitants serve as priests or oracles. These individuals are marked by their even more otherworldly appearance, with eyes that glow with an inner light and voices that seem to echo with the whispers of other realms. They are the guardians of the city's deepest secrets, and it is said that they hold the key to navigating the shifting realities of this place.
+
+Despite the strangeness of their world, the inhabitants of this city maintain a sense of community and purpose. They look out for one another, sharing resources and knowledge as needed to ensure the survival of all. There is a sense that they are all in this together, united in their determination to carve out an existence in this most unlikely of places.
+
+Children born in this city are quickly initiated into the ways of their people. They learn the rituals and ceremonies alongside their more practical skills, their eyes wide with wonder at the strangeness of their world. As they grow, they take on the roles and responsibilities of their elders, ensuring that the city and its ways will endure.
+
+In quiet moments, the inhabitants of this city can be seen staring out at the shifting sky or the shimmering horizon, their expressions a mix of awe and unease. They seem to sense that their existence is a fragile one, that the very reality they cling to could unravel at any moment. Yet they persist, driven by an unspoken faith in the city and in each other.
+
+These are the people of the ancient city on the plateau, living embodiments of the strangeness and resilience of life in a world where reality itself is but a dream. Through their rituals, their crafts, and their quiet determination, they have found a way to make a home in a place that seems to defy all notions of home, a testament to the indomitable spirit of life itself.

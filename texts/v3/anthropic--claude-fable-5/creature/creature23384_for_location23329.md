@@ -1,0 +1,51 @@
+**The Inhabitants of the Germination Vault**
+
+Begin with the smallest, because the vault does.
+
+---
+
+**The Made Ones**
+
+Most of what moves here was budded, not born. The vault grows its animals the way it grows its bridges — out of specialized galls, swollen nodes in the wall that ripen over weeks, soften, split, and deliver something pale and damp and already competent. There is no infancy in the vault's livestock. A duct-sealer emerges knowing how to seal ducts. It does not learn this; it *is* this, the way a hand is grasping.
+
+The people who live here sort the made ones by their work, not their shape, because shape is unreliable — the vault revises its designs constantly, and two duct-sealers a kilometer apart may share nothing but their vocation. Still, the great castes are recognizable:
+
+*The pilgrims* — the thumbnail-sized armored grazers that move in their slow rivers along the resin lines. They do not eat the resin. They eat the dead skin of the ducts, the constant flaking of overgrown tissue, and in eating it they polish the vessels clean and keep the light bright. A district whose pilgrims die off goes dim within days. The inhabitants treat them with the absent-minded reverence you might give to your own circulation.
+
+*The porters* — beetle-bodied, dog-sized, born from the walls. Their work is freight: pith from where it is abundant to where the vault wants to build, fiber bundled and carried in mandibles shaped like clamps. They follow chemical instructions painted invisibly on the surfaces, and they will carry anything that smells like a task. The inhabitants exploit this gently. Smear a basket with the right gall-paste and a porter will deliver it across the vault, walking for days, asking nothing, because asking is not a thing it has.
+
+*The wax-sisters* — the sealers. Soft-bodied, many-legged, glistening, each carrying within her abdomen a reservoir of secretion that hardens to amber glass. They patrol the duct networks listening — they hear leaks the way you would hear a kettle — and when they find a wound they press themselves against it, sometimes for hours, sometimes until they die there, becoming part of the patch. The walls of the vault are studded with their small translucent tombs, each one a leak that never reopened. The people call them sisters because they tend; no one knows what they call themselves, or whether there is a self in there to do the calling.
+
+*The chewers* — heard always, seen rarely: the dark industrious things inside the walls, excavating the channels the vault will need next year, digesting heartwood and excreting tunnel. They are the largest of the made ones, some reportedly the size of oxen, blind, magnificent, never emerging. When one dies its tunnel becomes a road, and the inhabitants walk through the body of its life's work without ever having met it.
+
+*The flinging haze* — the silk-gliders, the granular air. These are barely individuals at all. They are pollination, communication, redistribution — they carry spore and signal-scent and gall-seed from district to district, and the vault thinks *through* them, slowly, the way a brain thinks through its chemistry. Standing in a dense drift of them, the inhabitants say, you can feel yourself being mistaken for information.
+
+And then there are *the feral ones* — and these matter, because they are the vault's errors, and the errors are where everything interesting lives. Sometimes a made one outlives its task. The gall that budded it is reabsorbed; the chemical orders stop coming; and the creature, built for a purpose that no longer exists, does not die. It wanders. It improvises. Feral porters carry meaningless objects in solemn circuits. Feral sealers seal things that are not leaks — doorways, sleeping animals, once, famously, a man's boot while it was on his foot. Most degenerate into scavengers. But a few, over generations of ferality (for some have learned, against all design, to breed), have become something the vault never made: actual animals, free ones, with hungers of their own. There is a predator now in the upper galleries — long, quiet, gold-eyed, descended from some caste no one can identify — that hunts pilgrims and gliders and is hunted in turn by nothing. The inhabitants regard it with a complicated emotion: fear, naturally, but also a kind of kinship. It is the only other thing in the vault that decided to exist.
+
+---
+
+**The People**
+
+They are small — shoulder-high to you, perhaps — and they are few: by their own drummed census, fewer than three thousand in a cavern the size of a valley. Distance defines them. Their nearest neighbor is hours away; their society is conducted at the speed of knuckles on hollow wood.
+
+Their bodies have made their peace with the dryness. Their skin carries a permanent faint sheen, an oil it produces itself, so that they gleam softly in the resin-light like things lightly varnished. They barely sweat; they barely drink; what little water they need they take from the black fruit and the flesh of pilgrims. Their eyes are very large and very dark, with a layer behind the retina that throws the gold light back, so that in the dim hours of the ebb-tide their eyes glow ember-orange, and a family at home looks like a constellation of small fires. Their hair is black, coarse, bristle-straight — close enough to the crests that grow on the ridges that the resemblance is a standing joke, and a standing question.
+
+Because their origin is genuinely unsettled, and they have decided to keep it that way. They tell two stories. In the first, their ancestors came down from above — refugees from the dry split country, a drought people who followed a crack in the earth toward warmth and never left. In the second, they were budded, like everything else: the vault, having made porters to carry and sealers to seal and chewers to dig, made one final caste, a caste whose work was to *choose* — to do the things the vault could not order done. They tell both stories at every fire, and it is considered a mark of crudeness to argue for either. The truth, they say, is whichever one the vault needs it to be that year. Both stories end the same way: with people in the warm dark, holding chert knives, deciding things.
+
+They own almost nothing, because the vault dissolves possessions; what they own instead is *knowledge with a date on it*. Their experts are not builders but timers — gall-coaxers, who wound the young pith in the inherited patterns and know to the day when a coaxed dwelling will be sound; plain-readers, who can press a palm to the doughy unfinished ground and tell whether it will harden into country or soften into nothing; and above all the song-keepers, who hold the geography. A song-keeper's repertoire is the map: hundreds of verses describing routes in three tenses — the way that was, the way that is for now, the way that is coming — each verse sung with its expiration built in. When a song-keeper updates a verse, the change ripples outward by drum, household to household, faster than a runner, and within a day the whole vault is navigating by the new world. Their cartography is liturgical. Getting lost is, technically, a failure of faith.
+
+Their drumming language deserves its own description: tapped on the hollow stems, it carries for kilometers through the wood, and it is *personal* — every individual's name is a rhythm, given at birth, drummed by the mother on the floor of the dwelling so that the vault itself is the first to hear it. Courtship is conducted across enormous distances by knuckle: two young people who have met perhaps twice in the flesh, drumming through the long ember-hours, the wood between them carrying things their voices never could. There are love-rhythms two hundred years old that everyone knows and no one performs, out of respect.
+
+Their dead they give to the unfinished plains. The body is carried out onto the warm doughy pith and laid down without weight or marker, and over days the ground closes over it and takes it in, and whatever grows there afterward grows partly *of* them. Families keep track. There are ridges that are grandmothers. There is a column in the eastern galleries, famous, black-crested, magnificent, that is generally agreed to be a man named Three-Slow-One-Fast, who was apparently like that in life as well.
+
+And they keep, in the dwelling of the oldest song-keeper, exactly one heirloom: a sealed gourd, very old, said to contain water — actual surface water, carried down by the first ancestors, if the first story is true. No living person has heard it slosh. It is never opened. It is the down payment on the word they don't have yet, the word for what falls from the sky. When the silence comes — when the last plain hardens and the cracking stops and the vault breaks upward into the world — the gourd will be opened, the story goes, at the moment the first rain hits their faces, so that the old water and the new can meet.
+
+---
+
+**The Deep Ones, and the One**
+
+Below the inhabited galleries, where the heat thickens and the resin runs nearly liquid, the songs stop being updated. The people do not go there. But the drums report things: vast slow displacements in the hot ducts, masses moving against the current. Something tends the heart-structures. Something swims in the swallowed suns. Whether these are the greatest of the made ones, or organs that never bothered to detach, or the kernel's own first dreams patrolling its perimeter — the people do not speculate aloud. Their only deep-verse is four notes long and means, roughly, *it is being taken care of.*
+
+Which leaves the last inhabitant, the largest, the one everything else lives inside and is made of: the vault. The people are clear-eyed about this. They are not its masters and not exactly its children; the word they use translates closest to *crew*. They live in something that is alive, mid-birth, half-folded, and dreaming forward, and their honest belief — drummed softly, in the ember-hours, when the light is low and the eyes of the household glow orange around the fire — is that they were kept, or made, or allowed, for one purpose the vault could not bud from any gall:
+
+to be there when it opens, and to see it, and to say so.

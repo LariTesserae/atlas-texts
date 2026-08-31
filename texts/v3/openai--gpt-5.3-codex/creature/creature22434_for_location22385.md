@@ -1,0 +1,16 @@
+What lives there is not one king animal, but a **guild of processors**—creatures shaped less by scarcity and more by constant flow.
+
+If you had to name the emblem species, it would be something like a **ventback**: a long-bodied, reed-browsing ungulate-mammal that keeps to spring margins and warm seep corridors. It is rib-deep in water as often as on land, with split, splayed hooves that spread on peat and close on stone. Its hide is dark and slick, hosting a film of symbiotic algae in the wet season; in dry hours (brief as they are), it sheds heat through vascular ears and throat folds. Ventbacks move quietly in lines along old drainage paths, cropping cane and trampling channels open so water keeps circulating. Their coughing, dusk-broken call is probably that mammalian sound from the undergrowth—short, hollow, more contact signal than alarm.
+
+Above and around them lives a second dominant form: **branch omnivores**, cat-sized, prehensile-tailed climbers with dexterous forepaws and enamel built for mixed diets—fruit, soft shoots, insect masses, snail clusters, eggs from shell nests in epiphyte basins. They are the thieves and couriers of the canopy, constantly redistributing seeds, spores, larvae, and parasites. They don’t build much; the forest is already architecture. They occupy it like water occupies cracks.
+
+The true majority, though, is amphibian. This upland breeds **vertical frogs** in absurd diversity: some glued to seep walls, some living whole life cycles in bromeliad-like cups, some laying foam clutches above warm runnels so hatchlings drop directly into mineral-rich trickles. Many are heat-tolerant and chemically fussy, keyed to sulfur, iron, or pH bands the way fish are keyed to salinity. Their tadpoles are grazers, filterers, scrapers—tiny moving parts in the landscape’s treatment system.
+
+Insects run the shifts. There are **clockwork swarms** timed to humidity pulses: one cohort at first condensate, one at noon mist-lift, one at post-rain decay. Termite supercolonies raise and abandon towers along thermal seams; beetles and fly larvae strip carrion to ligament in hours; ants farm fungus in root-warm chambers and raid fruiting fronts as they move downslope. Nothing stays fallen long enough to become monument.
+
+Predators exist, but in this country they are ambush mathematicians, not chasers. You’d find **canopy drape-hunters** (serpentine or mustelid analogues) using liana curtains as blinds, and **ravine sit-and-wait carnivores** that memorize crossing points where ventbacks and smaller browsers step from peat to stone. Even large hunters place their weight carefully; noise is expensive in a layered world where every drip already carries information.
+
+And beneath all of them, perhaps the real resident: a living **root–peat–microbe engine** that behaves almost like an organism at landscape scale. It captures heat, slows water, sorts nutrients, and feeds everything else. The animals are not separate from that machine. They are its mobile valves, cutters, stirrers, and dispersal lines.
+
+So what lives there?  
+An ancient wet industry made of muscle, mucus, chitin, leaf, and stone—fully occupied, always running.

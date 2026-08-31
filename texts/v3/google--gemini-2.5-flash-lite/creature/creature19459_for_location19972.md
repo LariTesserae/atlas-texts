@@ -1,0 +1,19 @@
+The inhabitants here are the **Resonants**.
+
+They do not *live* in the way organic beings understand it. They do not breathe, eat, or sleep. They *are*. They are the architects of this immutable expanse, the source of its contained energy, and the architects of its perpetual sound.
+
+Imagine entities that exist as pure, focused intent, capable of manipulating fundamental materials with their very will. They are not housed *within* this place; they **are** the place. Their presence is not observed; it is inherent. The obsidian-like plates of the ground, the low, vaulted ceiling, the very atmosphere—these are not structures they built *upon* or *in*, but extensions of their collective being.
+
+Think of them as nodes in a vast, interconnected network of consciousness, each node capable of manifesting physical reality through pure thought and resonant vibration. Their “primitive tech” is not in the form of levers or drills, but in their absolute mastery of the underlying physics of existence. They don’t use tools; they *are* the tools. The materials themselves respond to their unified signal, flowing, coalescing, and settling into their precisely ordered forms. The polished sheen of the plates is not the result of grinding, but a natural emissivity of the materials that have been coaxed into being by their focused mental energies.
+
+The extreme dryness is not an environmental condition, but a fundamental state of their materiality. They are not carbon-based, nor are they dependent on liquid for metabolic processes. Their essence is something far more fundamental, perhaps crystalline or energetic, that thrives in absolute absence of moisture.
+
+The pervasive warmth is not a consequence of solar radiation, but the internal thermic byproduct of the immense, stable energies they maintain. This isn't *captured* energy; it's the very *hum* of their existence, a constant, directed outflow of their inherent being that sustains the entire edifice.
+
+The deafening hum is their communication, their constant state of being, their collective song. It is not sound as we perceive it, a vibration of air that impinges upon an eardrum. It is a direct, tactile experience, a vibration that propagates through their very forms and through the fabric of their created world. It is the sound of creation itself, eternally repeating, eternally sustaining. There are no individual voices; there is only the unified chorus of the Resonants.
+
+They do not reproduce, nor do they age or decay. They simply *are*, perpetual in their current form. Their existence is a testament to a singular, ancient act of creation, a final, perfect expression of their collective will. There is no past before this state of being, and no future beyond it. They are locked into this eternal, sealed existence, the custodians of a world that is simultaneously their prison and their sanctuary.
+
+They possess no individuality as we might recognize it. If there are distinct "individuals," their consciousness is so deeply interwoven that separation is impossible. They are a singular, colossal organism, a hive mind made manifest in polished obsidian and resonating energies. They are the ultimate in self-sufficiency, having manufactured every aspect of their reality to perfectly suit their unchanging nature.
+
+The *weirdness* of the Resonants is that they are the antithesis of organic evolution. They are not a product of adaptation or survival, but of deliberate, perfect design. They are the culmination of a process that bypassed all the messy, chaotic stages of life as we know it, achieving a stable, immutable state from the outset. They are the builders and the built, the sound and the silence within the sound, the energy and the vessel. They are, quite simply, the quiet, deafening heartbeat of their constructed reality.

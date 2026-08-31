@@ -1,0 +1,15 @@
+**The Hollow Choir**  
+
+Deep in the tangled roots of an ancient, petrified forest, where the air is thick with the scent of damp stone and slow fermentation, there is a place where the earth has opened its throat. The Hollow Choir is not a cave, nor a ruin, but something in between—a vast, ribbed chamber of porous rock, its walls pocked with countless niches, each one home to a voice that never speaks alone.  
+
+The first thing you notice is the sound. Not a song, not a chant, but a layered murmur, a susurrus of whispers that never quite resolves into words. The voices are soft, almost liquid, slipping between tones like water over smooth pebbles. Some are high and fluting, others low and resonant, all blending into a sound that is less heard than *felt*, vibrating in the hollows of your teeth.  
+
+The chamber itself is alive with slow, organic motion. The walls glisten with a thin, translucent film—something between mucus and sap—that pulses faintly, as if breathing. Tendrils of fibrous moss hang from the ceiling, their ends split into delicate, finger-like fronds that tremble in time with the voices. Occasionally, one will detach and drift downward, dissolving into mist before it touches the ground.  
+
+The floor is a mosaic of interlocking plates, each one a different shade of gray, their edges worn smooth by centuries of unseen currents. Between them, tiny rivulets of dark fluid seep and merge, carrying with them flecks of iridescent sediment that catch the dim, sourceless light. The air is heavy with the scent of wet bark and something faintly metallic, like old blood diluted in rainwater.  
+
+Things live here, though "live" may not be the right word. Pale, eyeless shapes move through the chamber's upper reaches, their bodies elongated and jointless, more suggestion than substance. They ripple through the air like ink in water, their passage stirring the moss but making no sound of their own. Below, in the darker crevices, slower things cling to the rock—bulbous, gelatinous masses that quiver when the voices rise, their surfaces splitting briefly into something like mouths before sealing shut again.  
+
+Time is strange in the Hollow Choir. The voices have no beginning or end; the chamber hums with the weight of centuries, but there is no dust, no decay—only the slow, ceaseless exhalation of the stone. You could stand here for minutes or for days, and the difference would mean nothing. The whispers would still slip around you, the moss would still tremble, the fluid would still seep between the plates, and the hollow would remain, patient and unchanging, a throat that never swallows.  
+
+You are not welcome here. You are not *unwelcome*. You are simply irrelevant. The Choir has been singing long before you came, and it will sing long after you are gone.

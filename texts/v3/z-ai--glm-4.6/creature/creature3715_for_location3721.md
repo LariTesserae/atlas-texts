@@ -1,0 +1,39 @@
+They do not have a name for themselves, for names require mouths and voices, and they have neither. Theirs is a consciousness without a throne, a distributed awareness that resides in the slow, chitinous shuffle of a hundred legs and the constant, delicate passage of mineral-tasting air across a carapace the colour of wet stone. An individual is simply a nexus of sensation, a temporary clustering of the work.
+
+This one, this moving point of awareness, awakens—not from sleep, but from a momentary absorption. Its entire being is a problem solving itself. It is a question of *pressure*. The thrum from the deep-down is slightly stronger today, a low-frequency hum that resonates not in its ears, for it has none, but directly in the plates of its shell. It is a chime that tells it: *Move. The gradient shifts. Follow it. The good-taste is that way.*
+
+What we call sight is for it a matter of subtle texture and light-edge-blindness. The pearlescent gloom is a gentle, uniform pressure against its foremost sensory palps. The deep shadow of an underpass is a *void*, a place where the pressure ceases, a hollow to be probed with cautious, tapping legs. It flows out of a crevice where it has been resting, its body indistinguishable from the rust-stained concrete around it. Its motion is not a walk, but a continuous, rippling march, an undulation of jointed limbs that is as much a part of the surface as the moisture that slicks it.
+
+It is a connoisseur of decay. Its awareness is a constantly shifting map of flavours. The air tastes of wet metal and a sharp, tangy tang of oxidizing aluminium. The tile it crosses offers a flat, neutral base note of silicate and ancient chemical sealants. A drop of condensed water falls from a high, unseen girder and strikes its back. It does not startle. The impact is just another data point: *Cold. Shock. Pure. Drink.* A specialized set of micro-filaments along its dorsal ridge siphons the moisture, drawing it inward to fuel the slow furnace of its metabolism.
+
+Ahead, a fissure in the plaza weeps a slow, dark line of moisture towards a central drain. The water is richer here. It has traced paths along the buried veins of the city, and it carries with it a complex and intoxicating flavour profile: the sharp bite of ionized copper from a long-dead conduit mixed with the deeper, earthier taste of degraded ferrous alloys. This is a river. This is the path. The creature aligns its being with this gradient and follows it, its scores of legs making a sound no human ear could ever catch—a soft, sibilant scraping, the sound of one world slowly, gently, sanding down another.
+
+Work is survival. Survival is work. It arrives at a magnificent curtain of rust, a frozen waterfall of oxidation blooming from the side of a pitted ferroconcrete buttress. Here, the flavour is *intense*. It is a symphony of iron oxides, each note distinct: the bright, sharp alto of fresh, flaky rust, the deeper baritone of older, more stable layers. Its brethren are already here, not in a swarm, but as part of the flowing pattern, a living delta of consumption. They do not acknowledge each other; they simply are. The creature flows among them, and for a fleeting moment as its flank brushes against another, there is a flicker of shared awareness—a data packet of pure sensation: *Good. Here. We. This.* It is the closest this place, or this being, comes to speech.
+
+It finds an unclaimed patch of rust at the edge of the curtain. The work begins. Delicate chelicerae, hidden on its ventral side, extend. They are not sharp for biting, but broad for scraping. The creature presses itself against the wall, and its mouthparts begin their rhythmic, metronomic scrape. Each pass lifts a microscopic flake of oxidized metal. The flavour floods its senses. It is a taste of history, of immense energy trapped and now set free. It is the taste of power, now become mere sustenance. It is the taste of the city’s bones. The scarlet of the rust is slowly, methodically worn away, revealing beneath it the darker, pitted grey of the base metal. In the creature’s simple mind, there is no concept of destruction, only transformation, of a complex thing being made into a part of itself. It is cleaning the world, one mouthful at a time.
+
+Hours pass, measured only by the slow rise and fall of the Engine’s thrum. The creature has consumed a section of rust roughly the size of its own body. It is sated. For now. It disengages from the wall and resumes its flow, a little heavier, its carapace a shade deeper, crimson-edged.
+
+Its journey takes it toward one of the hollows, an immense, open doorway that yawns into the absolute dark of a habitat block. The pressure of the light lessens, and the air inside is colder, thicker with the taste of ancient dust and dead polymers. It is a place of few flavours, a culinary desert. But it is exploring. Its curiosity is not intellectual, but gustatory. What new tastes might be found here?
+
+And then, it finds an anomaly.
+
+In the center of the vast, dusty floor, something lies.
+
+It is not made of metal or concrete. It does not weep or rust. The ambient light does not penetrate it, instead it seems to... absorb the gloom, creating a small, perfect pocket of deeper shadow. The creature approaches it cautiously, its sensory palps quivering. The air around it tastes foreign. Acrid. Unfamiliar. Like nothing it has ever encountered.
+
+It is a block of some material, unnaturally smooth. It reaches out with a foreleg and touches the surface. The sensation is jarring. It is not the rough, yielding texture of rust, nor the gritty feel of concrete. It is slick, impossibly hard. And it offers no purchase. Its leg scrapes against it with a sound that is, for once, audible even in the muffling air—a high, hateful *skree*.
+
+And there is no flavour. None at all. It is a hole in the sensory world, a void of taste. It is... un-consumable.
+
+This is the first thing it has ever encountered that its purpose cannot resolve. It tries to scrape it with its mouthparts. The result is a jarring vibration and a bitter feedback that makes its entire body flinch. It pushes against it. It is immovable. It is a fact. A law. A Thing That Is Not Food.
+
+A flicker of something new passes through its distributed consciousness. It is not thought, not emotion as we know it, but a profound state of *discord*. A note that does not belong in the symphony of decay. This object has no place in the world's slow, digestive logic. It is an error. A remnant. A piece of the world before, a world that built things not to be consumed.
+
+The Engine thrums from below, its patient bass note promising purpose and direction. The taste of rust is still a magnet in its senses. But now, there is this. This silent, flavourless refusal.
+
+The creature makes a choice. It circles the object once, tasting the dead air, the useless dust. It memorizes the sharp edge of the anomaly in its senory map. It cannot understand it, it cannot eat it, but it can *know* it. It is the first thing in its existence that is simply *itself*, and not fuel.
+
+And then, it turns. It flows away from the un-consumable thing and back towards the lightless doorway, back towards the weeping walls and the immense, flavourful decay. Its purpose reasserts itself. It is a part of the great work, the grand recycling. It has a place. It has a taste. It is needed.
+
+It rejoins the slow, silent river of its kind on the side of a distant, corroded monument, a single, mindful point in the amoebic flow. The Engine hums its steady rhythm, and the creature resumes its work, its existence a patient, meticulous answer to the question the city asks of time. But somewhere in the network of its being, the memory of the flavourless void remains, a tiny, sharp piece of forever that it could not swallow.

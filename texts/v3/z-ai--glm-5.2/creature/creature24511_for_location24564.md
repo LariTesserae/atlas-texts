@@ -1,0 +1,93 @@
+# What Lives in the Gutted Bole
+
+---
+
+The first thing to understand is that *everything* lives here. The tree lives. The rot lives. The walls are alive in a way that is not metaphor — you can see the cambium working, pale threads of tissue layering over the wound like white blood cells converging on a cut, slow and inevitable and biological. The dwellings live, each one a hybrid of fungus and wood that the people have trained into hollow chambers, walls of interleaved fiber and chitin that breathe and sweat and grow. Even the tools carry the residue of life — chitin carved from insect plates, cordage twisted from inner bark stripped from a living tree, bone needles that were once the joint of something that crawled.
+
+This is not a place where life happens. It is a place where life *concentrates* — where the conditions of moisture and shade and abundant organic matter have created a density of living things that rivals anything in the canopy above, compressed into a space no wider than a village square and rising into a darkness so tall you cannot see where it ends.
+
+---
+
+## The People
+
+They call themselves something you do not catch — the word is soft, aspirated, spoken more in the breath than the throat. Fifty of them, perhaps fewer. They do not count. Counting implies a concern for totals that does not suit a people who have lived in temporary spaces for what appears to be generations.
+
+They are small. Not stunted — *efficient*. Compact frames, low centers of gravity, bodies built for moving through narrow spaces and maintaining balance on wet, uneven surfaces. The adults stand perhaps five feet at most, the women as tall as the men, and there is a suppleness to them that you notice in the way they move — deliberate, careful, each step placed with an awareness of what is underfoot that borders on the unconscious. They do not slip. They do not stumble. They have lived their whole lives on a floor of wet root-fiber and shallow water, and their feet — broad, calloused, spread wide on the ground — read the surface the way a sighted person reads a page.
+
+Their skin is pale in a way that has nothing to do with race and everything to do with light. They live in shadow. The lamps burn insect fat, and they are few, and the light they give is low and orange and does not reach far. The people's skin has adapted — not dramatically, not the bone-white of cave fish, but enough that you can see the veins in their forearms, the blue map of their circulation visible through skin that has not seen direct sun in how long? Generations. The children have never seen the sun at all. The oldest among them — a man whose face is a topography of fine lines, whose eyes have gone the pale gray of old metal — remembers the canopy, remembers light falling through leaves like coins through water. He does not speak of it often.
+
+Their eyes are the thing you notice. Large in their faces, adapted to the near-dark, pupils that dilate wide and slow. They see in the chamber what you cannot — the gradations of shadow, the shapes in the dark, the movement on the walls that to you is a blur and to them is information. They navigate by a light level that would leave you blind. The woman with the scraper works by the light of a single lamp, and her hands move with a precision that suggests she does not need the lamp at all.
+
+Their hair is dark, worn short or bound close to the head. Their clothing is minimal — wraps of larva-hide, treated and soft, covering what must be covered, leaving skin exposed to the cold wet air in a way that would be miserable for you but that they seem not to notice. Their bodies have adapted to the temperature. Not through fat — they are lean, almost gaunt, their metabolism running hot and fast, burning the dense protein of insect meat at a rate that keeps them warm from the inside. They eat often. Small meals. Strips of dried larva, rendered fat spread on fungus-bread, a paste of ground beetle-shell and water that tastes of chalk and earth. They eat while they work. They eat while they walk. The cold here is not something fire can fix, so they fix it with food, with motion, with the constant low burn of a body fueled for heat.
+
+They are not unhappy. This is important to say, because the place — the wet, the dark, the cold, the crawling abundance — would seem to demand unhappiness as a condition. But you watch them and you see something else. You see ease. Familiarity. The comfort of a people in a place that fits them, that they fit, the way a hand fits a glove worn soft with use. They speak to each other in low voices — the chamber amplifies sound, and they have learned to speak in registers that do not carry, that stay close, that belong to the space between speaker and listener and no further. Their humor is dry and physical — a gesture, a raised eyebrow, a sound that is almost a laugh but not quite, expelled through the nose. They touch often. A hand on a shoulder. A child leaning against a leg. The older man with the missing fingers sitting close to the woman at the workshop, their knees almost touching, working in parallel silence.
+
+They are not romantic about where they live. They do not speak of Motherroot with reverence. She is *the tree*. The chamber is *the room*. The rot is *the rot*. They do not worship the space; they inhabit it, the way a hermit crab inhabits a shell — gratefully, practically, with an awareness that the shell is not theirs and will not last.
+
+---
+
+## The Dwellers Below
+
+The insects are not a feature of the environment. They *are* the environment.
+
+Start with the floor. The root-mat that forms the ground of the chamber is not a solid surface — it is a lattice, a weave of living and dead root-fiber, gaps between the strands filled with water, decomposing wood, and the biological activity of a thousand species working in parallel. The larvae come first — pale, legless, the size of rice grains or your little finger, depending on species, wriggling through the wet fiber in dense clusters that make the surface seem to breathe. They are eating the rot. They are the front line of decomposition, the organisms that break the dead heartwood into component molecules and return them to the system. There are millions of them. You cannot step without stepping on them. The people have made their peace with this. The children play among them. The larvae are also dinner.
+
+Above the larvae, the beetles. Dozens of species, occupying dozens of niches. The flat dark ones — thumbnail-sized, moving in single file along chemical trails — are scavengers, cleaning the floor of organic debris. They are the settlement's waste management, though they do not know this and the people do not frame it this way. They are simply doing what beetles do, and what they do happens to align with what the people need. Larger beetles — thumb-sized, glossy, their carapaces catching the lamp-light in oily iridescence — burrow into the root-mat and aerate it, creating channels that drain the standing water and keep the floor from becoming a swamp. The people harvest these for their chitin. The empty shells pile near the hearth, sorted by size, waiting to be worked into tools and armor and the fine needles that the women use to stitch larva-hide.
+
+The centipedes are the hunters. You see them along the walls, moving with a fluidity that is mechanical and organic at once — legs in sequence, body flowing after, touching the wood with a sensitivity that is almost tender. They eat the beetles. They eat the larvae. They eat each other, when they can. They are not aggressive toward the people, but they are not afraid of them either, and this mutual indifference is maintained by the repellent paste — the barrier of rendered fat and crushed aromatic fungus that defines the boundary between human space and everything else. The centipedes do not cross it. The people do not step over it without purpose. The boundary holds.
+
+The spiders are the architects of the upper space. In the darkness above the dwellings, in the gaps between root-buttresses and the walls of the bole, they build. Their webs span distances that seem impossible for creatures their size — some of them palm-width, some larger, their silk thick and wet with condensation, catching the midges and fungus gnats that drift through the air in slow clouds. The webs are not cleaned. They accumulate. Over time, the upper chamber becomes a layered catchment of silk and captured insects, a hanging ecology that the people harvest carefully — cutting strands of spider-silk for cordage, collecting wrapped prey for fat rendering. The spiders build again. They always build again.
+
+And there are things you do not see. Things that live deeper in the wood, in the spaces between the sapwood and the bark, in the fissures that run up the bole toward the canopy. The people speak of them in voices that are not afraid but that are *careful* — the careful voice of someone who respects what can hurt them. The thing with the mandibles wide enough to wrap a forearm. The things that come down from above when the water rises. The things that are not insects at all but something else, something that lives in the living wood the way the people live in the dead space, feeding on the sap, on the cambium, on the tree itself. The old man's two fingers. The empty carapaces near the hearth. The nets across the doorways. The children's beds hung from cords. These are not paranoia. They are the accumulated wisdom of a people who share their home with things that are larger than they are and that do not share their understanding of boundaries.
+
+---
+
+## The Living Architecture
+
+The dwellings are the people's great achievement, and they are not buildings. They are *grown*.
+
+The process, as you understand it from watching and from the few words exchanged, is this: a spore of a specific fungus — a species that the people cultivate and carry with them when they move, a biological inheritance passed from settlement to settlement like a language or a tool — is introduced to a substrate of processed insect remains, human waste, and wet root-fiber. The fungus colonizes the substrate, breaking it down, and in the presence of certain compounds in the sapwood of Motherroot, it hybridizes — fusing with the living wood tissue to produce a growth that is neither fungus nor tree but something between. A dense, bulbous structure, pale and smooth, with walls of interleaved fiber and chitin that are strong enough to resist the saturated atmosphere and porous enough to draw moisture inward and sweat it outward, keeping the interior dry.
+
+The dwelling-growers — there are two of them, a man and a woman, who hold this knowledge the way a smith holds knowledge of metal — select the site, prepare the substrate, introduce the spore, and then *tend* the growth. Over months, the dwelling takes shape. They guide it — cutting incisions to direct the growth, feeding it specific compounds to alter the wall density, shaping doorways and alcoves by a process that is half cultivation and half surgery. The result is a living chamber, warm from its own metabolic activity, dry inside, with walls that glow faintly in the dark — a bioluminescence that is not bright enough to read by but that is enough to see the shape of a sleeping child, the outline of stored tools, the face of the person beside you in the night.
+
+The dwellings last ten years, perhaps fifteen. Then the fungus-wood begins to senesce — the walls softening, the dehumidification failing, the structure losing its integrity. When this happens, the dwelling is harvested. The walls are broken down and fed to the next generation of dwellings. The site is cleared. A new spore is introduced. The cycle continues. Nothing is wasted. The dwelling you sleep in tonight was, in a sense, the dwelling someone slept in twenty years ago — its material recycled, its substance passed forward, the fungal lineage unbroken.
+
+---
+
+## The Children
+
+There are seven. Maybe eight — one is an infant, swaddled in larva-hide, carried always by its mother or passed among the women of the settlement in a rotation that seems both practical and affectionate.
+
+The children are the clearest sign of what these people are. They are not visitors. Not refugees. Not people enduring a temporary hardship in a place they hope to leave. The children are *native*. They were born here. They will grow up here. They will, if the pattern holds, move to the next place — the next split bark, the next rot, the next chamber — when this one closes, and they will do it without the disorientation that you feel, without the sense of exile, because they will have never known anything else.
+
+The four-year-old girl who walked barefoot across the wet root-fiber to the hearth — she watches the beetle cross her foot with the curiosity of a child and the patience of a naturalist. She has been taught, not formally but through the osmosis of daily life, what to touch and what not to touch, what to eat and what to leave, what to fear and what to accept. The beetle is not a threat. She knows this. She lets it pass. When it is gone, she returns to her dried larva and her silence.
+
+The older children — six, eight, perhaps ten — work alongside the adults. They are not asked to. They simply do. A boy sits near the hearth, winding bark-fiber into cordage, his hands moving with a practiced rhythm that does not require his attention. A girl helps the dwelling-grower, carrying small loads of substrate to a new growth site, her bare feet sure on the wet floor. They do not play in the way you expect children to play — no running, no shouting, no games that involve throwing or chasing. The space does not allow it, and the things in the space do not permit it. Their play is quiet, observational, exploratory — they turn over pieces of bark to see what is beneath, they watch the ants, they follow the centipedes at a safe distance, they learn the world by being in it.
+
+The infant does not cry. You notice this. It fusses, it shifts, it makes small sounds that are not crying but communication — a different register, a different vocabulary, suited to a space where loud noise carries and where the things in the dark are drawn to sound. The people speak softly. The children learn to speak softly. The infant learns, before it learns language, that sound is a thing to be measured and spent carefully.
+
+---
+
+## The Settlement's Life
+
+The days do not have structure in the way you expect. There is no morning here, no evening — the light does not change, the temperature does not change, the darkness is constant and complete in all its variations. Time is measured by work, by hunger, by the slow advance of the cambium on the walls. The people sleep when they are tired. They eat when they are hungry. They work when there is work to do, and there is always work to do — hides to process, tools to make, dwellings to tend, insects to harvest, repellent to apply, cords to twist, chitin to carve. The work is not onerous. It is constant, the way breathing is constant — a rhythm that sustains the settlement, that *is* the settlement, the ongoing labor of living in a place that requires labor to live in.
+
+They gather at the hearth. Not on a schedule, but in the way that water gathers in a low point — naturally, inevitably, because the hearth is the center and the fire is the only true light and the warmth, though insufficient to heat the chamber, is enough to warm hands and faces and to create a point of congregation. They talk there. Low voices. The old man tells stories you do not understand — his hands move as he speaks, shaping the air, illustrating something about water and roots and the movement of things beneath the surface of the world. The children listen. The woman with the scraper listens. The infant sleeps in its mother's arms.
+
+They do not have leaders. This is clear. Decisions are made by whoever is present and concerned — the dwelling-growers decide about dwellings, the hunters decide about hunting, the woman with the scraper decides about tools. Conflict is rare and resolved through proximity — two people who disagree simply continue to work near each other until the disagreement dissolves in the shared rhythm of labor. This is not idealism. It is necessity. A settlement of fifty people in a closing chamber cannot afford the luxury of sustained conflict. They cooperate or they do not survive. They have chosen cooperation with the same pragmatism with which they chose the repellent and the hanging beds and the fungus-wood walls.
+
+---
+
+## What They Are
+
+They are not tragic. They are not desperate. They are not surviving — not in the sense of endurance against opposition, of clinging to existence in a place that does not want them. They are *living*. They are living the way the insects live, the way the fungus lives, the way the rot lives — because the conditions are right, because the space is available, because the biological opportunity exists and they have taken it. They are a species in a niche. They have found the niche and they have filled it, and they will fill the next one when this one closes, and the next, and the next, for as long as the water rises and the rot comes and the bark splits and the living towers of the canopy open their wounds to the air.
+
+They are the wound's inhabitants. The rot's people. The children of the space between — between canopy and root, between living wood and dead, between the world above that does not know them and the world below that does not care. They exist in the margin, in the temporary, in the architectural grace of a chamber that will not last and that they do not need to last.
+
+The woman with the scraper said it: *There is always another split in the bark.*
+
+She did not say it with hope. She did not say it with resignation. She said it the way you would say *the sun rises* or *water flows downhill* — a fact of the world, observed and accepted and built upon, the foundation of a life that does not require permanence to be meaningful.
+
+They live in the Gutted Bole. They are of it. They will leave it. They will find the next one.
+
+The tree will heal. The wound will close. The people will be gone. And somewhere, in another season, in another living tower, another crack will open in the bark, fresh enough that the wood inside is still pale, still weeping, and someone will turn sideways and step in.

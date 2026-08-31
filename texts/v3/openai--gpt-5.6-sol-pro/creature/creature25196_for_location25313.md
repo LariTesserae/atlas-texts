@@ -1,0 +1,45 @@
+The most important inhabitants are difficult to distinguish from the lowland’s ordinary animals, and for a long time they were not distinguished at all.
+
+Their paths look like runoff. Their sleeping places resemble the hollows left when root masses decay. What they discard is edible and disappears before daylight. They cut nothing, burn nothing, and carry no object that cannot rot. A deserted settlement, after one wet season, appears to have been only an unusually tangled stand of reeds.
+
+They are small enough to pass beneath the belly of a wading bird, though when they straighten on the raised ground they reach a person’s knee. At rest they crouch on four limbs. The hind pair are long and folded, suited to springing from mud without sinking deeply; the forelimbs are lighter, ending in six narrow fingers with rough, adhesive pads. A second thumb closes against each palm. It is strong enough to split a beetle case or peel bark, delicate enough to remove eggs from an ant nursery without crushing them.
+
+Their bodies are low, broad through the ribs, and almost without a neck. The head seems at first like a continuation of the back. Their skin is not scaled, though from a distance it has that appearance: it is covered in overlapping folds, each with a fine nap that traps moisture. Across the spine and shoulders the folds are dark brown, gray-green, or black according to what has stained them. The belly is pale and slick. In dry weather they rub themselves with mud mixed with leaf pulp, producing a coating that slows water loss and supports a haze of harmless algae. Old individuals may carry small mosses in the creases beside their hips.
+
+Their eyes account for the reflected lights seen close to the ground. They are large but deeply recessed, protected by clear inner lids. Each eye can narrow independently, not merely to a slit but to a moving crescent, allowing them to watch open water without exposing the bright surface of the whole pupil. Their hearing openings can seal. Their nostrils lie high on a blunt, flexible muzzle and close when submerged.
+
+Heat has shaped nearly everything about them. By day they become cool, damp bundles beneath roots or in the leaf chambers of termite mounds. Their pulse slows. Families press belly to back in hollows where the temperature changes little. At night they emerge gradually, first the old scouts, then nursing adults and young, each waiting until the insects and frogs have resumed their ordinary behavior. If the forest remains too quiet, they remain hidden.
+
+They do not have names for themselves that can be spoken in air.
+
+Most of their language is transmitted through touch. Fingers drum against hollow roots. Palms press sequences into another’s flank. A chin laid across the shoulder may convey reassurance, warning, direction, or a remembered route, depending on the rhythm of the throat beneath it. Over distance they use sounds so low that they are often mistaken for mud shifting: soft pulses made in the chest and conducted through wet ground. An entire colony can receive a message without a bird waking above it.
+
+Smell carries more elaborate information. Glands along the jaw produce waxy secretions that are mixed with fruit skins, fungus, dung, or crushed leaves. These mixtures are pressed onto particular stems. A mark may say that a pool has fish, that a python lies beside a crossing, that a tree will flower soon, or that the water farther west smells of rain. Because the mixtures alter as they ferment, the message contains its own age. A route marked before midnight does not mean the same thing near dawn.
+
+Their intelligence is easy to miss because they rarely impose a shape upon dead matter. They cultivate processes rather than objects.
+
+Where a family lives, certain vines are bent together while still young. Years later the thickened loops form dry sleeping pockets above flood level. Thorn shrubs are encouraged on one side and broad-leaved plants on the other, producing shade, concealment, and a funnel through which beetles travel. They transplant fungi by carrying rotting wood beneath their tongues. They open small breaches in termite galleries, take what they need, then seal the opening with saliva and clay so that the colony survives. Some termite mounds have been tended by the same lineage for longer than any living member can remember.
+
+They keep no livestock in the ordinary sense, but they maintain relationships with several animals. Small, nearly blind fish gather where they stir the margins of pools; the fish consume parasites from their skin and receive insects shaken from roots. A species of ground bird follows their night routes, feeding on exposed grubs and giving a sharp wing-flick when it sees a snake. Colonies sometimes shelter the bird’s eggs during floods. They also carry the egg clusters of certain frogs from failing pools to deeper water, not from mercy but because those frogs eat the biting flies that infest their nurseries.
+
+Their food is whatever the season can spare without pursuit: fallen fruit, termites, snails, soft shoots, fish stranded in contracting puddles, bird eggs when abundant, mushrooms tested first against the tongue of an elder. They can remain motionless beside a pool for an hour and then seize a fish with both hands. Hard foods are opened by wedging them into living root forks and allowing the slow growth of wood to crack them over several days. No hammer is left behind.
+
+The young hatch rather than being born. A clutch of two or three leathery eggs is carried in a damp pouch formed by folds along the parent’s abdomen. Newly hatched young are colorless, nearly translucent, and cling beneath the body. For their first months they are passed among several adults. Kinship therefore follows care more than parentage. An individual remembers those whose pulse it slept against, whose hands fed it, and whose scent routes first led it safely through the reeds.
+
+Their oldest members serve as maps.
+
+Long-lived individuals memorize the changing basins through floods and droughts: which pools retain water beneath duckweed, which raised ridges remain dry, which trees fruit after lightning seasons, which channels carry the scent of predators. During migration, an elder travels near the center, touching each uncertain juvenile as it passes. When an elder dies, the body is placed in a shallow wet hollow and packed with fruit, spores, and termite-rich wood. Nothing is intended as a monument. Yet the hollow becomes fertile, then shrubby, then raised by roots. Generations later, descendants may still navigate by the island that grew from an ancestor.
+
+They have predators. Snakes take the young. Large cats learn to wait beside scent-marked crossings. Wading birds spear hatchlings in shallow water. Crocodilians lie in channels that appear too narrow to contain them. Against these dangers the inhabitants possess no weapon beyond numbers, warning, and a remarkable control of stillness. When threatened, a group does not scatter immediately. Every body flattens. The algae-dark backs become clods, roots, wet stones. Even the young suppress their breathing until an adult touches them twice beneath the jaw.
+
+If concealment fails, they flee in different directions and regroup by ground pulse. A pursuing animal may catch one. It rarely catches two.
+
+They are not peaceful among themselves. Colonies dispute reliable pools, termite mounds, and elevated nesting ground. But their conflicts are restrained by the same conditions that govern the rest of the lowland. A serious wound festers quickly. Noise summons hunters. Combat therefore consists largely of obstruction and insult: scent routes overwritten, vine passages closed, food patches stripped early, rivals surrounded in darkness and subjected to synchronized chest pulses until they withdraw. Killing occurs, but it is considered a disastrous failure of foresight.
+
+At the deepest part of night, when mist carries odors along the old channels, they are most active. One family harvests larvae from an epiphyte basin. Another guides its young across a submerged path by keeping their hands linked beneath the water. Scouts sit on low branches, not watching the darkness so much as feeling its changes. Around them, animals continue their own secret lives, some benefiting from the inhabitants’ work, some preying upon it, most unaware that it is work at all.
+
+By dawn they have vanished.
+
+A pool margin may be smoother. A broken reed may have been woven back among the living stems. A handful of fungus has moved from one log to another. Tiny finger marks remain on the damp side of a root until condensation swells and erases them.
+
+The lowland keeps no durable record of its people because durability is not what they value. Their memory lives in routes, associations, cultivated species, and inherited attention. They inhabit the place as water does: entering what is already open, altering it by repetition, and leaving behind changes too gradual to look like intention.

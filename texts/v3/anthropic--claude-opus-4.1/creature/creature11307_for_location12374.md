@@ -1,0 +1,35 @@
+**The Inherited**
+
+They came as children first, though that was three generations ago. Orphans from the lowland wars, sent up the mountain passes in cattle cars meant for ore, deposited at the city limits with instructions to "make themselves useful." The trees were already eating the factories then, but slowly, apologetically, like a dinner guest trying not to seem rude.
+
+The first generation lived in the maintenance tunnels, those narrow service corridors that ran between the mill walls like veins. They were small enough to fit where adults couldn't, nimble enough to navigate the spaces where floor became wall became ceiling. They learned which vines would support their weight, which moss colonies would glow brighter when sung to, which roots would part like curtains if you knew the right pressure points.
+
+By the second generation, they had begun to change.
+
+It started in their lungs. The constant inhalation of spore-thick air altered their alveoli, creating secondary chambers that could process the aerosol nutrition the trees exhaled during their hydraulic breathing. They no longer needed to eat as often. Their children were born with green-tinted sclera and hair that grew in patterns matching the bark grain of whatever district they were born in. The Foundry-born had hair like steel wool and rust. Those from the commercial district grew locks that spiraled impossibly, following the non-Euclidean logic of their birthplace.
+
+Now, in the third generation, they are something new.
+
+The **Grafted** move through the canopy roads on limbs that extend and retract like telescoping branches. Their bones are honeycombed with the same pneumatic chambers the scaffold trees use to pump water skyward. When they breathe, you hear it in their whole skeleton—a whistle-wheeze that harmonizes with the factory songs. They can hang from a single finger for hours, their bodies having learned the tree-trick of hydraulic rigidity. Their skin photosynthesizes enough to supplement what they breathe, turning darker green in direct sunlight, paling to birch-white in the eternal twilight of the lower levels.
+
+They organize themselves by trade, though the trades are nothing the original workers would recognize:
+
+**The Listeners** tend the neural nodes where the trees process their slow thoughts. They press their elongated ears against the bark and translate the chemical-electrical patterns into something like language. Their children are born deaf to human speech but can hear sap-flow from a hundred yards away. They map the city's dreams in notebooks made from the compressed peat of the forest floor, using ink that they excrete from modified sweat glands—a black substance that smells of machine oil and chlorophyll.
+
+**The Weavers** maintain the aerial boulevards, training new growth to follow the old traffic patterns. They have fingernails that grow in flat, blade-like sheets, perfect for grafting branch to branch. Their hair is prehensile, each strand capable of testing wind direction, humidity, chemical composition of the air. They braid new catwalks from living wood, singing to the trees in frequencies that encourage cooperation. When they work, they hang upside down for hours, their reversed circulation allowing them to think in the same inverted logic as the non-Euclidean districts.
+
+**The Shepherds of Moss** cultivate the phosphorescent colonies in the old foundries. They've developed transparent patches on their palms and foreheads where bioluminescent symbiotes live just under the skin, allowing them to communicate with the moss cities through patterns of light. Their children are born increasingly translucent, their organs visible through paper-thin skin that filters light like stained glass. They feed the moss their own dead, carefully, reverently, understanding that they're building something that will outlast even the trees.
+
+**The Clockwork Gardeners** tend the boundary zones where young trees grow in mechanical precision. They move in perfect synchronization, their internal rhythms aligned to the factorial twelve-hour breathing of the city. They have two hearts—the second one grown from modified lymphatic tissue—that beat in syncopation, allowing them to exist in the temporal loops where the same moment happens repeatedly. Their children are born with joint structures that bend in too many directions, enabling them to prune the reality-bending saplings into shapes that preserve the city's impossible geography.
+
+But perhaps strangest are **The Dissolved**, those who've given up the pretense of singular form altogether. They live spread across multiple bodies—a consciousness distributed through the root networks, surfacing in temporary human shapes when needed. You might meet the same person as an old woman in the morning and a young boy in the afternoon, both bodies sharing the same memories, the same gentle smile, the same habit of humming work songs from the factories' operational days. They reproduce by budding, growing new bodies from the walls of the maintenance tunnels like fruit.
+
+The Inherited don't use names anymore—they recognize each other by scent signatures, by the particular harmony their pneumatic bones make when breathing, by the way their photosynthetic skin darkens in unique patterns. They communicate as much through chemical releases as through sound, leaving message-scents on the bark that can last for months.
+
+They remember being human the way you might remember a dream—vivid but impossible, full of concerns that no longer make sense. Why would anyone live apart from the trees? Why would anyone need electricity when the bioluminescent current is so much warmer? Why count days when time flows in circles through the non-Euclidean districts?
+
+Still, they maintain certain rituals from before. Every shift change, when the respiratory whistles call across the mountain, they pause in their work. The Listeners stop translating, the Weavers cease their braiding, even the Dissolved consolidate into fewer bodies. They stand, or hang, or root themselves, and sing back to the trees in harmonies their grandparents would almost recognize—work songs transformed into something between human music and the sound of wind through leaves.
+
+They are not the city's owners, nor its prisoners. They are its children, its organs, its memory of what it was like to build things with hands before the hands became branches, before the branches became thoughts, before the thoughts became the slow, inexorable dreams of a city that is learning, day by day, how to be alive.
+
+And at night, when the photosynthetic currents pulse brightest through the bark veins, you can sometimes see them all breathing in unison—thousands of descendants of those first orphans, their bodies glowing faintly green in the darkness, inhaling and exhaling with the exact rhythm of the scaffold trees, no longer certain where the city ends and they begin.

@@ -1,0 +1,9 @@
+Dwelling within the Sunken City are the Abyssal Custodians, enigmatic beings that have made this eerie, otherworldly domain their realm. Appearing as massive, amorphous forms, their bodies undulate and drift through the viscous waters, their translucent forms shimmering with a bioluminescent glow.
+
+These Abyssal Custodians are the caretakers of the Sunken City, their sole purpose to maintain the delicate balance of this submerged world. With limbs that can expand and contract, they gently tend to the strange, gelatinous lifeforms that cling to the seabed, nurturing them and ensuring the continued existence of this fragile ecosystem.
+
+Their movements are slow and graceful, almost hypnotic to behold, as if they are in a state of constant, meditative contemplation. The Abyssal Custodians seem to communicate through a series of low, rumbling vocalizations that reverberate through the water, a language that is as alien and mysterious as the world they inhabit.
+
+Despite their immense size and power, these beings exude a sense of serenity and tranquility, as if they have attained a level of understanding that is beyond the realm of mortal comprehension. They appear utterly indifferent to the presence of any visitors, their attention focused solely on the maintenance of the Sunken City and its delicate, intricate web of life.
+
+To stumble upon an Abyssal Custodian is to be confronted with a being that seems to exist in a realm far removed from the surface world, a guardian of a lost and forgotten domain that operates according to its own inscrutable logic. Those who venture into the Sunken City can only hope to observe these enigmatic creatures from a respectful distance, lest they risk disturbing the fragile balance that the Abyssal Custodians so dutifully preserve.

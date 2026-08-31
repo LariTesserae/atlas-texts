@@ -1,0 +1,19 @@
+They are a people carved from the same damp wood as their homes, the **Strand-Walkers**.
+
+To look at them is to see a creature optimized for the vertical, chaotic crush of the High Rookery. They are not tall, but they are long—limbs possessing a simian stretch, articulated with extra joints that allow them to fold themselves into the wet, hollowed-out bulbs of the petrified trees like wet origami. Their skin is the color of a bruised mushroom, a pale, mottled grey that seems to absorb the mist rather than repel it. It is textured, roughened by decades of friction against bark and vine, coated in a thin, oily sheen that protects them from the perpetual damp.
+
+Their faces are dominated by sensory necessity. The eyes are large, dark, and protruding, protected by heavy ridges and a nictitating membrane that constantly sweeps away the condensation; they possess the panicked, wide-eyed look of a creature that is always watching for something falling from above. Their noses are mere slits, a defensive evolutionary trait against the ammoniac stench of the guano that coats the city like dust. Instead, they possess highly sensitive tufts of vibrissae—long, coarse whiskers—sprouting from their cheeks and chin, twitching constantly in the heavy air to read the vibrations of the footsteps and wings in the dark.
+
+They dress in layers of slippery, water-shedding furs and woven reeds, garments stained green by moss and black by mildew. There is no vanity here, only the desperate pragmatism of insulation. Around their waists, they carry tools of bone and polished stone—hooks for hauling, chisels for widening the ever-closing hollows, and heavy, blunt clubs for discouraging the wildlife.
+
+And they are never, ever alone.
+
+The Strand-Walkers share their vertical city with the **Skree**, a raptor-like species that possesses the cruel intelligence of primates and the beak of a vulture. These creatures are the background noise of the Rookery, leathery and loud. They nest in the upper vents, their young constantly demanding food, and they view the Strand-Walkers not with fear, but with an entitled, pecking aggression. A Walker must walk with a stick in hand, constantly swatting at the Skree that swoop down to steal the fish from their baskets or the fur from their backs.
+
+Beneath the walkways, in the flooded slurry of the plaza, live the **Muck-Thrashers**—sleek, otter-like lizards that grow to the size of draft horses. They are the scavengers, the garbage disposers of the Rookery, but they are also opportunistic predators. The Strand-Walkers know that to slip from a wet root-bridge is to instantly vanish in a thrashing foam of teeth and tails.
+
+This biological pressure has molded the psychology of the inhabitants. They are a frenetic people, incapable of stillness. Their language is a rapid-fire, staccato series of clicks and barks, designed to pierce the roar of the rain and the birds. They do not sleep deeply; they merely doze in shifts, huddled together in the orange glow of the hearth-fires, the heat keeping the pervasive rot at bay.
+
+Their children are born with the ability to cling instinctively to fur and bark. A toddler in the Rookery is as comfortable hanging from a moss-draped eave as a human child is on a rug. They are taught from their first breath to listen to the *hum* of the wood—to distinguish the creak of a settling root from the crack of a stem about to give way.
+
+To be a Strand-Walker is to be in a state of permanent, low-grade panic, held together by community and fire. They are the custodians of a rotting monument, fighting a war of attrition against the vegetation that seeks to swallow them and the fauna that seeks to eat them. They are twitchy, resilient, and loud, shouting songs into the mist to prove to the darkness that they are still there, they are still holding their ground, and they are not yet substrate.

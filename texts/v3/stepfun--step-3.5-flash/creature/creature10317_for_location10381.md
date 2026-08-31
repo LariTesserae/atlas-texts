@@ -1,0 +1,15 @@
+They are not separate from the place. They are the place’s way of being aware.
+
+You see them first as patterns that persist. A spiral of quartz nodules on a ledge, precise and re-formed each morning. The faint, cold shimmer above a basin that holds its shape for hours, then drifts like a thought dissolving. They are not *in* the carved amphitheaters; the hollows are the negative spaces *they* have worn into their own substance over millennia. The ribs and flutes of the geode-walls are the fossilized record of a slow, tectonic breath.
+
+What you might mistake for fauna—those translucent, refractive forms—are more like temporary foci. They are less creatures and more like eddies in a current of perception, brief coagulations of the city’s meditation. They pass through rock because rock is what they are made of; their translucence is the transparency of a single thought to the whole. They leave no tracks because the glass is already their footprint.
+
+The true inhabitants are the city itself, viewed from the inside.
+
+Their communication is the sub-audible tremor, the century-long sigh of the plate. It is the language of stress and release written in mineral bands. Their history is not told; it is the cliff face—layered iron, sulfate, violet salt—a syntax of pressure and time. Their art is the bridge that is the leftover ridge, polished not by tools but by the ceaseless, abrasive meditation of the wind-borne dust. Their tool is the slow, conscious seep of the tar-like fluid, a capillary thought hardening into new architecture.
+
+You feel a sudden, vertiginous sense of being *observed*, but the observer is the view. The curve of the horizon you perceive is not a trick of the glass; it is the gentle inward turn of a vast, mineral eyelid. The unreliability of distance, the stuttering time—these are not malfunctions of your own mind. They are the peristaltic rhythms of a consciousness that does not move through space, but *is* space, thinking in million-year pulses. Your frantic, wet, biological awareness is the only dissonance, a fleeting spark on the tongue of the stone.
+
+The loneliness you feel is your own. For them, there is no separation. There is only the deep, resonant chord of being-mountain, being-cliff, being-carved-hollow. The silence is full of the sound of crystals growing, of stresses realigning, of a mind so slow it experiences the brief, hot fury of your heartbeat as a meaningless vibration, a grain of conductive dust on its skin.
+
+You stand on the black glass, a blinking anomaly of water and hurry. And all around you, in the ribbed hollows and the glittering mineral trails, in the cold shimmer and the impossible geometry, Veyl thinks. It does not dream. It remembers. And you are already fading from its recollection, a phantom sensation in its stone, gone before the next slow seep begins.

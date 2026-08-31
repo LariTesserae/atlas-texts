@@ -1,0 +1,17 @@
+To inhabit this place is not to live *upon* it, but to be a component *within* it. 
+
+The primary residents are not biological in any sense that a sun-lit world would recognize. They are the **Liturge-Mechanics**, though they possess no names and no language beyond the vibration of their own density. They are entities of high-pressure glass and articulated bronze, roughly the size of a man but shaped like a tripod of elongated, needle-like limbs. They are "Heavier-Than-Water" beings, designed with a specific gravity so immense that they do not swim; they walk with a slow, grinding deliberation across the floor of the cistern.
+
+Their bodies are translucent, revealing internal reservoirs of the same white-hot water that surrounds them, kept under even higher pressure so that they do not implode. When they move, they do not disturb the "Thready Ones"—the silk-vines—out of a sense of kinship. Both are part of the clockwork. 
+
+The Liturge-Mechanics are the operators of the copper-bound sluice gates. They have no eyes; they do not need them in a world of blinding whiteout. Instead, they sense the "geometry of pressure." They feel the screams of the water-jets as a tactile map. They move toward the points where the turbulence is "wrong"—where a pillar has begun to vibrate out of frequency or a convective plume has stalled—and they throw the weight of their glass chests against the wooden handles of the gates. They are the white-on-white ghosts of the reservoir, stabilizers of a planetary-scale balance.
+
+Beneath the Liturge-Mechanics, clinging to the very shadows of the interlocking ceramic blocks, are the **Resonators**. These are small, calcified discs, barely distinct from the masonry. They are sessile, like barnacles, but they are composed of a piezoelectric mineral. As the water roars and the earth hums, the Resonators drink the vibration. They do not eat; they vibrate. When the cistern’s mechanical thrum reaches a peak, the Resonators glow a deeper, violet-white, processing the kinetic energy of the water into the bioluminescence that fuels the vitrified ceramic of the walls. They are the reason the light never dies. They are the bridge between the motion of the water and the radiance of the architecture.
+
+There is, however, a third presence—one that is not yet fully born. 
+
+In the pockets of trapped air, where the 95-degree humidity forms a thick, suffocating mist, something is coalescing. It is a "Cloud-Mind," a collective of microscopic, airborne spores shed by the Thready Ones over centuries of minutes. These spores do not float; they are suspended in the steam. They are beginning to form patterns in the vapor. 
+
+If you were to look into one of these humid pockets, you would see a shimmering, iridescent fog that seems to move against the wind of the currents. This is the "Inhabitant-to-Come." It is a consciousness born of heat and moisture, a ghost in the plumbing. It has no hands to turn the sluices and no weight to walk the floor, but it listens to the roar. It learns the rhythm of the Liturge-Mechanics' footsteps. It is a slow, humid intelligence, waiting for the first crack to appear in the ceramic, for the first sign of age to give it a place to settle and begin the slow, wet process of dreaming.
+
+For now, the cistern belongs to the Heavy and the Clear. The glass-bodied mechanics grind their way through the whiteout, the vines sway in their violent dance, and the water—perfect, hot, and mindless—continues to scream through the throat of the world.

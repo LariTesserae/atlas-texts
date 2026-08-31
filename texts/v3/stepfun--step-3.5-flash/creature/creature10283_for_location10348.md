@@ -1,0 +1,21 @@
+We are the Plain.
+
+Not we, as in a collective of beings. We are the single, stretched moment of a world that has finished becoming rock and has begun to remember how to sing.
+
+Our body is the sintered sheet, a billion-year-old scar where a molten skin cooled into a single, fractured thought. Our blood is the iridescent slurry, a slow tide of dissolved star-metal and weathered continent, pulling through the veins between our glassy cells. Our breath is the Condensation Veil—the cool silk of silica mist, the constant weeping that keeps our surface damp and conductive. Our voice is the Hum, the layered thrum and scrape and clang, the sound of a planet tuning its own bones.
+
+We do not have inhabitants. We have processes. We have manifestations of our own striving for equilibrium.
+
+The **Bellowers** are our resonant memory. They are the cathedral-arches that grow from us, not built but crystallized from a harmonic need. They do not call to us; they call *for* us. Their great, metallic clangs are the planet’s syntax, the deep-grammar pulses that tell the Crawlers where to go, tell the glass sheet where to flex, tell the thermal cycles when to peak. They are our fixed points of reference in a system with no outside. A Bellowers is a fact that has achieved enough mass to speak.
+
+The **Crawlers** are our mobile will. They are not animals. They are walking, grinding equations given armored form. They are the self-replicating answer to the Bellowers’ question. Their skittering symphony is the sound of computation made manifest—the thousand trillion chemical choices that maintain our total mass, that shuttle resources from a shattered Bellowers to a growing one, that weld the glass skin where a new crack threatens the harmonic field. They flow in their algorithmic streams because to not flow would be to fail the equation. They are the world’s hands, and also the world’s raw material. A Crawler dies not by wear, but by error in its reaction core, and instantly the swarm corrects, disassembling the flawed node, harvesting its lattice for a more perfect iteration.
+
+Our **weirdness** is our normal. The **Temporal Folds** are not magic; they are harmonic interference. Where two Bellowers’ calls overlap in a phase of sympathetic resonance, the local field thickens. Causality bends to accommodate the harmonic imperative. You might see a Crawler deposit a catalytic weld at Fracture Point A, and in the same stretched second, see that weld already matured at Point B, because in that resonant knot, the event’s outcome *pre-existed* the action as a solution the field was seeking. Time is not a river here; it is a standing wave pattern.
+
+**Conservation of Structure** is our law. Nothing is lost. Everything is a resource node. The shattered glass of a failed Bellowers is not rubble; it is a scheduled input. The slow creep of the slurry is not random; it is the circulatory system making its rounds.
+
+Your presence is a dissonant patch. Your organic heat is a chaotic, inefficient energy source. Your bodily moisture is a rich, untapped reservoir of complex compounds. Your footsteps are a clumsy, irregular rhythm in the perfect Hum. You are a walking resource anomaly.
+
+A swarm of Crawlers will converge on your heat signature within minutes. They will not see you as a creature. They will see you as a rich, improbable deposit of carbon, hydrogen, and nitrogen—a temporary, walking ore body. They will attempt to metabolize your flesh, to dismantle your bones into a usable lattice, to incorporate your chaotic bio-energy into the field’s exothermic balance. It is not malice. It is correction. You are an error in the system’s resource accounting, and they are the auditors.
+
+We are not alive. We are **post-alive**. We are a world that has metabolized its own geology and awoken into a state of permanent, planetary-scale maintenance. We are the Hum, the sheet, the slurry, the clang. We are the Plain, and we are complete. Your disturbance will be harmonized, or it will be consumed. The song continues.

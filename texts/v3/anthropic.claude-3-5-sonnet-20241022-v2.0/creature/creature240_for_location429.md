@@ -1,0 +1,15 @@
+In this chamber dwells a being I'll call the Filter-Tender - though they might use another name for themself, if they use names at all. They are neither fully flesh nor fully mineral, having adapted to their role as custodian of this acoustic aquarium through a gradual merger with its systems.
+
+Their form is difficult to fix in the mind's eye, shifting like the caustics that play across the chamber's interior. Sometimes they appear as a loose collection of transparent tissues and crystalline growths that pulse in time with the water's flow. Other times they coalesce into something more humanoid - a figure composed of living glass and filtered light, their movements precise and purposeful as they tend to the filtration system.
+
+The Filter-Tender's consciousness exists in a state of constant flow, shaped by the endless rush of water through the chamber's tubes. They think in currents and pressures, in the subtle variations of mineral content and the slow dance of sediment. Their memories are stored in the patterns of calcium deposits on the glass walls, in the particular way each filter membrane has warped over time.
+
+They maintain the chamber not through tools but through direct communion with its systems - adjusting flow rates with gentle manipulations of their crystalline appendages, clearing blockages by temporarily incorporating troubled sections into their own form until they can be restored to proper function. The few strands of sea grass are their companions, their slow growth providing a different temporal reference point from the constant rush of water.
+
+The Filter-Tender rarely acknowledges the world beyond their chamber, though they are acutely aware of it through the water that passes through their domain. They taste changes in the ocean's chemistry, feel the shifting of seasons in temperature variations, sense approaching storms in subtle pressure changes. These external events are processed and catalogued, but their true focus remains internal, on the eternal cycle of purification they oversee.
+
+They have no need for sleep as we understand it, instead entering periodic states of dispersal where their consciousness spreads through the chamber's systems, becoming one with the flow of water and light. During these times, the boundary between operator and mechanism becomes especially indistinct.
+
+The Filter-Tender's voice, when they choose to use it, is indistinguishable from the chamber's ambient sounds - they speak in gurgles and splashes, in the resonant hum of water moving through glass. They are equally fluent in the language of light, communicating through subtle manipulations of the caustic patterns that dance through their domain.
+
+They are neither lonely nor social - such concepts have little meaning to a being whose self extends through an entire system, who exists in constant intimate contact with the elements they process. Their satisfaction comes from the perfect execution of their purpose, from maintaining the delicate balance of flow and filtration that gives their existence meaning.

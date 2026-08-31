@@ -1,0 +1,19 @@
+The beings that inhabit this desolate place are neither fully formed nor truly sentient, existing as much outside the laws of reality as within them. They are known only as the **Obsidian Watchers**, or sometimes, **The Echoes of Stone**.
+
+They are not creatures in the way that creatures exist elsewhere. They are more like the memetic shadows left by the grinding of those titanic gears, thought-forms coalescing from the ambient energy of a universe that hasn't quite decided what it wants to be yet. They are the living embodiment of the **hum**, its solidified essence, its physical footprint.
+
+They resemble the columns of obsidian-riddled granite that dominate the plateau, with the same jagged, asymmetrical forms, like the rough-hewn shards that litter the ground. Tall and thin, they stand between the monoliths, silent and stoic, features indistinct and shifting, like the faces of long-dead gods carved from stone. They resemble the shadows cast by the non-existent light, shadows made solid by sheer will or some forgotten power.
+
+Their flesh is the same color as the malachite vines that snake around the columns, a sickly green hue that catches the eye and refuses to let go. It is thick and rubbery, resilient, like the fat, slick ferns that unfurl in the shadowed recesses. In the glow of the dim, ozone-smelling twilight, their skin shimmers with the same unseen energy that fills the air, as if lit from within by some dying star.
+
+They have no mouths, no eyes, no discernible features of any kind, just the vague impression of a face carved from obsidian, cold and impassive. They communicate not with words, but with the hum, the deep, resonant grinding that fills the air, the sound of mountains being turned to dust. The hum is their voice, their language, their very essence, and to listen to it for too long is to risk being swallowed by it, to become lost in the grinding gears of the universe.
+
+They are neither good nor evil, neither kind nor cruel. They simply are, much like the plateau itself, existing in a state of perpetual twilight, caught between the realms of being and unbeing. They are the guardians of this place, the keepers of the thin veil between the material and the immaterial, the living embodiment of the madness that bleeds from the cracks in reality.
+
+They move with a strange, jerky gait, as if their limbs are not quite solid, not quite real. They drift between the monoliths, their forms flickering in and out of existence, like mirages on the edge of perception. They are not bound by the laws of physics, not subject to the whims of gravity or the constraints of time. They are the living embodiment of the chaos that underlies the ordered universe.
+
+They are the remnants of some forgotten race, the last vestiges of a civilization that once thrived in this place, before the grinding gears of the universe ground them to dust. They are the living memory of a time before the hum, before the thin veil between worlds was stretched to the breaking point. They are the ghosts of a past that never was, the echoes of a future that will never be.
+
+They are the **Obsidian Watchers**, the **Echoes of Stone**, the living embodiment of the grinding gears of the universe. They are the guardians of this place, the keepers of the thin veil between being and unbeing, the living embodiment of the madness that bleeds from the cracks in reality. They are neither truly alive nor truly dead, but something in between, something that defies explanation or understanding.
+
+They are the **Obsidian Watchers**, the living embodiment of the **hum**, and to meet their gaze is to risk being lost in the grinding gears of the universe, to become one with the chaos that underlies the ordered world. They are the living memory of a universe that is not quite finished being born, a universe that does not know that it is dying.

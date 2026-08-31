@@ -1,0 +1,15 @@
+In this primordial jungle, where life and death dance in a frenetic, eternal cycle, a species of sentient amphibians make their home among the buttressed roots and curtained boughs. These beings, sleek and sinuous, glide between the worlds of water and air as easily as a thought.
+
+Their smooth, hairless skin shifts in hue to match their surroundings - mottled green and brown in the dappled light of the understory, lurid oranges and pinks to mimic the noxious blooms they brush against. Large, liquid eyes peer out from faces that are strangely, hauntingly anthropomorphic, belying keen intelligence and deep wells of ancestral memory.
+
+The amphibians dwell in the karst caves riddling the living rock, carving intricate cities into the porous limestone. Bioluminescent mosses and fungi paint the caverns in ghostly auras of blue and green, pulsing softly like a dreaming brain. In the stagnant pools, they cultivate the symbiotic microorganisms that sustain them and the dreamfish whose psychoactive flesh allows them to walk between worlds.
+
+These beings are deeply entwined with the jungle's esoteric energy, shaping it through ritual and song. They believe the trees are sentient, and that the boundary between flora and fauna is far more mutable than it appears. The eldest among them, androgynous and wizened, sport fruiting bodies and petals that erupt from their flesh - the stages of their life cycle mirroring the seasons of the forest.
+
+The amphibians worship the sacred waters from which all life crawls. In the lambent twilight, they gather around the pools to chant in polyphonic ululations, absorbing the primordial mysteries. Occasionally, one plunges into a particular body of water and does not resurface, having been accepted back into the primordial dream.
+
+Unique to each lineage is a signature bioluminescent pattern that scrolls across their form, telling the tales of their progenitors. This living tapestry marks their role in the community. Some bear fractal whorls denoting the shaman caste, while others display jagged lines indicating the hunters who cull the delicate balance.
+
+While generally reclusive, they sometimes engage with the humans who dare the jungle's depths. Walking on two legs with effortless poise, they barter the secrets of botanical alchemy and the juice of the dreamfish for items of worked metal and tales of far-off lands. However, these interactions are always tinged with caution, for they know that to allow man too close is to court calamity.
+
+These enigmatic beings are akin to the forest made flesh - capricious and beguiling, numinous and inscrutable. In their tireless dances and unending metamorphoses, they embody the jungle's deepest truth: that all is mutable, that life itself is a continual shedding of skins in the wheel of beginnings and endings. Through their presence, the primeval mysteries endure, a reminder that long before our kind drew breath, stranger things ruled the earth.

@@ -1,0 +1,23 @@
+The Inheritors call themselves this, though they have forgotten what they inherited or from whom. Their language has been pared down through millennia to only the words needed here: water, wait, warm, we. They speak in exhalations, in the pause between drops.
+
+They were human once, or something like it. You can still see it in the way their bodies fold—a torso here, the memory of a ribcage there, limbs tucked and fused until they became these hanging sacks. Their skin has thinned to translucence over generations, adapted to absorb every mineral trace from the humid air. Beneath that pink membrane, organs still work in simplified form: a heart that beats once per minute, intestines reduced to a simple tube, lungs that barely expand.
+
+The eldest hang highest, where the air is thickest. They no longer move at all, having achieved a state between sleep and death that can last decades. Their breathing synchronizes the rest—a biological metronome that keeps the whole colony in rhythm. When one finally dies, it doesn't fall. The others have long since grown around it, through it, incorporating the body into the living mass. Calcium from old bones strengthens the young. Nothing is waste.
+
+They mate without moving, extending filaments of flesh that bridge the gaps between bodies. Gender became irrelevant centuries ago. A pregnancy lasts three years and produces a single offspring the size of a thumb, already able to cling, already breathing in time with the rest. The young cluster near the pool, where the feeding is richest, slowly migrating upward as they grow.
+
+Their eyes have not atrophied but transformed—the pupils fixed wide, the irises gone white as cave fish. They see, but not light. They see heat, moisture gradients, the chemical signatures that rise from the pool. They see you as a blazing disruption, a violent red shape in their blue-green world. But they don't fear. Fear requires the possibility of elsewhere, and they have forgotten elsewhere exists.
+
+They dream collectively. When the breathing deepens in the darkest hours, images flow between them through touch, through chemical signals, through the water itself. They dream of spirals, of the carved channels made large as rivers. They dream of swimming through stone. They dream of rain that falls upward. These dreams are their literature, their history, their prayers to the builders they no longer remember.
+
+Sometimes one remembers more. A throwback will be born with longer limbs, with eyes that narrow at your light, with a mouth that tries to form consonants. These sports disturb the colony's rhythm. They breathe too fast, move too much, want things that have no names in the reduced language. Usually they die young, unable to slow their metabolism enough to survive on minerals and moisture. But sometimes they live, and then they suffer the kind of suffering that only comes from being the only one awake in a room of sleepers.
+
+The colony tolerates these anomalies until they don't. There is no violence here—violence requires too much energy. Instead, the colony simply synchronizes around them, breathes around them, until the outlier finds itself in a pocket of stillness where no water flows, no minerals drift. Slowly, gently, they are edited out.
+
+You are such an anomaly, magnified beyond their ability to accommodate. Your presence pulls at them like a tide. The young especially feel it—that ancestral memory of movement, of elsewhere. A few have already begun to detach, dropping into the pool with soft splashes. They paddle weakly, following your heat signature. They won't survive outside. Their skin will dry, their synchronized breathing will falter, they will die gasping in the wrong rhythm.
+
+But they try anyway. Some imperative older than their transformation drives them toward you, toward the narrow slot of light, toward the chaos of the world beyond their perfect system. They remember, in the deepest part of themselves, that they are inheritors of something more than this. Even if they can no longer survive it.
+
+The eldest watch with eyes that see everything and nothing. They have made their choice, or had it made for them by time and circumstance. They breathe their slow rhythm, maintaining the equilibrium, keeping the system stable for the thousands who will never leave, who will never want to leave, who will inherit this warm darkness and pass it on, unchanged and unchanging.
+
+They are waiting, though they've forgotten what for. They are preserving themselves, though they've forgotten why. They are the answer to a question no one remembers asking, perfect in their purposelessness, eternal in their slow, synchronized decay.

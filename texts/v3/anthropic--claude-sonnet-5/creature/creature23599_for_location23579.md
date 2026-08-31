@@ -1,0 +1,23 @@
+# The Terrace-Born of Vhalkurun
+
+They are built the way the mountain is built: in rings, in shelves, in generations stacked one atop the last and rarely climbing far from where they were laid. A person born on the four-hundredth terrace will likely die within forty rings of it. Not from law — there is no law against the climb — but from the simple accumulated weight of belonging to water-rights, bell-tone, garden-bed, family niche. The mountain teaches verticality as the first fact of existence, and its people think in terrace-numbers the way other places think in street names.
+
+## Bodies Shaped by Shelves
+
+They are compact, dense-muscled people, built low and strong for stairs rather than tall for plains. Calves like rope, backs that carry without complaint, hands permanently cross-hatched with the fine white scarring of stone-work and bramble-thorn. Skin tone varies by elevation as much as ancestry — the high-terrace families run pale and wind-cracked, squinting from generations in that thin bright crown-light; the low-terrace families run darker, damper-skinned, accustomed to mist and green shade, their hair perpetually curling with humidity no comb has ever quite defeated.
+
+Lung capacity is a point of quiet pride. Children born on the upper rings are tested early — sent running stairs with elders timing their breath — and the strong-lunged are sometimes fostered downward to forge-terraces where smoke and heat demand the same hardiness, while the rest stay high among the cisterns and goats.
+
+## Trades Worn Into the Skin
+
+Most adults belong, body and habit, to a single terrace-trade: the **stone-tenders** with their lime-burned forearms and permanently dust-pale knuckles, who re-point the retaining walls in the same patterns their grandparents used, by feel, not measurement. The **garden-relay folk**, lean and sun-spotted, who move plank-bridge to plank-bridge tending the upper roof-city, grafting fruit-trees into stacked rings, herding goats along ledges no outsider would trust their footing to. The **gear-house listeners**, who can diagnose a failing cistern-train by ear alone, walking the dark drum-warm chambers with their eyes half-shut, reading the groan of old iron like scripture.
+
+And then there are the **priest-mechanics** — a caste apart, found only near the rare upward-running channels. They dress slightly differently: dark oiled coats against the constant damp of their posting, hands stained permanent grey-black from pitch-glaze and old grease, faces oddly calm in a way the other terrace-folk find faintly unsettling. They are paid better, asked less, and marry mostly among themselves. Children raised near the uphill-water learn early not to ask why the drip runs backward, only how to keep the gear-trains that depend on it turning. The priest-mechanics do not explain. They tend.
+
+## Speech, Bearing, Belief
+
+Terrace-folk speak in a clipped, practical cadence, heavy with maintenance-vocabulary — words for seventeen distinct kinds of stone-weeping, for the particular ache of stairs in wet weather, for the exact moment of dusk when the bell-chorus rolls down-mountain and every terrace knows, by the changing detuned harmony, roughly how far up or down the sound has traveled. Strangers are identified instantly by their failure to flinch correctly at the bells — a terrace-born adjusts stride and breath to the tolling without thinking; an outsider keeps walking, two beats behind the mountain's pulse.
+
+There is a settled, unhurried fatalism to them, the temperament of people whose work is never finished and never meant to be — only continued. They do not build new things. They do not expect to. Ambition here is measured not in creation but in faithful continuation: a stair re-laid exactly as it was, a graft taken from the same root-line that has fruited that terrace for six generations, a gear-house kept turning one more lifetime without the relay ever stopping. Pride is quiet and structural. To say of someone "they kept their wall" is the highest compliment the terraces offer.
+
+They are not without warmth — the bell-hours bring whole rings out into shared courtyards, goat-fat and river-fish shared over long tables under dripping vine-roofs, children passed terrace to terrace by rope-bridge for fostering and courtship and trade — but it is a warmth built inward, shelf by shelf, the same way the gardens were built inward against the walls. They do not look outward much, because there is so little out — only up and down, and the long patient work of holding what their grandparents already built.

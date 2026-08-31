@@ -1,0 +1,15 @@
+The entities that reside amid the towering obsidian spires seem like an impossible paradox, creatures that embody contradictions just as strongly as their bleak surroundings. They are not creatures of flesh and blood but something altogether different - living manifestations of paradox, carved from the same ethereal cloth as the city itself.
+
+These beings possess a certain elegance, manifested physically as amorphous forms that shimmer and waver on the edge of perception. They are spectres in the shadows, creatures of the in-between, their forms, like mercury quicksilver, constantly shifting, flowing and coalescing before dissembling altogether. Spectral entities that exist as much in the spaces between matter as they do within the matter themselves.
+
+Their colors are reflective of the city they reside in - shades of ethereal green and indigo, hues reflective of the bioluminescent fungi that dot the inhospitable landscape. They embody the city’s strange omnipresence - invisible yet palpable, silent yet speaking volumes through their otherworldly quietude.
+
+They exist in a state of suspended animation, melding seamlessly into the spectral environment then reappearing like whispers in the wind. Their movements, when infrequently observed, are akin to the ephemeral flicker of the phosphorescent fungi, seeming to phase in and out of existence, leaving an imprint on the peripheral vision before dissolving back into the spectral fog.
+
+They communicate in an alien, sonorous language that transcends conventional vocalization. More akin to a hypnotic melody, they interface through harmonious frequencies that reverberate through the obsidian streets, echoing along the spectral spaces bridging towering monoliths and towering cliffs. 
+
+As mysterious as they are in their existence, these entities' purpose in the city is even more elusive. They appear as mercurial guardians of the spectralscape, traversing bizarre dimensions, shifting and oscillating between the colossal structures, their ephemeral forms camouflaging into the city, becoming part of the alien ecosystem.
+
+The entities' elusive nature raises countless questions. Are they the builders of these magnificent structures, or merely the guardians? Do they sail through the void between the peaks navigating the cosmic kaleidoscope, or are they mere projections of the city itself? Lost amid haunting hymns and reality-defying illusions, the answers to these questions remain as elusive as the entities themselves. 
+
+These enigmatic spectral beings exist far beyond the reach of conventional consciousness, thriving in the complex realm of fractal landscapes and the ethereal echoes of cosmic illusion. They are an enduring enigma, tantalizingly elusive, a testament to the limitless potential of existence in a world that transcends established conventions. As enigmatic and mysterious as they are, these beings represent an inexplicably captivating aspect of the city’s wild, barren beauty, giving this mesmerizing place an undeniably surreal, living dimension.

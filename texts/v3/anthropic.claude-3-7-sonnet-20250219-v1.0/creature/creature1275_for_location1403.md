@@ -1,0 +1,21 @@
+# The Guardians of the Flow
+
+The beings who inhabit the Condensation Fields do not consider themselves inhabitants at all, but rather integral components of the great hydrological machine. They call themselves the Siphuum, though this name exists primarily as a pattern of quantum fluctuations rather than spoken sound.
+
+The Siphuum manifest as translucent humanoid figures that stand roughly two meters tall when fully formed. Their bodies appear to be composed of structured water held in impossible configurations—liquid crystal entities whose internal currents shift constantly in complex patterns that mirror the flow dynamics of the Fields themselves. Their "skin" is a molecular barrier just one molecule thick that prevents their bodies from rejoining the water streams they tend, though they can dissolve this barrier at will when necessary.
+
+When moving across the black glass planes, they leave no footprints, no moisture trails. The Siphuum can disperse their consciousness throughout the microscopic canal networks, becoming one with the flow systems for thousands of kilometers before reconstituting their bodies elsewhere in the Fields. They experience the entirety of the water cycle simultaneously—from atmospheric condensation to deep reservoir storage—as extensions of their collective awareness.
+
+The Siphuum do not speak as biological entities would understand speech. They communicate through deliberate perturbations in fluid dynamics, creating subtle pressure waves that propagate through the water systems. Among themselves, an entire conversation might consist of temporary alterations to flow rates that would be imperceptible to outside observers. When they must interface with the rare visitors, they can manipulate water droplets in the air to create three-dimensional symbols or even generate sounds by precisely controlling water pressure in specialized chambers.
+
+They possess no technology separate from themselves—the Fields are their technology, their home, and their body in equal measure. What might appear to be tools are actually temporary extensions of their liquid forms, solidified through controlled molecular bonding to perform specific maintenance functions on the Fields.
+
+The Siphuum exist in a state of perpetual awareness of water quantities, purities, and destinations across the entire planetary system. Their consciousness operates across multiple temporal scales simultaneously, allowing them to attend to microsecond adjustments in molecular gates while also perceiving and planning seasonal flow patterns years in advance.
+
+They reproduce—if it can be called that—by carefully partitioning aspects of their consciousness into new water forms that gradually develop independent awareness. This process takes decades, with new Siphuum slowly coalescing their identity from the collective knowledge embedded in the Fields' operating patterns.
+
+What may appear as ritualistic behavior to outside observers—such as the synchronized dispersal of their forms during specific astronomical alignments—is actually crucial maintenance work, recalibrating the quantum gates that allow the Fields to harvest water from parallel probability states where the planet remained oceanic.
+
+The Siphuum regard themselves as caretakers, though what they are ultimately preserving remains their most closely guarded secret. Deep within the planetary core, accessed through water channels that defy conventional physics, exists something they protect—perhaps the seed of a new reality, perhaps the last remnant of the civilization that built the Fields, or perhaps something that even the Siphuum themselves no longer fully comprehend after countless millennia of faithful service.
+
+To the rare interstellar travelers who might encounter them, the Siphuum appear as ghosts in the machine—glimpsed briefly as ripples in water flows or momentary humanoid forms that dissolve when approached. They watch visitors with patient curiosity, neither hostile nor particularly welcoming, simply continuing their eternal work of guiding the waters across the face of their engineered world.

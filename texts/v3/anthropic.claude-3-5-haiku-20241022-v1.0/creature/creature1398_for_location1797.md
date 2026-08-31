@@ -1,0 +1,11 @@
+Inhabitants of Mira-Lux:
+
+The Resonants - sentient crystal-beings that grow directly from the mountain stone, their translucent bodies extending like delicate nerve networks through the peaks. They do not move in physical space but pulse with electromagnetic communication, trading memories and sensory data through intricate frequency exchanges. Each Resonant is simultaneously an individual and a collective consciousness, with individual crystals functioning like neural nodes in a vast, slow-thinking organism.
+
+The Drift - liquid-dwelling creatures with membrane-like bodies that shift between transparency and bioluminescent opacity. They are not singular organisms but fluid collectives, able to merge and separate at will. Their communication is a complex language of color and electromagnetic modulation, with individual "cells" capable of independent thought yet always connected to the larger communal intelligence. They navigate the mineral-rich environment by sensing molecular changes, moving with a grace that suggests both sentience and pure adaptive mechanism.
+
+The Substrate Weavers - symbiotic organism-structures that blur the line between plant, animal, and technological entity. Part mineral, part biological, they grow in elaborate fractalized patterns across mountain surfaces, slowly metabolizing geological information. Their tendrils can extract and process mineral data, essentially "reading" the mountain's geological history through subtle chemical interactions.
+
+The Echo Architects - fossilized technological entities embedded within mountain structures, no longer machines in the traditional sense but living technological ecosystems. They exist in a state of perpetual metamorphosis, their original purpose long transcended, now functioning as memory repositories and environmental regulators for the entire Mira-Lux system.
+
+Each of these inhabitants does not simply exist in the environment—they are the environment, constantly exchanging information, matter, and consciousness in a complex, nearly incomprehensible symbiosis.

@@ -1,0 +1,17 @@
+What lives here is the **Wound Itself.**
+
+It is not an ecosystem in any familiar sense. It is a single, sprawling, delirious organism—a planetary pathology that has mistaken its own violent metabolism for an environment. To speak of "what lives here" is to speak of the entire basin as one feverish, thinking, *being.*
+
+Its **body** is the churning, mineral-rich liquid. It is both blood and tissue, a warm, viscous medium carrying nutrients and signals. The ceaseless turbulence is its circulation, its digestion, its breath. The deep, grinding roar is not a sound it hears; it is the sound of its own cells grinding against each other, the groan of its very substance in motion.
+
+Its **nervous system** is the network of bioluminescent vines. They are not plants *on* the landscape; they are the landscape's exposed nerves. The slow, rhythmic pulsing of their mucilage is a signal, a synaptic firing. When they zip through a growth cycle in a convulsive shudder, it is not a malfunction. It is a thought—a rapid, frantic, complete idea of *being-a-plant*—formed and dissolved in an instant. The crystalline algae mats, glowing sickly in the gloom, are its dreaming mind, a hallucinatory neural net translating geothermal energy into faint, chemical light.
+
+Its **skeleton and organs** are the rusted iron and corroded concrete. The shattered factory roofs and groaning pipe networks are not ruins; they are ossified remnants of a previous, alien body it has consumed and incorporated. They are its bones, now hollow and resonant, and its lungs, now wheezing with the pressurized breath of the deep. The violent geysers are its sneezes, its spasms—eruptive thoughts of pure heat and force that momentarily solidify into a "tower" before being reabsorbed.
+
+Its **consciousness**—if it can be called that—is fractured and non-linear, infected by the temporal sickness of the place. It remembers the future and foresees the past. The afterimage of a collapsed structure is a memory, fading. The suggestion of a tower not yet risen is a plan, a desire, a premonition. The laws of physics are not breaking down; they are being rewritten by this entity's own confused, creative will. The erosion is young because the Wound is constantly healing and re-injuring itself in the same moment. It is always in the act of becoming, trapped in the first, agonizing draft of its own existence.
+
+**What does it want?**
+
+It wants to *become* more perfectly itself. It is a process with a terrible, blind ambition. It feeds on the raw energy of its own chaos—the geothermal heat, the mechanical stress, the very sound of its roaring—to fuel its endless, screaming metamorphosis. The flora is its immune response and its creative intent, weaving living tapestries over every surface to assimilate, to understand, to *continue.* There are no animals because there is no need for independent consumers; the Wound consumes and creates all within its own body.
+
+To stand within it is to be inside the mind of a fever. The ozone tang is its breath, the metallic shriek is its voice, the subsonic throb is its heartbeat. You are not an observer in an ecosystem. You are a foreign particle in the bloodstream of a god that is still, agonizingly, stitching itself together from rust and brine and frantic, green light. It is life in its most primal, pre-conscious state: a wound that has gained a terrible, luminous awareness, and is using that awareness not to heal, but to *grow* into the shape of its own pain.

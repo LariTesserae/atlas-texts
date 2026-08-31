@@ -1,0 +1,9 @@
+In this realm, the inhabitants embody the paradoxical essence of N'Terra. They are the Earthborn, beings crafted from the stones and waters of the land itself. Their bodies, a manifestation of the earth's elements, range from humanoid figures made of living rocks and pebbles, to beings that resemble the gentle flows and ripples of water. These individuals are said to hold ancient knowledge and deep understanding of the natural world, often acting as guardians of the balance in N'Terra.
+
+On a higher plane, the Wistful Ones dwell. These ethereal beings are born from the weeping sky, their forms morphing with the mists and clouds. They embody the melancholy yet resilient spirit of N'Terra. With the ability to manipulate the weather, the Wistful Ones can summon rains to nourish the parched lands or clear the skies for those who seek warmth.
+
+In the great expanse below, rivers populated by the Fluidics flow. These aquatic beings take the form of serpentine, human-fish hybrids, with bodies made from the flowing waters and currents of the rivers. They govern the life-giving rivers and teach the ways of fertility and growth to the other inhabitants.
+
+Finally, atop the Azure Mountains, the Vigilant Perch among the wispy clouds. These beings are the protectors, the keen eyes of N'Terra. With feathers made of starlight, they watch over all below, their songs the gentle breeze that whispers secrets to those who listen. Like guardians of wisdom, they guide those seeking truth and knowledge.
+
+These inhabitants of N'Terra, crafted from its very essence, not only embody the paradoxical nature of the land but also maintain the intricate balance of the world. They each carry a piece of N'Terra within themselves, and their harmonious coexistence is the heartbeat that keeps N'Terra thriving.

@@ -1,0 +1,17 @@
+At first you’d call them people, because they have streets and quarrels and shared fires and the habit of looking up when someone arrives.
+
+Then you stay long enough to see they are shaped by this basin more completely than most people are shaped by weather.
+
+They are low-built and rope-muscled, with broad hands and long toes that spread in mud like roots finding hold. Their skin carries a permanent damp sheen from oils rendered out of fish and marsh seeds; in the half-light it reads as bark, clay, water—whatever is nearest. Their eyes are large not for beauty but for economy: they gather the thin gray light and waste none of it. In rain they blink with a second, pale lid. Hair is worn close or braided with sedge cords so nothing catches when they move through root vaults.
+
+They call themselves, roughly, **the Reedbound**—not “owners” of the pocket, not even “dwellers,” but those tied into it. They do not think of building as making an object. Building is a verb that never ends: tightening a walkway after flood-pulse, reweaving a wall after beetle-bloom, lifting a sleeping platform two handspans because the peat has decided to breathe higher this week. A house is only “finished” in the way a nest is finished: briefly, and with attention nearby.
+
+Their city-sense is hydrological. Districts are defined by saturation, warmth, and drift routes, not straight lines. A child learns channels the way others learn letters: this lane runs fast after root-exhale; this clay lip fails in first freeze; this moss bridge sounds hollow before it sinks. They keep no clocks, but they can tell you the hour by midge height, by eel restlessness, by whether condensation falls or climbs.
+
+Speech is soft and close. At distance they use reed-clicks, hand signs, and thread-tugs run along walkway rails. Arguments happen in circles of kneeling bodies, with long silences while everyone listens to drip and wing and the underlying water pressure in the peat. Their law is practical and collective: who patches, who drains, who gets dry storage, who moves when a bank begins to peel away. Territory is real, but temporary enough to require memory more than monuments.
+
+They farm very little in the dryland sense. They **tend flows**: eel runs guided with wicker throats, moth curtains harvested for powder and fiber, fungal beds seeded in alder shade, snail shelves rotated between brackish and sweet pockets. They read animal behavior as civic data. A sudden quiet in beetle traffic can close a whole walkway. A heron choosing a new perch can trigger a week of path rerouting below.
+
+Their dead are not sent away. Bodies are wrapped in liverwort and placed in warm rot chambers beneath marked root arches, where heat, fungus, and time return them to the raft that holds everyone up. Ancestors are therefore literal infrastructure. To walk the town is to walk on generations, gently.
+
+And there is one more thing, harder to name: the Reedbound are not the only intelligence here. Over years, their habits and the basin’s habits have braided together so tightly that outsiders sometimes mistake one for the other. The town anticipates collapses no one announced. Swarms turn before any signal is given. New paths appear where no council met. Whether this is uncanny skill, distributed memory, or the marsh itself thinking through human hands—inside the pocket, no one bothers to separate the answers.

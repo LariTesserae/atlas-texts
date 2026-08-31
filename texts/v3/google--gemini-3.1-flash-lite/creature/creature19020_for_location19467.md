@@ -1,0 +1,17 @@
+In the absolute absence of biological imperative—where no vein pumps, no lung flutters, and no eye seeks a horizon—there exist the **Adjustors.**
+
+They are not entities in the sense of flesh or spirit. They are peripheral phenomena, visible only in the corners of the eye or in the split-second before a geometric plane tilts to accommodate a new pillar. If you were to fix your gaze directly upon one, you would find only the steam, the obsidian sweat, and the shimmering vacancy of an empty hallway.
+
+They are the "shivers" in the infrastructure. 
+
+When a three-hundred-foot wall descends into the foundation, it does not do so by gravity. It is pulled downward by the friction of a thousand phantom weights. These are the Adjustors: dense, localized densities of pure, kinetic intent. They possess no articulated limbs or faces, but they occupy the space where pressure is greatest. Think of them as knots in the weave of the world—places where the atmosphere grows so heavy it momentarily gains the solidity of a limb or a lever.
+
+They are the janitors of a forgotten blueprint. When the floor grids grind and lock, you may catch the silhouette of an Adjustor—a tall, spindly distortion in the steam, resembling a cluster of refracted lines or a distortion in the air similar to exhaust heat. They move with an exhausting, mechanical precision. They are not choosing to labor; they are the manifestation of the labor itself. A granite lever does not move because an Adjustor touches it; the Adjustor *is* the moment of movement. They are the friction that occurs when the world demands to be something other than what it was a moment before.
+
+In the pools of heavy water, where gravity pools like mercury, the Adjustors manifest as tremors. They are the unseen hands that hold the "mirrors" in the steam. They are responsible for the paradoxes—the folding of horizons and the visual echoes of the past and future. They treat the world as a tactile manuscript, constantly erasing and rewriting the basaltic ceramic, shifting the obsidian slabs as if checking for balance, for structural integrity, or perhaps in a desperate, recursive attempt to find a configuration that finally triggers an "Off" switch.
+
+They do not know you are there. To an Adjustor, you are a localized anomaly in the physics of the room—a soft, non-geometric static that complicates their calculations. When you walk, they do not step out of your way; they simply adjust the floor beneath you, tilting the grid by a fraction of a degree so that you are subtly diverted, treated as a pebble in a stream or an uneven patch of grit that the machinery must work around.
+
+They are lonely, not because they crave company, but because they have achieved the ultimate state of solitude: they are the machine, the operator, and the maintenance crew, all encased in a heat-drenched cycle that has run out of raw materials to build anything new. They are merely recycling the same cold basalt, the same weeping glass, the same bruised violet light, forever iterating on a design that was never meant to hold anything, save for the memory of the force that first set it in motion. 
+
+When you stand in the center of a plaza that has just finished rising, and you hear the quiet, satisfied *click* of a giant lever locking into place, you are hearing the Adjustor resting—a momentary exhale before the world decides, once again, that it is time to be dismantled.

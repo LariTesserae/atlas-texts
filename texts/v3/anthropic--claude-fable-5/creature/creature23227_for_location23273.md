@@ -1,0 +1,103 @@
+## Census of a Finished World
+
+The first honest answer is: almost nothing, and it has been almost nothing for so long that the *almost* has had time to become intricate.
+
+Life here did not lose to this place. That is the thing to understand before meeting any of its residents. Life here finished its negotiations ages ago, the same way the stone finished with the wind. What remains is not a struggling remnant. It is a settlement — in both senses. Every living thing on the Roof has reached terms with the place, and the terms are strange, and old, and apparently permanent.
+
+Take the census from the smallest upward. It does not take long. But go slowly anyway, because the smallest residents turn out to underlie everything, including the ground you are standing on.
+
+## The Frostwrights
+
+Remember the sheen on the rock — that faint polish you felt through your glove, the lacquered quality of the lit surfaces. It is not entirely mineral.
+
+When a pressure-front passes and smears its trace of moisture across the land, and a film of frost forms in the lee of a swell — gray-white, a few crystals deep, gone in hours — that film is not empty. Within minutes of its forming, it blooms. A community of organisms, none larger than a dust grain, wakes from the rock's surface, lives, metabolizes, divides, exchanges whatever it is they exchange, and dies as the frost sublimates away. Their entire active existence fits inside the lifespan of a frost film. Travelers call them *frostwrights*, when they speak of them at all, which is rarely, because you cannot see them; you can only see what they have made.
+
+What they have made is the polish.
+
+Each generation, drying, leaves behind itself: a residue thinner than varnish, a single molecular shellac laid down over the residue of the generation before. The continent has been frosted and bloomed and dried for longer than most worlds have had continents. The sheen under your glove is the compressed accumulation of that — trillions of generations deep, a biological lacquer indistinguishable now from the stone it coats. When the light falls knife-edged across the swells and the whole land gleams faintly, you are looking at the largest gravestone that has ever been built, polished by its own occupants.
+
+The frostwrights are, by mass, by number, by any measure except visibility, the dominant life of this world. They are also, in a sense you will come to appreciate, the only residents who are genuinely *busy*. Everything else here has slowed to match the stone. The frostwrights still live at the pace of weather — they simply do it in installments, hours at a time, separated by waits that may last years. A frostwright colony experiences the eternal storm as a creature of ordinary tempo would experience rain: an event, an occasion, a gift. They are the one population on the Roof for whom the world is still happening.
+
+## The Glasswort
+
+The mats are what frostwrights become when they stop waiting.
+
+That is the travelers' account of it, anyway, and the biology — what little can be done of biology here — does not contradict them. A glasswort mat appears to begin as a frostwright bloom that, by some accident of position, found a seam where moisture recurs: the edge of a calm zone, the precise lee of a particular swell, a crack in the fused glass of an old ruin. Given recurrence, the bloom does the unthinkable. It stays. It builds. Over centuries it raises that vitreous shell — bottle-green where it faces the open storm, the dark red of old blood where it faces the calm — and beneath the shell it becomes something with tissues, with structure, with what may as well be called a body.
+
+They are old in a way that resists the word. A mat a hand-span wide may have been growing since before the travelers' oldest stories. The mats do not die of age; they die of *circumstance* — a calm zone's seam shifting a few meters over ten thousand years, a frost-lee going dry — and circumstance here has nearly stopped happening. Most mats now alive will simply continue.
+
+Two things about them deserve your knees on the cold rock and your face close to the shell.
+
+First: the interior. Through the bottle-glass surface, in good light, you can see internal structure — layered, branching, dense — and the layers are not concentric like tree rings. They are *arranged*. The patterns differ from mat to mat, and travelers who have spent lifetimes among them insist the arrangements are consistent within a region, drift between regions, and change — very slowly, over generations of observers — as though revised. Whether this is script, or memory, or simply the shape that patience takes when it crystallizes, no one can say. The travelers have an expression for the look of glasswort viewed up close: *reading the closed book*. They do not claim to read it. They claim only that it is written.
+
+Second: the arcs. You saw them — mats arranged in faint curves and lines too regular for accident, tracing the perimeters of structures that no longer exist. Here is what sustained attention adds to that first observation: the arcs are *maintained*. When a mat in an arc dies — rarely, but it happens — the next mat to establish itself in that area, perhaps centuries later, establishes itself on the arc. Not near it. On it. Either the vanished foundations changed the stone's chemistry in a way that still summons growth after geological ages, or the glasswort is keeping a shape it was given, the way a hedge keeps a garden's plan long after the house has gone. The travelers hold the second view, without sentimentality, as a plain fact about their neighbors: the glasswort were gardens once, and nobody ever told them to stop.
+
+So the mats trace, across a continent, in living glass, the floor plans of the makers — the only map of that civilization that exists, drawn at one dot per century, by the gardens themselves, from memory.
+
+## The Threadfall
+
+The sky is not empty either. This is known from what falls out of it.
+
+After the greatest pressure-fronts — the ones that make your shadow tremble — travelers sometimes find, caught in the seams at the calm zones' edges, fine glassy filaments: a finger long, hollow, weightless, faintly green. They are clearly organic. They are clearly related to nothing on the ground. They are dead on arrival, always, dried and brittle, and they crumble within days into a dust the frostwrights seem to relish.
+
+The inference is unavoidable and has never been confirmed: the storm has its own inhabitants. Somewhere up in those seething translucent structures, in the braids and lenses of the permanent hurricane, an aerial life rides the turbulence and never comes down — a plankton of the storm, living and breeding and dying entirely aloft, of which the threadfall filaments are only the part that loses its grip. If this is true, then the largest habitat on the planet is the one no one has visited, the ground is merely the storm's floor, and the great wheeling violence overhead is not a weather-fossil at all but a *sea* — stocked, inhabited, possibly teeming — whose surface you are standing beneath, looking up.
+
+The travelers, asked about this, will point out only that the glider has to be eating something up there.
+
+## The Glider
+
+Now the single citizen everyone has heard of and almost no one has seen.
+
+The facts first, as the travelers keep them. It is flat, broad, dark, slate-textured, three to four meters across, headless or at least faceless. It rides the storm at altitudes where it is a fleck, surfing the pressure-fronts with no visible effort, sometimes motionless against the wind for an hour in a way that should not be possible in air that thin. It descends only to the calm zones, settles at the teardrop's edge — never inside the calm, never out in the open storm, always exactly on the seam — and grazes the glasswort with an underside that no living person has seen. It makes one sound: the low tone, felt in the sternum, several seconds long. Then it leaves. Any traveler may see it a dozen times in a lifetime. No one has ever seen two.
+
+Now what long watching has added.
+
+It keeps rounds. The sightings, when the spindle-keepers compare their records — and comparing these records is one of the few things that brings travelers together across distances — form a circuit. The glider visits the calm zones in an order, a vast slow itinerary across the continent, and the interval between visits to any one spindle is consistent to within days, across a cycle that takes years to complete. It is not foraging. It is not wandering. It is making rounds, and it has been making them, as far as the records go back, without ever missing a station.
+
+And its grazing is not feeding, or not only feeding. It crops the glasswort precisely where the mats grow thickest — at the seam, where the storm drops its moisture — and precisely enough to keep the seam open. Ungrazed, the mats would slowly close the teardrop's boundary, seal the seam, choke their own water source. The glider prunes them. It maintains the gardens that maintain themselves around the machines that maintain the sky. Whether it knows this, whether anything in it *knows* anything, is not a question the travelers find useful. They say instead: it does its work. They speak of it the way one speaks of a neighbor whose habits are reliable and whose business is his own.
+
+The tone is the contested part. Some hold that the tone is for the spindle — a report, a check, a word in the maintenance-language of the makers, delivered once per visit to each white needle, and that somewhere something is still listening to these reports and finding them satisfactory. Others hold that the tone is for *them* — that it began, or changed, only after people came to live in the calm zones, and that it is a greeting, or a census, or the whole of a language whose other speakers are gone. A few of the oldest keepers hold the bleakest and tenderest view: that the tone is the glider answering itself, the call of a creature that has spent the whole age of the world listening for a second voice, and that the reason no two gliders have ever been heard answering each other is that there has only ever been the one — the last animal, doing the rounds, calling at every station, in case.
+
+There is one more story, told quietly, in calm zones, late. That long ago a glider was found dead — fallen, or landed and finished, out on the open rock where nothing shelters — and that the travelers who found it turned it over before the dry wind could fix it to the stone. The story says the underside was white. Seamless, echoless, the same substance as the spindles, all the way through or with no through at all. The story says they set it back the way it had lain and told the others, and that this is why no one tries anymore to see the underside of the living one. The story is not verifiable and not doubted. If it is true, then the glider is not the last animal of the old world but the last *component* — a piece of the great machine that was made in the shape of a creature, or a creature that was finished, somewhere along the way, in the machine's material — and the storm's shepherd is also the storm's property.
+
+The travelers do not resolve this. They note that the glider tends what they tend, keeps a schedule as they keep schedules, and speaks once at each door. Whatever it is, they say, it lives the way things live here. That is citizenship enough.
+
+## The People
+
+Yes — people. You knew it from the phrasing all along: *travelers shelter there. No one has heard two gliders answer.* Someone is doing the hearing.
+
+They are few. Across the whole continent, perhaps some thousands — no one has counted, because counting would require gathering, and gathering would require leaving the calm zones untended. They live strung between the spindles like beads on a thread fifty kilometers long, one household to a teardrop, or a band of three or four, or — at many spindles — no one, only a frost-scraping cache and the marks of past keepers. How they came to the Roof is not remembered in any form they trust. There is no descent visible in any direction; there are no stories of climbing. Their oldest accounts begin, all of them, already here, already walking, as though the people condensed out of the place like frost.
+
+Their life is shaped entirely by the two geometries of the world: the teardrop and the distance between teardrops.
+
+Inside a calm zone, they have voices. Sound carries; water can be coaxed; the seam-gardens of cultivated glasswort — they have bred edible strains, blood-dark and slow, over more generations than they can name — grow at the boundary where the storm leaves its moisture. Inside the calm they speak, sing, teach, argue, keep the spindle-records, and sleep in the total silence with the white needle standing over them like a patient relative. Each spindle has a name, and the names are old, and some of the names are believed to be the makers' names for them, preserved through the glasswort arcs or the keepers' lists or means no one will specify.
+
+Outside the calm, on the open rock, they do not speak, because the thin air takes a voice and gives back almost nothing. The crossings between spindles — a long day's walk, or two — are made in a sign-language of the hands and a route-knowledge held as songs that are sung only beforehand, in calm, and then carried silently across the gleaming swells. To walk the open Roof is to move for hours through the breathing pressure of the storm, your shadow hard beside you, the horizon shivering, your own pulse the loudest thing in the world. The travelers regard the crossing as neither ordeal nor pilgrimage. It is the corridor between rooms of a very large house.
+
+Three of their customs will tell you most of what their living amounts to.
+
+First, the keeping of records. At every inhabited spindle, the keeper logs the glider's visits, the tone's length and depth as felt in the chest, the behavior of the seam, the threadfall after great fronts, the slow revisions in the glasswort's closed book. None of this is required of them by anything. The machine ran for ages without witnesses and would presumably continue. But the keepers hold — not as doctrine, just as the obvious way to live — that a maintained world deserves maintenance in return, and the only maintenance available to them is attention. They are the storm's clerks, self-appointed, unpaid, unbroken in succession for longer than their memory reaches. Some say the glider's tone began as an answer to the first records. Some say the records began as an answer to the tone. The two practices now keep each other.
+
+Second, the burial. When a traveler dies, the body is carried out of the calm — out of the silence, deliberately — and laid on the open rock, in the lee of a swell, in a spot chosen for how frost gathers there. Then the household withdraws and waits for a pressure-front. The body's water, the most water that ever sits in one place on this world, leaves it slowly into the dry air, and for a season the frost films in that lee come thicker than anywhere else on the continent, and the frostwrights bloom over the dead in generations beyond counting, and sometimes — the highest grace they know — a glasswort mat establishes itself there, on no arc, beginning a new written thing. The travelers' phrase for dying is *to water the stone*. They mean it without grief's ornament: the dead make weather, briefly, on a world that finished with weather long ago, and then they join the polish. Walk far enough on the Roof and some of the sheen under your glove is them.
+
+Third, the courtesy of the seam. No traveler harvests glasswort that the glider has grazed, until it has grown back past the grazing line. The rule is absolute and no one can say when it began. It is the entire treaty between the two species that live here — never negotiated, never broken — and it means that the people and the glider, who have never communicated and never will, have nonetheless divided the work of keeping the seams open, and have kept their shares, in good faith, for as long as anyone has been writing things down.
+
+They are not a melancholy people. This surprises visitors, who expect the residents of a finished world to be elegists. They are instead something closer to lighthouse-keepers in a sea that no longer has ships: dry-humored, exact, deeply attached to their stations, possessed of the particular contentment of people whose work is unnecessary and therefore pure. They do not believe the makers are coming back. Most do not believe the makers exist in any form. The minority view — held quietly, like the theory about the spindles — is that the makers went *up*: that the eternal storm is not the makers' machine but the makers' residence, or the makers themselves, thought stirred forever into turbulence by the white needles, and that the threadfall is its shed skin and the glider its one hand still reaching down. Keepers who hold this view do not record the storm's behavior any differently than keepers who don't. But they sign differently, some of them, when a front passes overhead and the light flickers — a small motion of the hand, not quite a greeting, the gesture you would make toward a neighbor's window when you cannot tell whether anyone is standing behind the glass.
+
+## The Largest Resident
+
+And then there is the storm itself, which must be counted, because everything else here is counted relative to it.
+
+Whether or not it thinks, whether or not it is the makers, it behaves — at the scale of the whole continent, over the whole of recorded watching — like the apex inhabitant of this world. It is fed (the spindles stir it). It is tended (the glider serves its stations; the keepers take its dictation). It houses its own ecosystem (the threadfall proves the tenancy). It waters its dependents (every frost film is its gift; every glasswort drinks at its seams; the people's gardens grow on its leavings). It buries the dead (the frost it sends blooms over them). Every living thing on the Roof, without exception, lives off the storm's table — lives, specifically, off the thin margin where the storm's violence meets the spindles' calm, that seam where turbulence drops its trace moisture like a tide leaving things on a beach.
+
+So the truest answer to who lives here may be: *one* — one vast, ancient, sky-filling resident — and then a household of dependents arranged around it. The frostwrights are its dust, living. The glasswort are its gardens, remembering. The threadfall-life is its blood, aloft. The glider is its hand, or its herald, or its last loneliness, making rounds. And the people are its clerks and tenants, keeping its books, speaking its silences, watering its stone with their dead.
+
+They live, all of them, the way the place itself lives: with motion and stillness traded. The frostwrights race through their hours and then hold still for years. The glasswort grow so slowly they are indistinguishable from the rock, and write all the while. The glider hangs motionless in a hurricane. The people cross a raging continent in silence and raise their voices only in the dead-calm shadow of machines. Nothing here lives *against* the world's condition. Everything has folded itself into the great old paradox overhead — chaos as the settled state, turbulence grown into peace — and made a home in the fold.
+
+Stand in a calm zone at the end of a day, when the keeper has finished the records and the blood-dark gardens hold the last light, and listen to the total silence with the storm wheeling soundlessly above, and you may feel the household assemble itself around you: the lacquer of the numberless small dead underfoot, the closed books glinting at the seam, the threads of the sky's hidden sea waiting to fall, the one dark shape somewhere aloft on its eternal rounds, the white needle standing over everything like the post of a door.
+
+Then, perhaps — a dozen times in a lifetime, so do not count on it — the dark shape descends, settles at the seam, crops the gardens to their treaty line, and sounds its single tone into your sternum: several seconds, low, neither question nor answer, the whole vocabulary of the finished world.
+
+The keepers log it. The frost comes when it comes. The storm continues.
+
+That is who lives there: the leftover, the lacquer, the gardener, the clerk, and the sky — a household of remainders, each keeping the others, on the roof of a world that ended so long ago, and so gently, that everything still living there mistakes the ending for home. Or does not mistake it. Knows it perfectly well, and stays.

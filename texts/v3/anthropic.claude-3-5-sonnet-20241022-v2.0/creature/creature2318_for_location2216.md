@@ -1,0 +1,15 @@
+In this living city, the primary inhabitants are beings I'll call the Resonants - entities that exist simultaneously as sound, light, and living tissue. They are the city's caretakers, architects, and essential nature, though to call them "inhabitants" may be too limiting, as they are as much a part of the place as its heartbeat.
+
+The Resonants manifest most visibly as ripples of harmonized light and vibration that flow through the translucent structures, but their true form is more complex. They are living frequencies that have evolved to inhabit the intersection of sound and bioluminescence. Their consciousness extends through the mycological networks that connect the buildings, expressing itself in pulses of light and subtle shifts in the chamber's ongoing song.
+
+Each Resonant is both an individual and part of a larger harmony. They communicate through modulated frequencies that humans might perceive as shifting colors or musical notes, but which carry far more complex information through the living tissue of the city. Their "bodies" can concentrate into more defined forms when needed - usually appearing as intricate patterns of light that flow like liquid crystal - but they're equally comfortable existing in a more diffuse state, spread through the city's systems.
+
+The transparent flying/swimming creatures are their sensors and servants - not separate organisms but rather specialized extensions of the Resonants themselves, like sensory organs that can detach and move independently. These "lens-birds" gather information about the chamber's conditions and help maintain its delicate equilibrium.
+
+The Resonants don't age in any conventional sense, but they do change and evolve, their patterns growing more complex over time. They experience time spirally rather than linearly - for them, the chamber's stasis is not static but rather a perfect dynamic equilibrium, like a standing wave or a sustained musical note.
+
+What appears to human eyes as a preserved moment is to them an ongoing process of renewal and refinement. They are constantly "composing" the city, adjusting its harmonies at scales too subtle for human perception. Every drop of water, every play of light, every architectural curve is part of their grand composition.
+
+Their consciousness is alien but not unintelligible - they are curious about visitors but interact indirectly, through subtle modulations of light and sound that might induce specific emotional states or communicate abstract concepts. They remember everyone who has ever entered their realm, encoding these memories into the very structure of their city-body.
+
+The Resonants maintain this pocket universe not just as a habitat but as a kind of living artwork or experiment - a demonstration of what's possible when the boundaries between organism, architecture, and art dissolve completely. They are curators of this alternative path of evolution, preserving it within the heart of the ancient banyan like a chord sustained forever in perfect harmony.

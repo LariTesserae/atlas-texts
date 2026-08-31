@@ -1,0 +1,17 @@
+In the interstices of this geothermal riot, there exists another inhabitant, one that is not part of the glowing tide, yet is defined entirely by it.
+
+They are the **Chitin-Weavers**, and they are as peripheral to the swarm as a shadow is to a flame. They are spindly, pallid, and long-limbed—creatures of stretched gravity and quietude. Evolution has stripped them of the need for internal light; instead, they have developed skin like burnished parchment, translucent enough to show the slow, rhythmic crawl of their own dark blood, but thick enough to withstand the abrasive touch of the scuttling hounds.
+
+The Weavers do not walk the floor of the cavern. To step into the path of the swarm is to be disintegrated, sanded down by the sheer velocity of the tide. Instead, they operate in the vertical stillness, anchored to the obsidian pillars by hooks of their own making—hooks forged from those very discarded shells they gather.
+
+They are the archivists of the heat. Because the planet is cooling, they act as if they are the last witnesses to the fever of the world. With long, nimble fingers that have evolved a surprising resistance to the acidic secretions of the swarm, they harvest the shed chitin from the clay nests. They do not build for comfort. They build for duration. 
+
+Deep within the fissures of the basalt, tucked away from the thundering migrations, the Weavers spend lifetimes stacking these discarded plates. They are constructing a lattice, an intricate, rib-like architecture that mimics the geometry of the swarm but serves an entirely different purpose: it is a vibration-dampener. By weaving their stolen chitin into these delicate, sprawling structures, they create pockets of absolute silence—small vacuums of stillness where they can retreat.
+
+Their faces are featureless, save for a complex array of sensory slits along the jawline that read the rhythm of the ground. They do not speak. To speak would be to miss the variation in the thrumming, the subtle shift in tectonic pitch that signals a rift opening or a flood of liquid hematite. 
+
+They are communal but solitary, rarely touching, and even more rarely congregating. When two Weavers meet in the flickering turquoise amber, they press their foreheads together for a fleeting, rhythmic pulse of muscle, a Morse code of shared survival, before slipping back into the vertical dark.
+
+They are the keepers of the debris. As the planet’s surface shifts and the geology remains violent and unweathered, the Weavers are the only things trying to leave a sediment. They are turning the history of the swarm into a monument of discarded armor. They know, with a cold and patient certainty, that the swarm will eventually cease to pulse, the heat will leech into the vacuum of space, and the planet will go quiet.
+
+When the light dies, the Weavers will be the only ones left, surrounded by their walls of glass-hard armor, standing in the dark, skeletal remains of the fire they spent eons watching. Until then, they drift through the glare of the hounds like ghosts moving through a forest fire, patient, pale, and utterly unilluminated, harvesting the cast-off skins of a world that is moving too fast to notice them.

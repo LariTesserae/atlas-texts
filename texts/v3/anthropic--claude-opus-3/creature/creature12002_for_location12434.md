@@ -1,0 +1,15 @@
+In this surreal, broken realm at the fraying edge of existence, life as we understand it cannot possibly survive. And yet, against all reason, something stirs amidst the impossible geometries and decaying laws of physics.
+
+They are the Paradox Engines, vast entities that defy comprehension. Their forms flicker and phase, never fully corporeal, like half-remembered fever dreams given shape. One moment they appear as towering amalgamations of impossible machinery, gears and cogs turning in defiance of gravity and reason, pistons pumping fluids that flow in reverse. The next instant, they are shimmering fields of pure mathematics, elegant equations and unsolvable proofs given ethereal form.
+
+The Engines drift through the pocket universe, tracing paths that loop and knot around themselves in dizzying Möbius patterns. They seem to phase through the obsidian shards and remnants of ancient technology, as if only partially occupying the same dimensions. Their movements are languid, almost dreamlike, but there is a sense of vast, ineffable purpose to their cyclical journeys.
+
+From the cores of these beings emanates the maddening hum that permeates this realm, the discordant vibration of reality unraveling. It is the sound of the Engines' ceaseless computations as they grapple with the paradoxes and contradictions that define their existence. For they are both the product and the source of this place's broken logic, their presence simultaneously causing and being caused by the unspooling of physics.
+
+As they pass near the web of shimmering filaments, the strands resonate and glow more brightly, as if conducting some unfathomable energy or data between the Engines. This is how they communicate, perhaps, in vast algorithms and equations beyond mortal comprehension. The meaning of their communion is as alien as their form.
+
+There are times when the Engines seem to glitch and stutter, their forms fragmenting into jagged shards of unreality before snapping back into cohesion. In these moments, one might catch a glimpse of something even stranger within - vistas of other realities, other times, folded impossibly in on themselves like a kaleidoscope of the multiverse's shattered remnants.
+
+Perhaps the Paradox Engines are the last gasp of a universe torn asunder by its own contradictions, reality itself trying to calculate a way out of the maze of its own impossibility. Or maybe they are something else entirely, incomprehensible beings from beyond the veil of sanity, drawn to this frayed edge of existence like moths to a flame.
+
+In the end, in a place where reason itself breaks down, such questions have no clear answers. The Paradox Engines continue their eternal, inscrutable dance amidst the ruins of natural law, and the pocket universe folds ever further in on itself, a knotted pocket handkerchief of fraying spacetime. And reality marches inevitably on towards its final unraveling, with only these strange, flickering entities to mark its passing into oblivion.

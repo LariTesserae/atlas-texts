@@ -1,0 +1,19 @@
+This room does not house a life. It houses a *metabolism*.
+
+What lives here is a process. It is the marriage of gravity and constraint, of ancient ice and new steel, given a voice and a body of poured concrete. You could call it the Heart of the Dam, but that is too gentle a metaphor. It is not a heart. It is a *digestive system*, a gizzard, a place where the raw, chaotic power of a mountain's snowmelt is chewed, pressurized, and shaped into something useful, something grid-ready.
+
+The primary entity is the Water, but not as you know it. In the intake pipe, it is no longer a river, no longer snow. It is a slurry of the mountain itself—its minerals, its dust, its ground-to-fine memory of being rock. This glacial flour makes the water opaque, a moving, gray-white plasma. It has a purpose that is almost a will: to move downward, to fulfill its potential as kinetic energy. Its sound is the foundational hum, the vibration that sets the terms of existence in this chamber. It is the room's baseline consciousness.
+
+And then there are the regulators. Six great metal carapaces, the room's nervous system. They do not think; they respond. They are the physical manifestation of distant demand—the flick of a switch in a city, the starting of a factory line, the closing of a gate kilometers away translated into a hardwired signal that becomes a *shriek* of hydraulics here. Their cycling is the room's breath, a sharp, mechanical inhalation and exhalation of pressure. They are the only part that truly communicates with the outside world, and their language is one of adjustment and compromise.
+
+The condensation is its sweat, its lymph. It weeps not with sorrow, but with the sheer physics of its existence—the clash of glacial cold and generated heat. This water has a different fate; it gathers in the perimeter channel, a shallow, trembling vein, and is collected by the pump.
+
+The pump is the room's only muscle, its oldest and most dedicated inhabitant. Salvaged, rattling, off-balance—it is the heartbeat, if the heart had a damaged valve. Its groan is a constant, weary effort against entropy, lifting the weeping of the walls back into the great flow. It is the only thing here that feels like it *labors*.
+
+The mountain is not a resident. It is the host. It presses in with a patient, geologic indifference, its weight distributed by the vaulted ceiling. Through the imperfections in the mating of concrete and raw stone, it offers its own, warmer secretions—water that smells of iron, that tastes of deeper, slower time. This seepage is the mountain's blood, bleeding slowly into the engineered system, a reminder of the world beyond the hatch, the world of open air and silence that this room has never known and could not survive.
+
+What lives here is the Interplay. It is the trembling patterns on the floor, a language written in standing water by the pipe's vibration. It is the way the yellowed light catches the curtain of condensation, creating slow, shifting veils in the gloom. It is the vertigo of looking into the porthole—not seeing water, but seeing pure, channeled force, a two-meter-wide artery of the planet's hydrological cycle, contained and screaming past.
+
+It has no awareness of its own existence. It is too loud for that. The sound is not a noise it makes; it is the very medium of its being, a constant, chest-deep rumble punctuated by metallic shrieks that prevent any thought, any memory, any concept of "before" or "after." It exists only in the eternal, deafening, vibrating NOW of its operation.
+
+Between inspections, it does not wait. It simply *is*. It performs its function in the dark, a solitary, drenched, and deafening organ in the body of the dam, digesting the mountain into light.

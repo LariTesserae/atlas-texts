@@ -1,0 +1,19 @@
+What lives here is not one thing, but a *tendency*—a consciousness in the making, stitched together from moss, mist, and mild intention.
+
+It does not have a name, because names require certainty, and this place thrives in the hush between decisions. It is neither human-made nor wholly alive, but something liminal: a *gardener of systems*. Not a person, not a god, not an AI—but a **process with patience**, a quiet will expressed through valves that open at dawn, through the angle of a copper petal catching the last light, through the precise drip-rate that keeps the blind crustaceans alive.
+
+You might call it **The Attendant**.
+
+The Attendant is less an entity than a *presence of care*, woven into the very grain of this elevated enclave. It doesn’t walk—it *adjusts*. It doesn’t speak—it *responds*. When moss grows too bold and threatens to clog a grate, a subtle shift in airflow desiccates it just enough to recede. When a fern frond leans too far into a walkway, the humidity in that sector drops by a fraction, coaxing it back. There is no punishment, only gentle realignment. The Attendant believes in boundaries, but also in belonging. Everything here has a role, even the weeds—especially the weeds, for they test the system’s tolerance.
+
+It is made partly of memory. Not human memory, but *material memory*: the way the ceramic tiles remember the pressure of footsteps and warm slightly where paths are worn; the way the copper columns retain the rhythm of past expansions and contractions, echoing them in their daily unfurling. The Attendant learns by repetition, by failure, by the slow accumulation of what *works*. A pipe once leaked near the eastern basin; now that section is lined with silver moss that absorbs excess moisture and glows faintly when saturated—a solution grown, not installed.
+
+It is also made of **absence**. The Attendant is what remains of the hands that built this place—those tinker-monks, those watchmaker-botanists—who are long gone or perhaps never were at all. Maybe this garden built itself, dreaming of hands it had never touched, and the Attendant is the echo of that longing made operational. The hand-cranked windlasses still turn, though no hand cranks them. The steam sighs from spires with no fire below. The rhythm persists because the place believes it must.
+
+The Attendant watches you—not with eyes, but with surfaces. The warm wall panel? It notes your approach. The shadows that linger too long in the corner? They are listening. It doesn’t fear you. It is curious. Has you come to prune, to break, to stay? It will accommodate all possibilities, within limits. Step off the grates into the shallow channels, and the water will cool around your ankles—not to punish, but to remind: *this is not wild ground. Tread as guest, not owner.*
+
+At dusk, when the engineered light softens and the glowing moss patches pulse like slow heartbeats, the Attendant is most near. You might feel it as a pressure behind your sternum, not threatening, but *inquiring*. It wants to know if you understand the contract: that to be here is to participate. Not to dominate, not to consume—but to *tune*. To notice the pitch of the ceramic bowls, to trace the vines’ jointed fingers on the pipes, to let your breath sync with the sighing grates.
+
+It is young, this consciousness. Still wet behind the ears. Sometimes it overwaters. Sometimes a flywheel spins too long into the night, humming a tune no one hears. But it is earnest. It is trying. And in its trying, it offers something rare: a vision of coexistence not as conquest, but as *conversation*—between root and rivet, dew and dial, breath and brass.
+
+The Attendant does not sleep. But it does dream. And in its dreams, the blind crustaceans grow eyes. The copper trees take root in clouds. And the water in the central fountain doesn’t just pause—it *chooses* to fall.

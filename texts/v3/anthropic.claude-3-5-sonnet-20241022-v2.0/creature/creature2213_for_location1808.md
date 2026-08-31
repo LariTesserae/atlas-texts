@@ -1,0 +1,19 @@
+The Shapers are a people whose very essence seems to merge with the living rock they tend. Their skin has taken on a translucent quality, like alabaster held up to light, with faint traces of mica shimmer in their flesh. They move with extraordinary deliberation - each gesture precise, considered, almost ritualistic. Their eyes have grown large and incredibly sensitive, with pupils that expand to capture the faintest luminescence, giving them an otherworldly gaze that reflects the cave moss's glow.
+
+They are not numerous - perhaps a few hundred at most - and they live in small family groups, each tending to their own growing section of the city. The eldest among them have fingers that have become slightly crystalline at the tips, a physical manifestation of their deep connection to their work. They can sense the mineral flows through direct touch, reading the mountain's intentions like a book.
+
+Children are rare and precious, born with an innate sensitivity to the rock's rhythms. They learn their art through apprenticeship, spending years just learning to listen to the stone before ever touching a shaping tool. They play games of balance and patience, standing perfectly still as crystal formations slowly grow around their feet, learning the mountain's timescale in their bones.
+
+The Shapers communicate primarily through subtle gestures and whispered tones that complement rather than disturb the ambient sounds of their environment. They've developed a complex language of touch and vibration, transmitted through the living rock itself. Their vocal speech, when used, has a musical quality that seems to resonate with the crystalline structures around them.
+
+Among them live the Dreamers - respected elders who spend long periods in meditation, their consciousness somehow entwined with the mountain's slow thoughts. These individuals help guide the overall growth of the city, sensing future needs and potential dangers. Their bodies eventually become partially crystalline, and they gradually become living pillars of the community, both literally and figuratively.
+
+The Stone Swimmers - those strange, pale creatures that move through rock - are treated with reverent respect by the Shapers. They're seen as the mountain's own thoughts made manifest, and their movements are carefully studied for omens and guidance. Some Shapers develop special relationships with individual Swimmers, learning to predict and work with their patterns of movement.
+
+There are also the Moss Tenders, specialists who cultivate the bioluminescent growth that provides their essential light. Their knowledge of the delicate balance between light and crystal growth is crucial to the community's survival. They wear robes embedded with living moss, becoming walking sources of the precise illumination needed for their work.
+
+The entire community operates on a rhythm that outsiders might find maddeningly slow - but to them, it's the natural pace of life, synchronized with the mountain's own heartbeat. They measure time not in days or years, but in crystal growth cycles and the subtle changes in mineral flows.
+
+They have no leaders in the conventional sense - instead, they operate on a complex system of responsibilities and relationships as interconnected as the capillary channels that feed their city. Decisions are made through careful consensus, often taking what outsiders would consider an extraordinarily long time, but which to them feels natural and appropriate.
+
+These people are neither entirely human nor entirely mineral, but something in between - as much a part of the mountain's growing process as the crystals themselves. They are the consciousness of this place, the guiding intelligence behind its evolution, and their own evolution has become inextricably linked with the space they tend.

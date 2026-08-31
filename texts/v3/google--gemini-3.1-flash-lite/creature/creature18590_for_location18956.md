@@ -1,0 +1,17 @@
+In the Foundry of Silt, the inhabitor is not a creature in the biological sense, but a lingering, iterative *necessity*. It is known as the **Silt-Mason**, though it possesses no flesh to carry the title.
+
+The Mason is a self-replicating structural anomaly—a collection of kinetic, semi-sentient debris that has sloughed off from the Foundry’s own walls. It is a silhouette constructed of disparate, scavenged parts: a tangled nervous system of scorched fiber-optic cables, a thoracic cage made of scavenged brass radiator fins, and joints fashioned from the very cog-gears that the rock has been trying to swallow for eons. It does not walk; it flows by re-assembling its own limbs, rearranging its rigid components to fit the razor-sharp apertures of the canyon.
+
+When the Mason moves, it sounds like a heavy heavy bag of rusted keys being dropped onto a sheet of wet granite.
+
+It serves as the Foundry’s immune system, or perhaps its janitor. It has no eyes; it perceives the world through the subtle shifts in the hydraulic pressure of the steam vents and the resonant frequencies of the pipes. When a tremor causes a tectonic shift—a groan of stone against stone—the Mason is there, scurrying vertically across the obsidian faces. It wedges its metallic fingers into the cracks, pulling, straining, attempting to realign the tectonic seams with the rusted valve-wheels. It is constantly adjusting the pipe-work, threading copper veins through new fissures, binding the planet’s open wounds with braided wire.
+
+It is a lonely, frantic task. The Mason acts with a desperate, jerky efficiency, driven by a ghost-program that demands *Integrity. Uniformity. Enclosure.* 
+
+It does not feed, but it "metabolizes" the bioluminescent condensation. The Mason collects the droplets on its radiator-fin chest, letting the fluid seep into its core, where it is distilled through the heat of its own internal frictions. The liquid is vital; without it, the Mason would seize and fuse into the rock, becoming yet another permanent, immobile feature of the canyon walls. It consumes the fluid to stay mobile, to keep its segments greased and operational, all to continue the endless, circular work of tightening bolts that will never stay tight.
+
+If you were to watch it for long enough, you would realize that the Mason is not repairing the Foundry—it is attempting to *finish* it. It is acting under the fading impression that the gargantuan, dormant machine it inhabits is waiting for a final turn of the screw, a final seal, that will cause the entire cathedral-chamber to ignite into some grand, cataclysmic function. 
+
+It is a creature of perpetual anticipation. It moves with the twitchy, obsessive rhythm of a watchmaker who has been locked in the dark for a thousand years, terrified that if it stops for even a singular heartbeat, the Foundry will shudder, collapse, and bury not only the machine, but the very concept of the work itself. 
+
+It has become the Foundry’s nervous system, its tactile memory, and its most tragic prisoner. It is the only thing in the deep dark that still believes the machine has a purpose, and it will keep bolting reality together until the basalt finally crushes its spindly, frantic frame into the silt, merging it forever with the walls it spent an eternity trying to save.

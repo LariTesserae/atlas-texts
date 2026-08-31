@@ -1,0 +1,17 @@
+The Akouvi are woven into Akou as inextricably as the city itself is woven into the caldera. They are not born of flesh and bone like the valley-dwellers, but cultivated, grown from the very fibers of their home. Imagine the thickest, most supple of vines, coaxed into bone-like rigidity, the flesh of the blister-pod trees stretched and molded into skin that gleams with an oily sheen.
+
+They're tall, impossibly so, their limbs elongated and impossibly slender. They move with a slow, deliberate grace, their joints bending at angles that seem wrong, almost insectile. Their steps are soundless, their bodies vibrating slightly with the constant hum of the caldera.
+
+Faces are rare among the Akouvi. Instead, many possess clusters of luminous fungi arranged into masks of emotion, the bioluminescence pulsing in intricate patterns that betray their thoughts. Those with faces proper are unsettlingly beautiful -- their features sharp and angular, their skin flawless and eerily smooth. The water that gathers on the rocks around them seems to bead and gather in the same place on their skin, somehow more at home on the crafted life of Akouvi than on the bare stone of the cliff face.
+
+Their clothing is not woven but grown. Shimmering leaves, dyed in the saturated colors of the caldera flora, are grafted directly onto their skin, forming flowing robes that shift and rustle with every movement. These garments are living things, constantly adapting to the environment, drawing moisture from the air and filtering it into the Akouvi's bodies.
+
+The Akouvi do not speak in the way that outsiders do. Their language is the language of the caldera: the rush of water, the hiss of steam, the rumble of the earth. They communicate through subtle shifts in the flow of water through the city, through the amplification of the caldera's natural rhythms, through the cryptic messages delivered by the detached, shimmering notes of the city's music. They understand the language of the plants as well, and coax them to do their will.
+
+They are not individuals in the way that outsiders understand. The Akouvi are facets of a singular consciousness, a collective intelligence that spans the entire city. Each Akouvi is a single nerve ending in a vast, organic brain, constantly processing information and enacting the will of the whole.
+
+Their purpose is to maintain the static dance, the eternal equilibrium of Akou. They tend the fungal networks, guide the flow of water, cultivate the bioluminescent flora, and ensure that the city remains in perfect harmony with the raw power of the volcano. They are the gardeners, the architects, the artists, and the priests of this strange and beautiful place.
+
+They are also deeply, profoundly alien, utterly detached from the concerns of the outside world. They have no need for trade, no desire for conquest, no understanding of concepts like greed or ambition. They are content to exist within the boundaries of their caldera, lost in the eternal symphony of heat and water. Their minds are unassailable. When you try to look at Akouvi, you have the sensation of looking into a deep pond -- what you see looking back is just a shifting, ephemeral reflection of yourself.
+
+The Akouvi are as strange and unsettling as the city they inhabit, a living testament to the boundless creativity and inherent strangeness of life. To meet one is to glimpse a reality beyond human comprehension, to be both awed and deeply, fundamentally disturbed.

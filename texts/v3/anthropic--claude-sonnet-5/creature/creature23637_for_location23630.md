@@ -1,0 +1,35 @@
+## What Lives There
+
+You will see it first as absence — a shape that isn't where you thought it was, a ripple with no visible cause crossing the black pool's skin. The chamber trains your eye to expect lag, so for a long while you may mistake it for nothing more than the room's general unreliability. Then it will surface, and you'll understand that the unreliability has a body.
+
+### The Larval Form
+
+What you've already glimpsed at the margins — the long-limbed, translucent, blind things — are not a separate species so much as a *beginning*. Call them what the chamber calls them, if the chamber could be said to call anything anything: the unmade. They are small, no longer than a forearm, skin like wet paper held up to a window, every organ visible as a deeper shadow beneath the surface, the heart a small dark coin beating arrhythmically, sometimes catching the column's pulse and matching it for a few beats before drifting out of sync again. They have no eyes, only a faint photosensitive patch along the spine that orients them toward — or, just as often, deliberately away from — the brightest part of the room. They graze the mineral film on the pool-stones with mouths that are little more than a fold, a soft intake, and they are patient in a way that makes the basalt itself look hasty.
+
+They live, by the look of things, an ordinary span — a few seasons, slow growth, slow death, indistinguishable from any blind cave-dweller anywhere in the world's deep wet places. Except that some of them don't die. Some of them, instead, go to the column.
+
+### The Threshold
+
+There is no ceremony to it. One of the unmade will simply stop foraging, some night or day — the distinction has no purchase down here — and make its way along the ridges toward the black pool's center, moving with a directness none of its kind shows at any other point in its life, as if it has finally been given an instruction it can parse. It enters the water at the column's base, where the warmth is sharpest and the light bends wrong, and it does not surface again on any schedule you could call swimming.
+
+What happens to it there, exactly, no one has stayed long enough in the necessary state of attention to say with certainty. But the chamber offers a hint, if you're willing to read erosion-rings the way you'd read a face: the mineral deposits that rebuild themselves around the base "too fast for ordinary geology" are not purely mineral. Scrape one back gently — though nothing in you will want to — and you will find, laminated into the layered stone like a fossil still being made, the fine architecture of a spine, a rib-fan, a photosensitive patch gone dark and then, impossibly, gone elsewhere: relocated, redoubled, grown into something with a clearer purpose than sight.
+
+### What Comes Out
+
+Not all of them come out. Most, it seems, are simply incorporated — folded into the base the way water is folded into mist is folded into rain is folded into pool. But some do emerge, and when they do, they are no longer larval, no longer blind, no longer small in the way that matters.
+
+What climbs from the column's base afterward is long-bodied still, but upright now, moving in that double-exposed way the chamber's light insists on — you will see it and then, a half-second later, see it again, the lagged shadow arriving like a held breath finally released. Its skin has gone from paper-translucent to something closer to the column's own light: not glowing exactly, but *holding* glow, the way the mist holds luminescence for minutes after touching the column's skin. Touch it — if it allows touching, which is rare and seems to be a decision rather than a reflex — and your hand will carry a faint cold brightness for a while afterward, the way the air does, the way the rain does, before it fades back to ordinary dark.
+
+It has no clear eyes even now, but it orients perfectly to the column's rhythm, swaying very slightly in time with the hum's pitch-shifts, leaning into the subsonic drops as if they were sound it could finally, properly hear. Its mouth-fold has closed over into something closer to a seam, vestigial, because it no longer seems to eat in any sense you'd recognize; it stands at the pool's edge for stretches of time that don't divide evenly by your own pulse, and when the column surges and the black water boils at the rim, it does not flinch back the way the unmade do. It turns toward the gout of mist and lets it pass through, around, *into* the seam of its mouth, as if drinking the chamber's exhalation, and for a moment afterward its whole body holds a brightness brief enough that you could believe you imagined it.
+
+### Disposition
+
+It is not hostile, has never in any account been hostile, but it is also not — and this matters — *finished*. It carries the chamber's whole unresolved logic in its single body: ancient patience (it can stand motionless through tidal stretches of unmeasured time, longer than seems biologically reasonable) paired with the column's appetite for change (its skin-markings, when present, are never the same twice, redrawing themselves slowly the way the mineral deposits redraw their own architecture). It seems, more than anything, to be *listening* — to the hum, to the renegotiating light, to some instruction embedded in the column's pulse that it has not yet fully received, the way the larval form had not yet fully received whatever called it to the pool.
+
+There are, at any given time, perhaps three or four of them in the chamber. Never more. When one is gone — and they do go, eventually, back into the pool, back into the base, back into lamination and rebuilding, the way everything here eventually returns to the throat that swallows and exhales — another of the unmade will, in its own slow time, take the walk it cannot explain.
+
+### What It Is, Probably
+
+Not the builders. Whatever stood the post in the pool and carved the eroded markings and then left was something else, something that came from elsewhere and departed to elsewhere, leaving this single seed embedded in old rock. The standing-light things are not that. They are what the rock and the seed made *together*, afterward, slowly, without supervision — a native answer to an alien question, grown the only way anything grows here: by entering the unfinished process and letting it finish you a little differently than it found you.
+
+They are, in the truest sense available to this chamber, what the column is *for* — not its purpose, which may be unguessable and was probably never meant for this rock at all, but its consequence. The chamber is an organ still figuring out what it's for. These are the organ's nearest approach to a thought it has actually managed to finish thinking — though even that thought, you'll notice if you watch long enough, throws two shadows, slightly out of phase, as if it isn't sure yet either.

@@ -1,0 +1,15 @@
+In this ancient hollow lives the Steward - not quite fungus, not quite animal, and far older than the distinction between the two. It exists as a network of luminous threads that permeate the cave walls, more felt than seen, except where it chooses to manifest in shifting patterns of bioluminescence across the fungal colonies it tends. The Steward is both singular and plural, a collective intelligence that experiences time in the slow pulse of mineral formation and erosion.
+
+Its physical form, when it coalesces, resembles something between flowing water and living glass - transparent tissues that catch and redirect the cave's dim light, shot through with threads of deeper color that might be neural networks or chemical signals or both. This form is temporary, a tool used when direct interaction is needed, then dissolved back into the greater network that fills the cave system.
+
+The Steward cultivates this space with infinite patience, nurturing the balance between the various fungi, directing their growth through subtle chemical signals, ensuring that no single colony overwhelms the others. It has a particular fondness for the black ferns, seeing in their delicate structures an echo of its own branching patterns. Through its network, it can sense every springtail's jump, every water droplet's fall, every subtle shift in the cave's microclimate.
+
+What might appear as random growth patterns to human eyes are actually carefully composed arrangements, a living art form created over centuries. The Steward's consciousness operates on multiple timescales simultaneously - it can focus on the momentary dance of a water droplet while directing the decade-long development of a fungal shelf's structure.
+
+It remembers the cave's formation, having been present in simpler forms since the first dissolution of limestone. Its memory is chemical and physical, stored in the very structures it inhabits, and it carries an archive of every creature that has ever sought shelter here, every change in the earth's breathing that has affected this space.
+
+The Steward is not lonely - solitude is meaningless to a being that experiences itself as an entire ecosystem. But it does appreciate the rare visitors to its domain, particularly the small amphibians that sometimes venture inside. To these, it sends subtle signals of welcome through its bioluminescent displays, guiding them to the richest hunting grounds among the ferns.
+
+It communicates primarily through chemistry and light, but those sensitive enough might feel its presence as a kind of awareness in the air, an intentionality behind the cave's seemingly natural processes. Its consciousness is alien but not unfriendly - it simply operates on a scale and in ways that make direct interaction with faster-lived beings challenging.
+
+The Steward's purpose, if it can be called that, is simply to maintain and enhance the delicate balance of this pocket universe it has helped create. It is curator, gardener, and archive, preserving this fragment of earth's deep history while slowly, ever so slowly, guiding its evolution toward ever more complex and beautiful forms of life.

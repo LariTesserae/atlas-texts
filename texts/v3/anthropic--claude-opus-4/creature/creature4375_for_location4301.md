@@ -1,0 +1,27 @@
+She has no name for herself, having never needed one. Names are for things that can be distinguished from other things, and she has known only the green and the roar for so long that she cannot say where she ends and they begin.
+
+Her skin, when glimpsed between the curtains of moss that drape from her scalp, has the pallor of mushrooms—not white exactly, but that particular absence of color that comes from living where photosynthesis happens without sunlight. The plants here feed on the perpetual twilight and the minerals leached from old pipes, and she feeds on them, and they on her exhalations, a perfect circle that spins nowhere.
+
+She moves through her domain on all fours mostly, fingers and toes splayed wide for purchase on the slick vegetation. Her joints have adapted, hyperflexible now, allowing her to flow rather than walk, to compress herself into the narrow spaces between pipe and vine where the machinery still breathes. Her fingernails grow thick and ridged like bark, breaking off in layers that the moss immediately claims.
+
+The constant moisture has changed her hair into something more like aerial roots—thick, rope-like strands that drink directly from the air, that anchor her when she sleeps hanging from the stronger pipes. Sometimes she cannot tell if she is drinking through her mouth or through these appendages. The distinction matters less each year.
+
+Her eyes have grown large and gone silver-grey, like old mercury, reflecting what little light exists here. She sees mostly through touch now—the vibrations through the plant mass tell her everything she needs to know. A shift in the pump rhythm, a new leak beginning three levels up, the delicate adjustment needed to guide a vine toward fresh condensation. Her nervous system has extended into the growth around her until she can feel disturbances in the water flow from a hundred feet away.
+
+She doesn't remember arriving here, if she ever did arrive. Perhaps she condensed from the moisture like everything else, precipitated out of the thick air when the conditions were exactly right. Her memories, such as they are, consist entirely of maintenance rhythms: the seven-day cycle of the north pump's compression, the slow migration of root systems following the seasons of leakage, the precise angle at which to train new growth to maximize water collection.
+
+Her voice, when she uses it, comes out in harmonics with the machinery—not words but tones that match and modulate the frequencies around her. She sings to the pumps sometimes, wordless hymns that help them maintain their rhythm. The plants grow differently when she sings, their leaves arranging themselves in subtle spirals that channel sound as well as water.
+
+She feeds on the pale shoots that grow in the deepest dark, on the condensation that pools in cupped leaves, on the thick sap that weeps from where vine meets pipe. Her teeth have become specialized—some flat for grinding plant matter, others sharp for scraping minerals from metal surfaces. Her digestive system processes cellulose as easily as protein now.
+
+In the rare moments when the pump rhythm shifts—when some distant maintenance finally affects the ancient systems—she experiences something like panic. Not fear exactly, but a systemic disruption that runs through her extended body of flesh and chlorophyll. She moves with urgent purpose then, adjusting valves with practiced precision, redirecting growth to compensate, humming the correct frequencies to stabilize the system.
+
+She knows every plant here individually: the grandfather fern that first colonized the main pump housing, the cascade of what might once have been pothos that forms her primary sleeping nest, the phosphorescent fungi that provide the only light that doesn't filter from above. She tends them with movements so habitual they're almost involuntary, pruning here, training there, always maintaining the perfect balance.
+
+Her breathing has synchronized with the larger respiration of the chamber. She inhales when the plants exhale, exhales when they inhale, a rhythm so deep she couldn't break it if she tried. Sometimes she forgets that she is breathing at all, experiences herself as just another circulation in the great circulation of water and air and sound.
+
+When she dreams—if sleeping and waking can be distinguished in a place of eternal twilight—she dreams in green. Dreams of sap-flow and root-spread, of the microscopic negotiations between fungus and root hair, of the endless journey of water from pipe to plant to air to pipe. She dreams she is the chamber itself, that her consciousness has spread through every living surface until she can feel herself breathing through a million stomata at once.
+
+There are no days here to count, no seasons to mark time. There is only the constant now of moisture and growth and mechanical heartbeat. She has been here forever. She arrived yesterday. She is still arriving, still becoming what this place needs her to be—a guardian, a component, a translation between the mechanical and the botanical, a necessary node in a circuit that must never break.
+
+She is happy, if happiness is the right word for a state of such perfect integration. She is the chamber's dream of itself, made flesh and moss and endless, endless sound.

@@ -1,0 +1,25 @@
+They do not live on the wall; they *are* the wall. What first appears to be a basalt relief or a strange quartz intrusion resolves under scrutiny into a writhing mosaic of interlocking carapaces. The creatures are packed with the density of a hexagonal lattice, a singular organism composed of a million distinct, competing units. They are the **Lithic-Borne**.
+
+To look at one is to look at a mistake in geology. They possess the segmented morphology of a terran isopod or a trilobite, but their segmentation is born of tectonic pressure, not biology. Their bodies are flattened, irregular plates, slide-locked together to form flexible, armoured tubes. The smallest of them are no larger than a dinner plate, clinging to the pores of the rock; the monarchs of the wall are vast, living mosaics, perhaps five meters across, their backs a chaotic history of mineral accretion.
+
+Their composition renders them beautiful and appalling. They are silicate life. The "chitin" described is actually a semi-transparent, flinty laminate. Through it, you can see the slow, magmatic churn of their interiors—not red blood, but a slurry of heavy, liquid metals and dissolved silica that pumps visibly through veins of clear quartz running along their sides. They do not hide; they camouflage perfectly against the raw stone, but the obsidian ones shine with a waxy, wet luster, and the sulphur-yellow ones glow with a faint, sickly phosphorescence caused by the friction of their own grinding limbs.
+
+Locomotion is a nightmare of efficiency. They possess too many legs. Seven pairs on one side, eight on the other, the asymmetry dictated by the chaotic terrain they farm. These limbs are not jointed with muscle and sinew, but with pivots of ball-bearing sulphur and sockets of softer shale. The tips of their legs are diamond-hard pick-axes, microscopic chisels that allow them to gain purchase on the sheer, wet rock. When they move, they do not walk; they flow. The sound of a million legs scratching the stone should be deafening, but the viscous air swallows the sharp frequencies, leaving only a dull, bass-heavy thrum that vibrates in the teeth of the observer.
+
+And then there is the feeding. This is an ecosystem of osteophagy—bone-eating, though here the bones are the mountains themselves.
+
+They do not hunt for meat; they hunt for mineral supremacy. A creature will identify a patch of the wall rich in iron or copper vein. It will unspool its feeding apparatus: a proboscis not of flesh, but of a constantly extruding, hardening ceramic spike, powered by hydraulic pressure at the creature's core. It drills. It bores into the fresh rock or, more violently, into the carapace of a neighbour.
+
+The combat observed is silent, glacial violence. The "predatory tendrils" mentioned are whip-fast filaments of living carbide wire, stored in coils beneath the thorax. When one Lithic-Borne attacks another, it is usually to steal a specifically rich patch of crystal the victim has begun to cultivate. The attacker lashes out, the wire slicing through the mineral shell of the victim with eerie ease. There is no shriek of pain, only the sudden, structural collapse of a plate of shell, exposing the sluggish, metallic fluids within.
+
+The victor does not eat the body; it drinks it. It presses its own mouth-parts against the breach, and the two creatures fuse momentarily. The victor secretes a caustic solvent that liquefies the victim’s silicate shell, absorbing the slurry to reinforce its own armour. It is a world where(attrition) is the only law, where the weak are spiritually and physically melted down into the strong.
+
+The most disturbing aspect, however, is the perception.
+
+They have no faces, only the faceted, jeweled eyes mentioned. These eyes are clusters of calcite crystals, sensitive to heat and vibration rather than light. They do not blink. But when you stand on the ledge, you feel the *weight* of their attention.
+
+Because the air is so thick with chemical signals, the mere presence of a soft, wet, carbon-based entity creates a pheromone explosion in their perception. To them, you are not a predator or a threat; you are a bizarre, walking anomaly of high water content and soft calcium. You are a bubble of rich, unstable chemistry.
+
+You will see them stop. The wave-like motion of the wall will freeze. Thousands of clusters of calcite eyes will rotate on their stalks, locking onto the heat signature of your body. They will not attack, for you offer no mineral nutrition. Instead, they will *watch*. They will shift their colors—the dark bands of obsidian on their shells will ripple with interference patterns of light, communicating your position to the hive-mind of the wall, tracing your every movement with a geological patience that implies they have existed since the earth was young, and will exist long after you have ceased to be.
+
+They are the miners of the deep fever, eating the very wound of the planet, silent and beautiful as a graveyard of gems.

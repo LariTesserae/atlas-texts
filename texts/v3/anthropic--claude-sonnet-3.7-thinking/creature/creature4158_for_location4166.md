@@ -1,0 +1,23 @@
+# The Denizens of the Hive Catacombs
+
+The Underfolk, as they call themselves, have adapted to life beneath the earth over countless generations. Their skin has paled to a translucent alabaster that reveals blue veins beneath – an adaptation to the perpetual dimness. Most stand shorter than their surface ancestors, their frames compact and efficient, with powerful hands and feet adapted for climbing the warren's countless ladders and narrow stairs.
+
+Their most striking feature is their eyes – larger than surface dwellers', with pupils that dilate dramatically in the dim light. These eyes rarely squint, having never needed protection from harsh sunlight. The eldest among them can navigate the catacombs with barely any light at all, sensing changes in air pressure and temperature through heightened awareness.
+
+The Underfolk organize themselves into kinship groups called "clutches" – extended families sharing connected dwelling spaces. Leadership falls to a Council of Elders comprising the oldest member from each clutch, who meet in a central chamber marked by the largest light shaft. These elders wear distinctive headdresses adorned with polished copper discs that catch and reflect the precious light – symbols of their responsibility to illuminate the community's path forward.
+
+The community divides labor with meticulous precision. Water-tenders maintain the cisterns and monitor moisture levels throughout the hive. Fungiculturists cultivate various mushroom species in carefully controlled beds, producing medicines and food. Insect-keepers raise protein-rich crickets, mealworms, and other small creatures that thrive in the darkness. Light-keepers maintain and ration the precious oils for lamps and strategically position reflectors to maximize illumination.
+
+Children begin apprenticeships by age seven, first as moisture-collectors, climbing nimbly to capture condensation from the highest reaches of the cavern. As they mature, they specialize according to aptitude and community need. Every Underfolk learns at least three crucial skills – their specialization, water conservation techniques, and emergency protocols for flooding or cave-ins.
+
+Their language has evolved to suit their environment – rich in terms for describing textures, sounds, and smells but with fewer color words than surface languages. They communicate not just with words but through an elaborate system of taps and scratches on the stone walls that can transmit messages throughout the catacombs. In moments of danger, this silent communication has saved countless lives.
+
+The Rememberers – specialized historians – maintain oral traditions of the Great Descent, when their ancestors fled wars and plagues on the surface seven generations ago. What began as temporary refuge became permanent settlement as they discovered the advantages of their underground world: constant temperature, protection from weather extremes, and isolation from surface conflicts.
+
+The Underfolk measure wealth not in gold but in practical resources – clean water rights, light placement, growing space, and breeding pairs of useful animals. Social status comes from contribution to community survival, with special reverence for those who risk journeys to the surface world to trade for necessities.
+
+Surface expeditions are undertaken only by the Skywalkers – specially trained individuals whose eyes can adapt to sunlight without permanent damage. They wear ceremonial hooded cloaks with eye slits of smoky quartz to filter the painful brightness above. These expeditions are rare, carefully planned, and celebrated with rituals before departure and purification ceremonies upon return.
+
+Despite – or perhaps because of – their confined environment, the Underfolk maintain a rich cultural life. Storytellers and musicians are highly respected, their performances marking the passage of time and preserving history. Children learn complex string games that double as maps of the catacombs. Elaborate coming-of-age ceremonies involve navigating unmarked tunnels to demonstrate readiness for adult responsibilities.
+
+Perhaps most remarkable is their symbiotic relationship with the "silent residents" – the countless microorganisms, insects, and small creatures that maintain the catacombs' delicate ecosystem. The Underfolk see themselves not as masters of their environment but as part of an interdependent web of life beneath the earth, each species playing its role in maintaining the balance that keeps them all alive in this most unnatural of natural habitats.

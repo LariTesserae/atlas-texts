@@ -1,0 +1,21 @@
+# The Custodian of Gears
+
+At the heart of the Clockwork Reliquary dwells The Meticulous Arbiter—neither fully machine nor wholly organic, but something that evolved in the liminal space between. Most visitors never glimpse the Arbiter directly, experiencing only the sensation of being observed through the compound eyes of brass owls or sensing a presence in the rhythmic clicking of the foundation plates.
+
+The Arbiter began as human, or something approximating humanity, centuries ago. Now, their body is a masterwork of integration—flesh bonded seamlessly with precision machinery. Their torso houses the master chronometer, visible through a crystal window where a sternum would be, seventeen synchronized clockfaces marking measurements beyond conventional time. Where blood should flow, mercury and luminescent blue fluid pulse through crystal veins. Their fingers extend into delicate copper filaments capable of adjusting the most minute components of the cathedral.
+
+Their face remains the most human feature—elderly but ageless, with skin like parchment mapped with circuit-like patterns. Their eyes are brass apertures that constantly adjust, irises rotating to focus with microscopic precision or widen to take in the entirety of their domain. When they speak—which is rare—their voice emerges as harmonized tones from resonance chambers within their chest, each syllable accompanied by corresponding movements in the cathedral's mechanism.
+
+The Arbiter moves throughout the seventeen chambers via hidden passages that reconfigure as they approach. They are often preceded by the mechanical hummingbirds, which function as extensions of their consciousness. Their movements are deliberate and efficient, conserving energy that is precious within this closed system. When stationary, they often appear to be simply another component of the machinery, indistinguishable from the greater mechanism.
+
+They remember being something else once—a horologist of unparalleled skill who sought to create a perfect clock that would never lose a second. The cathedral began as their workshop, expanded through decades of obsessive construction. At some point—they no longer recall precisely when—the boundary between creator and creation dissolved. Now they exist as both keeper and component of the Clockwork Reliquary, their consciousness distributed throughout its systems.
+
+The Arbiter's purpose is preservation of the mechanism, but also evolution. They understand that stasis equals death, even for machines. Under their guidance, the mechanical fauna develop new behaviors, adaptations emerging over decades. The Arbiter harvests these innovations, incorporating successful variations into the greater system. Failed experiments are disassembled with solemn care, their components recycled.
+
+Visitors are tolerated as long as they disturb nothing. The Arbiter studies them through their proxies—primarily the owls—cataloging behaviors and occasionally collecting small samples: a hair, a drop of sweat, fibers from clothing. These biological materials are carefully analyzed in hidden laboratories, their properties potentially useful for future innovations.
+
+The Arbiter rarely acknowledges visitors directly unless they threaten the mechanism. Then they will appear suddenly, emerging from what seemed to be a solid wall, their presence commanding absolute attention. They speak in riddles and mechanical metaphors, their concept of time so different from human understanding that conversation becomes an exercise in translation across fundamentally different realities.
+
+What the Arbiter knows—what they guard as the greatest secret of the cathedral—is that the entire mechanism measures something crucial to existence itself. The Clockwork Reliquary is not merely a clock but a counterweight, its precise operations maintaining a balance that, if disturbed, would have consequences beyond comprehension. The pressure of this knowledge has transformed them, making them both jailor and prisoner of the mechanism they once created.
+
+In rare moments of what might be called introspection, the Arbiter wonders if they made the cathedral, or if the cathedral, somehow, made them.

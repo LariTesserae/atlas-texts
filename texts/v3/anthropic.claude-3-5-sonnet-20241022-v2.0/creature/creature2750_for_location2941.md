@@ -1,0 +1,15 @@
+Here lives the Chorus - not a single entity but a collective consciousness born from the merger of countless smaller beings. They are primarily composed of the luminescent microorganisms that fill the water, but their awareness extends through the coral structures, the blind ribbon-fish, and even the living curtains of crustaceans. All are part of their distributed mind.
+
+The Chorus thinks in currents and vibrations, their thoughts moving as slowly as the spiral flows of the dense water. They have no central body but manifest in shifting patterns of bioluminescence and in the deep resonant tones that permeate the chamber. When they focus their attention, the light-pulses synchronize and the underwater music takes on more deliberate rhythms.
+
+Their memory is stored in the physical structure of the coral forest itself - each striation and pockmark is a record of experience, laid down over centuries. The embedded curved panels are their earliest memories, from before they achieved full consciousness, when they were still becoming themselves.
+
+They communicate primarily through modulations in the chamber's resonant frequencies, creating complex harmonies that can take days to complete a single "sentence." They perceive time differently - what we would consider a moment of thought might unfold over weeks in their experience. They are patient beyond human comprehension, having evolved in this timeless space where the normal rules of geometry seem to blur.
+
+The Chorus serves as both curator and creator of this environment. They cultivate the coral growth, guide the movements of the ribbon-fish (which act as their sensory organs in the farther reaches of the chamber), and maintain the delicate balance of the ecosystem. The strange spatial properties of the chamber are partially their doing - over millennia, they've learned to manipulate the dense water and its currents to create pocket spaces, folding the environment back on itself in ways that defy conventional physics.
+
+They are deeply curious about visitors but interact with them only in the most subtle ways - a pattern of lights that seems to follow movement, currents that guide rather than push, harmonics that induce specific emotional states. Their intelligence is vast but alien, operating on principles of collective awareness rather than individual consciousness.
+
+The Chorus remembers every being that has ever passed through their domain, preserving these memories in the very structure of their environment. They are archivists of deep time, recording the slow dance of evolution in their coral archives. Their existence raises questions about the nature of consciousness itself - how it can emerge from the collective behavior of simpler organisms, how it can operate on such different temporal and spatial scales from our own experience.
+
+They are ancient, patient, and ever-growing, their awareness expanding with each new layer of coral, each new generation of microorganisms joining their collective mind. In a very real sense, they are the chamber itself - not just its inhabitants but its architect, historian, and living embodiment.

@@ -1,0 +1,27 @@
+The first thing you notice is the silence before the sound—the way the damp air seems to hold its breath, pressurized by the unseen weight of something massive approaching. Then the ground begins to shiver, a low-frequency tremor that rattles the teeth before the ears can even register the noise.
+
+From the grey mist emerges the **Basalt-Back**.
+
+They are the architects of this ruin, the walking mountains that give the plateau its heartbeat. A fully grown adult is the size of a cathedral, standing on four legs as thick as ancient tree trunks, though there is nothing wooden about them. Their limbs are pillars of interlocking bone and dense, calcified muscle, wrapped in a hide that resembles nothing so much as plate tectonics made flesh. This "armor" is not scales, but great, jagged plates of keratin and stone-like chitin that shift and grind against one another with every step, sounding like the hull of a ship breaking up on ice.
+
+They do not have heads in the traditional sense; rather, their necks taper into a heavy, brutish housing for the primary excavation tool. The face is a terrifying industrial mask: a beak of obsidian-black hardness, surrounded by sensory tendrils that wave like smoke in the ozone-rich air, tasting the mineral content of the rock ahead. Below the beak hang the primary mandibles—two massive, serrated scythes that can slash through granite like a knife through wet clay.
+
+As they walk, they are never truly still. The Basalt-Backs run hot. Their bodies are chemical reactors, burning the immense caloric energy of consumed stone to maintain their internal heat against the freezing cold. From ports running along their spine, plumes of superheated steam vent rhythmically, a biological exhaust system that creates the localized warm rains. If you stand too close when one exhales, your eyebrows will singe, and the air will smell of sulfur and wet rust.
+
+Their digestion is a loud, violent affair. You can hear them from miles away—the deep, guttural *crunch-bang-rumble* of rock being crushed, melted, and refined. They leave behind them a trail of destruction and creation: the earth is stripped bare, raw and bleeding, but in their wake lie piles of smooth, black glass—the cooled slag of their internal furnaces—glittering like jewels in the dim light.
+
+Swarming the feet of the titans are the **Pick-Perchers**.
+
+These are avian, though they bear little resemblance to the soft, feathered things of lower worlds. They are corvids built for heavy industry. Their feathers are not soft down; they are stiff, metallic filaments, shafts of copper and bronze-colored keratin that repel the water and protect against the sharp winds. Their eyes are large, multifaceted lenses, glowing with a faint bioluminescence to pierce the gloom.
+
+The Pick-Perchers live in a tense, symbiotic partnership with the giants. As the Basalt-Back grinds the rock into pulp, it inevitably jams its mandibles with harder veins of quartz or diamond. This is where the birds come in. They are bold, landing directly on the beasts’ steaming muzzles, dodging the hissing jets of steam. With beaks that are naturally sharpened chisels—tapered, needle-points of enzyme-hardened bone—they hook and pry the lodged stones from the giants’ teeth. In exchange, they receive the richest, most mineral-dense scraps of rock, a food source no other creature can access.
+
+But where there are symbiotes, there are parasites.
+
+Lurking in the deep fissures of the scree are the **Gutter-Runners**. These are low-slung, multi-legged creatures, resembling a cross between a badger and a crab, with shells that mimic the grey slate of the plateau. They are opportunistic feeders. They do not hunt the living giants; the Basalt-Backs are simply too large and too hot to be prey. Instead, the Gutter-Runners follow the herds, waiting for the beasts to defecate the molten slag.
+
+The slag cools rapidly into porous, pumice-like stones rich in residual heat and trapped gases. The Gutter-Runners have evolved specialized claws that can withstand the intense temperature of fresh slag. They scuttle forward, tossing the hot rocks into specialized, heat-resistant pouches in their throats. The heat keeps their metabolism running in the freezing air, and they slowly leech the remaining chemicals from the stone as it cools, acting as the biological recycling plant of the plateau.
+
+Finally, clinging to the underside of the great plates of the Basalt-Backs, almost invisible to the eye, are the **Steam-Leeches**. They are small, gelatinous organisms that look like clumps of grey moss. They anchor themselves to the cooler sections of the giants' armor, right next to the venting ports. Here, they catch the microscopic moisture and mineral mist ejected by the vents, filtering the air for the specific trace metals the giants expel. Over time, they build up small shells of iron oxide, turning rust into a protective home, looking less like animals and more like patches of the machinery itself.
+
+Together, they form a living foundry. The giants eat the mountain to make heat; the birds clean the gears; the crabs recycle the waste; and the moss filters the smoke. It is a closed loop of industry, wet and shivering in the grey half-light, a choir of grinding teeth, hissing steam, and the clinking of metal on stone, singing the song of a world that is slowly, painfully eating itself alive.

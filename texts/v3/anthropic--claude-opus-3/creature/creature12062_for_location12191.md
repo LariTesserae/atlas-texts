@@ -1,0 +1,11 @@
+In this ancient stone city, hidden among the labyrinthine streets and chambers, dwell the Lithic Ones. Born from the living rock itself, these enigmatic beings are as much a part of the mountain as the carved blocks and flowing water. 
+
+The Lithic Ones take many forms, their stony flesh shaped by the gradual forces that sculpt the city. Some are lithe and fluid, their bodies polished smooth by ages of running water, allowing them to glide through the narrow channels and crevices with the ease of fish. Others are solid and immense, their powerful frames adorned with the same intricate patterns and designs that mark the city's walls, as if they themselves were hewn from the rock.
+
+They move through the city with a slow, deliberate grace, their footsteps barely audible above the constant murmur of water. Their eyes, when glimpsed, are pools of deep, reflective obsidian, holding the weight of centuries. In rare moments, they gather in hidden chambers, their voices rising in haunting, resonant harmonies that seem to emerge from the very depths of the mountain.
+
+The Lithic Ones are the guardians and caretakers of this place, tending to the delicate balance of stone and water. With their stony hands, they shape and reshape the city, guided by the whispered dreams of the mountain. They coax new channels for the flowing water, mend crumbling walls, and carve new spaces and passages as the city's needs shift over the ages.
+
+To mortal eyes, the Lithic Ones are nearly indistinguishable from the city itself, their forms blending seamlessly with the carved figures and friezes that adorn the walls. Only in fleeting moments might one catch a glimpse of movement, a flash of obsidian eyes, or hear the faint whisper of stone on stone as they pass.
+
+The Lithic Ones do not mark time as mortals do, for they are as eternal as the mountain itself. They have witnessed the rise and fall of civilizations beyond the valley, the coming and going of countless generations, as they maintain their silent, steadfast vigil. And they will endure, as long as the stone stands and the water flows, the living heart of this ancient, dreaming city.

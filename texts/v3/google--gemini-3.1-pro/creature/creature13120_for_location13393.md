@@ -1,0 +1,31 @@
+At first, you would swear there is nothing else. The blinding incandescence and the physical weight of the roar seem wholly incompatible with anything larger than the translucent, heavily armored limpets. It is only when your eyes adjust to the punishing glare—when your brain learns to parse the endless expanse of pale gold and bright white—that you realize some of the crystal stalagmites are not stone at all. 
+
+They are the curators of the noise. 
+
+You find them standing in the deepest, most electric-blue basins. They are immense, the size of draft horses, yet utterly graceful in their stillness. Over millennia, they have evolved to perfectly mimic, or perhaps naturally express, the hydrology and geology of the plateau. Their bodies are sheathed in an exoskeleton of layered, biological travertine, giving them the appearance of intricately carved statues of pale gold. 
+
+They are hexapods, possessing low-slung, heavily armored bodies built to withstand the relentless push of the deluge. Their four primary legs are massive and weighted, ending in splayed, calcified gripping-pads that lock flawlessly into the serrated textures of the terrace floors. Their two front limbs, however, are delicate, multi-jointed, and tipped with dense, crystalline chisels and scoops. 
+
+They have no faces as we understand them. A head would invite the blinding, scalding sun, so instead, their front segment slopes downward into a smooth, mirrored dome—a hood composed of pure, bioluminescent silica. They have no eyes. In an environment of absolute UV bombardment and permanent albedo glare, sight is a liability, an open door to radiation. Instead, these creatures perceive the world entirely through cymatics and thermal mapping. 
+
+Because the roar of the water is a solid, vibrating mass, the creatures are constructed like living tuning forks. Beneath their mineralized armor, their skeletons are porous and highly resonant. They do not hear the ten million cascades; they *feel* the exact resonant frequency of the plateau constantly humming through their bones. They can map the labyrinth for miles by reading the intricate, intersecting waves of vibration traveling through the shallow floods and the bedrock. Furthermore, they use the permanent, mist-born rainbows above the rims—not by seeing them, but by sensing the minute temperature variations and spectral heat where the atomized water refracts the intense sunlight. They navigate the blinding world by moving through floating arches of invisible warmth.
+
+To watch one is an exercise in extreme patience. They exist in a state of metabolic hyper-stasis, operating on a timescale entirely alienated from mammalian life. If you were to sit and watch one for an entire day, you might see a single limb shift an inch. Their movements are phenomenally, agonizingly slow, perfectly tuned to the geological accretion of the calcium carbonate around them. 
+
+Yet, they are busy. They are engaged in an eternal, region-wide labor. 
+
+Because the creatures "see" through harmonic resonance, any alteration in the acoustic landscape acts upon them like a physical pressure. If a natural buildup of precipitated minerals changes the scalloped lip of a terrace, altering the pitch of a localized waterfall from a perfect hum to a discordant hiss, the creatures feel it. It is an itch in their marrow, a dissonance in their environment.
+
+And so, they move, taking weeks to wade through a cyan pool, to reach the offending ledge. With movements so slow they are imperceptible to the naked eye, they use their crystalline front limbs to scrape, chisel, and sculpt the rock. They carve new flutes, widen sluices, or carefully pack mineral-rich sludge to raise a ledge. They are acoustic architects. The sheer fractal complexity of the labyrinth is not purely natural; it is the result of thousands of generations of these silent titans, endlessly tuning the stone to maintain a perfect, region-wide chord. The plateau screams perfectly in tune because they demand that it does.
+
+They fuel this monumental metabolism by grazing on the very limpets mentioned before. When a curator requires sustenance—perhaps once a decade—it simply lowers its massive, vent-like mandibles flush against the underside of a terrace and creates a localized, slow-motion vacuum, inhaling dozens of the translucent arthropods along with a rush of icy water. The water acts as a regional coolant for them, too; they continuously wick moisture up their heavy legs, allowing it to sheet over their silica domes and evaporate, keeping their internal organs from boiling in the sun.
+
+They are solitary beings, standing miles apart in the flooded terraces, yet they are intimately connected by the vibrations in the stone. They communicate by selectively dragging their chisels along resonant rims, sending subsonic pulses through the water—a slow, deep, thrumming language that pulses beneath the white noise of the cascades. It is a language of mathematics, flow-rates, and geometry. 
+
+Because they exist in an environment of eternal equilibrium—no seasons, no blooming, no dying—their lifecycle is similarly static. They do not breed in chaotic surges. Only when a member of their sparse population succumbs to immense age does the equilibrium shift. 
+
+When a curator senses its internal resonance fading, it does not fall or decay. It seeks out an unfinished curtain-wall or a roaring lip of a major cascade. It plants its four anchor-legs deeply into the basin, tucks its delicate front limbs tightly against its chest, and simply stops moving. 
+
+Within months, the highly saturated, endlessly flowing water begins to precipitate calcium carbonate and silica over the creature's shell. The pale gold armor becomes coated in white rime. The smooth dome becomes textured with fluted deposits. Over a few years, the creature is entirely entombed in the living rock, its vast body becoming a new set of interlocking basins, scalloped ledges, and weeping walls. 
+
+They do not die; they become the architecture. They become the labyrinth. And somewhere else on the roaring plateau, deep in a stinging blue pool, a thick, mineralized egg slowly splits open, releasing a small, perfectly tuned successor to take up the chisel, ready to tend the deafening, unchangeable engine of the world.

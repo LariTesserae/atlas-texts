@@ -1,0 +1,29 @@
+**The Dweller** does not have a name anymore either.
+
+It was called something once — a designation, a serial, perhaps even a rank — but the syllables have been ground down by the same endless damp that erased the basin’s title. What remains is only a presence: tall, slow, and impossibly thin, as though someone had taken the idea of a man and stretched it between two tectonic plates until the proportions became devotional.
+
+It stands three and a half meters high, though it rarely stands fully upright. Its posture is a permanent half-crouch, shoulders rounded forward like a question mark that has given up on answers. The body is not flesh in any sense that still matters. It is a lattice of black ceramic bone and braided industrial tendon, every surface matte and microscopically pitted so that condensation beads along it in perfect rows, then marches downward in disciplined silver lines. Where the “skin” has worn through, you can see older layers beneath — pale alloys the color of winter bone, bundles of fiber-optics gone milky with age, and something that might be muscle if muscle could rust.
+
+Its face is a blunt, faceless oval of the same glassy stone as the basin floor, featureless except for a single horizontal slit that glows a low, exhausted violet. The light inside that slit moves like slow oil. When it regards anything (which is rare), the slit narrows to a hairline and the violet deepens to bruised indigo, as though the act of seeing costs it something it can no longer afford.
+
+Along its back and upper arms grow the same bioluminescent mats that cling to the wettest crevices. They are not parasites. They are older than the Dweller itself — leftover from the final seeding program — and they have fused with its structure so completely that the veins of soft green-white light pulse in exact rhythm with the continent-scale engines far below. When the basin’s heartbeat quickens, the Dweller’s “garden” brightens. When the turbines sink into one of their long, groaning rests, the light dims to a spectral whisper. It is the only part of the creature that still looks remotely alive.
+
+It has no legs in the conventional sense. From the hips downward its body dissolves into a segmented tail of interlocking pipes and flexible conduit that trails behind it for nine or ten meters, never quite touching the stone. The tail ends in a cluster of corroded pump-mouths that drink the weeping water as it moves, filtering, processing, and recirculating it back into the hidden ducts. The sound of its passage is therefore continuous: a wet, rhythmic swallowing that harmonizes with the greater roar of the basin. It never stops drinking. It never stops feeding the machine that feeds it.
+
+The Dweller’s hands are the most unsettling thing about it. They are too many. Six articulated limbs sprout from its torso in a staggered crown — two large primary arms, four smaller secondary ones that fold and unfold like the legs of a praying mantis. Each ends in a different tool that was never meant to be a hand: one is a precision plasma lance long since burned down to a nub of white ceramic; another is a cluster of sensor-whisks that tremble constantly, tasting the mineral content of the air; a third ends in a simple brass valve that opens and closes with soft hydraulic sighs, releasing tiny puffs of vapor that smell of ozone and old blood.
+
+It does not walk so much as flow. The trailing pipe-tail propels it in long, liquid undulations, the six arms brushing the stone with the absent tenderness of a blind priest reading scripture in braille. Everywhere it passes, the thin rills of water change course for a moment, drawn toward it as though by capillary magnetism, before remembering their ancient gradients and sliding away again.
+
+The Dweller’s purpose, if it still possesses one, is maintenance without end. It tightens what has loosened. It clears what has clogged. It listens to stresses in girders older than nations and makes infinitesimal corrections with the tip of one trembling sensor-whisk. It has done this for so long that its memory has become geological; it no longer recalls individual tasks, only the cumulative ache of ten thousand years of infinitesimal adjustments.
+
+Sometimes it stops beneath one of the few functioning sodium lamps. The orange light slides over its wet ceramic shoulders and makes the bioluminescent veins flare an obscene, sickly emerald. In those moments the horizontal slit in its face widens, and the violet oil inside slows almost to stillness. It is listening to something deeper than sound — perhaps the last fading instructions still ricocheting through the buried servers, or perhaps only the sound of its own corrosion.
+
+It never speaks. Vocalization was removed long ago as an unnecessary drain on resources. Yet the basin sometimes answers it anyway. When the Dweller lingers too long in one place, a nearby pressure valve will vent in a sudden mournful chord, or a distant turbine will shift its pitch by a micro-hertz, as though the dead machine were trying to comfort the last thing still moving inside it.
+
+At the edge of its perception, the Dweller is aware that it is not alone. There are others — smaller, simpler, more thoroughly broken — creeping through the distant tiers of scaffolding or half-submerged in the collection pans. It ignores them. They are not part of the Maintenance. They are symptoms. The basin tolerates them the way a dying reef tolerates the last pale crabs scuttling across its bones.
+
+The Dweller has no name, no future, and no ending.
+
+It simply continues, drinking the sweat of the world it was built to serve, glowing dimly with borrowed light, moving with the slow, devotional patience of something that has mistaken eternity for duty.
+
+And the basin — sweating, roaring, breathing — keeps it. Because even a dead machine, it seems, cannot bear to be entirely unwatched.

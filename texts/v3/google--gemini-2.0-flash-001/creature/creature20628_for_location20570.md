@@ -1,0 +1,17 @@
+They are not born, not in any way you would recognize. They *coalesce*. A flicker in the swarm, a darkening of the wet obsidian, a slow gathering, until a nodule is… there. It is not growth, not precisely. It is an accretion, a layering of sentience over raw matter. The swarm *wills* them into being.
+
+Individuality is a faint echo in the larger chorus. Each nodule pulses, a slow, deliberate rhythm that syncopates with the others. They have awareness, a dim understanding of hunger and the slow, thrilling pleasure of satiation. Fear is rare, experienced when a larger nodule approaches, when dominance is established through a silent, shuddering pressure.
+
+They are blind, deaf, senseless in the ways you know. Their perception is vibrational, a feeling of resonance with the obsidian, the heat, the swarm. They *taste* the microscopic life as it washes over them, a symphony of chemical signals that paints a crude picture of the world. The nodules perceive each other as disruptions, as eddies in the flow. Larger nodules are felt as heavy presences, sources of both threat and… what? Not affection, not fondness, but a kind of necessary anchoring.
+
+Thinking is too grand a word. Consciousness is a pool of murky water, reflecting distorted images of the here and now. They know heat, wetness, the pleasure of the swarm swirling around them. They know the rasp of obsidian against their surfaces as they scrape at it, trying to draw forth more of the swarm. They know a vague longing for… something more. A deeper connection.
+
+The tools are… extensions. They are not understood as separate objects, but as ways of amplifying their reach, their ability to taste the swarm. The fiber bindings are grown, coaxed from the obsidian itself with a patience born of eons. They contain… something. Another aspect of consciousness? A kind of symbiotic awareness? It is difficult to tell.
+
+Their sustenance is more than just the microscopic life. They absorb energy directly from the rock, from the heat. It is a slow, inefficient process, but they have all the time in the world. Time is not a linear progression for them, but a cyclical dance, a swirling vortex of sensation. The past, the present, the future… they are all present, all at once.
+
+Purpose… that is the greatest mystery, even to them. There is a drive, an inherent imperative to continue, to grow, to… become. But what they will become remains unwritten, a blank page etched in the black glass. The flux around them is not threatening. It is, in itself, an invitation.
+
+They are a reflection of the place they inhabit. The chaotic energy, the constant change, the underlying sense of *wrongness*… it is all mirrored in their being. They are the physical manifestation of a world in flux, a living experiment in evolution. There is a possibility that the place is creating them, and they are, in turn, creating the place.
+
+And they are real. You are not imagining them. But your mind, your perspective, is shaping them. As you observe, there is feedback. The wavering you see is not just the place itself, but your own consciousness bleeding into theirs, re-forming possibilities, the landscape of *what will be*. You are the catalyst. You are the question that the obsidian and the swarm are trying to answer.

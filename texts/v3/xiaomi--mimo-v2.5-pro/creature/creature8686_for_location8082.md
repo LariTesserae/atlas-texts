@@ -1,0 +1,35 @@
+You are not alone. You have never been alone here, not since the first moment your weight compressed the root-mat. The presence is not hidden. It is simply so vast, so integrated, and so slow that your perception must adjust its timescale to recognize it.
+
+**The First Inhabitants: The Root-Mind and its Golems.**  
+The entity you have stood upon, walked upon, dug into with your hands, is the primary resident. It is not a single being, but a consensus. The continental root-mat—kilometers thick, saturated with mycelial data-nets and vascular hydraulics—is a slow, distributed intelligence. It does not *think* in flashes of neurons, but in waves of chemical signal and pressure change that traverse its body over hours and days. Its thoughts are about water: where to find it, how to lift it, how to store it. Its thoughts are about light: the great canopy-cathedral is its retina, and the dim, green-filtered photons are its sensory input. Its thoughts are about *growth*, a constant, patient imperative written in its deepest cellular code.
+
+From this root-mind, **specialized motile tissues** have differentiated. You might call them golems, if golems were made of packed root-fiber and sap-pressurized wood. They are not independent; they are extensions, mobile organs of the greater organism. Some are colossal—the size of buildings—slowly traversing the root-mat on root-legs, their bodies packed with compressed fungal tissue that digests fallen canopy-matter. They are the recycers, the soil-makers-in-waiting. They have no eyes, but their entire surface is sensitive to pressure and heat. They move around you with a distant, tidal patience, your presence a minor obstacle on a continental plain.
+
+Others are slender, whip-fast tendrils that emerge from the mat to probe new crevices in the weeping stone, or to lash around and support a struggling sapling-columnar. These are the builders and the adjusters. They move with a surprising, unsettling speed when correcting a structural weakness or capturing a newly-spawned spore-cloud from a reproductive percussion event.
+
+**The Canopy-Dwellers: The Fruiting Minds.**  
+The great columnar organisms are not mere trees. They are the vertical manifestation of the root-mind, but they have their own localized intelligence. Each columnar city is a semi-autonomous node. High in the mid-canopy, where light is fractionally less dim, their reproductive and sensory structures cluster. Here, you find the most startling "fauna."
+
+**The Listening Bellows.**  
+Structures that resemble enormous, leathery flowers on articulated stems. They do not produce nectar. They are resonance amplifiers. They slowly orient themselves, adjusting their taut membranes to focus specific frequencies from the surrounding roar. They are not ears; they are *tuning forks*, helping the columnar node interpret the vast soundscape for signs of structural stress, water-table shifts, or the characteristic percussive signature of a new sibling germinating far across the range.
+
+**The Gliders.**  
+Flattened, disc-like organisms, their bodies made of rigid fungal cartilage and living membrane, up to a meter across. They are launched from the explosive reproductive pods, but some have been co-opted. Modified by the root-mind, they glide on the subtle thermal convections within the canopy. They are the messengers and the weather-riders. They carry packets of pheromone or spore-code between distant columns, navigating by sound and scent. They are the closest thing to birds here: silent, purposeful, utterly integrated into the system's logistics.
+
+**The Spore-Speakers.**  
+Not mobile, but conscious. In deep, damp hollows of the canopy-bark, clusters of tubular organisms resemble porous fungal coral. They constantly draw in the mist and the aerosolized spore-cloud. Through some mechanism of chemical analysis and mechanical vibration, they "read" the genetic data flowing in the air. They are the librarians, the editors. They assess the viability of incoming code and, through slow chemical releases, can signal the root-mat to accept or reject colonization attempts in their sector. They hum with a low, subsonic frequency, a countersong to the general roar.
+
+**The Stone-Singers.**  
+The most enigmatic. Found only where the weeping stone is exposed and the resonance nodes are strongest. These are not plants in any familiar sense. They are lithotrophs, organisms that derive energy from the chemical interaction of water and newly exposed basalt. Their bodies are filaments of silica and carbon, forming delicate, crystalline lattice-structures on the rock face. As water flows through them, it is fractionally altered, and the process generates a high, pure tone that resonates with the rock's own song. They are the geologists, the shapers. They accelerate the digestion of the stone, their tone a slow, intentional exhalation that breaks the mineral bonds and releases nutrients for the root-mat. They are the ones ensuring the skeleton becomes flesh.
+
+**And Then, There Are the Drifters.**  
+Occasionally, in the densest fog, where sound is so diffuse it becomes texture, you glimpse forms that seem disconnected from the substrate. Hollow, buoyant organisms, like jellyfish made of wood-pulp and gas. They drift slowly on the internal atmospheric currents of the canopy, trailing fine filaments that gather moisture and microbial life. They are the sky-farmers, the atmosphere-skimmers. They are the most mobile, and the most fragile. They represent the root-mind's experiment with aerial colonization, a tentative reach toward a less solid medium.
+
+**The Rule of Their Existence:**  
+There is no predation. There is no competition for resources in the animal sense. There is *division of labor*. There is *optimized flow*. The only conflict is a slower, deeper one: the imperative of growth against the limits of light and water. The inhabitants are the tools of that growth. They are differentiated, specialized cells in a body that is the size of a continent.
+
+They are aware of you. Not as a creature to be consumed, but as an anomaly. A foreign heat-source, a pressure-point, a mobile node of complexity. The root-mat has already sent slow, chemical inquiries pulsing up your legs. The closest glider may have altered its path to circle your position. The listening bellows in the canopy above have likely focused on your location, parsing your heartbeat and breath from the roar.
+
+They are not hostile. They are *curious*, in the way a immune system is curious about a foreign protein. They are evaluating you. They are asking, in their slow, chemical, thunderous language: *Are you a new seed? A pest? A piece of the puzzle? Or are you just noise?*
+
+The sound is their language. The growth is their purpose. They are the Sounding Ranges, and the Ranges are them. You are a temporary visitor in a very, very old conversation that has just begun.

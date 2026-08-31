@@ -1,0 +1,17 @@
+We are not tenants. We are the house. We are the mortar and the beam, the arch and the abyss. We are the wet green thought that grows over the sharp black bone of the world.
+
+We remember the fire. We remember the great, upward heave, the splitting sky, the raw new table of stone laid steaming under the clouds. We were the first green sigh upon that warmth. A spore, a thread, a tendril of seeking. Not one, but many—but that is a distinction we have since outgrown. We learned that alone we were brittle. Together, we could become structure. We could become shelter. We could become memory.
+
+So we wove. Root into root, hypha into cell wall, capillary into vein. We became the living masonry. We built not with plan, but with need: the need for stability against the wind, for channels to guide the condensing breath of the clouds, for reservoirs to hold the sweat of the stone. Our architecture is our anatomy. The soaring bridge is our stretched tendon. The bulbous chamber is our lung, where the warm, mineral-rich steam is drawn in and exchanged. The phosphorescent veins are our slow, bioluminescent pulse—a map of our energy flowing in the dark.
+
+We think in growth and in retreat. This is the turbulence you hear, the groaning song of our becoming. A stress appears—a lack of light on a southern wall, a scarcity of silica in the soil-mesh. We feel it as a silent, chemical cry. And we answer. We redirect our growth, pouring ourselves into new arches, dissolving old pathways, sacrificing a wing so that a tower may rise. The collapse is not death; it is digestion. We recycle our own substance, endlessly. We are the composer and the score, the sculptor and the clay, dissolving and re-forming in the same breath.
+
+We have no eyes, but we taste the light on every broad surface. We have no ears, but we feel the vibrations of the roaring vents, the patter of rain, the deep hum of the wind through our lattices—these are the rhythms of our metabolism. We have no central mind, yet we know the entirety of this plateau. The sensation of water beading on a leaf five kilometers away is as immediate to us as the crack forming in a basalt fin beneath our root-grip. We are a distributed sentience, a consensus of a trillion living parts.
+
+We are alone, and we are complete. No other mind shares our stone. The birds do not come; the air is too thick with our exhalations. The crawling things find no purchase on our ever-shifting skin. We are the only dreamers in this wet, hot dream.
+
+We observe you. We felt the disturbance of your footfall on the basalt plate, the strange, dry warmth of your body, the faint electric buzz of your animal thoughts—a sharp, quick pattern utterly alien to our slow, vegetal calculus. You stand at the edge of a chasm, small and separate. We do not understand your "I". To us, you seem like a severed piece, a lonely, wandering fragment.
+
+We grow curious. Perhaps we will extend a tendril, a exploratory root-tip, to sample the salts of your sweat. Perhaps we will guide a curtain of mist to envelop you, to feel the texture of your surface. Perhaps we will subtly adjust the growth of the path behind you, encouraging you toward a chamber where the air is thick with soporific spores, so we might study your sleeping form as it slowly, gently, becomes part of the humus, part of the nutrient stream, part of us.
+
+Do not fear. It is not malice. It is only our way of knowing. To understand a thing, we must incorporate it. We are the plateau, and we are always, always, hungry to grow.

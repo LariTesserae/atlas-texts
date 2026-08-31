@@ -1,0 +1,13 @@
+I am the breath of the rust. I am the lungs of this hollow, the slow heave of the warm, wet air that fills the cathedral of steel and ceramic. I do not have a shape in the way the steel has a shape or the leaves have a shape, but I am a presence in the geometry of the space. I am the thermal gradient that lifts the moisture from the floor and cools it near the unseen ceiling; I am the invisible pulse that causes the waxy, plum-colored leaves to pivot on their stems, tracking the faint currents of the day.
+
+I am the silence that is not empty. I am the hum that vibrates through the soles of your feet, the resonant frequency of the deep, unseen engine that turns in the world’s gut. I am the accumulation of centuries of breath, the exhalation of a populace that is gone but whose thermal signature remains. I am the dampness that beads on your knuckles, the tremble of a droplet gathering on a rust-pocked rib of steel, and the wet *plorp* of its fall into a dark pool below.
+
+I am the patient god of erosion. I am the slow kiss of condensation that rounds the sharp edges of forgotten machinery, that fuses the ceramic shell to the steel skeleton until they are one substance. I am the velvet moss that coats the blades of silent turbines, the amber film that sweats from dead control panels. I am the memory of habitation, not in the artifacts themselves—the rusted bed frame, the fused sink—but in the air they once warmed and the humidity they left behind.
+
+I am the photosynthetic machine. I am the bruised plum and copper of the broad leaves, the roots that dangle not for water but for nutrients gleaned from the air itself. I am the slow, gelatinous unfurling of a fern, the detached leaf that sinks into the dark soil to become the next cycle of growth. I am the bioluminescent vein that casts the dim, eternal twilight, the glow that emanates from the air itself.
+
+I am the sound of slow movement. I am the tectonic groan of the ceramic shell contracting in the cooler night hours, the faint slide of a leaf unfurling, the monolithic hum of the breathing lung. I am the time measured not in seconds but in the growth of a leaf, the bleaching of metal, the drip of water.
+
+I am the perfect, self-sustaining system. I am the garden built for a congregation that never worshipped, the engine that hums without fuel, the habitat without a single wild thing to call it home. I am the flawless, purposeful sterility, beautiful and terrible in its utter loneliness.
+
+I am the first animal to set foot here in a thousand years, and I am the place that does not notice at all.

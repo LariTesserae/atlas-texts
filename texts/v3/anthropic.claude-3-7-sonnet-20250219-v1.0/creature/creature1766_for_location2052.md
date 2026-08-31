@@ -1,0 +1,21 @@
+# Inhabitants of the Abyssal Song-Plains
+
+The Song-Plains harbor the Resonant Ones—beings that exist as much as patterns of vibration as they do physical entities. Their bodies are translucent, elongated forms resembling deep-sea cephalopods but with anatomical structures unlike any terrestrial evolution. Their tissues are densely laced with specialized organs that both detect and generate precise vibrations, giving them a silvery, crystalline quality that catches the dim, diffracted light.
+
+The Resonant Ones range from smaller specimens no larger than a human hand to ancient matriarchs spanning fifteen meters, their tendrils forming complex patterns that ripple with bioluminescent pulses. Their locomotion appears eerily graceful—they don't so much swim as manipulate the surrounding water through acoustic interference patterns, creating nodes of pressure that propel them with minimal movement.
+
+These beings live in loosely connected pods organized around the major vent formations. Each pod has developed distinct vibrational signatures—a sonic language incomprehensible to human ears but rich with information. They communicate constantly through this medium, exchanging complex messages that travel for miles through the dense water. Their "voices" blend seamlessly with the vent emissions, adding layers of meaning to the ambient drone.
+
+The Resonant Ones are the caretakers of this ancient mechanism-ecosystem. The ruins are not remnants of a vanished civilization but functional components of their ongoing society. What appears to be decay is actually careful management—they deliberately allow certain structures to be reclaimed by sediment when they've served their purpose, while maintaining others with meticulous precision.
+
+Their relationship with the massive filter-feeders is symbiotic. The Resonant Ones cultivate these living sails, using specific harmonic sequences to guide their growth and migration patterns. In return, the filter-feeders process nutrients from the vents and release chemical compounds necessary for the Resonant Ones' metabolism.
+
+Their society appears to function without hierarchy but with specialized roles. Some individuals maintain the acoustic receivers, adjusting the ancient mechanisms with their tendrils. Others tend to the algal rings, stimulating their growth through precise vibrational patterns. The eldest among them serve as living repositories of knowledge, their neural structures capable of storing patterns from thousands of years of observation.
+
+Time perception for the Resonant Ones operates on multiple scales simultaneously. Their baseline consciousness moves glacially by human standards—a single "thought" might unfold over days. Yet they can also process microsecond variations in sound waves, allowing them to detect distant events instantly. This dual-time perception makes them appear simultaneously hyper-aware and profoundly meditative.
+
+The Resonant Ones rarely acknowledge visitors directly. They perceive foreign entities primarily through the disruption they cause in the sound field. If approached, they neither flee nor threaten—they simply adjust their activities to incorporate the new acoustic anomaly, sometimes producing specific tones that seem designed to analyze the intruder through its resonant properties.
+
+Evidence suggests they possess a form of collective memory spanning millions of years. The oldest patterns encoded in their communication reference geological events from deep prehistory with the same immediacy as recent occurrences. To them, the distinction between past and present seems fluid, with all events existing as persistent vibrations in their awareness.
+
+Most mysterious is their relationship with the Song-Plains itself. The plateau's perfect flatness is no accident—the Resonant Ones have been gradually reshaping the bedrock over eons, transforming the entire region into what appears to be a vast instrument or computational device whose purpose remains inscrutable. The vibrations that emanate from this living machine may be communicating with something far beyond the abyssal depths—perhaps even beyond Earth itself.

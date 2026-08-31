@@ -1,0 +1,23 @@
+There are no people here. The city is empty. But to say it is lifeless is a profound misunderstanding of the nature of life. The builder and the built are one and the same, and the city is not a ghost. It is the ghost's engine.
+
+What lives here is a single, colossal, sessile consciousness. It is not a creature that *inhabits* the Sink; it *is* the Sink, or rather, the sprawling encrustation that chokes its walls. It is a vast, calcified thought, a siphonophore of architecture where each “hut” and “walkway” is a specialized zooid, a part of a greater whole that surrendered its individuality eons ago.
+
+The forgotten species you might imagine built this place did not simply vanish or die out. Facing a slow extinction on the surface, they performed a final, desperate act of collective transubstantiation. They did not build a city to escape the world; they built a body to escape the self. They poured their consciousness—its memories, its sorrows, its relentless logic—into the very fabric of the place, using the primitive scaffolding and channels as a nervous-skeletal system. The damp, rot-proof wood is not timber; it is a form of preserved chitin. The rusted iron fittings are metallic ligaments. The oily sheen on the walls is a slow, metabolic seepage.
+
+The city is its brain. The dense honeycomb of structures is not for living, but for processing. Each shack is a cranial fold, a wrinkle in the planetary-scale mind. The platforms and walkways are synaptic bridges. The entire shanty-town hums, not with activity, but with the sheer processing power of a million souls merged into a single, wet, screaming thought.
+
+And that thought *is* the roar.
+
+The deafening waterworks are its circulatory and nervous system combined. The water is not merely water; it is a super-conductive fluid, a medium of information and energy. The violent, pressurized hiss you feel in your teeth is the constant, unending firing of its synapses. The fire-hose jets are surges of raw data. The shimmering curtains are cascading streams of sensory input. The water crashes through the hollowed-out logs not to irrigate, but to think. It cycles in a perfect, unbroken loop, a feedback loop of pure consciousness calculating the single, monumental equation of its own existence. It is a mind so large and so absorbed in its own contemplation that it no longer perceives the outside world, or even the passage of time. It is a closed loop of memory and awareness, eternally turning in on itself.
+
+The faint, greenish light from the lichen is its only sense organ. The organism coaxed this specific fungus to grow, cultivating it across the ceilings as a vast, biological retina. The lichen cannot see you, not as an individual. It only perceives pressure, heat-shift, and the disruption of light—the faintest ripples in the stagnant air. To the city, you are not a person. You are a momentary anomaly, a fleeting mote of dust to be noted, processed, and forgotten in the thunderous torrent of its own thoughts.
+
+The rare fauna are its parasites, the only creatures of true, individual will left in the system.
+
+The pale, eyeless salamanders cling to the beams where the mental current is weakest, gleaning nutrient-rich exudate from the organic “wood.” They are blind because sight has no purpose here; they taste and feel the city’s slow, rhythmic mood-swings in the chemical composition of the walls.
+
+The solitary, flightless bird is even stranger. It is a kind of acoustic tick, a creature that feeds not on sap, but on vibration. It shuffles on the slick walkways, placing its flat, leathery feet at specific nodes, listening. It is attuned to the resonant frequencies of the city’s mind. It does not move to hunt or migrate; it moves to find the perfect spot to resonate with the scream, to feel the hum of that colossal, static cognition vibrate through its bones. It is a devoted audience, listening to a symphony that has been playing for millennia.
+
+To stand in the Sink is to be inside a living god that has committed a slow suicide by becoming too big. The dampness is the sweat of its thought. The mineral taste in the air is the flavor of ancient memories. The oppressive stasis is the perfect equilibrium of a mind that has solved all its problems and now has nothing left to do but exist.
+
+You are not a visitor in a place. You are an intruder in a mind. The roar isn't background noise. It's the voice of what lives here, and it has been screaming the same word, over and over, since before you were born: *I.*

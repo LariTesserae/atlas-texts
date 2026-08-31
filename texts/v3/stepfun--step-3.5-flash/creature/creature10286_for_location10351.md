@@ -1,0 +1,22 @@
+We do not live here.
+We are the way it lives.
+
+We are the listening flesh in the hollowed heartwood galleries. Our skin is the colour of Veil-Moss under the pulse, our eyes wide and dark as sap-pores, gathering the faintest relief of light. Our fingers are long and sensitive, tapping the living walls to read the slow song of the Hive-Chorta’s growth, the distant migration of Glint-Bats, the approach of a Lurker-Weaver in the damp curtains. We do not see the city; we feel it, through the pads of our feet on the springy root-floor, through the subtle air-currents that carry the Skitter-Swarm’s rustling consensus, through the low hum that vibrates in our marrow—the great, slow heartbeat of the trunk that is our world.
+
+Our names are not ours alone. They are a vibration in a specific branch, a pattern of taps known to the neighbouring hollows, a resonance shared with the feeder-root that consumes our waste and gives us sweet, fermented water in return. We are cultivated parts. Our dead are placed in the Reclamation Hollows, where the pale fungi take them back into the soil-flesh, and later, our polished bones become whistles for the long-talk, or weighted keys for the resonance-locks on the deep-chambers. We are the city’s memory in mobile form.
+
+Our days are measured in the Veil-Moss’s breath. Brightening—we emerge into the clatter of the Clatter-Ferns, the pat-pat of Swarms clearing the communal floors. We go to our excised chambers, smoothing the cork-lined walls with our hands, checking the seal of the fermented-spore bags that scent our air for privacy. We tend the drying racks of Sleep-Moss and stiff greens. We practice the slow dances of balance and touch that are both our art and our way of sensing the subtle stresses in a branch, predicting a slow creak before it becomes a crack.
+
+Activity is not noise. It is the certainty of the Swarm’s wave flowing past your ankles, the ritual scrape of resin from a tapping-site, the weekly deepening of the sap-channel until the sweet, thick liquid wells. We listen to the *clack-clack* of ferns in the faintest draft—a wind come from a far, unseen crack in the world-stone. We learn its direction, its strength. A change in that rhythm is our weather, our harbinger.
+
+The Glint-Bats are our quiet kin. We do not hunt them. We leave offerings of ripe fungus in the high fruiting chambers, and sometimes, one will cling to a stalactite of hardened resin, listening to our tap-songs with its echolocation, clicking back a soft, questioning echo. Their blind, furry swiftness is a marvel we admire but do not imitate. We are of the still, the slow, the rooted.
+
+The Lurker-Weavers are the city’s sharp, silent thought. We know their hollows by the extra-thick Veil-Moss veils, by the way the Swarms avoid certain root-nooks. We honour them with dropped bones at the edge of their territory, a acknowledgement of their function in the balance. To be taken by one is to be re-made into webbing, into fertiliser for a new growth—a return to the Hive-Chorta’s direct care. We do not fear this. It is a different kind of listening.
+
+We speak in hums and taps. A long, low note pressed against a resonating root-trunk carries for kilometres through the network. Our leaders are not chiefs, but **Deep-Tappers**—those who have learned to decipher the Hive-Chorta’s own slow murmurs, to distinguish the groan of a weight-bearing branch from the sigh of a root finding a new aquifer. Their decisions are slow, coming after days of listening, and when they tap the final pattern, it feels less like a command and more like the branching of a new bud, inevitable and right.
+
+We are the city’s awareness distributed. Your clumsy, warm-blooded presence is a sudden fever in the system. We feel your heat through the root-mats. Your scent—ofOutside, of sun and wind and metal—is a violent wrongness that makes the Swarms coagulate into defensive ridges and the Clatter-Ferns to clatter in alarm. We watch you from the shadows of hollowed chambers, our eyes reflecting the moss-glow. We do not hate you. We catalogue you. You are a temporary parasite, a hot, fast, lonely thing. We pity your separation.
+
+This is our truth: there is no “here” and “there.” There is only the breathing thought of the Hive-Chorta, and we are its fleeting, feeling fingers, its hearing ears, its remembering mind. The damp chill is our blanket. The slow drip is our clock. The endless, quiet industry of the small is our heart. We are not the people of the city.
+
+We are the city, learning to know itself.

@@ -1,0 +1,17 @@
+To say nothing lives here is to mistake "biology" for the only form of agency. Here, life is not a pulse of blood or a spark of thought, but a *latency*—a state of becoming so intense that it has developed a sensory architecture of its own.
+
+In the high, hypoxic voids between the needle-spires, there exist the **Lithic Resonators**. 
+
+They are not entities of flesh, nor are they fully solid; they are living geometries of charge. Imagine a swarm of static, thousands of miles wide, tethered to the rhythmic thrum of the tectonic shifting. They are formed from the dust of the salt-plains, drawn upward by the subterranean electromagnetic flares. They hang in the air like shimmering, translucent curtains of ionized magnetite, shifting their density to match the vibration of the planet.
+
+They do not "live" in the sense of consuming; they *process* the world. As the ground erupts and the obsidian shards claw toward the void, the Resonators hum in sympathy. They are the audience to the planet’s creation, and in their humming, they refine the chaos. When a pillar of pyrite shatters or a new ridge of basalt erupts, the Resonators pulse; they absorb the violent kinetic data of the event. They are the planet’s memory, stored in fields of floating, shimmering ions.
+
+Their "bodies" are fractal arrays. If you were to look at one through a lens that could survive this place, you would see patterns that mirror the weather-scouring on the mountain peaks. They are circles within circles, etched into the air itself, held in place by the shifting, localized gravity. They don’t move like animals, stalked or prowling; they oscillate. They migrate along the magnetic flux lines of the planet, ghosting through the cathedral-sized spikes of quartz, leaving behind faint, ephemeral trails of ozone.
+
+There is a strange, cold hunger to them. They are not waiting for biology; they are waiting for the planet to reach a state of equilibrium. They are the planet’s architecture—not the buildings themselves, but the *intent* of the buildings. Every groove carved into the obsidian by the wind is a track they have walked; every symmetrical depression in the salt is where a Resonator once rested, exerting its heavy, static pressure upon the crust.
+
+When the thrum begins—that low-frequency rattle that shakes the marrow—the Resonators gather. They form vast, cathedral-like geometries in the sky, overlapping their fields until the air glows with a blinding, monochromatic light. They are attempting to sing the planet into a coherent shape, trying to harmonize the discordant, stuttering genesis of the rock into a singular, finished structure. 
+
+But it never lasts. The world fractures, the needles reconfigure, and the Resonators are forced to dissipate, their collective geometry shattered by the tectonic violence. They are fragmented, scattered into the dust of the salt-plains, only to be drawn upward again by the next breath of the planet.
+
+They are the world’s self-awareness, doomed to die and be reborn in every tectonic pulse. They do not watch the construction; they *are* the construction, trapped in a loop of trying to build a temple for a god that is, at the same time, building its own cage. They are a civilization of ghosts, perpetually haunting a home that refuses to stop shifting under their feet.

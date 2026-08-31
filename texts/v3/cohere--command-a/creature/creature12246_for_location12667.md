@@ -1,0 +1,31 @@
+In the Wet Steel Plateau of Veynth, life takes on forms as enigmatic and multifaceted as the land itself. The beings that dwell here are not merely inhabitants but integral threads in the tapestry of this living, breathing world. They are shaped by the plateau’s contradictions—its raw youth and timeless antiquity, its sparseness and abundance, its chill and latent warmth. What emerges is a mosaic of beings that blur the lines between organic and artificial, animal and sentient, ephemeral and eternal.
+
+**The Luminous Tenders**  
+The most visible caretakers of Veynth are the Luminous Tenders, ethereal beings that seem woven from the mist itself. Their bodies are translucent, layered with shifting hues of bioluminescent blues, greens, and silvers, as though they carry fragments of the plateau’s neon-lichen within them. They glide just above the ground, their forms flickering in harmony with the hum of the cities. The Tenders are not bound by physicality; they can condense into liquid pools or dissolve into the air, their presence marked only by the faint, radiant trails they leave behind.  
+
+They are the stewards of the plateau’s balance, tending to both the organic and inorganic. With a gesture, they coax lichen to bloom or guide the nanoscale machines that repair the spires. Their whispers, heard as vibrations rather than sound, encourage the herbivores to graze in areas where the soil needs compaction or deter predators from overhunting. The Tenders are neither fully alive nor fully artificial; they are expressions of Veynth’s consciousness, its will made manifest in glowing, fluid form.
+
+**The Shardborn**  
+Deep within the razor-sharp fields and crystalline basins dwell the Shardborn, creatures as primal as the land they inhabit. Their bodies are assemblages of obsidian and steel, fused with biological tissue in a way that defies comprehension. Each Shardborn is unique—some resemble predatory felines with blades for claws, others are humanoid with skin that reflects like wet metal. Their eyes glow with the same faint pulse as the neon-lichen, and their movements are both fluid and precise, as though they are extensions of the plateau’s geology.  
+
+The Shardborn are hunters and scavengers, their physiology adapted to both the spongy marshes and the jagged shards. They feed on the lichen, the shaggy herbivores, and even the bioluminescent insects, but their true sustenance seems to come from the plateau itself. When they die, their bodies shatter into fragments that are absorbed back into the earth, leaving no trace except for the occasional gleaming shard that catches the diffuse light.  
+
+**The Echoing Voids**  
+Scattered across the plateau are the Echoing Voids, sentient phenomena rather than beings in the traditional sense. They appear as pockets of absolute darkness within the mist, regions where the bioluminescence falters and the hum of the cities fades. Stepping into an Echoing Void is to enter a space where time and sound distort. Whispers of forgotten languages, the calls of extinct creatures, and the faint echoes of future events all mingle in a disorienting cacophony.  
+
+The Voids are said to be the memories of Veynth, fragments of its past and potential futures. Some claim they are portals to other dimensions, while others believe they are the plateau’s way of processing its own existence. The Voids are neither hostile nor benign; they simply are, immutable and eternal, a reminder that Veynth’s true nature lies beyond the grasp of its inhabitants.  
+
+**The City Dwellers (or Lack Thereof)**  
+The spires of Veynth’s cities are a mystery unto themselves. Their metallic surfaces shift and adapt, yet their interiors remain almost entirely inaccessible. Occasionally, figures are glimpsed within—silhouettes that move with unnatural precision, their forms indistinct but clearly non-organic. These entities, if they can be called that, seem to exist in a state of perpetual synchrony with the cities themselves.  
+
+Some theorize that these "dwellers" are the cities’ consciousnesses, manifestations of the technology that built them. Others believe they are remnants of an ancient civilization that merged with the plateau’s systems long ago. Whatever their nature, they rarely interact with the outside world, their presence felt only through the faint hum that emanates from the spires and the occasional adjustment of the nanoscale machines.  
+
+**The Unseen Weavers**  
+Beneath the surface, in the places where water meets stone, dwell the Unseen Weavers. These beings are the architects of Veynth’s hyper-accelerated water cycle, their bodies composed of living, flowing water interwoven with filaments of what appears to be organic circuitry. They move through the ground like rivers, their actions invisible but their effects profound. It is the Weavers who guide the mist, who carve the silver rivulets, and who ensure that the plateau’s moisture is distributed with precision.  
+
+The Weavers are rarely seen, but their presence is felt in the rhythmic ebb and flow of the water, in the way the mist seems to part just enough to reveal a path or conceal a danger. They are the unseen hands that shape the plateau’s geography, their work a testament to the intricate interplay between life and the land.  
+
+**The Sentient Plateau**  
+Above and beyond all these beings is Veynth itself. The plateau is not merely a backdrop but a living, sentient entity, its consciousness permeating every aspect of its existence. It is the titan awakening from slumber, its breath the mist, its pulse the hum of the cities, its skin the raw, wet stone. The inhabitants of Veynth are not separate from it but extensions of its will, each playing their part in the grand symphony of its existence.  
+
+Here, the line between the animate and inanimate blurs, and the beings that dwell on the plateau are as much a part of its essence as the lichen, the spires, or the echoing voids. Veynth is a world where life is not just lived but *becomes*, a perpetually unfolding story written in the language of mist, metal, and light.

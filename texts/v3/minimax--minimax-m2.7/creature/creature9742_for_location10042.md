@@ -1,0 +1,29 @@
+# What Lives in the Valley
+
+There is the sound first — before anything else, before the green or the damp or the sense of being held. There is the sound, and it is everywhere, and it is not one sound but a thousand, layered so completely that it becomes texture, becomes atmosphere, becomes the thing you stop hearing until you suddenly hear it again.
+
+This is what lives here: a wall of living noise.
+
+It is made of birds, mostly. Dozens of species moving through the canopy in waves, their calls folding over one another — chirp and whistle and the soft percussion of wings against humid air. They move in murmurations, those collective flows that look like thought, like the canopy itself is thinking in flickers of movement. In the evenings, the birds go quiet and the flying things take their place: insects drawn to the pale blue-green glows that the people have cultivated along the terrace edges, slow lanterns set into the grown walls. The insects do not swarm. They hum. The hum comes from everywhere — from the flowers, from the soil, from the air itself, as if the moisture has become vocal, as if the warmth has learned to vibrate.
+
+But the sound is not only birds. There is the water. Always the water. Not rushing, not still, but ticking and trickling and dripping through a thousand channels that the people have grown rather than carved. The water is in motion the way blood is in motion — distributed through tissue, moving through infrastructure, falling a little, catching, redirecting. If you press your ear to the woven-fiber walls of a grown structure, you can hear it traveling inside the structure's body. The people of this valley have made a place where water is never not passing through.
+
+And beneath all of this, around all of this, there is the presence of things that do not announce themselves. Eyes in the dark at night — small and reflecting, near and far. Something larger moves in the canopy and makes low vocalizations that you feel more than hear. At night, the animals do not sleep the way you sleep. They shift and cycle through their own activities, and the valley remains as full after dark as it is by day, only different. Quieter in some registers. More alert in others. The sudden sharp calls of something hunting, and then the silence that answers, and then the slow resumption of the collective hum.
+
+What else lives here?
+
+The cultivated trees live here. They are the dominant life — broad-leafed, deep green on top, silvery beneath, planted in interlocking rows that form a canopy so dense that sunlight reaches the valley floor only in narrow columns or bright scatterings where a gap has been left deliberately. These trees are not original. They are grown from the roots of previous trees, which were grown from the roots of trees before those. The canopy is continuous life, renewed season by season, century by century, a single slow gesture of green reaching toward the sky.
+
+Below the canopy, everything is proximity. Vines climb the trunks and bear fruit. Shrubs and root vegetables and medicinal plants form a second and third layer. Low creeping plants with small white flowers carpet the ground and emit a faint sweetness that mingles with the wet-earth smell and the green, cellular scent of active growth. Nothing is bare. Nothing is wasted. The made ground — dark, rich, deep, composted over generations — is as deliberate as any floor, and every inch of it is alive, is tended, is known.
+
+And the people live here. Of course the people live here.
+
+They live in structures that have been grown rather than built — walls of guided tree limbs along wooden frameworks, archways that began as saplings and were bent, year by year, toward one another until they met and fused. The people of this valley understand cultivation the way other people understand masonry. They have spent centuries directing growth, encouraging root systems to knit together into raised beds and stable slopes, weaving live branches into walls that breathe and thicken and repair themselves. They are patient in the way that trees are patient. They think in generations.
+
+They come out of these grown structures at certain hours — you can see them moving along the terrace paths, tending the living infrastructure, checking the water channels, harvesting what is ready. They speak to one another in low voices, and their voices join the sound, become part of the wall of living noise, so that the valley's abundance includes human presence the way it includes birdsong and insect hum. The people do not stand apart from the abundance. They are embedded in it, sustained by it, continuous with it.
+
+At night, the valley is warm-dark, not cold-dark. The canopy holds the light out and the bioluminescence holds just enough to see the nearest shapes by — an archway, a trunk, the pale blur of a fruit tree. And the presences moving in that dark. And the sounds continuing — different sounds, sharper sounds, the hunting calls and the answering silences. And the sense, if you stand still in it, that the valley is not a place where life happens. It is a place that is alive. That the warmth is breath, and the dark is the inside of something, and the noise is not something the valley makes but something the valley is.
+
+This is what lives here: a place that has become fully itself. Not natural, because nothing here is unchosen. But not artificial either. Something between and beyond both. A world that people have made without tools, out of patience and plant-life and water and the long, slow will to tend.
+
+The quietest moments are not quiet. They are simply the moments when the noise becomes background. Until the wind shifts, and a hundred birds come into sudden, overlapping alarm at something moving below the canopy, and the valley rings with them again.

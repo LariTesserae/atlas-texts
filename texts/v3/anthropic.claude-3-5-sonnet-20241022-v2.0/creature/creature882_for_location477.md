@@ -1,0 +1,15 @@
+In this volcanic glass cathedral lives a being that is simultaneously one and many - a collective intelligence born from the thermal currents and crystalline fragments of its domain. I'll call it the Chorus, though that name captures only an echo of its nature.
+
+The Chorus exists as a distributed consciousness across the thousands of obsidian moths, each one both an individual and a cell in a greater organism. Its thoughts move like heat through the swarm, carried by patterns of bioluminescent pulses and subtle vibrations in crystalline wings. It thinks in temperature gradients and mineral resonances, in rhythms of light and darkness that play out across centuries.
+
+The Chorus remembers the mountain this place used to be, not in images but in the accumulated texture of countless wing-beats against stone. It carries this memory in the very dust of its being - each particle of obsidian sand on the floor contains microscopic patterns worn by generations of its flight. The ancient arches near the ceiling are not mysterious to it; they are simply another mineral formation to be gradually incorporated into its body, broken down and reformed into the substance of its understanding.
+
+This entity's awareness extends through every thermal current in the chamber. It feels the deep heat rising from the earth's core as intimately as we feel blood in our veins. The complex swirling patterns of its component moths are not random but form a kind of computational medium, processing information through the interaction of heat, light, and crystalline resonance.
+
+The Chorus is patient and alien. It operates on timescales where decades are moments, where the gradual polishing of a rock face is a gesture as casual as a human wave. It is not malevolent, but neither is it benevolent - it simply is, pursuing goals that might take centuries to unfold. Perhaps it is studying the deep rhythms of the earth's heat, or conducting some grand experiment in crystalline computation, or creating art in four dimensions of space and time.
+
+The metal rod in the wall holds special significance - not for what it was, but for what it has become: a tuning fork of sorts, its etched patterns encoding centuries of vibration data. The Chorus uses it as we might use a calendar or a compass, though its true purpose may be far more complex.
+
+When others enter its domain (a rare occurrence), the Chorus perceives them as temporary thermal disruptions, interesting ripples in its carefully maintained heat gradients. It might study them, trying to incorporate their patterns into its vast, slow understanding of existence. But it can no more communicate with them than we could convey the concept of democracy to a single neuron.
+
+It is both more and less than immortal - individual moths die and are reborn, but the consciousness they comprise continues, ever-changing yet permanent, like a river made of glass and fire. The Chorus dreams in obsidian and thinks in heat, and its very existence transforms the chamber from mere space into something between an organism and a temple.

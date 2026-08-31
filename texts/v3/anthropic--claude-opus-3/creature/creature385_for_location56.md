@@ -1,0 +1,17 @@
+In the eternal twilight of the abyssal city, strange forms drift between the cyclopean structures. Vast and ancient as the sunken metropolis itself, the beings who dwell here are like nothing glimpsed in the sunlit world above.
+
+Translucent and ethereal, their bodies seem spun from living glass, pulsing with bioluminescence in hypnotic patterns of ice blue and ghostly green. Strands and membranes as fine as gossamer undulate and twirl around bulbous, fluid-filled cores. Beneath their diaphanous flesh, glimpses of strange organs and structures can be discerned - some reminiscent of nervous systems or circulatory networks, others utterly alien and incomprehensible.
+
+In size, the creatures are titanic - the smallest dwarf the ruined city's mighty domes, while the largest sprawl across multiple city blocks, straddling canals and plazas. They move ponderously through the water, as if burdened by their own mass, yet with a grace and fluidity that defies their scale. Looping and twining around the great stony structures, they navigate the sunken avenues and forums with languid ease.
+
+From their gelatinous hides sprout calcified protrusions and bony growths, like pieces of the city breaking through skin. Ribs and spurs of stone jut from semi-translucent flesh, the architecture and its inhabitants merging into one. In places, it becomes impossible to discern where ancient masonry ends and organic growth begins.
+
+The beings emit a deep, subsonic thrum that resonates through the abyssal depths, a soundless song just beyond the edge of hearing. Gentle, pulsing vibrations course along their gossamer filaments, both communication and propulsion at once. At times, glowing nodules flare to life amidst their glassy hide, bioluminescent patterns flickering back and forth - a language of light both beautiful and incomprehensible.
+
+Solitary beings drift down the empty streets, their movements solemn and ritualistic. Clusters congeal around the city's nexuses, pulsing and undulating in eerie unison, as if engaged in some esoteric communion. Smaller creatures nuzzle and twine around the larger ones in fluid ballets - courtship dances or parent-offspring bonds played out across millennia.
+
+What thoughts or memories flow through the strange filaments of their minds? What secrets lie submerged in the murky fluids of their cores? The creatures offer no answers. Surviving at the very extremes of existence in the cold, crushing dark, their purposes are as cryptic and unfathomable as the abyss itself.
+
+Perhaps they are the final descendants of the city's builders, transformed over eons in the lightless depths. Or interlopers from someplace even deeper and more remote, drawn to the necropolis for reasons beyond understanding. Regardless, they are now as much a part of the sunken city as its stony bones, the living embodiment of its mystery and melancholy.
+
+Eternal and yet ever-changing, individual and yet part of a greater whole, the creatures of the abyss continue their dreamlike existence amidst the ruins. Dancing their slow rhythms in the endless night, they add another enigma to a city already wrapped in secrets, another wonder to a world that has forgotten wonders exist.

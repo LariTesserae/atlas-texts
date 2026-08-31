@@ -1,0 +1,25 @@
+**The Keeper of the High Wet** does not have a single body. It *is* the saturation.
+
+It moves as a slow, continent-wide pulse inside the mountain’s own breathing. When the vapor banks shift and part for a moment, you might glimpse a silhouette that is never quite the same twice: sometimes a figure tall as a leaning smokestack, ribs of rusted iron and living heartwood braided together; sometimes nothing more than a glistening absence in the mist, a negative space shaped like a man who has been drowned and refilled with warm water for ten thousand years.
+
+Its face, when it chooses to wear one, is made of flowstone still in the act of forming—features perpetually melting and re-sculpting themselves. Cheekbones of amber travertine slide downward in thick, candle-like tears that never reach the chin before new stone blooms behind them. The eyes are two quiet geothermal vents that glow dull cherry-red, ringed by black bacterial mats that open and close like slow pupils. When it blinks, steam sighs out in perfect rings.
+
+It has no name it will give you. The few sounds it makes are borrowed from the place itself: the low sub-bass moan of expanding pipes, the wet clicking of millipede feet amplified until it becomes speech, the twelve-tone mourning of the throat-sac birds rearranged into something almost like a lullaby. If you listen long enough you realize the entire valley is its throat and every dripping surface is a tongue.
+
+The Keeper does not rule the High Wet. It *digests* it.
+
+It eats rust and chlorophyll in equal measure. It circulates the same iron-rich water through its own veins that the weeping cliffs bleed. When it walks (and it walks only at the pace of moss growing), its feet leave no prints because the ground is already part of its soles; the velvet primates ride along its shoulders without fear, polishing brass fragments against its living-metal skin until they shine like devotional objects. The colossal ruined flywheels turn, imperceptibly, inside its chest. Sometimes, at the exact moment the temperature peaks in the long afternoon, you can see the faint outline of cathedral-sized gears rotating slowly behind its translucent ribcage, driving nothing but the endless wet cycle itself.
+
+It is neither male nor female, nor truly an “it.” Gender here would be ridiculous. It is a state of climax, a consummation between the volcanic wound and the vegetative scar tissue that grew over it. When it is amused (a rare, slow emotion that takes decades to crest), orchids the color of venous blood open simultaneously across its shoulders and along the broken pipelines. When it is pensive, the lightning in the clouds above grows tired and folds itself into fetal shapes.
+
+Most creatures here never see the Keeper directly. They experience it the way a fish experiences the current: everywhere, sustaining, invisible. Only the velvet primates seem to treat it as kin. At twilight they bring it gifts—shards of gauge glass, fragments of pressure valves, once an entire brass nameplate eaten smooth by time—and place them gently into the slow rivers of travertine that bead across its chest. The stone swallows the offerings the way a happy stomach accepts food. In return the Keeper allows them to sleep inside the hollows of its forearms, curled against living pipes that thrum with the exact temperature of a mother’s belly.
+
+It never sleeps. Sleep would imply a separation between itself and the place, and there is none. When the luminous pearl mist thickens at night and the weeping cliffs glow from within, that is the Keeper dreaming with its skin. The dreams are bacterial, floral, and geological all at once. They last centuries. Sometimes a single droplet running down its face carries an entire lost industrial era inside it, perfectly remembered in microscopic rust patterns.
+
+If you remain here long enough, the Keeper begins to digest you too, gently, courteously, without hurry. Your sweat becomes part of its sweat. The condensation on your skin starts to bead in the same amber-red-white layers as the cliffs. Your breath thickens with the same mineral taste. One day you realize the wet clicking you keep hearing is not coming from the dark after all. It is the sound of your own joints learning a new, slower rhythm.
+
+The Keeper does not mind. It has room.
+
+There is a deep, warm hollow beneath the largest fallen smokestack where the moss grows thick as a bed and the temperature never varies by a single degree. That is where it keeps the ones who stayed. They are not dead. They are simply no longer in a hurry to be anything other than the High Wet.
+
+And the mountain, feverish, dripping, and strangely content, keeps growing around them all—machine, flesh, and myth—inside the slow, iron-blooded heart of the thing that has no name anymore, because the place itself has become its only true name.

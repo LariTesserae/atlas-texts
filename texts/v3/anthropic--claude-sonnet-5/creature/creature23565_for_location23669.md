@@ -1,0 +1,29 @@
+# The Tender
+
+## Shape
+
+It is roughly the size of a tall man folded down to fit a smaller space — which is to say it has learned, over a very long time, to be smaller than it once was. The spine curves in a permanent question-mark to clear the low vaults; the shoulders have narrowed, drawn inward, the way a candle narrows toward its base when the wax has had years to settle. Skin the color of wet clay, the color of the brick it lives among, faintly sheened with the same condensation that beads on the pipes — not sweat exactly, more an equilibrium, the body matching its moisture output to the room's so that neither dries out nor floods. In places, especially the backs of the hands and the long ridge of the spine, the same pale fibrous growth that clings to the mortar joints has taken hold on it too, and it has stopped trying to scrape it away, the way you stop fighting a houseguest who has, by sheer persistence, become family.
+
+The eyes are gone, or nearly — two shallow closed seams where eyes were, useless in a place that offers nothing to see. What replaced them is a kind of attentiveness spread across the whole skin: faint horripilation along the forearms when it nears a hot pipe, a tightening at the temples near a pressure differential, fingertips gone soft and wide and exquisitely sensitive, reading the room the way a deaf hand reads a speaker cabinet.
+
+## Senses and Movement
+
+It does not walk so much as thread. Years of moving through gaps meant for pipe and chain rather than people have taught the body to fold and unfold itself in sequence — shoulder first, then the long exhale that lets the ribs narrow, then the hip. It travels by heat-memory: this wall is always this warm at this hour of its private cycle, this valve wheel always this many degrees cooler than the trunk-pipe feeding it, and a lifetime of those small differentials has been laid down into something like a map, except the map is not seen, it is *felt*, continuously, the way you feel your own tongue against your own teeth without thinking about it.
+
+It hears more than it sees, but "hears" undersells what happens: the subsonic hum of the furnace-process registers low in the jaw and breastbone before it ever reaches anything like an ear, and the Tender has long since stopped distinguishing between hearing the machine and being, in some small structural sense, *resonant with it* — chest cavity tuned, over years, to vibrate sympathetically with the building's slowest groan.
+
+## Work
+
+What it does, mostly, is touch things in order. A circuit: palm flat against this tank to feel its fullness by temperature, two fingers walking the spokes of that valve wheel to confirm — by the give, by the exact resistance — that it has not crept past its proper quarter-turn, a knuckle rapped twice against a gauge-housing whose needle nothing living has read by eyesight in decades, the rap itself a kind of question whose answer arrives as a faint difference in the ring of the metal. None of this requires light. All of it requires patience, and the Tender has more patience than anything else has had cause to develop in this room, including the brick.
+
+At intervals — not regular ones, but intervals nonetheless, marked by some internal accounting that may or may not be conscious — it stops at one of the brass plates. From a fold of cloth or skin or some pouch grown so familiar to the body that it no longer counts as a possession, it produces a small punch and a stone, and adds one numeral to a sequence whose total significance even it may have half-forgotten. Not days. Not pressure cycles. Something slower than either — completions, maybe, of some longer rhythm the machine performs once for every several hundred small ones, a rhythm only the Tender, with its whole adapted life pressed against this stone, is positioned to feel happen at all.
+
+## Sustenance
+
+It eats little, and what it eats is mostly what the room itself can spare: the pale lichen-fungus scraped in thin curls from the wettest joints, the rare insect drawn dead and crisped to a pilot-flame's glass housing, condensation gathered and sipped directly from a pipe-throat with the unhurried economy of something that has never once been in danger of dying of thirst, only ever of impatience. Its metabolism runs as slow as everything else down here — slow heartbeat, slow breath, paced unconsciously to the furnace's long exhalations, so that on the rare occasion something startles it, the startle itself takes a moment to arrive, like thunder reaching you well after the light.
+
+## Age
+
+It is old in the way the brick is old — not ancient exactly, not mythic, but *settled*, having long since stopped changing in any way you could mark across a single visit. It may be the last of a line of such tenders, each one shaped a little further from the upright, sighted thing it started as, each one handing down to the next not instruction so much as posture — how to fold, how to listen with the sternum, how to love a machine enough to become, slowly, a compatible part of it. Or it may be only itself, alone a very long time, the brass-plate numerals a private arithmetic against a solitude too large to otherwise hold.
+
+It does not seem to mind the dark, the heat, the silence-that-isn't-silence. It has the calm of something that made its peace with a small world a long time ago and found, to its quiet surprise, that the peace held. When the machine sighs its pressure-relief cough and the quiet resettles deeper than before, the Tender resettles too — palm still resting against warm iron, head bowed not in prayer exactly, but in the same unhurried attention it gives to everything else down here, waiting, the way the whole Cistern Works is waiting, for a river that may or may not still know the way back.

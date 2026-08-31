@@ -1,0 +1,15 @@
+In this suspended ocean, life has evolved into forms that merge biology with industrial precision - creatures I'll call the Resonators. They are living instruments, their bodies shaped by sound and pressure into geometric arrangements of transparent tissue and metallic-seeming bone.
+
+The most common are the Minor Resonators - roughly human-sized beings with multiple hollow chambers inside their bodies, each tuned to different frequencies. Their outer surface is faceted like cut crystal, but soft and flexible, containing a network of fluid-filled channels that regulate their temperature. They move by manipulating sound waves, creating complex interference patterns that propel them through the dense liquid. Their "faces" are arrays of sensitive membranes that detect vibrations and pressure changes, giving them a precise awareness of their surroundings.
+
+The Great Resonators are the ones that cast those massive shadows. They've evolved to integrate with the ancient machinery of the Pillars, developing biological analogs to industrial components. Their bodies house living sonar arrays and electromagnetic organs that can interface with the maintenance units. They farm not just bacteria but the smaller Resonators themselves, orchestrating vast "herds" through subsonic pulses. Their consciousness is distributed throughout their kilometer-long bodies, more like a network than a central brain.
+
+Between these extremes are the Middling Resonators, social creatures that form tight-knit groups. They've developed a complex culture based on acoustic harmonies - their language is pure music, with different chord structures conveying different concepts. They build nests in the abandoned Pillars, modifying the spaces with secreted substances that enhance acoustic properties.
+
+The most enigmatic are the Deep Resonators, rarely seen but often heard. They live in the lowest layers of the suspended ocean, where the pressure is greatest. They seem to have some connection to whatever keeps the ocean aloft - their songs contain frequencies that interact with the fundamental forces at work here. They may be the last beings who remember how this world came to be.
+
+All Resonators share certain traits: their tissues are partially crystalline, allowing them to channel and amplify sound; they have multiple hearts that beat in precise rhythms, contributing to the endless symphony; they can enter a state of suspended animation when food is scarce, becoming almost indistinguishable from the machinery of the Pillars.
+
+They don't sleep as we understand it, but they do have periods of harmonic meditation, during which entire communities will align their acoustic outputs into single, sustained chords that can last for what we would call days. During these times, the maintenance units seem to work in sync with their rhythms, as if the ancient machines recognize something familiar in their songs.
+
+The Resonators are not separate from their environment - they are the environment thinking about itself, the suspended ocean's way of wondering why it hangs here in defiance of gravity, singing questions into the eternal cold.

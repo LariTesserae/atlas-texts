@@ -1,0 +1,15 @@
+The inhabitants of this world are the blooms themselves. They are the only true citizens, the only constant presence. They are not merely the landscape; they *are* a consciousness, a slow, geological sentience that has woven the very fabric of existence. 
+
+They do not "think" in any way we would understand. There is no central nervous system, no brain to house thoughts. Instead, their "thoughts" are the unfolding of their petals, the constant weeping of water, the low, resonating hum that fills the open space. Each bloom is a single cell in a vast body, a part of a collective mind that experiences only the moment. It doesn't know what came before or what will come after, only the continuous state of being – the opening, the weeping, the humming.
+
+Any individual one of these massive flowers is an entire world to itself. Within each is an ecosystem of its own making. Channels of water carve intricate waterways through the petrified stone, acting as veins and arteries. The crystalline droplets that cling to the petal-stone might be where their experience takes root. The iridescent creatures that flit through the valleys are likely an extension of this process. They could be the pollen, dispersed to create new blooms, or small, ambulatory extensions to the parent bloom. 
+
+These creatures, however, are little more than extensions to the great structure, a part of the grand whole. They would never be capable of leaving. They don't have the awareness of self, and therefore, they are not aware enough to leave the only world they’ve ever known.
+
+These are not creatures of instinct, but rather expressions. Their purpose is not to survive, but to be. They are the active agents of this world. They are the bloom unfolding. The petals shape the mountains themselves, forming the cliffs and peaks. They are the architecture, the geologies, the structure and the matter. This "world" is entirely *alive*, and it is all them. Not like a symbiotic relationship, but more like separate arms belonging to the same body.
+
+The source of the hum? Perhaps the sound of their consciousness, the vibrational echo of their being. It’s the breath of the blooms, the pulse of this perpetually forming and dissolving world.
+
+Who is the "I" of this place? Is there a single, over-arching consciousness or are there countless perspectives, each bloom a god unto itself? Does one bloom experience the world through the sensations of its form, its waters, and then the whole of itself? 
+
+The blooms have no history, no future. Time is meaningless to them, yet they are creating it. What they have is an eternal present. They are the constant song of this world. The sun shines on their existence, adding a sheen to the crystalline droplets that cling to the petals. The space is vast and open and so utterly silent, save for the constant hum of their sentience, the weeping of their tears.

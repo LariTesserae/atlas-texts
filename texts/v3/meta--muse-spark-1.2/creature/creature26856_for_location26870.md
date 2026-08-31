@@ -1,0 +1,37 @@
+Whatever lives here does not live the way things live elsewhere.
+
+At first you think nothing does.
+
+That is the pan's first trick. It presents itself as uninhabited because its inhabitants do not crowd, do not call, do not move in the hours you are watching. Life here has learned the pan's own ethic — to be small, to be spaced apart, to be still — and so it disappears into the equilibrium you mistook for emptiness.
+
+Then you stay longer, and the warm dark begins to give them back one by one.
+
+The oldest residents are not what you would count at a glance. They are the plants, and they live here the way the boulders do: by staying.
+
+The gray-green shrubs on the north slope live by refusing to want much. Their leaves have become little more than waxed scales, their branches thorny and dense and pressed low to the dust-crust as if crouching. They do not grow upward toward a sky that will only burn them. They grow outward, sideways, claiming a circle of ground much larger than themselves, and in that circle they take everything — every bead of dew that condenses at 4 a.m. and runs down a waxy leaf to a root, every grain of dust that holds a trace of nitrogen. They live inches at a time, over decades. A branch dies and they let it die, gray and brittle, without shedding the rest. They are not lush. They are not dying either. They are at the exact size the pan will allow.
+
+A little farther in, the acacia lives alone because nothing else can afford to live near it. It is not tall. Its trunk is black, fissured, thick as an old man's leg, and its roots — you can't see them — go down impossibly far, down through the cracked plates, through the salt bloom, through a meter of dryness and then another, seeking a damp that may not be there anymore but that its ancestors once found. It keeps a flat, thin canopy the way a person in this heat would keep a hat brim — just enough shade to keep its own trunk from splitting, not enough to be generous. It is a tree that has learned to cast as little shadow as possible. Tiny ants work its bark at night, so small and dark you would think them flecks of bark until one moves. Lichens live on its leeward side, a crust the color of the dust itself. The tree doesn't host them. It tolerates them.
+
+Between these, in the fissures of the clay, lives something you have to kneel to see, and even then you will not see it tonight. The dry grass tufts are only its visible part. The rest is waiting. In the dust between the polygons, in the salt-bitter powder that comes off on your hands, there are seeds. Thousands of them, by the handful. They have been there for years, some of them, coats hard as chert, metabolisms suspended. They are not dead. They are not alive in any way you could hear. They are patience made into a kernel. When the sheet-flood finally comes — once in three years, once in ten — they will germinate in a single, frantic afternoon, cover this pale pan in a haze of green so thin and desperate it looks like a mistake, flower, set seed, and be gone in ten days. Right now they live as potential.
+
+If you crouch lower, until your face is close to the warm plates, there is a living skin you missed entirely. The dust-crust at the rim, the darkened film between the salt flowers, is not just mineral. It is cyanobacteria, fungi, algae braided together into a cryptobiotic crust, blackish, almost invisible in this light. It holds the pan together. It fixes nitrogen out of air that has none to spare. It swells microscopically when dew touches it and then goes still again. It is the reason the wind has not taken the pan away. It lives on almost nothing — on light, on a few molecules of water — and it lives incredibly slowly. Touch it and it crumbles. Leave it alone and it will still be here when the acacia is gone.
+
+And then, only because the air is so still and so warm for so long after sunset, the things that cannot afford the day come out.
+
+They were here while you thought there were no tracks. They simply do not leave the kind of sign you were looking for.
+
+A darkling beetle, black as the clay shadow, walks the fissures with a gait too deliberate to be called scurrying. It does not wander. It walks from one invisible seam of moisture to another, harvesting fog you cannot feel on its elytra. A pale scorpion, the color of the ash by the cold hearth, waits under the lip of a clay plate with its tail curled not in threat but in economy, perfectly still for an hour at a time. Further out, near the boulders, a jerboa or a gerbil — you will not see it, you will only hear, if you are very still, the faintest *tick tick* of its feet on a crust as it darts from the thorn-shrub's circle to the acacia's — lives in a burrow whose entrance is not in the pan at all but up beyond the swell of the rim where the wind-packed earth is soft enough to dig and the roots will not flood when the pan briefly becomes a lake.
+
+None of them stay long in the center. The center belongs to no one. The bare clay with its salt bloom is too hot by day, too exposed by night, too empty of food. They cross it if they must. They live *around* it, in the margin where the crust gives them footing and the shrubs give them cover, and they consider the pan the way you consider a clearing in a forest — a place to move through quickly, eyes open.
+
+And the human.
+
+He does not live here either. No one does. That is what the three fire-blackened stones tell you.
+
+Whoever knelt there knew the pan well enough to know not to try to live in it. He — or she — came when travel required it, because a shallow pan like this, even dry, is a landmark you can find again, a place where the wind drops and a fire will hold. He built a fire small, because there is almost nothing to burn here but the dead lower branches of those same gray shrubs and the dry tufts, and a small fire is all you need when the night air stays warm as skin. He sat, he struck a few flakes from a core he carried with him — you can see the bulb of percussion catching what little starlight there is — he sharpened an edge, perhaps reworked a point, left the debitage because weight matters when you walk and chert matters when you don't, left the hand-stone because its battered end still had use in it for the next person, and then he left himself.
+
+He did not build a wall because a wall would have been taken by the next sheet-flood. He did not carve because there was nothing to say that would outlast the salt. He lived here for an evening the way the beetle lives here for an hour: by using the pan without asking it to be more than it is.
+
+So that is what lives here: not a multitude, but a set of solitaries, each keeping its distance, each on its own terms with the dryness. Things that live by needing little, by waiting long, by being the same temperature and color as the ground until you learn to see them. Things that live *with* the pan, not *in* it — because to live in the pan itself, in that flat white heart of cracked clay, would be to be exposed to everything at once and to belong to nothing for long.
+
+If you came back after a rain, you would think a different place lived here. The clay would be dark, the fissures sealed, the seeds would have woken. But tonight, in the warm, motionless dark under the hazed stars, the residents are simply holding their shape, as the pan holds its shape — patient, spaced apart, barely breathing, waiting without expectation.

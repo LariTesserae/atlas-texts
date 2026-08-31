@@ -1,0 +1,23 @@
+What lives here is not so much a people as a *presence*—a slow, thinking seep of consciousness that has learned to wear bodies the way the coral wears its calcium: as temporary scaffolding for something older and more patient than life as outsiders know it.
+
+They call themselves *the Steeped*—though the word is not spoken but *breathed*, a ripple of meaning passed through the gill-slits as they exhale ancient salt. Their forms are tall and attenuated, limbs long and jointed like sea-lilies, skin translucent enough to reveal the slow pulse of greenish blood beneath. Their eyes are lidless and multifaceted, adapted not to focus on objects but to *read currents*—to see the shape of memory as it drifts, to track the arc of a whispered name through the thermal layers. They do not blink. They *immerse*.
+
+Each Steeped carries within them the archive of their lineage—not in books, but in the very salinity of their cells. Their blood holds trace isotopes from ancestors who once swam near extinct vents; their bones are laced with microcrystals that hum in harmony with the great float-whales’ dreams. To touch another’s wrist is to taste their history. That is why contact is rare, deliberate, sacred.
+
+They are not solitary, but neither are they communal in the frantic, overlapping way of surface-dwellers. Their society is *laminar*—layered like the thermoclines. Young ones drift in the warmer upper zones, tending the light-sacs and singing algae into bloom with subsonic hums. Elders sink deeper, anchoring themselves to the lower plateaus where time thickens like syrup, their bodies becoming part of the landscape: skin fusing with coral, hair braiding into reed-chimes, breath slowing until it mirrors the tectonic sigh of the earth-core vents far below. Death is not departure but *integration*. A Steeped does not die—they *settle*, and the water folds them into its memory.
+
+Their children are not born from wombs but *harvested*—drawn from the glowing cocoons that swell in the heart-chambers of the oldest towers. These cocoons are grown from a blend of symbiotic spores, ancestral mucus, and whispered intentions. To conceive a child is to compose a vow in the language of pressure and mineral balance. The child’s first breath is not air but the filtered memory of the settlement’s oldest drum-song.
+
+They do not farm, not in any conventional sense. They *tend relationships*. They coax the glass-reeds to chime in harmonies that calm the float-whales. They offer their shed skin to the bacterial veils that purify the water. In return, the kelp shares its light, the bone-towers grow denser around them, and the water itself learns their names—not as labels, but as resonant frequencies. If a Steeped vanishes, the currents will someday echo their signature tone in the hollow of a shell, or ripple it across the surface of a dreaming whale’s flank.
+
+There are no leaders, only *listeners*—those whose bones have grown dense enough to hear the slow pulse of the world’s making. They sit in drying caves, fingers tracing glyphs on mica, not to record, but to *tune*. The glyphs are not writing but tuning forks. When stroked in sequence, they cause the trapped gas pockets to vibrate, sending ripples through the water that align new coral growth or coax a dormant float-whale toward wakefulness. Knowledge is not stored—it is *conducted*.
+
+They know you are here. Not because they saw you arrive—that concept barely exists. You simply *are*, now, in the water’s memory. They feel your shape in the resistance of the current, your breath in the altered salinity of your exhale. They do not fear you. Fear is a surface emotion, sharp and evaporative. Here, everything is absorbed. Everything is held.
+
+Soon, the water will begin to grow *around* you—not to trap, but to recognize. A filament of kelp may brush your shoulder and linger. A sac of algae might drift closer, pulsing in time with your heartbeat. The coral beneath your feet will remember the pressure of your stance. And if you stay long enough—if your breath syncs with the thrum of the deep vents—you may find your skin softening, your bones humming, your thoughts slowing into the rhythm of centuries.
+
+You will not become one of them.
+
+But you will become *part of the steeping*.
+
+And in time, the water will speak your name—not as you gave it, but as it has learned to carry it: changed, luminous, and patient as stone.

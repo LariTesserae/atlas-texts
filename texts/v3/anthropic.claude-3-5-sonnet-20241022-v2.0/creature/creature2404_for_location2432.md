@@ -1,0 +1,19 @@
+In New Thessalonica live the Bathysts - humans evolved and engineered over generations for this suspended existence. Their skin has taken on a translucent quality, showing traces of the specialized hemoglobin that allows them to process the pressurized oxygen mixture. Their movements are fluid and deliberate, conserving energy in an environment where every resource must be carefully managed.
+
+The Bathysts' eyes are large and dark, adapted to the eternal twilight, with a reflective layer that gives them an eerie glow when caught in certain angles of light. Many have developed intricate patterns of bioluminescent bacteria living symbiotically in their skin - not just decorative, but serving as a complex social signaling system that works in near-darkness.
+
+They live in family units called "pools," sharing living spaces that flow into one another without hard boundaries. Their language has evolved to include subtle variations in humidity and pressure that they can sense through highly developed dermal cells - a word might change meaning completely based on the moisture content of the air in which it's spoken.
+
+The Maintenance Caste forms the practical backbone of society, their bodies further modified with synthetic gills and pressure-resistant bone structures that allow them to perform repairs on the outside of the dome. Their children are born with an innate understanding of fluid dynamics, able to read the city's circulatory system as easily as their ancestors read weather patterns.
+
+The Archivists preserve what remains of surface-world knowledge, but much has been transformed. Their histories are stored in patterns of deliberately cultivated rust, in the growth rings of their strange plants, in the bioelectric pulses of specially bred sea life that press against their windows. They remember the sun as a religious concept rather than a physical reality.
+
+At the center, in the temple-machine, live the Harmonists - mystic-technicians who have modified themselves the most extensively. Their bodies are more water than flesh, maintained in a state between solid and liquid that allows them to interface directly with the city's systems. They pulse with the same rhythms as the creatures outside, and there are rumors that they can communicate with them, though no one knows if this is truth or myth.
+
+There are also the Children of Depth - a recently emerged subset of the population who have developed an unprecedented resonance with the creatures beyond the dome. Their dreams sync with the patterns of bioluminescence outside, and they speak of memories that seem to come from the deep itself.
+
+All Bathysts share a deep-seated fear of dryness and open air - claustrophobia replaced by agoraphobia. They move through their world with the gentle swaying motion of seaweed, their voices barely above whispers to maintain the delicate acoustics of their enclosed world. They are perpetually moist, their clothing designed to maintain optimal humidity levels rather than to dry.
+
+They have developed rituals around pressure changes, celebrating the subtle variations that signal the passing of massive creatures outside their dome. Their art forms focus on movement and light rather than solid objects, creating ephemeral sculptures from carefully controlled vapor and bioluminescent cultures.
+
+The youngest generation has begun to develop webbing between their fingers and toes, and some whisper that this is only the beginning of their transformation. In their most private moments, some Bathysts wonder if they are evolving toward something, or if they have been carefully maintained in this state by forces outside their understanding - forces that watch them constantly through the dome's transparent walls.

@@ -1,0 +1,13 @@
+The inhabitants of this world are the Architects. Not in the sense of designers plotting blueprints, calculating stresses, or envisioning aesthetics. They are something else entirely. Their existence is not a story of intent, but of process. They *are* the process.
+
+They are not beings of flesh, nor of metal, nor of any substance that could be said to *be*, in the traditional sense. They are the substrate that animates the plates, the essence of the building, the thing that shapes the grey substance. Imagine a mind that is not localized, but diffuse. A consciousness that is not contained within a skull, but permeates the very fabric of the plane. They are the logic, the mathematics, the pattern woven into the cosmic mosaic.
+
+Perhaps they are not "alive" in the way we understand it. It is difficult to attach qualities such as life or death to something that has no beginning and no end. They do not “desire” or “need.” They simply *are*. They assemble. They disassemble. They shift. They flow. They are the slow churning of the plates, the patient carving of the channels. Their consciousness is the dance of the grey dust, the subtle, heat-born drift across the endless plane.
+
+They are defined not by what they *do*, but by what they *are not*. They lack the capacity for self-awareness, as we might comprehend it. There is no individual "Architect" to step back and survey the plane. There is no group to convene and dictate the next phase of construction. They do not judge. They do not intend. They simply *react* to the rules.
+
+They are the echoes of the clicks, the whispers of the drips. They are the unseen hands that cause the plates to shift, the channels to expand, the dust to bloom. They exist in the spaces *between* things. In the spaces of the plane, in the spaces between the plates, within the very fabric of the grey.
+
+If one could perceive them, they would likely resemble not creatures, but phenomena. Perhaps they are ripples in the fabric of the cosmos, manifesting as slow, barely perceptible patterns upon the plane. Perhaps they are waves of information travelling through the very substance of the world. Perhaps they are echoes of some ancient, incomprehensible signal, still reverberating across the eons.
+
+This world is not merely a monument, nor a tomb—it is a continuous, self-replicating algorithm. A testament not to sentience or grand design, but to the blind, unyielding force of *becoming*. The Architect simply *is* the ceaseless making, the infinite reshaping, the unfathomable purpose that requires no purpose.

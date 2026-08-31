@@ -1,0 +1,115 @@
+# Who Lives Here
+
+---
+
+They are not what you expect, and the problem begins with expecting.
+
+You come looking for people and you find them, technically. Bipedal. Warm-blooded, or at least warm — everything here is warm, so it's hard to isolate the source. Their hands have fingers. Their faces have eyes. They speak, or at least they produce language, though you will not catch them in the act of speaking to each other very often. Most of what they say is said to the walls.
+
+But start with the hands, because the hands are what you notice first.
+
+---
+
+Their fingers are long. Not grotesquely, not in a way that would stop you on a street — just enough that you register it as a proportion slightly outside your template for human. The extra length is in the last phalanx, the fingertip segment, and the skin there is different: thinner, slightly translucent, with a faint amber warmth beneath it that you might mistake for the glow of blood through pale skin if you hadn't already seen that color threaded through every living surface in this place.
+
+They are interfaced. That's the word that comes closest, though it carries the wrong connotations — too clinical, too mechanical, too much the language of ports and plugs. What has happened to them is softer and older than that. The amber-tech has grown into them the way it has grown into everything else here: not by force, not by surgery, but by long, slow, mutualistic drift. Generations of living inside these walls, pressing palms to this bark, breathing this air with its cargo of spores and sweetness and whatever microscopic agents the network sheds into its environment. They did not choose to become part of the system. The system did not choose to incorporate them. They and it grew toward each other the way roots grow toward water, and now the distinction between operator and operated-upon has become as meaningless as the distinction between the settlement and the forest.
+
+The amber traces in their fingertips are not implants. They are *them*. Grown in the womb, present at birth, deepening and branching with age. When a resident presses a hand to a trunk and the tree responds, what is happening is not command. It is not even communication in the way you'd understand it. It is more like two capillary systems touching and exchanging fluid. Information passes, but it passes the way sugar passes through a membrane: by gradient, by need, by the patient logic of diffusion. The resident feels what the tree needs. The tree feels what the resident intends. Somewhere in the middle, a compromise precipitates out, and the wood begins to move.
+
+This is why they are so still. This is why their movements carry that quality of unhurried intentionality that you noticed. They are never *only* moving through space. They are moving through a continuous field of biological information, every surface they touch feeding them data about growth-Loss, structural stress, water distribution, the health of the amber network, the location and status of every amphibian and insect within the root-mat's sensing range. They process this the way you process peripheral vision: automatically, unconsciously, with occasional flickers of focused attention when something spikes. To walk through the settlement is to be in constant dialogue with it. They don't hurry because hurrying would be like trying to sprint through a conversation.
+
+---
+
+There is a woman — or someone shaped like a woman, someone whose body suggests the word *woman* though she might not use it — who you see most often near the central dark tree. She is older than the others. You can tell not by her face, which is smooth and ageless in the way that faces become when they have spent decades in diffuse light and constant humidity, but by her hands: the amber threading in her fingertips has spread. It runs up past her wrists now, faint forking lines visible under the skin of her forearms, climbing toward her elbows. In certain light, when the canopy shifts and a beam of gray-gold illumination catches her at the right angle, you can see that the traces have begun to branch into her collarbones.
+
+She does not seem alarmed by this. No one does.
+
+She sits near the dark tree but does not touch it. She sits with her back against one of the surrounding braided trunks, her palms flat against the bark, and she listens. Not to anything audible. She listens the way the roots listen: through contact, through chemistry, through the slow tide of information moving through the phloem. Her eyes are open but unfocused. Her breathing is slow enough that you find yourself counting the seconds between inhales and losing track. Sometimes her lips move, and what comes out is not quite speech — it is more like a murmur, a low rhythmic sub-vocalization that you suspect is her translating, unconsciously, the chemical conversation happening through her palms into a form that the older, linguistic parts of her brain can process.
+
+She is the closest thing the settlement has to a leader, but that word is wrong. She is the most *integrated*. She has been here longest, touched the most walls, exchanged the most sugar-and-light with the network, and so the settlement knows her and she knows the settlement with a depth and fluency that the others are still growing toward. When a structural crisis comes — a wall-collapse, a sudden surge of uncontrolled growth, a section of the amber network going dark — the others look to her not for orders but for *orientation*. She can feel the shape of the problem through the trees faster than they can. She can place her hands on a trunk and know, within seconds, whether the network is rerouting around the damage or whether something more deliberate is needed. She is the settlement's most experienced translator, the one who can speak both human intention and arboreal will with the least distortion.
+
+But she is also the one most visibly *becoming* something else. The amber traces climbing her arms are not decoration. They are functional extensions of the network, growing through her the way they grow through the bark. She is being slowly, gently, irrevocably woven into the infrastructure. In another decade — if decades mean anything here — the traces will reach her shoulders, her spine, the base of her skull. What happens then is a question that the settlement's history presumably answers, because she is not the first to walk this path, but no one speaks of the ones who came before, and you notice that some of the oldest trunks, the ones at the very heart of the braided architecture, have shapes in their grain that are not quite botanical.
+
+She does not seem frightened. She seems like someone watching a season change.
+
+---
+
+The younger residents — younger in integration, not necessarily in years — move more freely. There are perhaps eight of them who seem fully resident, fully committed to the settlement's rhythm, and another handful who come and go through the gap in the canopy, arriving with things from outside (you don't see what — small bundles, wrapped in fibrous cloth, contents indeterminate) and leaving with nothing but the faint amber glow fading from their fingertips as they walk back into the outer forest.
+
+The permanent residents have a quality you struggle to name. It is not serenity, exactly, though they are calm. It is not focus, though they are attentive. It is something more like *saturation*. They are so thoroughly embedded in the sensory world of this place — the sound of growth, the taste of the air, the constant low-frequency hum of the network under their feet and against their skin — that they have developed a kind of poise that comes from never being under-stimulated. They don't fidget. They don't rush. They don't appear to experience boredom or impatience, because boredom and impatience are diseases of deprivation, and they are deprived of nothing. The world is pouring through them at all times.
+
+They eat, but what they eat is hard to categorize. Some of it comes from the pools: the amber amphibians are occasionally taken, held gently, and — this is the part that unsettles — pressed against the bark of a specific trunk, where the creature is absorbed over the course of several minutes, its body dissolving into the amber network the way the dead insects dissolve, and something is secreted from the bark in return: a thick, dark, honey-like substance that the resident collects on their fingers and eats slowly. The amphibian is not killed, exactly. It is *processed*. Reabsorbed. Its constituent materials redistributed through the network and returned in a form that a human body can use. It is not predation. It is not harvesting. It is something closer to circulation. The amphibians do not resist. Their huge eyes watch with what you want to call understanding, though you know that's projection. Probably.
+
+Other food comes from fruiting bodies that emerge from the trunks at irregular intervals — soft, pale, fungal-looking growths that are warm to the touch and taste, you are told (by a gesture, by a pointed look, by the way a resident holds one out toward you and then withdraws it when you hesitate, not offended, just noting your reluctance), like something between bread and marrow. These also carry the amber threading. Everything here does. To eat is to ingest the network. To breathe is to inhale it. The residents are not merely interfaced through their hands. They are saturated. The technology is in their lungs, their gut, their blood. It has been for so long that their bodies have co-evolved with it, their immune systems treating the amber organisms as self, their metabolisms incorporating the network's chemical signals into their own regulatory loops.
+
+This is why they are so healthy. You notice the absence of the usual human entropy: no visible scars, no asymmetries of injury, no coughs or limps or squints. Their bodies are maintained by the same system that maintains the settlement's walls. When a cell goes wrong, the network catches it, corrects it, the way it corrects a trunk that begins to grow in an undesired direction — not by force, but by gentle, persistent chemical persuasion. They age, but they age the way the braided trunks age: slowly, densely, becoming more rather than less.
+
+Whether they can still leave is an open question. The ones who come and go through the gap still can, clearly — their integration is shallow, their amber traces faint, their dependence on the network still partial. But the permanent residents? The woman by the dark tree? If she walked out into the unnetworked forest, away from the root-mat, away from the amber-threaded air, her body would be suddenly, catastrophically alone in a way it hasn't been in decades. Her regulatory systems would stutter. Her immune system would panic. Her fingertips would darken and ache as the amber organisms in her tissues, cut off from the network, went dormant or died.
+
+She could survive it. Probably. For a while. But it would be like a lung removed from a body. Technically viable tissue. No longer part of what made it alive.
+
+She stays. They all stay. Not because they're trapped, but because *leaving* has become a concept as abstract and theoretical as the mineral bedrock buried somewhere far beneath the root-mat. It exists. It is real. It has no relevance to the life being lived.
+
+---
+
+They communicate with each other, but you have to watch for a long time to see it happen.
+
+Sometimes it is verbal. Short sentences, low-voiced, in a language that sounds like it was once something you might recognize — there are phonemes in there that tug at the edges of familiarity — but has been worn and compressed and adapted to the wet acoustics of this place until it is all vowels and soft consonants, a language designed to travel through heavy air without competing with the crack and groan of growing wood. Their sentences are short because most of what needs saying between them has already been said by the network. By the time one resident speaks to another, the content has usually already been transmitted through the trees: a palm pressed to a wall here, the message riding the phloem, arriving as a chemical impression in another resident's fingertips a hundred meters away. The spoken words are confirmations. Emphasis. Emotional coloring that the network transmits imperfectly, because the network's language is sugar and light and growth-hormone, and it handles logistics better than it handles longing or grief or the particular flavor of amusement that arises when a wall collapses on a bird.
+
+They laugh. This surprises you. It shouldn't — they are human, or human-descended, or human-adjacent, and laughter is old and deep — but it surprises you because the settlement feels so solemn, so slow, so saturated with the gravitas of ancient biology, that laughter seems almost transgressive. But they laugh, and when they do, the amber traces in their skin flare briefly brighter, and the trees around them creak in a way that might be response or might be coincidence, and the insects on the bark pause for a half-second in their grooming before resuming. Laughter moves through the network. The settlement feels it. What it does with the information is anyone's guess.
+
+They touch each other. Not often, not casually, and when they do, the contact is charged with a significance you can feel even as an outsider. When two residents press their palms together — fingers interlaced, amber traces meeting — there is a visible flare, a brightening of the threads under both their skins, and both of them go still and quiet for a long moment, eyes half-closed, breathing synchronized. They are sharing something. Not just information. Something richer and less structured. The network in one body speaking directly to the network in another, without the trees as intermediary, a private channel, a whispered conversation conducted in chemicals and light. When they separate, there is a beat of silence, a recalibration, and then they move apart with the careful tenderness of people who have just been, for a moment, the same organism.
+
+This is how they love. This is how they grieve. This is how they remember. The network gives them access to a form of intimacy so direct that language is its shadow, and they use it sparingly, because it is overwhelming, because there is no filter, because to touch another resident palm-to-palm is to feel everything they feel, including the things they have not yet admitted to themselves.
+
+Some of them, you notice, have not touched anyone in a long time. Their amber traces are bright but solitary, and they move through the settlement with a self-containment that might be preference or might be caution or might be the particular loneliness of someone who has looked too long into another person without mediation and found it unsustainable.
+
+---
+
+The children — there are children, two that you can see, though there may be others in the dark unoccupied chambers where the architecture grows wild — are different in a way that matters.
+
+They are small. Young. Perhaps five or six years old, though aging is difficult here. Their amber traces are brighter and more extensive than any adult's except the old woman's. The threading covers their hands entirely, runs up their arms, patterns their torsos in fractal branching lines visible through their fibrous clothing. Their eyes — and this is the thing that makes you stop, that makes the hair on your arms stand up, that makes you feel for the first time that you are seeing something genuinely, irreconcilably *other* — their eyes have an amber sheen. Not a reflection. Not a trick of the light. A luminosity from within, as if the network has reached their optic nerves and is looking out through them.
+
+They move differently than the adults. Faster. More fluid. They run through the braided corridors with a confidence that suggests they know where every wall is and where it's going to be, not because they've memorized the layout but because they can feel the growth-trajectories in real time, their whole bodies acting as sensors, the network feeding them spatial data so complete that they navigate the shifting architecture the way a fish navigates a current. They don't touch the walls to communicate with the network. They don't need to. They *are* in it, immersed, the boundary between their nervous systems and the amber-tech so thin as to be nominal.
+
+They play. They chase the amphibians around the pools. They climb the trunks with a fearless speed that makes your chest tighten. They make sounds — laughter, shrieks, bursts of the vowel-heavy language — but also other sounds, clicks and trills and long sliding tones that are identical to the bird-calls from the canopy, and when they make these sounds, the birds answer, and the amber traces flare, and you realize the children are not imitating the birds. They are speaking the same language. They are nodes in the same network. The birds, the children, the trees, the insects — they are all *in conversation*, a continuous polyphonic exchange conducted in chemistry and sound and light, and the children are the most fluent speakers because they have never known anything else.
+
+They look at you. This is the worst part. They look at you with those amber-sheened eyes and they *see* you, not the way a child sees a stranger — with curiosity or shyness or boldness — but the way the network sees you: as a novel input, an unintegrated element, a thing whose chemical signature doesn't match anything in the system. They look at you the way the dark tree's silence looks at the noise of growth: with a patience that has nothing to do with waiting.
+
+One of them reaches toward you. Small hand, amber-bright, fingers extended. The gesture is unmistakable. An invitation. A threshold.
+
+You don't take it.
+
+The child doesn't withdraw. Doesn't drop the hand. Just stands there, glowing faintly, while the settlement grows and shifts and breathes around you both, and the dark tree hums its low note that you feel in the roots of your teeth, and the canopy splits and heals and splits again overhead, and the warm wet air carries the sound of everything becoming more of what it already is.
+
+---
+
+There is one more resident you haven't seen. You know they exist because the others orient around an absence. There is a chamber — deep in the braided architecture, in the oldest section, where the trunks are so thick and tightly woven that the walls are solid wood — that no one enters while you are watching, but that everyone faces, periodically, the way a plant faces light. You see a resident pause in their work, turn their head toward that part of the settlement, go still for a moment, and then resume. You see the old woman near the dark tree angle her body toward it when the humming comes. You see the children, in the middle of play, stop and look in that direction with their amber eyes and then look at each other and then run off again, as if they've received an instruction or a reassurance.
+
+Someone is in that room. Someone or something. Someone so deeply integrated into the network that they no longer need to move, no longer need to eat, no longer need to do anything but exist at the center of the amber web and process the vast, continuous, incomprehensible data-stream of the living settlement. Someone whose body has been so thoroughly colonized — or so thoroughly *fulfilled* — by the network that the boundary between them and the architecture has not merely blurred but dissolved. Someone who is, in a sense, the settlement's mind. Not its brain — it has no single brain, it is distributed, decentralized, a democracy of roots and sap and chemistry — but its *mind*, its capacity for something like reflection, something like self-awareness, something like the long slow thought that an ecosystem might think if it had a place to think it.
+
+You don't see them. You won't. They are not available for observation. They are past the threshold where observation is a relevant concept. They are in the walls. They are in the roots. They are in the amber light that flares when a tree changes direction, in the chemistry of the pools, in the huge eyes of the amphibians, in the calls of the birds, in the hum of the dark tree that might, you now realize, be a *response* to them rather than an independent phenomenon.
+
+They are what the old woman is becoming. They are what the children were born to surpass. They are the answer to a question the settlement asked a long time ago — *what happens when you stop insisting on the boundary between the one who lives in a place and the place itself* — and the answer is not a person and not a place but something else, something that doesn't have a name yet, something that grows.
+
+---
+
+This is who lives here: people who are becoming architecture. Architecture that is becoming people. A negotiation conducted in sugar and light between human desire and arboreal will, tended by insects and amphibians and birds who are all, in their way, citizens. A woman whose arms are turning into circuitry. Children whose eyes are windows into the network. An unseen mind dissolving into the walls of a room no one enters. A dark tree at the center that hums and says nothing and means everything.
+
+And you, standing at the edge, untouched, unintegrated, watching a child hold out a glowing hand.
+
+The settlement breathes. The canopy shifts. A new doorway opens in a wall that was solid a moment ago, and through it you can see a corridor you've never seen before, lit from within by amber light, leading deeper, leading down, leading toward the sound of the humming, and the air that comes through it is warm and sweet and tastes like copper and chlorophyll and something you still can't name but that your body recognizes before your mind does, something old, something that was in you before you were you, something that the gap between your cells has been waiting for without knowing it was waiting.
+
+The child's hand is still extended.
+
+The wood grows. The light pulses. The dark tree hums.
+
+You are being asked a question, and the question is not *will you stay* but *do you know that you were always already part of this*, and the answer is in your blood, in the iron in your blood, in the way the iron in your blood is the same iron that the amber traces use to conduct their light, and the settlement knows this, has known it since you stepped through the gap in the canopy, has been tasting you through the root-mat under your feet this whole time, learning your chemistry, finding you compatible, preparing a place for you in the negotiation —
+
+The hand. The amber hand. The small glowing hand of a child who is also a forest who is also a technology who is also a question.
+
+Everything here is alive and everything alive is growing and everything growing is reaching toward you with the patient, implacable certainty of a root finding water.
+
+You breathe. You taste the air. You feel the hum in your teeth.
+
+You are already beginning.

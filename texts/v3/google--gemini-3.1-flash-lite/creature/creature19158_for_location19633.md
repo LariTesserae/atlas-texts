@@ -1,0 +1,17 @@
+Emerging from the deep shadows of the calcified ribbing, they do not arrive so much as they accumulate.
+
+They are the **Chitin-Architects**, though that name is a human imposition upon a species that possesses no concept of "architecture" distinct from "digestion." They are spindly, multi-limbed beings, standing roughly the height of a man, though they never stand straight; they exist in a perpetual, graceful crouch, their centers of gravity tethered low to the ossified floors. 
+
+Their bodies are a marvel of organic efficiency. Their carapaces are not the glossy, hardened shell of a beetle, but a porous, leathery husk that functions less like skin and more like a sponge. It is the color of bruised plums and wet slate, perfectly camouflaged against the violet-lit walls. Where their joints meet—shoulders, hips, and the intricate, multi-segmented wrists—they secrete a thick, translucent resin. This is their primary tool: a natural cement that hardens upon contact with the ambient oxygen, turning their own waste and environmental debris into the very masonry of the city.
+
+They move with a hypnotic, grinding deliberation. They do not walk; they flow across the vertical planes, their six limbs tipped with wide, adhesive pads that make a soft *thrum-slap* rhythm against the bone-wood. They never hurry, for in a world of static permanence, speed is a form of erosion. They are artisans of the glacial.
+
+Their heads are narrow, featureless triangles of bone. They have no eyes to catch the dim violet light; instead, their entire faces are covered in a dense, oscillating field of sensitive, velvet-like cilia. These cilia "see" via vibration. They map the city not by light, but by the resonance of the dripping mist, the rasp of their kin’s legs, and the internal, rhythmic pulse of the city’s massive sap-veins. They perceive the world as a singular, living chord that they are constantly helping to tune.
+
+There is no language among them. When they communicate, they press their chests against the walls, vibrating their internal organs to send low-frequency hums through the architecture itself. To witness a conversation is to stand near a structural support beam and feel the sound rattling through the soles of your feet—a sub-sonic debate about the thickness of a wall or the structural integrity of a vine-bridge three levels down.
+
+They do not sleep, nor do they toil in the way a laborer understands work. Their lives are a cycle of passive consumption and deliberate excretion. They feed on the moss and the lichen, filtering the heavy, moisture-laden air through throat-sacs that ripple like bellows. In return, they secrete the mortar that seals the cracks of their world. They are the city’s immune system, its contractors, and its biomass.
+
+Sometimes, one of them will stop. It will press its cool, velvet face against a seam in the wall, remaining frozen for weeks, letting the thick, warm humidity coat its back until it begins to grow its own layer of bioluminescent lichen. It becomes a statue, a living buttress, a literal part of the cathedral it inhabits. It grows still, its pulse synching with the architecture, slowly becoming the very floor that will support the next ten thousand generations.
+
+They are not masters of this space; they are its cells. They are the collective consciousness of a world that has forgotten the sky, existing only to ensure that the vaulted ribs never fracture, and that the roar of the scraping, teeming life within never ceases.

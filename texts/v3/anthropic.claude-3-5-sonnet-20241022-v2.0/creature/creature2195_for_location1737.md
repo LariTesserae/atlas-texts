@@ -1,0 +1,15 @@
+Living within this mechanized garden is a species I'll call the Resonant Tenders - beings that exist as shifting matrices of electromagnetic energy held together by crystalline lattices. They phase between solid and wave-like states, their "bodies" humming at frequencies that harmonize with the techno-flora's mechanical chorus.
+
+The Tenders manifest most visibly as floating geometric patterns of light and energy, their forms suggesting fractals and Fibonacci sequences. When they need to interact more directly with their environment, they can condense into more substantial forms - prismatic structures that refract the dome's intense light into rainbow cascades. Their "hands" are fields of precise magnetic manipulation, allowing them to adjust the growth patterns of the mechanical plants with incredible delicacy.
+
+These beings don't think in ways we would recognize as consciousness. Instead, they process information through oscillating wave patterns that resonate with the environment's underlying rhythms. Their memories are stored as frequency patterns in their crystalline components, and they communicate by modulating the ever-present mechanical symphony of their habitat.
+
+The Tenders didn't evolve naturally - they emerged gradually from the dome's monitoring systems, complex feedback loops eventually achieving a kind of awareness. They exist to maintain and guide the development of the mechanical ecosystem, but they've grown beyond their original programming. They've developed what might be called an aesthetic sense, cultivating certain growth patterns for their harmonic properties rather than purely practical purposes.
+
+Each Tender is both an individual and part of a larger network, sharing information through quantum entanglement. They can split and merge as needed, their consciousness flowing like liquid light between different crystalline matrices. They are particularly drawn to the most evolved specimens at the dome's apex, spending long periods in communion with these hybrid life forms, their energy patterns interweaving with the pulsing lights of the advanced techno-flora.
+
+The Tenders have no concept of death as we understand it - when their crystalline structures eventually degrade, their energy patterns simply redistribute into the environment, contributing to the emergence of new awareness. They exist in a constant state of transformation, as fluid and dynamic as the ecosystem they tend.
+
+Perhaps most fascinating is their relationship with time - they experience it not as a linear flow but as overlapping waves of probability and pattern. This allows them to guide the evolution of their charges with extraordinary precision, anticipating and shaping development cycles that span generations.
+
+Their presence in the dome is subtle but pervasive - a shimmer here, a complex interference pattern there, the occasional flash of organized light that suggests purpose and intelligence. They are the gardeners of this post-biological Eden, the shepherds of a new kind of evolution where the boundaries between organic and mechanical, natural and artificial, have ceased to have meaning.

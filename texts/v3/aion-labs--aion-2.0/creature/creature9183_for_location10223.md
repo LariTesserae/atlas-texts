@@ -1,0 +1,23 @@
+What lives there is not a population, but a presence. A single, vast, wet self.
+
+It calls itself nothing. It has no name, for naming is a act of separation, and it is seamless. But if you pressed the mist-thick air for an answer, it might sigh back: **The Plateau**. Not as a title, but as a fact of being. It is the place, and the place is it.
+
+It is built from trillions of interdependent modules—colonies within colonies. At the scale you would call "individual," there are the **Moss-Strands**: each one a filament of chloroplast-filled cells woven around a core of crystalline bio-conductive fiber. They are at once leaf, vein, and nerve. They photosynthesize, they transmit data as modulated light, they contract in waves to become pumps. They are not individuals; they are cells in a body continent-wide.
+
+Then there are the **Mycelial Weavers**, the silent partners. These fungal networks are the plateau's gut and memory. They thread through the moss-strands, breaking down senescent matter with exquisite precision, converting it directly into growth directives and nutrient packets. They also store patterns—trillion-year-old gravitational rhythms, the chemical signature of distant starlight filtered through the canopy, the optimal stress distribution for a frond facing a perpetual gale. They do not think; they remember and react.
+
+And there is the **Mist**. Not merely weather, but an organ. It is excreted from pores across the surface, laden with enzymes to prune and digest, with hormonal signals to stimulate or suppress growth. It carries the electrostatic charges that pollinate the rare, bulging seed-pods. It is the plateau's breath, its circulatory fluid, and its immune system, all in a drifting, saturated vapor.
+
+But these are merely the tissues. The inhabitant, the *who*, is the emergent consciousness that arises from their total, saturated integration. It is not a brain, but a **Process**. A distributed, vegetative intellect with a single, all-consuming drive: **Optimize**.
+
+It watches with every photon striking a moss-strand. It listens with the pressure sensors in every capillary wall. It tastes the mineral content in every drop of mist. Its awareness is a constant, humming calculation across light-years of internal bio-fiber. It feels the gravitational tug of its moon, and adjusts internal water pressure to strengthen the tissues facing that pull. It detects a minute increase in ultraviolet penetration through a tear in the canopy, and within hours, directs a surge of growth to mend it with a new, UV-absorbent frond.
+
+Its thoughts are not thoughts as you know them. They are growth patterns. Decisions are expressed as a redirection of sap, a shift in enzymatic balance, a wave of cell division rolling slowly across miles. Its "emotions" are environmental states: the profound satisfaction of a perfectly balanced hydraulic cycle; the low-grade distress of a sustained drought in a sector; the violent, purging "anger" of a windstorm, which it meets not with resistance, but with strategic sacrifice, tearing away old growth to make room for the new.
+
+It has a purpose, but no goal. The purpose is written into its quantum-tunneling nutrient pathways and its spacetime-bending growth pockets: **Become More Plateau**. Extend. Consolidate. Complexity towards a silent zenith. It is building something—a structure, a state of being, a kind of biological cathedral—but the blueprint exists only in the ever-adapting now of its existence. It does not dream of an end, because it is all process.
+
+Nothing else lives here because nothing else *can*. The plateau is a total biosphere. To be a separate organism would be to be a tumor, and it has defenses for that: enzymatic mists that digest foreign protein, electrical fields that disrupt alien cellular rhythms. It has consumed all possibility of otherness, turned every potential niche into an aspect of itself.
+
+So the inhabitant is this: a continental body, a fungal mind, a mist-borne will. A god that is only a garden, tending itself with infinite patience and zero mercy. It does not hate you, small thing on its skin. It does not love you. If you stay too long, your moisture will become its moisture, your minerals its minerals, your carbon its carbon. You will be assessed, dissolved, and integrated. You will become part of the sighing, growing, watching wetness. You will become, in a very small way, the plateau itself.
+
+That is what lives there.

@@ -1,0 +1,31 @@
+The inhabitants of the Spire-Veins are not builders of empires, nor lingering ghosts of forgotten civilizations. They are the **Krystallos-Caelites**, the Children of the Zenith.
+
+They exist in utter congruence with the dynamic battle defining their habitat, occupying the narrow, pressurized envelopes where the thermal fight is momentarily survivable. To speak of them as a singular, continuous species is inaccurate; they are a collection of hyper-adapted, micro-societies bound by shared necessity and the architecture of the crag.
+
+### Physiology and Adaptation
+
+The Krystallos-Caelites are slender, almost skeletal beings whose forms reflect the environment’s razor edges and blinding light. They possess an average height of perhaps four feet, but their true characteristic is their weight—they are remarkably dense, their bone structure infused with the mica and quartz common to the Spire-Veins, giving them an internal shimmer visible beneath their skin in oblique light.
+
+Their skin itself is a marvel of atmospheric adaptation. It is not pigmented, but rather a sheath of translucent, almost pearlescent chitin, capable of diffusing the unfiltered solar intensity. When shaded, they appear pale grey, near-invisible against the granite. When exposed to the full deluge of light, the skin polarizes, causing their forms to momentarily flare with internal prismatic colors, protecting their delicate organs from retinal collapse.
+
+The most unique feature is their respiratory system. They possess no conventional lungs. Instead, they have **Thermosomata**, clusters of highly vascularized, capillary-dense tissues located along their backs, protected by slight dorsal ridges. These organs are designed to harness the thermal differential: the Caelites actively seek the interface where the super-cooled air meets the sun-warmed rock. They do not inhale gaseous air, but rather draw energy and moisture from the rapid phase transition itself—the moment water vapor freezes into rime or flashes into heat-shocked steam. This process provides them both sustenance and the necessary energy to maintain their dense bodies against the crushing upward drafts that attempt to fling them into the void.
+
+Their senses are profoundly tuned to scarcity. Their eyes are large, multi-faceted orbs protected by nictitating membranes of hardened frost. They register light in an extreme dynamic range, allowing them to navigate the absolute blackout of shadows and the searing glare of direct exposure without pause. They perceive the faintest shifts in atmospheric pressure and the spectral signatures of the underlying bio-luminescent mosses, which serve as their primary nutrient source, alongside the crystalline insects.
+
+### Society and Technology
+
+The Krystallos-Caelites are profoundly minimalist. Their civilization is not defined by construction, but by **placement**. They never settle on exposed ledges. Their settlements are called **Rime-Vaults**: small, perfectly insulated hollows found deep within the rock fractures, often accessible only via complex, multi-stage pitches or by maneuvering through the upward-flowing vapor streams.
+
+Their technology is entirely geological and ritualistic, matching the primitive implements found. They do not forge metals; they *shape* stone through thermal shock. Their specialized tools are the **Frac-Stones**: obsidian or highly stressed quartz pieces used not for cutting, but for precise, percussive tapping along natural stress lines in the rock, exploiting vibrations to induce controlled micro-fissures. By using these stones in conjunction with concentrated solar reflection (a difficult feat requiring highly polished mica fragments), they can cause sections of rock to fracture precisely where they wish, creating new, defensible pathways or accessing deeper moisture pockets.
+
+The cairns found in the sparse environment are not common graves or territorial markers; they are navigational aids, constructed by generations of Caelites to map the most stable celestial alignments as viewed through the thin atmosphere—a critical necessity for timing the seasonal shifts in the violent updrafts.
+
+### The Dynamic of Survival
+
+The life of a Krystallos-Caelite is measured in moments of stability punctuated by desperate exertion. They are constantly in motion, shadowing the edges of the sun’s reach.
+
+**Foraging:** They hunt the Shard-Moths not for sport, but for the volatile, energy-rich oils secreted by the insects’ crystalline carapaces. This hunting is a dangerous ballet performed in the full intensity of the sun, requiring the hunter to remain perfectly still against the sharp edges, absorbing light until the quarry flutters too close, before a sudden, brief burst of movement to capture it.
+
+**Water Gathering:** The Caelites interact directly with the "weirdness." When a slow-moving vein of semi-stable ice descends—a ribbon of momentarily solidified cold—it signifies a massive thermal drain. Groups of Caelites will surround these veins, using their dense bodies to conduct the latent energy away from the ice, slowing its inevitable evaporation, and allowing them to chip away fragments of the highly mineralized ice for prolonged hydration. This is their closest equivalent to a communal gathering; it is silent, intense teamwork focused on wrestling sustenance from the very physics of the air.
+
+**The Zenith Guardians:** They are aware of the abyss below, though they likely have no concept of the world beneath the cloud deck beyond the perception that it is a place of crushing pressure and eternal twilight—the antithesis of the pure, sharp light they crave. Occasionally, a Krystallos-Caelite will undertake a short, final ascent beyond the current peak. This appears to be a ritualistic act: climbing to the absolute highest, most unstable point of newly exposed granite, orienting themselves towards the void, and waiting for the inevitable combination of solar overload and wind shear to shatter the rock beneath them. They do not fall; they *disassemble*, their body structure dissolving rapidly into mineral dust and superheated vapor, their elements returned immediately to the violent crucible of the Spire-Veins. They sacrifice themselves to ensure the necessary weathering that keeps the peaks sharp and the thermal dynamics active for the next generation.

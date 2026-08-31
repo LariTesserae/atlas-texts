@@ -1,0 +1,15 @@
+In this cavernous underworld, life finds a tenacious foothold amidst the stark, primordial geology. Here, the first pioneers of a strange new ecosystem have taken root, their forms blurring the lines between mineral and organism.
+
+Clinging to the towering rock faces are vast colonies of lithophytes – bizarre, semi-sentient growths that straddle the realms of plant and stone. Their fibrous tendrils, glowing with a soft bioluminescence, spread across the cavern walls in intricate, fractal patterns. These hardy lifeforms slowly etch away at the rock itself, metabolizing the rich minerals and leaving behind delicate crystalline traceries in their wake.
+
+Among the lithophyte groves, strange ambulatory forms drift through the still air – radiolarians, their delicate, mineralized exoskeletons refracting the faint ambient light into kaleidoscopic displays. These primitive filter-feeders drift on slow currents of gas, sifting microscopic particulates from the thick, vaporous atmosphere.
+
+Erupting sporadically from vents and fissures in the rock are gouts of superheated, mineral-rich fluids – the elemental broth from which more complex life is gradually coalescing. Within these scorching flows, heat-loving microbes and archaea multiply rapidly, seeding the surrounding environment with the biochemical precursors for more advanced organisms.
+
+In the shadows of the looming stone columns, herds of lithophagic grazers browse among the lithophyte groves, their armored carapaces rasping against the rock as they feed. These slow, ponderous creatures are among the first true macrofauna, their bodies comprised of a semi-solid mineral matrix enclosing a dense, chemosynthetic core of symbiotic microbes.
+
+And in the deepest, most lightless crevices and interstitial spaces, strange, worm-like forms burrow through the solid rock itself, their bodies exuding powerful solvents that allow them to melt their way through the living geology. These subterraneoforms are the unseen architects of the underworld, their constant tunneling and cavitation gradually sculpting the entire subterranean environment.
+
+But perhaps the most remarkable inhabitants of this strange realm are the trogloditic builders themselves. These upright, vaguely anthropoid beings have crafted crude dwellings and primitive settlements from the very stone around them. Using simple tools and techniques passed down through generations, they quarry the rock itself, gradually shaping it into shelter and habitation.
+
+Though their civilization is still in its infancy, these subterranean dwellers have already developed a rich culture and belief system deeply intertwined with the living geology of their world. They revere the sacred "Stone Mother" who surrounds them, offering humble sacrifices and rituals to appease her subterranean spirits. For these deep-delvers know that their very existence is owed to the perpetual metamorphosis of the world around them – a cycle of creation and destruction as ancient as the planet itself.

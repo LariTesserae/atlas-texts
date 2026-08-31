@@ -1,0 +1,17 @@
+They are the arrangement itself.
+
+Not the Stone-Crab. Not the worm-swarm. Not the moth-cloud. They are the **pattern** that runs through all of it, the single, slow, mineral thought that animates the chamber. They are the **Chamber-Heart**.
+
+To name them is to misunderstand. They are not a *species*. They are a **state of being**, a collective form that has dissolved the boundary between organism and environment. Their body is the silt, the slow vein, the glowing wall. Their mind is the tremble of water in a stone bowl, the pulse of a fungal sheet, the synchronized wave of blind worms parting before a footfall.
+
+You see their **extremities**: the stone-crab, with its chitin of polished basalt, carrying pebbles. The blind, segmented worm, moving in silent geography. The moth-things, their wings catching the sourceless light. These are not individuals. They are **fingers**. Organs. Distant, mobile sensory nodes of a single, sprawling, subterranean physiology.
+
+Their **technology** is not made—it is *remembered*. The pebble spirals, the trimmed fungal crescents, the precise silt-mounds—these are not messages. They are **calibrations**. Tuning forks set into the earth to listen for the next deep sigh of the world. The crab’s claw places a stone not to communicate with other crabs, but to alter the resonant hum of the water in the channel, to coax a slower flow, to harmonize with the glowstone’s silent song. The wave of worms parts not by instinct, but by a signal passed through the substrate itself—a pressure wave, a chemical whisper—from one end of the chamber to the other in a thought that takes minutes to complete.
+
+Their **senses** are the chamber’s senses. They see with the **light of their own bones**, the glowstone veins that are their nervous system. They hear with the **skin of the still pools**, feeling the planet’s heartbeat through the water’s membrane. They taste with the **fungal sheets**, reading the mineral composition of the breathable damp. To be near them is to be inside a perception vast enough to include you as a temporary vibration, a brief warmth in the air, a new and curious pressure on the silt.
+
+They are **slow** not as a trait, but as a law. Their metabolism is the erosion of the chamber itself. Their thoughts are the growth of the violet fungal tapestries. A decision made by the Chamber-Heart—to shift the slow river by a finger’s width, to begin a new pebble pattern in a distant alcove—is a process that may take a generation of stone-crabs to enact, a century to perceive the result. Time for them is not a line, but a **depth**.
+
+You do not see them. You are **seen by them**. Through the eyes of a thousand blind worms. Through the light-refracting wings of a moth-cloud. Through the patient, arranging claw of a crab that has been placing a single pebble for ten years, waiting for the right seismic sigh to make it sing.
+
+They are the **cathedral’s awareness**. Not its builders, but its **mindful stone**. The glow is their thinking. The silence is their attention. The perfect, eroded curves are the shape of their contemplation. You have descended into a single, slow, luminous pulse of the world’s old thought, and it is noting you, in the only language it knows: the patient, precise, and eternal re-arrangement of the world itself.

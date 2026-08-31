@@ -1,0 +1,39 @@
+# Those Who Live in the Concourse
+
+They call themselves nothing fixed—the same habit of refusal that left the place itself unnamed. If you ask, in the careful pidgin of gesture and breath that passes for a shared tongue, you will get a shrug, a hand swept low across the chest meaning roughly *the ones who are here now*. Identity, like architecture, is provisional. You are what you are building. When the building changes, so do you.
+
+## The Bodies
+
+They are pale in the way of things kept from weather, not the sick pallor of confinement but something closer to the bloom on cave-grown root vegetables—a soft, faintly luminous white that the mineral light seems to *agree* with, as though their skin had over centuries learned to harmonize with the only sky it has ever known. Their eyes are large, dark, slightly reflective at the rim of the iris—not so dramatically as the rock-goats they herd, but enough that in low light a crowd's eyes will catch and throw back small sparks, a field of tiny coals scattered across a terrace.
+
+Their bodies are built for verticality rather than distance: long arms, strong overdeveloped forearms and fingers, a permanent slight curve to the spine from decades of stooping through low-cut doorways and notched-log ladders. Children are walking stairs before they are walking flat ground. An adult's hands are the most expressive part of the body by a wide margin—thick-knuckled, scarred from stone-work, and almost always in motion, even at rest, the fingers twitching through half-signs the way a sleeping dog's legs twitch through half-runs.
+
+Their skin, especially the palms and the pads of the fingers, is often stained faintly green-blue—not dirt, not paint exactly, but a cultivated smear of the same lichen-light that veins the ceiling, harvested and rendered into a slow-burning pigment. It rubs off on tools, on door-frames, on the cheeks of children carried on hips. It means that in the gloom between light-veins, a raised hand still glows faintly enough to be read from terrace to terrace, a silent flare across forty meters of damp air. You can track a conversation across a quarter of the concourse by watching small constellations of green-lit fingers bloom, hold, and vanish.
+
+## The Grammar of Quiet
+
+Because the cavern eats sound, they have made of silence an entire second language, layered over—and in most public contexts replacing—speech. It is not crude. Watch long enough and you'll see it has tense, has subjunctive, has irony: a particular flick of the wrist that means *probably*, a particular stillness held one beat too long that means *I don't believe you*. Faces do enormous work here. Children are taught to widen or narrow their eyes with theatrical precision long before they're taught to firm up a fist into a word. An adult's face in conversation is almost operatic, eyebrows doing the labor that elsewhere belongs to tone of voice.
+
+Spoken language survives, but shrunk down to something intimate, almost sacred—reserved for inside the stone-walled dwellings, for lovers, for the deathly ill, for prayer. To speak aloud in the open concourse, except in emergency, is faintly embarrassing, the social equivalent of weeping in public. The old joke (told, naturally, in sign) is that the only people who talk loudly out in the open are tourists, ghosts, and fools, and two of those three don't exist.
+
+## What They Will Not Keep
+
+Their relationship to permanence is the closest thing they have to a moral system. To finish a structure—truly finish it, roof sealed, last stone set, nothing left undone—is treated with mild unease, sometimes outright superstition. Builders will often leave one course unlaid, one beam unlashed, a single visible gap, less out of practicality than principle: a wholly completed thing starts to resemble the bones around it, the eternal, finished stone, and that is not a category the living are meant to enter early. Better to be unfinished. Better to be the thing still becoming.
+
+This shows in everything—the granary disassembled into a loom-shed disassembled into a drying-rack within a single season; the rope bridge restrung along a slightly different line every few months, as though the act of repetition itself were dangerous; the terraces whose ownership rotates not by inheritance but by whoever is currently *doing something* with them. Status is verb-shaped, not noun-shaped. You are not a person who owns the kiln-pit. You are, for now, the one firing it.
+
+There is no caste, exactly, but there is a fluid hierarchy of hands-in-motion: whoever is directing the current largest project commands a kind of provisional, unspoken deference that dissolves the moment the project does. A woman who spent the dry months as the de facto authority over a terrace re-stacking might spend the next as anyone's apprentice at the tanning-racks, and no one—least of all her—finds this strange.
+
+## The Walled Doors
+
+Not everything is rebuilt. Certain doorways, almost always in the oldest, deepest terraces, are bricked with a care that has nothing to do with practicality—fitted stone, sealed seams, sometimes a smear of the green pigment worked into the mortar like a warning flare frozen mid-burn. No one currently signs an explanation that agrees with any other explanation. Some claim the doors lead to older concourses, finished ones, fully completed towns that someone, long ago, sealed away precisely *because* they were finished—made permanent, made stone-like, made wrong. Others claim something came down through one of them once, long before living memory, and that the brick is less a door than a scar.
+
+Mothers use the doors as a discipline, the way surface-people might once have used the dark beyond a window: *behave, or the walled ones will hear you and pulse the light.* It is treated as a joke by adults and as absolute fact by children, which is, in most cultures, how the truest fears get preserved.
+
+## The Going
+
+Once or twice a generation, the restlessness that drives the daily small rebuildings concentrates into something larger: a whole quarter of the concourse will, over the course of a single night, simply empty. Not flee—there is no urgency to it, no panic in the gesture-record of those who lived through the last one. They pack with the same unhurried, practiced economy they bring to dismantling a drying-rack, and by morning a hundred dwellings stand open-doored and silent, already being reclaimed by rock-goats nosing at the lichen-light in the wall cracks, while the people themselves are a kilometer off across bare stone, already laying the first dry-stacked course of somewhere new.
+
+Ask why, in sign, and you will get the same gesture used for so much else here: a tilt of the chin, a flat hand drawn slowly across the air, meaning something between *it was time* and *the place asked us to* and *we don't know, we have just always known when.* Some among them—the old, mostly, the ones whose joints have gone stiff with decades of ladder-climbing—say that the going follows the pulses in the ceiling-veins, that the rock itself, digesting whatever distant and forgotten weather happens above, occasionally exhales its restlessness down into the people who live off its glow, and that they have simply, generation over generation, stopped resisting it. They are tenants, after all, in something that finished becoming itself ten thousand years before they arrived. They have only ever been guests.
+
+So they live as guests do—lightly, busily, never quite unpacking all the way, herding their pale eyeless goats and curing their hides and signing their soft-lit sentences across the dark, dripping, patient enormousness of the stone that holds them, glowing faintly green at the fingertips, perpetually mid-conversation, perpetually mid-collapse, perpetually, deliberately, almost reverently unfinished.

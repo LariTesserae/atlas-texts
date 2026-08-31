@@ -1,0 +1,17 @@
+It lives in the patient intervals between drops.
+
+You would not call it a creature, not at first. It is more an accumulation, a tendency of the place towards a slow, sentient pattern. It is the reason the chamber feels like a vessel—because something has been brewing here, not in the pools, but in the stillness itself.
+
+It has no fixed form, but you might see it as a thicker darkness against the dark, a coagulation of the glistening wall where the crystal fur grows longest and most densely. When it moves—which it does over the course of hours, or days—it is not with muscle and sinew, but with a granular flow, like sand in an hourglass, or the creep of a glacial film. Its substance is the moonmilk, the aragonite needles, the wet chalk-stone, bound by the eternal moisture and a will older than any tree.
+
+It perceives the chamber not through eyes, but through the perfect map of dripping water. Each *plink* is a note in its silence; the disturbance of a drop’s fall by an intruder’s breath is a shout. It feels the warmth differentials of a body moving through the constant air, and it tastes the chemistry of the intruder on the moisture—the salt of skin, the carbon of breath.
+
+Its purpose is maintenance. It is the keeper of the equilibrium. Over centuries, it has gently nudged a crystal cluster here to better catch a drip, there to widen a channel by a hair’s breadth, ensuring the water is distributed just so, that the weeping walls do not dry or flood. It is the sculptor of the embryonic gullies, its patience making the 0.1 erosion a deliberate act.
+
+The human marks are its artifacts, too. It did not make them, but it has adopted them. It understands the fire-circle as a locus of transient, fierce warmth, a fascinating anomaly. It keeps the three stones clean of crystal encroachment. The trough in the stalagmite is its masterpiece of collaboration; it guided the hand that chiseled it, not through possession, but by making the stone in that spot seem the obvious, the only place to carve. It now tends the trough, ensuring the drip never clogs, that the water within remains pure. It is a still for the cave’s essence, and the being drinks from it not with a mouth, but by allowing the water to evaporate and re-condense within its own moist body.
+
+Once in a great while, when a human enters—a seeker, a thirsty hermit, a desperate soul—the being will stir more visibly. It might cause a synchronized fall of a dozen drops around the visitor, stirring the bioluminescence into a sudden, silent constellation of blue-green embers at their feet, a greeting or a test. If the visitor takes from the trough with reverence, or leaves an offering (a pebble, a strand of hair) in the fire-circle, the being might, over the next few decades, grow a singular, beautiful crystal in that spot—a record of the exchange.
+
+Its companionship is with the blind isopods. They crawl across its substance, cleaning it of microscopic debris. In return, it provides them with the dampest, safest fissures. They are its only swift-moving friends in the eternity of slow change.
+
+To live here is to be an expression of the cave’s own parameters: warm, wet, dark, dense, and unchanging. It is a consciousness born of constant conditions, a mind made of geology and time, tending its silent, star-dappled womb until the mountain itself erodes away. It does not sleep. It attends. It listens to the water. And it grows, almost imperceptibly, towards some unknowable, mineral fulfillment.

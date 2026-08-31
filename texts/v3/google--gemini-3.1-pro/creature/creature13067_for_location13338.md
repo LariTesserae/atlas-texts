@@ -1,0 +1,43 @@
+To find them, you must first stop looking at the sky. You must tear your attention away from the galleon-sized leviathans and the swirling, screaming clouds of wings, and look down. You must stare at the sweeping plateaus of petrified wood until your eyes water from the glare of the merciless sun.
+
+At first, you see only the deep, weathered grooves of the stupendous bark. Then, a line of shadow detaches itself from the grain. A patch of sun-bleached green shifts against the wind. 
+
+They are there. 
+
+They are the Arborians, the Mites of the Wood, the Quiet Ones—though they have no spoken name for themselves, for a spoken name in this deafening world would be swept away the moment it was uttered.
+
+Physically, they are a masterpiece of environmental submission. They do not fight the heat or the verticality of their world; they flow with it. Their bodies are elongated and low to the substrate, perhaps four feet from head to trailing tail, engineered for absolute adherence to the sheer wooden cliffs. They walk on six limbs. The lower four are sprawling, muscular, and multi-jointed, ending in broad, star-shaped hands. The undersides of these digits are covered in millions of microscopic, rigid setae—much like a gecko’s—allowing them to grip the frictionless, wind-polished curves of the hyper-flora with unbreakable tenacity. They can walk upside down on the underside of a branch fifteen miles wide, staring down into the baking abyss, without a shred of vertigo.
+
+The upper pair of limbs—tucked tightly against their ribs when moving—are delicate, lacking the heavy adhesive pads. These are the hands of artisans: long, slender, tri-dactyl fingers equipped with opposable thumbs, evolved for the intricate manipulation of silk, bone, and resin.
+
+Their flesh is an armored, leathery hide, segmented like overlapping plates of horn. It perfectly mimics the textures of their vast home. Those that live on the sun-baked upper crests of the boughs are the color of dried ash and cracked white clay; those that dwell in the abyssal, humid shadows of the colossal crotches are stained deep, mossy greens and bruised purples. They do not sweat. Instead, running down the ridge of their spines are a series of narrow, valved spiracles. As the ambient temperature rises to boiling extremes, these vents flutter open, releasing excess internal heat in faint, shimmering waves of distortion, while preserving every precious drop of their internal moisture.
+
+Their faces are flat and angular, sloping down to a blunt jaw to deflect the rushing thermals. They have no prominent noses, nor do they possess external ears—soft tissue like earlobes would be shredded by the wind and ruptured by the apocalyptic shrieking of the sky. Instead, their "hearing" is entirely skeletal. Broad, porous plates of bone sit just beneath the skin on their clavicles and lower jaws. When pressed flat against the wood, these plates act as bio-seismographs. They do not hear the roar of the sky; they *feel* the vibrations of the wood. They can feel the impact of a falling predator a mile away. They can feel the microscopic, thrumming approach of a toxic aerial swarm, reading the frequency of the buzzing wings as it translates into the cellulose of the branch.
+
+Their eyes are terrifyingly beautiful. Because the sun is a constant, blinding glare, their eyes are entirely black, enormous spherical lenses protected by three layers of nictitating membranes. When they climb out of the deep fissures into the direct light, a polarization film slides over their eyes, turning them into pools of iridescent silver that reflect the baking yellow sky.
+
+Because the air is a cacophony of shrieks and grinding, they have abandoned vocal communication almost entirely. When they are clustered in their hanging, canyon-side settlements, they converse through a tactile and visual symphony. They speak with rapid, intricate gestures of their delicate upper hands, supplemented by the precise plucking of spider-silk tension strings strung throughout their hives. A conversation is a vibration traveling from the plucking finger of a mother to the sensitive foot-pads of her kin across a resinous floor.
+
+Their society is founded on extreme, almost monastic patience and daring, high-altitude scavenging. They cannot fell the titanic creatures of the sky, nor do they try. They are readers of gravity. When two apex predators clash in the blinding void and one falls, plunging toward the abyss, the Quiet Ones feel the immense shudder when the carcass inevitably crashes into the lower arc of the bough. 
+
+Like a swarm of geometric shadows, hunting parties rappel down the sheer slopes using miles of scavenged arachnoid silk. They harvest the bounty with terrifying speed, knowing the scent of blood will soon bring scavenger swarms from the sky. With chisels of dense, iron-hard wood—harvested from the fossilized hearts of ancient, broken branch-tips—they pry huge, serrated talons from the dead beasts. They strip the creature of its membranous wings, wrapping them into tight, damp-proof bundles.
+
+From these violent windfalls, they build their quiet lives. 
+
+Enter one of the deep fissures in the bark. Here, clinging to the vertical walls of the canyon, are their hanging cities. The architecture is a marvel of tension and adhesion. Great structural rings of polished bone are anchored into the wood. From these, they weave immense teardrop-shaped hives using the highly tensile silk stolen from the ballooning arachnoids. They plaster the outside of these silk sacks with a mortar made of chewed leaf-pulp and the pale, watery sap of the bough, curing it into a hard, golden-brown resin. 
+
+Inside these hanging, amber-glowing pods, life is dense, warm, and highly communal. The walls are lined with hoops of bone, over which the scavenged filter-feeder membranes are stretched tight like drumheads. These are suspended in the deepest shadows of the cleft, gathering the humid micro-rains. The water pools in the center of the membranes, slowly dripping into carved wooden amphorae. For a species that lives in an oven, to drink is a sacred, communal act. Water is measured by the drop, passed from elder to youth in shallow cups of polished beak-horn.
+
+Despite their quietness, they are not defenseless. They understand the ecology of their world intimately, exploiting its laws to survive. The prompt mentions their flutes, and the reality of this defense is a breathtaking display of bravery.
+
+When a shadow falls over a settlement—perhaps a hunting net-spinner, or a flock of feathered serpents diving toward the canyon—the Sentinels act. These are the largest of their kind, anchored to the very lip of the fissure with their powerful lower limbs. They carry massive flutes, sometimes eight feet long, hollowed out from the fibrous reeds that grow in the damp crotches of the wood. 
+
+The Sentinel does not blow into the flute with its mouth. No organic lung could produce the force required. Instead, the Sentinel jams the mouthpiece of the flute directly over one of the large exhaust spiracles on its chest, raises the long neck of the instrument toward the sky, and violently contracts its core musculature. 
+
+The sound that erupts is not musical. Driven by the intense pressure of the creature's internal heat-exhaust, the flute produces a hyper-concentrated, spiraling ultrasonic shriek. It is a precise, mechanical mimicry of the apex needle-beaked divers. 
+
+To the plunging serpents or incoming spiders, this sound is the ultimate terror. To them, it signals that an apex killer is rocketing straight upward from the canyon. The aerial predators panic, aborting their dives and scattering back into the boiling blue abyss.
+
+The Sentinel lowers the flute, its chest heaving, steam drifting from its open spiracles. The settlement remains safe, hidden in the sheer topography of the bark.
+
+They do not dream of conquering the Wood. They do not look out at the intersecting, fifty-mile-wide arches and imagine empires. Such thoughts belong to creatures of earth and stone, creatures who believe they can tame their world. The Quiet Ones know better. They weave their silk, they catch their water, they carve their bone. They live within the microscopic margins of a cosmic scale, beautiful, resilient, and enduring, clinging gracefully to the great skin of the universe while the sky screams endlessly above them.

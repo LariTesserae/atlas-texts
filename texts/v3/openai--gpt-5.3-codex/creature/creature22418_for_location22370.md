@@ -1,0 +1,22 @@
+What lives there is not one species so much as a **discipline of living**.
+
+At first you notice the small lives—the gliders, sealant-insects, ear-long scavengers, wall grazers—and think the basin belongs to them. Then you notice the ties, knots, chalk marks, replaced tiles, double-framed doors, and realize they are all living inside someone else’s ongoing sentence. Not masters. Not owners. **Maintainers. Negotiators.**
+
+They are people, mostly human in silhouette but dry-country altered by practice and inheritance: narrow-shouldered to move through trellis levels, broad-handed from lashing and lift work, skin kept resin-supple against the warm desiccation. Their hair is usually bound close, often lacquered with plant wax so loose strands don’t catch in fiber racks. They dress in layered wraps of stitched membrane and woven cord-cloth, garments that can be retied into slings, masks, sacks, or splints in moments. Nothing decorative is merely decorative: bead strings are counting tools; pigment bands record seasonal drift; bracelets hold tiny plumbs and folded chalk.
+
+They speak softly because loudness is not just rude here—it is mechanically unwise. Their language leans on breath clicks, throat hums, and short vowel pulses that carry in tight spaces without kicking strange echoes loose. Conversations happen shoulder-close. Instructions are tactile as often as verbal: two taps for “hold,” a knuckle-drag for “tilting east,” palm pressed to lintel for “this edge moved.” Children learn balance before running, knot logic before story logic, and how to watch a shadow as if it were livestock.
+
+They are sometimes called, by outsiders, framekeepers. Among themselves the nearest word means something like **“those who keep it continuous.”** Their central task is not farming or building or hunting alone, but preventing discontinuity from becoming catastrophe. Every day they patrol with weighted cords, sighting rods, heat bowls, and chalk reels. They map where corners begin to double, where steps shorten or stretch, where gravity has developed a preference. They do not argue with drift. They scaffold around it, reframe it, feed it where useful, fence it where dangerous. In this place, adaptation is architecture.
+
+Their food web is intimate with the basin’s odd botany. They press amber bulbs for gas and gel, render oil from lacquer-fronds, cultivate mineral lichens on sacrificial plaster, and raise soft-bodied feeders that convert reactive dust into edible fat. Water as liquid is rare and culturally sacred; thirst is managed through gels, wax-fruit, and salt-balanced broths measured in spoonfuls. Waste is precious. Middens are sorted, spiraled, and mined again by scavengers and people alike. Nothing leaves the basin unless inert, and almost nothing is allowed to become inert for long.
+
+They do keep companions: six-legged gliders that warn of thermal seams; patient burrowers that find safe foundation lines; tiny drumming beetles used almost like living metronomes when teams have to lift and set a frame in unstable geometry. Predators are tolerated if they stay within known routes; even danger is easier to live with than uncertainty. Most creatures here have been selected not for tameness but for **predictable response**.
+
+Socially, they are a young culture with old hands. Their buildings still have fresh-cut sharpness, but their customs already show the gravity of repeated near-failure. They do not make grand monuments because fixed grandeur is brittle. They make replaceable things, redundant things, things with tie points. Their beauty is in joinery, in the elegance of a repair that anticipates the next repair. A perfect wall is suspicious; a well-patched wall is trusted.
+
+At night, when the bulbs pulse and the sky looks ordinary above an unordinary bowl, they become almost still. One watch tends kilns. One watch listens for structural murmurs—fiber tightening, plaster sighs, an echo that repeats motion when no one moves. One watch records drift by touch in dark ledgers: notch, notch, smooth, notch. They sleep in warm-wall hollows with tools within arm’s reach.
+
+So what lives there?
+
+A crowded republic of dry-adapted plants and meticulous animals, yes.  
+But at the center: a people who have made an ethic out of maintenance, who farm salts and shadows, who raise children fluent in impermanence, and who survive not by forcing reality to behave, but by meeting it every day with cord, clay, patience, and quiet hands.

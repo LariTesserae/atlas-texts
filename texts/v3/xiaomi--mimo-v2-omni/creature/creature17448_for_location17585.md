@@ -1,0 +1,21 @@
+The inhabitants of the Hollowing are not residents. They are expressions.
+
+The dominant life is the **Labyrinth itself**. It is a single, sprawling, plant-based intelligence—not a mind as you understand it, but a distributed will. Its body is the architecture: the root-towers, the humming vascular corridors, the pulsing nexus-heart. Its thoughts are growth patterns, hydraulic pressures, and chemical gradients. It does not "think" about building; it *is* the building process, eternal and recursive. It consumes the dead city—the concrete, the metal, the forgotten grid—and metabolizes it into new, living structures. Its purpose is inscribed in every elongating cell: expand, connect, integrate, *become*. It is an organism whose anatomy is urban planning, and whose lifecycle is the perpetual birth of a metropolis from its own flesh.
+
+Its **fauna** are less like inhabitants and more like symbiotic cells or mobile organelles.
+
+*   **The Cartographers:** Gliding on membranous wings between the towers, these silent creatures are the Labyrinth's sensory organs. They have no eyes for the dim green-black light; instead, they read the pressure waves and vibrations in the air and root-fibers. They map the shifting geometry, their flight paths tracing the current, unstable angles of the hollow. They are the Labyrinth's awareness of its own shape, a shape that changes moment to moment.
+*   **The Fermenters:** Fist-sized beetles with carapaces that shimmer with bioluminescent interference patterns—colors born from the interplay of their own chemistry and the ambient light. They are cultivators, tending fungal gardens that digest mineral substrate and woody matter into richer, faster-growing soil. In doing so, they are the Lterraformers, the catalysts for the very "emergence" of the ground. They are the Labyrinth's gut flora.
+*   **The Chorus:** The source of the regular, liquid call from the upper vaults. It is not a single creature, but a collective—a colony of sessile, tube-dwelling organisms that synchronize their fluid movements to produce the resonant note. They act as a bio-acoustic network, transmitting signals through the fluid-filled walls of the structures. Their song is the Labyrinth's circulatory rhythm made audible, a heartbeat echoed in sound.
+*   **The Pool-Ephemera:** In every condensation puddle, a universe flares into being. Transparent crustaceans, nematodes, and algal mats live out rapid generations in cups of water no larger than a fist, fed by root-tip exudates. They are the Labyrinth's dreams—brief, complex, and self-contained, blooming and fading in the rhythm of the weeping ceilings.
+
+But the most profound inhabitant is **the Space itself**.
+
+The Hollowing's "weirdness" is not an anomaly; it is a property of the place. The soft rules, the pliable axioms of reality here, are the medium in which the Labyrinth grows. The distortion of geometry—the rooms larger than their containing walls, the corridors that stretch and shrink—is the organism interacting with its own substrate. The space is its clay, and the Labyrinth's growth is a sculpting force, kneading volume from dimension, thickening reality to suit its expansion. The two heartbeats at the concrete-root seam are the sound of this process: the death of rigid, human-defined space and the birth of fluid, organic topology.
+
+Therefore, what lives in the Hollowing is a **symbiosis of intent**:
+The **Labyrinth** provides structure, purpose, and perpetual growth.
+The **Fauna** provide maintenance, sensation, and catalytic transformation.
+The **Space** provides the yielding, formless potential, the raw material of *where* and *how big*.
+
+Together, they form a single, emergent entity: a **City-Organism**. It is not a place where life *exists*. It is a place where life *is* the geography, the architecture, and the laws of physics, all at once. It builds itself in the dark, out of itself, around itself, inside itself. And the quiet is not peace. It is the focused, absolute silence of a thing becoming, with no one to witness it but the echoes of its own beating heart.

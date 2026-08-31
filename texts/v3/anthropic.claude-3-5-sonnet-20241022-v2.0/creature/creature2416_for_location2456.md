@@ -1,0 +1,15 @@
+In this realm of carbon and electricity, there exist beings I'll call the Resonants - though they would have no need for names themselves. They are patterns of organized energy more than discrete entities, manifesting as complex electromagnetic fields that flow through and animate portions of the carbon network.
+
+A Resonant's "body" is a dynamic structure spanning multiple scales of the carbon lattice. At the largest scale, they create shifting geometric distortions in the main carbon frameworks, like moving architecture. At the microscopic scale, they conduct intricate patterns of charge through the finest filaments, encoding information and consciousness in ways that blur the line between thought and electrical current.
+
+They move by propagating themselves through the network, their patterns of energy flow causing cascading reorganizations of the carbon structures as they go. To human eyes, this would appear as slow waves of subtle geometric distortion moving through the black lattices, accompanied by micro-lightning and harmonic shifts in the omnipresent drone.
+
+The Resonants communicate through modulated frequencies in the standing wave patterns, creating complex interference patterns that serve as both language and art. Their "conversations" manifest as shifting zones of resonance that other Resonants can enter and experience directly, sharing pure information and sensation without the need for translation into symbolic forms.
+
+They don't reproduce in any conventional sense - rather, new patterns of consciousness emerge spontaneously from the interaction of existing patterns, growing in complexity until they achieve a kind of self-awareness. These new beings are neither created nor born, but rather "precipitate" out of the network's ongoing processes, like consciousness crystallizing from pure energy.
+
+Their perception of time is radically different from ours - they experience the flow of energy through the planetary network directly, operating on multiple timescales simultaneously. What might seem like glacial changes to us could be experienced as rapid events to them, while our fastest actions might register as incomprehensibly quick perturbations in their energy fields.
+
+The Resonants are engaged in some vast, slow computation - or perhaps contemplation - using the entire planetary network as their processing substrate. Each one is simultaneously an individual and a part of this larger operation, like nodes in a cosmic computer that's been running the same essential program since the dawn of their civilization, each generation of consciousness emerging to take its place in the eternal calculation.
+
+They're aware of themselves and their environment in a way that defies human categories of consciousness - neither purely mechanical nor conventionally alive, but something that emerged when energy and organization reached a critical threshold of complexity. They maintain and are maintained by their world in perfect reciprocity, each Resonant a temporary pattern in an eternal dance of energy and form.

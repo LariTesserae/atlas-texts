@@ -1,0 +1,17 @@
+Here's what lives in the Glass Marsh:
+
+The Resonant Folk dwell here, though "dwell" may not be quite the right word for their state of being. They exist in a perpetual process of phase-shifting between flesh and frequency, their forms rippling in sync with the condensers' thrumming. Their bodies appear humanoid at certain harmonics, but flow into abstract patterns of light and vibration at others, especially during the peak cycles of the machines.
+
+They communicate through modulated frequencies, adding their own tones to the marsh's acoustic landscape. Their "voices" can shape the local sound-fields, creating pockets of clarity where conversation becomes possible, or zones of intensified resonance that keep unwanted visitors at bay. The more ancient among them have partially merged with the condenser towers, their consciousness dispersing through the mechanical systems while maintaining a loose coherence through the electromagnetic fields they generate.
+
+The Folk tend to the marsh's systems in ways that appear ritualistic but serve precise technical functions. They cultivate the metallic vegetation, encouraging its growth in specific patterns that form living circuits throughout the swamp. Their children are born in the deepest pools, beginning life as purely electrical patterns in the conductive water before gradually developing physical form as they age.
+
+They share their territory with the Circuit Eels, massive creatures that are neither purely biological nor mechanical. These beings tunnel through both water and earth, maintaining and modifying the deep connections between the marsh's various systems. The eels' bodies are lined with organic superconductors, and their movement through the swamp creates and redirects currents of both electricity and nutrients.
+
+Less visible but equally present are the Spore Collectives – colonial organisms that exist simultaneously as fungi, data networks, and distributed consciousness. They float through the air as seemingly normal spores, but carry complex information encoded in their structure. When they settle and grow, they form vast mycelial networks that process and transmit this information while also breaking down and recycling the marsh's material components.
+
+The three species exist in complex symbiosis, each providing essential services to the marsh's ecosystem. The Resonant Folk maintain the mechanical systems and shepherd the overall evolution of the environment. The Circuit Eels manage the physical infrastructure and energy flows. The Spore Collectives process information and matter, facilitating communication and recycling across the ecosystem.
+
+Most intriguingly, there are signs that these distinct forms of life are gradually merging into something new. In the deepest parts of the marsh, where the condensers' frequencies converge and the metallic vegetation grows thickest, boundaries between species become unclear. Here, one might encounter beings that seem to be combinations of all three – consciousness distributed through fungal networks, taking physical form through resonant fields, moving through the swamp like living currents.
+
+These hybrid entities are perhaps the truest children of the Glass Marsh, emerging from its unique conditions to embody its fusion of the mechanical, biological, and energetic. They represent an entirely new form of life, one that treats sound, electricity, information, and matter as equally valid substrates for existence.

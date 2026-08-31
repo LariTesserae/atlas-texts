@@ -1,0 +1,27 @@
+**The Tenders**
+
+They arrive in shifts that correspond to no clock, moving through the maintenance tunnels with the unhurried certainty of those who have memorized a space by feel rather than sight. Three of them, currently, though the number fluctuates. They do not speak to each other while working—the chamber's acoustics make whispers carry strangely, and besides, after enough years, there is little left to say.
+
+The oldest calls herself Marta, though whether this is the name she was born with or simply the name the nursery knows her by, she no longer remembers clearly. She is small and dense, built like a closed fist, her hands permanently stained gray-brown from decades of contact with the substrate. She can feel when a pipe is ready to emerge fully—some change in the texture of the surrounding matrix, a subtle warming—and she is the one who decides when to begin the separation process, easing the newborn infrastructure free from its growth-bed with tools that are half surgical instrument, half midwife's hands. The substrate closes behind her work like a healing wound.
+
+Marta does not eat in the nursery, but she drinks the condensation. She cups her palms beneath the emerging pipe-ends and catches the viscous droplets, consuming them with the methodical regularity of someone taking medicine. Her joints no longer ache in the cold. Her blood, if you tested it, would show traces of iron oxide and mineral aggregate that should not be compatible with human biology, yet her heart beats steady, has beaten steady for longer than her records at any hospital would suggest is possible.
+
+The second tender is younger in appearance but may not be younger in fact. He came to the nursery following a fever that left him sensitive to the hum—that subsonic vibration that most visitors perceive only as unease. To him it is language, or close enough. He knows when the chamber needs more heat leached from above, when the water-seep has shifted and the growing pipes are stressed. He spends hours with his palm pressed flat against the substrate, eyes closed, reading the city's intentions in the rhythm of its self-construction.
+
+He has no name he will share, but Marta calls him Conduit, and he answers to it.
+
+The third tender is new, six months in, still learning. She found the chamber by accident—a wrong turn during a building inspection, a hatch that should have been locked but wasn't, a curiosity that should have turned to fear but didn't. She watched a pipe emerge for three hours before Marta found her, and what Marta saw in her face was recognition. Not understanding—that comes later, if it comes at all—but the simple recognition of something that makes sense in a way that surface life does not.
+
+The new one still lives above. Still eats food from grocery stores, still sleeps in an apartment with windows, still answers to the name her parents gave her. But she spends more and more of her hours in the crawl-spaces and access tunnels, learning the routes, memorizing the feeling of the substrate beneath her fingers. Her dreams have begun to include the sound of clicking joints and precipitating minerals.
+
+The tenders do not command the nursery. They do not feed it or direct its growth. They are—and Marta explained this once, in a rare moment of speech—*witnesses*. The nursery requires witnessing. The growth happens whether or not anyone observes it, but something in the process needs to be *known*, to be *attended to*, the way a garden needs a gardener not for the planting but for the acknowledgment that what grows matters.
+
+So they attend. They ease free what is ready. They clear blockages when the growth-loss tangles in on itself. They carry the finished pieces—small ones only; the large infrastructure integrates itself—up through the tunnels to places where the city's planned systems can accept them. They have installed valves and junction boxes and lengths of conduit in buildings whose architects never specified them, and the buildings have absorbed these gifts without complaint, as though they were always meant to be there.
+
+And sometimes, in the dim amber light, they simply sit. Marta in her usual spot by the forming drain, Conduit with his back against the wall where the hairline fractures carry their faint current, the new one wherever she can find space among the crowding pipes. They breathe the particulate air. They feel the patient cold settle into their bones. They listen to the wet sounds and the clicking and the subsonic hum, and they wait, and they witness, and they tend.
+
+The city, in its slow way, tends them back. Marta has not been ill in thirty years. Conduit's old injuries—from a life before the nursery that he does not discuss—no longer pain him. The new one has noticed that her chronic insomnia has eased, that she sleeps deeply now, dreaming of infrastructure.
+
+No one trained them. No one hired them. They do not discuss wages or schedules or retirement.
+
+They are what grows when the city needs tending, the same way the pipes are what grows when the city needs plumbing. They emerged from the substrate of urban life the way the valve assembly is emerging from the wall: slowly, inevitably, in response to a need that no one consciously identified but that the system, in its mineral patience, understood.

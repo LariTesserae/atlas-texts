@@ -1,0 +1,37 @@
+No one lives there the way people live in a valley. Not really.
+
+At first you think nothing does. That's the bowl's first trick. You stand on the rim and the light is so hard and the air is so thin you have to make your lungs work on purpose, and everything below you looks empty - a green coin in a stone setting, too small and too bright to hold anything larger than a bee. If someone lived here, you'd see them at once. There's nowhere to hide. And you don't see them.
+
+Then your eyes adjust to the scale the bowl actually uses.
+
+What lives here lives low. It lives *in* the mat, not on it.
+
+If you stay still long enough for your breath to find a rhythm — in, hold, out, hold, because otherwise you get dizzy — the floor stops being a floor. The cushion plants resolve. That emerald quilt is not flat. It's a city of domes, each one tight as a fist, each one a complete climate. And the city is inhabited the way any old city is: densely, noisily if you get your ear close enough, and entirely below the level of a standing human's notice.
+
+But even that isn't who *lives* here. The pikas do. The finches do. The bumblebees the size of knuckles do, droning impossibly in air that shouldn't hold them. They are residents, but they are commuters. They work the mat and leave. The beetles boil under stones and go still. None of them made the windbreak. None of them stacked the cairn.
+
+Who lives here made those, and made them *like* the pikas make haypiles — to fit exactly the terms of the bowl.
+
+You don't find her until the sun starts to go. Or him — but after a few summers at this height, the differences wear thin. Let's say her, because the bone awl left by the center stone is worn to the shape of a smaller hand, and because the sleeping hollow behind the knee-high wall is curled short.
+
+She is small. Everyone who can live here for more than a few days is small, or has learned to make herself small. Not stunted — compact. A barrel chest under a coat of sewn marmot and snowcock down that has gone the same mottled gray-yellow as the lichen. A face that has been wind-burned and sun-burned until it is the same dark, polished red-brown as the basalt, creased in the same shattering pattern as the frost-broken spires, so that when she is still against the rock you don't see her at all. Her hair, cut short with a flake of that same sharp stone, is white— not with age, though she is old — with rime and sun-bleach. Her eyes are what give her away if she moves. They are always narrowed to slits against the hammer light, watering constantly. The tears freeze at the corners. She has learned not to wipe them.
+
+She breathes the way you have to breathe here: deliberately. You can hear her when you get close, which is the only reason you find her at all. A slow, audible inhale through the nose, a pause to let the thin, bright air give up what little it has, a controlled exhale that steams and vanishes instantly. Her heart is slow. Her movements are slow until they need to be quick, and then they are quick the way a pika is quick — a dart from the windbreak to the cairn, a crouch, absolute stillness. She does not waste motion or heat or sound. The bowl eats sound. She learned to be quieter than it.
+
+In the morning before the rime melts she is already up, not because she sleeps little but because the bowl wakes then with a ticking and cracking as the eastern wall releases the night's contraction. She moves on hands and knees more than she walks. The mat would not bear a boot for long without scarring, and she knows it the way you know a floor in your own house. She tends it.
+
+That's the strange part, and the reason the cushions spiral.
+
+She does not farm. There is nothing to farm. She gardens by subtraction. With the antler hammer and the bone awl — the ones half-swallowed by the moss, that you thought were abandoned — she pries, lifts, transplants. A saxifrage dome that has crowded its neighbor. A willow runner that has put out too far and will freeze. A patch of moss that has grown thick enough to hold too much melt and rot itself. She moves a pinch of black humus from here to there, a pebble to shunt the afternoon trickle half an inch to the left. She does it every day, a little, without plan or hurry, and over years the mat has learned her habit. The spiral is not planted. It is the pattern of her tending, the path her knees wear as she circles the center stone, clockwise, always clockwise, to keep the wind at her back.
+
+She built the cairn at the center and she rebuilds it. Three flat stones, quartz on top. Not a marker. A condenser. At night the quartz rimes thicker than anything else in the bowl, and at ten in the morning it drips. That drip is her well. She cups her hands under it. She licks dew off cushion leaves with the same patience as the finches. She keeps a tiny fire in the lee of the wall, but it is not for warmth — no fire of dwarf willow twigs could warm this bright cold. It is for scent and smoke, to keep the pikas from her caches, and for melting that last needed cup when the cloud doesn't come. The smoke is thin as the air and the bowl holds it close, a blue thread that never rises above the rim.
+
+At noon when the sun is white and the cushions begin to steam faintly, she lies flat. Not sleeping. Letting the light strike her. Her coat is off, her dark skin taking the hammer the way the moss does. And this is where she stops looking entirely human, and starts looking like whatever actually lives here.
+
+The moss holds light after the sun goes. You noticed. She does too. Her skin does too, in a different way. After days of this exposure, the thin places — the backs of her hands, her eyelids, the scar on her cheek where metal once stuck — hold a faint afterglow at dusk, not bright, not supernatural, just the same stored luminescence as the plants, as if she has learned to photosynthesize a little, to drink fog and light together. When she curls behind the windbreak at evening, during that long, cold, ticking hour when the stones contract and the pikas give their last small cries like pebbles dropped in felt, she is empty. That is her other adaptation.
+
+To live here you have to become hollow like the bowl. You have to become a trap for what is scarce. She does not bring much and she does not keep much. One bowl, one pot of dark pottery, one awl, one hammer, one coat, one cairn. Her thoughts, if you sat with her, would be the same: not crowded, not lofty. A held breath. She is abundantly alive inside that emptiness the way the bowl is — not with ideas but with noticing. Which cushion needs moving. Which bee is struggling. Where the frost feathered thickest this morning.
+
+People used this place and left faint marks. She is the faint mark that stayed. She will not winter here. No one can. When the cloud stops coming up the southern gap and the rime stops melting by noon, she will pull the windbreak stones down flat, scatter the fire ash into the mat, turn her quartz cap sideways so it doesn't catch snow and crack, and go down. The bowl will look uninhabited again, perfect and empty, its spiral faintly glowing. The pikas will hay. The beetles will freeze in place.
+
+And next melt-season, if her knees still allow the climb, she will come back up the spine of the mountain and be here again — not inhabiting it the way a person inhabits a house, but the way lichen inhabits a stone, or the way the fog inhabits the bowl: by catching, and holding, and being, for a little while, exactly the shape of what holds her.

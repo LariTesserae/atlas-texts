@@ -1,0 +1,13 @@
+In this warm, muffled primordial world, life stirs in forms both strange and wondrous. Here, in the vast chambers carved by ancient waters, a menagerie of bizarre creatures have taken root and evolved to thrive in the lush, bioluminescent environment.
+
+Lumbering across the loamy earth are the fungus herds - massive, bulbous beings whose bodies resemble nothing so much as ambulatory mushroom caps. Swaying gently with each ponderous step, their fleshy stalks sprout intricate networks of root-like tendrils that drink deep of the mineral-rich waters. Despite their plant-like appearance, these behemoths are very much living, breathing creatures, propelling themselves forward with a series of rhythmic pulsations.
+
+Floating serenely above the shallow streams are the air-jellies, delicate spheres of translucent flesh that drift on the dense atmosphere. Beneath their undulant bells trails a profusion of slender tentacles, each tipped with flickering biolights that illuminate the path ahead. These ethereal beings feed by trailing their tentacles through the nutrient-rich waters, absorbing dissolved minerals and microscopic organisms.
+
+In the deeper pools, strange aquatic forms push their way through the viscous liquid with surprising speed. Worm-like ablates, their elongated bodies rippling with waves of iridescent color, slither across the sediment-laden bottoms in search of edible fungi and decaying detritus. More aggressive are the meat funnels - eyeless, gaping maws ringed with grasping tentacles that ensnare any smaller creatures unfortunate enough to stray too close.
+
+The flanks of the towering fungal spires play host to dense colonies of burrowing filterlings - miniature, tube-shaped beings whose waving fronds extract oxygen and nutrients from the flow of water trickling down the fleshy stalks. Shimmering in iridescent schools, these tiny filter-feeders form the base of the food chain for many of the larger predators.
+
+From the shadows of rocky outcroppings and crevices emerge the dreaded xenomorphs, their gnarled, chitinous bodies bristling with barbed appendages. These fearsome ambush hunters await unwary prey with dreadful patience, their bioluminescent lures flickering in hypnotic patterns to lull other creatures into striking range of their serrated mandibles.  
+
+In this strange, almost alien world, life proliferates in myriad bizarre forms - a teeming ecosystem of wonders still taking shape, still evolving in accordance with the peculiar rules that govern existence in this primordial realm. Who knows what other fantastic beings lurk in the unexplored depths, patiently awaiting the day when they too will emerge into the wavering bioluminescent glow?

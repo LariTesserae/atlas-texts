@@ -1,0 +1,93 @@
+# Who Lives in the Plateau City
+
+---
+
+Begin with what you sense before you see anyone: the absence of hurry.
+
+Not stillness — they move, the people of this city, they move through the dim streets and in and out of doorways and along the tram-track lanes with purpose and direction. But there is in all this movement a quality of... sufficiency. Each action contains exactly itself, no more. No one walks faster than the walk that gets them there. No one speaks at a volume that exceeds the room. It takes some time before you identify this quality, because you have been trained by other cities to read absence-of-hurry as leisure, as people who have somewhere to be but haven't left yet. Here it is neither. It is the pace of people for whom pace was settled long ago, the way the moss settled its growth rate long ago, and now simply *is* that pace, because the pace is correct for this place and always has been.
+
+They are not unfriendly. That is the second thing to establish, because the gravity of their manner might suggest otherwise. They are a people of acknowledgment — brief, genuine, carrying no excess. When two people meet on a paving-stone street, there is a look, a gesture: something between a nod and a slight deepening of attention, as though each briefly increases the resolution at which they perceive the other, then returns to their ordinary focus. It communicates: *I see you. You are expected. Continue.* This is not coldness. It is the social register of a people who have been in proximity so long, in a city so compressed and ancient, that the rituals of initial contact no longer require elaboration. They have already, in some sense, met. They have always already met.
+
+---
+
+Their appearance.
+
+They are, on average, not tall — this seems selected for, or simply resulted from, the low ceilings and compressed passages of old buildings in cold climates. But they are broad, or built toward broadness, not in obesity but in the frame that cold climates tend to produce in people who stay: thick through the shoulders and chest, substantial in the legs. Their hands are notable. Everyone's hands, once you notice, have a quality of having been extensively used — not rough exactly, but *definite*, as though the work of the hands has over generations become encoded in the structure of the hands themselves: wide across the knuckles, strong in the grip, with the particular callus-pattern of people who work with stone and rope and metal and plant, who re-lay paving and redirect water and maintain old machines and harvest from vertical gardens on south-facing walls and pack things into crates for the trams.
+
+Their skin, where exposed, holds the cold like the dark stone holds it — not pale in the northern-European sense but with a particular cool-undertone, as though the four-degree air has long since been incorporated into the circulatory system's baseline. A healthy person here looks healthy in the way the moss looks healthy: dense, present, appropriately colored for available light. 
+
+They dress in layers that they seem to never fully remove. In the buildings, they take off the outermost layer — a heavy wrap, dark wool or something like wool, worn with the easy familiarity of a second skin — but the next layer stays on. And the next. It is not that they are always cold, not exactly. It is that the distinction between inside and outside is not sharp enough here to warrant a dramatic change of state. The cold is inside the buildings too, moderated, but present. They dress for the temperature of this place, which is a compound temperature: the plateau ambient, the stone-body of the building (which is colder than the air), and the small generated warmth of bodies and the occasional brazier of compressed fuel. They have calculated this temperature over centuries and their clothing is the solution.
+
+Colors trend dark — the clothing palette is the building palette is the stone palette: black, charcoal, deep green, a muted brown that might once have been something more vivid. This is not fashion, or not primarily. Dyestuffs here are what the plateau provides, and the plateau provides that palette, and so they have lived inside it long enough that it has become aesthetic, become preference, become what they mean when they mean beautiful. On cold-market days (a weekly occurrence, when the trams bring their goods to the broad plaza where three streets intersect beneath the oldest tree in the city's oldest courtyard), you can sometimes see — in a scarf, in a sleeve lining, in a child's wrapped bundle — something unexpectedly saturated, a wool dyed with something vivid. It is striking the way a color is striking in dim light: more than itself, more than it would be anywhere else.
+
+---
+
+How they talk.
+
+In person: quietly. The streets are not silent — there is conversation, there are people doing business, there are disputes (rare, resolved in particular ways, to be discussed) — but the volume sits a register below what you might expect from the density of population. This is not enforced or ceremonial. It is simply what makes sense when you have lived for generations in close stone walls, in rooms where sound moves easily through old joints and shared partitions. They have self-modulated into the acoustic of the space.
+
+The language has features you notice without understanding. It is ergative — the grammar foregrounds what acts upon what, the relationship between agent and patient is marked precisely, agency is always clearly attributed. This is not coincidence. A people who spend their lives managing relationships between forces — water and stone, plant and infrastructure, engine and load — develop habits of thought in which the direction of force, the question of what is acting and what is being acted upon, is never left implicit. Their language does not allow careless agency. You cannot, in their grammar, be vague about who did the thing or what the thing was done to. Accidents are named as accidents; intentions are named as intentions; the distinction is structurally unavoidable.
+
+There are no casual lies here, or very few, not because of moral superiority but because the architecture of the language makes deception expensive. To lie, you must actively distort the grammatical structure that wants to accurately represent agency and action. It costs something. People occasionally pay that cost — they are human, they are not exceptions to the human catalog — but they do it with the awareness of doing it, and that awareness shows, and most people most of the time find it more trouble than it's worth.
+
+They are not humorless. This needs to be said because the gravity of everything suggests it, and it's wrong. Their humor is a humor of extended implication, of very long setups that don't announce themselves as setups, of observations that comment on observations that comment on something said three exchanges ago. It requires attention to follow, and following it is considered a skill, and people who can follow the long recursive loops of plateau humor and then extend them further are valued for it. They are not particularly funny to anyone who doesn't know them. They are extremely funny to each other. A good joke here is considered the equivalent of a good piece of engineering — something that works exactly as intended, that bears the weight placed on it, that will presumably last.
+
+---
+
+What they believe, or what the shape of their believing is.
+
+There is religion here, or something that functions as religion, but it is a religion made entirely of what this place has shown them over time. There are no transcendent figures, or none that are still worshipped. There are *examples*. The belief system is fundamentally oriented around the observation that things which persist do so through particular structural relationships — between patience and change, between maintenance and rest, between the part and the whole that contains it. These are not stated as metaphors. They are stated as facts, because they are facts, observable facts of the plateau and the city, and then they are extended as principles. The deep engines running constantly are a kind of text. The moss incorporating the stone into itself over centuries is a kind of text. The trams carrying their loads in continuous rotation are a kind of text. You learn to read the texts. You apply what you learn.
+
+The practitioners of this belief — and they are all practitioners, there is no separated clergy, or the closest equivalent is the engineers who tend the deep machinery, who are treated with a respect that is not quite religious but is clearly more than professional — call their practice something that roughly translates as *attending*. Attending to the processes. Watching carefully. Taking the long inference from the long observation. The plateau teaches but only to those who have spent enough time watching the plateau. The city teaches the same lessons as the plateau in a shorter space, which is one reason (they would say *the* reason) that the city was built at all: to compress the available text into a walkable area, to allow a single person in a single lifetime to observe enough of the relevant processes to begin to understand.
+
+They are not mystical about this. They do not think the plateau is conscious. They think the plateau is instructive, which is different, and which requires them to do the work of inference and interpretation that consciousness would make unnecessary. The plateau does not mean anything. The plateau *does* things. The doing is the meaning. Learning to see the doing clearly, without importing your own wishes into your interpretation, is the entire spiritual project.
+
+Twice a year, at the seasonal shifts, there are gatherings — not in the plaza, not in any public space, but in the lowest chambers of the old quarried tunnels, where the deep engines are visible and audible and the air is warmest and the smell of burning fuel is strongest. They gather in the warm dark near the machines. Someone speaks — not scripture, nothing memorized, something observed and considered — and others listen and then respond. There is no formal structure to the response. The response builds. It is not orderly and it is not chaotic. It is like watching the water management system handle a heavy condensation event: each part responds to what's actually arriving, and the collective behavior is more organized than any individual action, and afterward the water (the meaning, the insight, the thing arrived at) is distributed throughout the system and held.
+
+---
+
+How they relate to the fact of having always been here.
+
+This is subtle and important.
+
+They know their history, or as much of it as is preserved, which is a great deal — they are meticulous archivists, not from anxiety but from the same impulse that makes them meticulous about drainage and foundation maintenance. Records are part of the infrastructure. The old records are kept in the deep cool chambers where the stone maintains a constant low temperature and the humidity is controlled by the same pumping systems that manage the city's water. The records are read regularly, not as sources of precedent (they do not often look to the past for rulings) but as sources of long data. Three hundred years of weather records. Five hundred years of engine maintenance logs. Eight hundred years of water-table measurements. These are considered beautiful and important in approximately equal measure.
+
+What is notable: they are not nostalgic. The accumulated depth of their past does not produce in them a longing for earlier versions of things. This is unusual. You might expect a people with this relationship to continuity and duration to idealize some prior state, some age before a particular change. They don't. Or they have, at certain moments in their history, and the records of those periods are read as cautionary texts — not moral failures but structural failures, moments when the long-inference faculty was overridden by wishfulness, when people confused *lasting* with *unchanging* and tried to stop the processes they should have been attending to. The plateau doesn't allow that for long. The processes find their way through. You adapt or you don't, and if you don't, the adaptation happens around you and you are bypassed, and the records of the bypassing are kept with the same care as everything else.
+
+So they hold their duration without weight. It is not a burden and not a pride, or it is both and the two cancel. *We have been here a long time* does not mean *we are therefore special* and does not mean *we are therefore trapped*. It means: we have a lot of data. It means: we have made most of the available errors already and know roughly what they look like. It means: the patience this place requires is a patience we have had time to learn, and we are still learning it, and it will not be finished.
+
+---
+
+The children.
+
+They run. This needs to be noted because adults here do not run unless necessary, and the children run freely and the sound of it — actual speed, actual noise, actual heedless expenditure of energy — is startling and then wonderful in the quiet streets. The city accommodates this: the paving stones are laid slightly convex, water-shedding but also friendly to small scrambling feet; the courtyard walls are low enough that children have always climbed them; the deep passage-slots between old buildings that adults navigate carefully are, for children, highways of the most interesting kind.
+
+They are given, the children, a great deal of freedom to encounter the city directly and without constant supervision. This is not neglect; it is philosophy. The city is considered safe because they know it and because they have made it safe for the last however-many-centuries, and also because unsupervised encounter with a complex, ancient, layered environment is understood as education. A child who spends three years navigating the city's drainage-channel network — which they all do, this is a known phase of childhood — has learned more about water management and structural reasoning and the relationship between constructed systems and natural systems than any formal instruction could teach. The knowledge arrives somatically first. Later, when the formal instruction comes (it does come, there are schools, or places that function as schools), the child has a body that already knows the shape of the thing being described, and the language finds an existing form to inhabit.
+
+Children here are serious in the specific way of children who are taken seriously. They are not solemn — the running, the climbing, the elaborate games played in the old passageways — but when they have something to say, they say it with the expectation that it will be heard with attention, and it is, and they have learned to bring only things worth saying. This sounds like it would be constricting, and perhaps it is, in ways that produce particular textures of constraint in adult life. But mostly it produces people who are genuinely curious, genuinely attentive, and genuinely believe that the world will be interested in what they notice. Which is a useful thing to believe.
+
+---
+
+Age.
+
+The old people here are old in a way that doesn't apologize for itself. They have the same bearing as the old trees — not upright in the way of young trees, but settled, finding their angle, having decided where to put their weight. They occupy space with authority, not the authority of position but the authority of confirmed presence: *I am here and have been here and the fact of my having been here has been demonstrated over time to be a sustainable arrangement.*
+
+They are not treated with the specific sentimentality directed at the old in cultures that fear age. They are treated with the regard owed to people who have been attending longer — who have been attending the processes, watching the long cycles, accumulating the long data — and who can therefore sometimes see further ahead or further back in the pattern than those with less time in. This is not always true; some old people have been inattentive, and this is known, and their council is weighted accordingly. Length of observation is necessary but not sufficient. *What have you noticed?* is the question that determines regard. *How long have you been looking?* is only the prior question.
+
+They are not hurried toward death and they do not perform eagerness to remain. They are, in this as in most things, attending. Something is happening. They watch carefully. They take the long inference from the long observation. When the time arrives, and it does arrive, it is handled — in the maintenance-of-records sense, in the structural-continuation sense — like any other transition in a system that has been managing transitions for a very long time. The water goes through the pump. The load goes onto the tram. The record is updated. The processes continue.
+
+---
+
+Grief.
+
+It exists here. I wanted to say that, having described all the equanimity, all the attending and patience and long view. Grief exists here and it is not modulated, not made orderly, not consistent with anything else I've told you. 
+
+When someone dies, the person closest to them — this is understood without assignment, everyone knows who it is, the person who knew the most, who will feel the full weight of the absence — goes to one of the warm vents in the street. Stands over it. Stays there for as long as they need. This is the custom, the whole of the custom: standing over the warmth in the street for as long as it takes. Other people pass. They do not stop, do not speak, do not look away ostentatiously. They pass in the same way they always pass — with the brief deepening of attention, the acknowledgment: *I see you. You are expected. Continue.* The person at the vent receives this, again and again, from everyone who passes, for however many hours or days they need to stand there.
+
+It is the most public and the most private thing this city does.
+
+It is the only place where the pace breaks. Where someone simply stands and does not attend to anything except the warmth rising from below and the fact of absence.
+
+Later — much later, sometimes, or sometimes quite soon — the person moves. Returns to their work. The small repairs continue. The records are updated. The processes go on.
+
+They go on, and they go on, and they go on, patient as the moss, patient as the dark stone, patient as the thing that has been asking itself what it is for so long that the asking has become the only answer there is, and also somehow enough.

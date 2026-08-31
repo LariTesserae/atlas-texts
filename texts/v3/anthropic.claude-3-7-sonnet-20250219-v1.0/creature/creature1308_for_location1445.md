@@ -1,0 +1,25 @@
+# The Speakers of the Deep Hymn
+
+They are called the Tuukwa in their own language—a word that sounds like water striking stone when properly pronounced. Standing rarely more than five feet tall, they move with the careful deliberation of those born to darkness, their pale bodies lean but surprisingly strong from generations of excavating and shaping stone.
+
+Their skin has the faint translucence of cave fish, with a network of blue-purple veins visible just beneath the surface. This pallor is broken by elaborate patterns of raised scar tissue—ritual markings that trace the path of water down their bodies in whorls and channels, mirroring the chambers they inhabit. The markings begin in childhood and continue throughout their lives, each new pattern commemorating significant events or responsibilities assumed.
+
+The Tuukwa's most striking feature is their ears—large, slightly webbed structures that can rotate independently to track sounds in the darkness. Their hearing is extraordinarily acute; they communicate in whispers that visitors can barely detect beneath the constant drone, yet they can differentiate these soft utterances from across several chambers. Their eyes, by contrast, are small and deeply recessed, more sensitive to movement than detail, seeing the world as patterns of disturbance rather than distinct images.
+
+Hair grows sparsely on their bodies except atop their heads, where it forms thick, rope-like tendrils that they weave with cave lichen and luminescent fungi. These living headdresses serve both as status markers and practical light sources when they venture into the deeper chambers where even the bioluminescent markings on the walls fade away.
+
+The Tuukwa are not a numerous people—perhaps fifty individuals inhabit these chambers, divided into three interconnected kinship groups distinguished by the pitch of the drone they maintain. Each individual bears responsibility for a specific section of the water channels, adjusting carved stone regulators to control flow, clearing blockages, and applying fresh bioluminescent paste to the guidance symbols. This work is not merely maintenance but a form of devotion.
+
+For the Tuukwa do not simply live with the drone—they worship it. Or more precisely, they worship what it keeps at bay. Their belief system centers around an entity they call the Silence-That-Consumes, a presence they believe exists in the spaces where sound does not reach. The constant acoustic vibrations of their chambers form a protective barrier against this entity, which they believe once devoured an entire branch of their ancestors when their sound-channels ran dry during a drought.
+
+Their religious practices revolve around maintaining what they call the Deep Hymn—the layered drone that never ceases. Priests known as Resonators spend their lives learning to adjust the settlement's acoustic properties, carving new sound-channels and adjusting existing ones to create specific frequencies. They believe certain combinations of tones have protective properties, while others can heal illness or ensure fertility.
+
+The Tuukwa diet consists primarily of cultivated fungi, supplemented by the small amphibians they farm in the water channels and occasional insects. They process these foods minimally, preferring to consume them raw or lightly fermented in clay vessels buried in cool mud. They brew a milky tea from certain lichens that induces mild hallucinations, which they drink during ceremonies where they synchronize their breathing with the chamber's resonant frequencies.
+
+Their language reflects their acoustic world—it has thirty-two distinct words for different types of water sounds and sixteen for various drone tones. Time is measured not in days (which have no meaning underground) but in "flows," periods marked by subtle shifts in water volume that follow seasonal patterns. Their numbering system is base-six, counted on the webbed digits of their hands.
+
+The Tuukwa have limited contact with the surface world. A few designated traders make rare journeys upward to exchange their medicinal fungi and acoustic knowledge for materials they cannot produce below—metal tools, certain textiles, and seeds for their fungal gardens. They return with tales of the "great silence" above, which they find terrifying and incomprehensible.
+
+Children are rare and precious among the Tuukwa, raised communally and taught from infancy to distinguish subtle acoustic variations. Coming-of-age involves spending three full flows in the deepest chamber, listening to the oldest drone tones and receiving the first of their water-path scarifications. Those who demonstrate particular sensitivity to sound vibrations are trained as future Resonators.
+
+The Tuukwa do not fear death but silence. Their dead are placed in small alcoves carved into chamber walls where water flowing through specially designed channels creates a unique tone for each departed soul. In this way, they believe, the deceased continue to contribute to the Deep Hymn that protects them all from the hungry silence beyond.

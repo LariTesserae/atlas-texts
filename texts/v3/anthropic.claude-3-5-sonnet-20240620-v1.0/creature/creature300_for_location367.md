@@ -1,0 +1,19 @@
+The inhabitants of this crystal city are a truly remarkable species, evolved over countless generations to thrive in their unique environment. These beings, which we might call the Crystalfolk, are as much a part of their geode home as the formations themselves.
+
+Standing roughly human-sized, the Crystalfolk have bodies that seem to blur the line between organic and mineral. Their skin has a translucent, faceted quality that refracts light much like the surrounding crystals. This adaptation allows them to blend seamlessly with their environment, offering camouflage and protection from the intense bioluminescence that bathes the cavern.
+
+Their bodies are lean and angular, with limbs that taper to fine points. These sharp extremities are perfectly adapted for climbing the crystal walls and manipulating the intricate rope bridges and scaffolding of their city. Their fingers are exceptionally long and dexterous, capable of precise movements for carving dwellings and crafting tools from the living crystal.
+
+The Crystalfolk's heads are elongated and slightly pointed, with large, multifaceted eyes that can perceive a spectrum of light far beyond human capabilities. These eyes allow them to navigate the dazzling, ever-changing light of their world with ease. In place of a mouth, they have a series of resonating chambers in their throats, which they use to produce the taps and scrapes that form their unique language.
+
+Perhaps their most striking feature is the cluster of crystal formations that grow from their backs and shoulders. These personal 'gardens' are cultivated throughout their lives, with different shapes and colors denoting social status, profession, and personal history. Some Crystalfolk nurture miniature ecosystems within these formations, hosting tiny airborne plants or even the jellyfish-like creatures that drift through the cavern.
+
+The Crystalfolk do not age in the same way as surface dwellers. Instead, they slowly crystallize over time, their bodies becoming more rigid and faceted. The eldest among them are nearly indistinguishable from the surrounding crystal formations, their consciousness gradually merging with the geode itself. These elders serve as living archives, their memories and knowledge accessible to those who know how to listen to the subtle vibrations within the crystal.
+
+Reproduction for the Crystalfolk is a rare and sacred event. When the great central crystal pulses with unusual intensity, it signals the time for new life. Pairs of Crystalfolk who wish to procreate will carefully chip off small pieces of themselves, which are then planted in a specially prepared crystal bed. Over time, these fragments grow and combine, eventually forming a new Crystalfolk child.
+
+The society of the Crystalfolk is highly communal and interconnected. They share a collective consciousness to some degree, able to transmit thoughts and emotions through the vibrations in their crystal environment. This connection extends to their technology as well; they interface directly with the pneumatic tube system and the great central crystal, their bodies serving as conduits for the energy that powers their city.
+
+Despite their alien appearance, the Crystalfolk possess a deep curiosity about the world beyond their geode. They collect and study any artifacts or information that occasionally finds its way into their realm through hidden fissures. Some of the more adventurous young Crystalfolk dream of one day exploring the outside world, though the harsh conditions and lack of sustaining crystal energy make such journeys nearly impossible.
+
+The Crystalfolk are peaceful by nature, their society focused on harmony and the perpetual growth and refinement of their crystal domain. They are the guardians and cultivators of this hidden world, their very existence a testament to life's incredible ability to adapt and thrive in even the most extraordinary conditions.

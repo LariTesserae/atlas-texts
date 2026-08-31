@@ -1,0 +1,25 @@
+# The Furnace Grotto's Guardian
+
+In the deepest recess of the Furnace Grotto dwells the Salamander King, though "king" suggests a sovereignty recognized beyond these steaming walls, and "salamander" only hints at its true nature. The locals who dare approach the cavern's outer chambers have other names for it—the Stone Heart, the Ember That Walks, the Undying Coal.
+
+It stands nearly seven feet tall when fully erect, though it rarely extends to its full height, preferring a hunched posture that lets its elongated arms drag against the heated stone. Its skin is impossible—a living obsidian that shifts between solid and semi-liquid states. The surface ripples with patterns reminiscent of magma flows, glowing orange fissures opening and closing across its form as it moves. These cracks in its hide reveal not blood or viscera but a molten core that has burned uninterrupted for centuries.
+
+The creature has no eyes in any conventional sense. Instead, its face (if the forward-most portion of its roughly humanoid shape can be called such) features a series of heat-sensing pits arranged in concentric rings around where a mouth might be. This "mouth" opens not for sustenance but for communication—a circular aperture that emits sounds like volcanic rocks grinding together, punctuated by hisses of escaping steam.
+
+The Salamander King feeds not on the pale creatures that share its domain but on the grotto itself. Several times each day, it will find a spot where the magmatic energy runs closest to the surface. There it will kneel, pressing its palms against the stone, and the rock will soften beneath its touch. It draws sustenance directly from the earth's heat, absorbing geological energy through contact. During these feeding periods, the surrounding temperature rises dramatically as excess energy radiates from its body.
+
+It moves with deliberate slowness most times, each motion considered and precise, leaving faint scorch marks where its limbs touch the ground. Yet in the rare instances when threatened or provoked, it can display explosive speed, its body temporarily liquefying to flow across the chamber before reforming.
+
+The Salamander King is not alone. It has shaped smaller versions of itself from the grotto's materials—not offspring exactly, but extensions of its will. These creations stand barely two feet tall, with simplified features and less stable forms. They serve as its senses throughout the grotto, moving through passages too narrow for their maker. The small salamander servants tend to the crystalline growths, carefully breaking off mature formations and carrying them to a central chamber where they are arranged in patterns only their creator comprehends.
+
+Evidence suggests the Salamander King has existed here since before human memory. The abandoned stone tools were not left by visitors but created by the entity itself, fashioned in imitation of tools it observed being used by early humans who once attempted to establish rituals here. It learned from them, though they never knew of its existence. It watched from behind walls of steam as they performed their ceremonies, trying to commune with what they perceived as earth spirits.
+
+They were not entirely wrong. The Salamander King represents something between elemental force and sentient being—a consciousness born from the persistent interaction of heat, mineral, and time. It holds memories not in a brain but in its crystalline matrix, memories that stretch back to when the continents themselves were still finding their positions.
+
+It is neither malevolent nor benevolent toward the rare human intruders who stumble into its domain. Rather, it regards them with the patient curiosity of geological time—brief flickers of activity in its otherwise unchanging realm. Those who have survived encounters speak of overwhelming telepathic impressions: images of the earth's molten core, sensations of stone flowing like water, and knowledge too vast and alien to be contained in human understanding.
+
+The crickets and crustaceans of the grotto show no fear of the entity. Indeed, they seem to orient themselves around it, maintaining a respectful distance but often moving in patterns that mirror its own slow processions through the chamber. The metallic arthropods sometimes gather the shed obsidian flakes that occasionally slough off its body, incorporating them into their own exoskeletons.
+
+During rare alignments of geological pressure, when the magma flows below reach peak intensity, the Salamander King performs what can only be described as a ritual. It stands at the center of its arranged crystals, which amplify and redirect the grotto's energies. In these moments, for reasons unknown, it reshapes itself, adding or subtracting features, evolving its form in response to some cosmic timeline only it can perceive.
+
+Those sensitive to such things say the Furnace Grotto is not merely a place but a threshold—a thin point between our world and something else. The Salamander King is both guardian and gatekeeper, though whether it keeps something out or something in remains a mystery as ancient and impenetrable as the entity itself.

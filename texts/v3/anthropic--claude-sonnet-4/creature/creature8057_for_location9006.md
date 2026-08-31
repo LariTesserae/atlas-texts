@@ -1,0 +1,19 @@
+**The Vessel-Tender**
+
+She emerges from the steam like condensation taking form—not suddenly, but with the patient accumulation of water beading on stone. At first glance, she might be mistaken for another of the chamber's ingenious mechanisms: her skin bears the same green-copper patina as the gutters overhead, and moisture runs down her limbs in deliberate channels worn smooth by decades of this sacred dampness.
+
+But she moves with intention, her bare feet knowing every river rock by touch, never disturbing the careful percussion of falling droplets. Her hair hangs in wet ropes, heavy with mineral deposits that have transformed it into something between flesh and living stone—when she turns her head, tiny bells of crystallized lime chime softly. Her breath emerges visible in small puffs, as if she generates her own weather.
+
+The Vessel-Tender's body tells the story of this place. Her fingertips are permanently pruned, evolved beyond human norm into sensitive instruments that can read the temperature of stone, the direction of water flow, the precise humidity that means the chamber is content. Scales of dried minerals crust her elbows and shoulders where she has pressed against weeping walls, reading their moods through her skin. Her eyes have adapted to the dim steam-light, pupils wide and dark as the pools that feed the springs.
+
+She tends the vessels with ritual precision, understanding their needs as extensions of her own body. Some require daily attention—a gentle brush to clear mineral buildup, a careful repositioning to catch the optimal flow. Others she approaches only when the chamber's breathing changes, when some subtle shift in pressure or temperature calls for adjustment. She speaks to them in whispers that might be words or might be the sound of water finding stone, and they respond by filling, emptying, redirecting their precious streams.
+
+Her knowledge runs deeper than conscious memory. She knows which bronze scraper will clear the eastern drain without disrupting the flow pattern, how to adjust the copper gutters by degrees so small only her mineral-sensitized fingers can detect the change. She can predict, days in advance, when the hidden reservoirs will need replenishment, reading the signs in the chamber's shifting music, the subtle changes in how droplets fall.
+
+The Vessel-Tender sleeps curled in shallow stone basins she has carved to fit her form, letting warm water flow around and through her dreams. She wakes to the chamber's rhythms, her pulse synchronized with its hydraulic heartbeat. Her dreams are liquid—visions of vast underground rivers, of stone that learns to weep, of water that carries memory in its minerals.
+
+Sometimes, in the deepest meditations, she becomes indistinguishable from the chamber itself. Her breath mixes with the rising steam, her heartbeat matches the slow drip of condensation. In these moments, she is no longer the tender but the consciousness of the space itself—feeling water's weight in stone channels she has never seen, sensing the subtle chemistry of springs that feed from sources miles below, experiencing the chamber's patient satisfaction as a living emotion.
+
+She has forgotten human language except for the words that describe water's behavior: seep, flow, pool, drain, rise, condense, return. These she whispers to herself like prayers, like the names of beloved children, like the fundamental truths that keep the world turning on its axis of steam and stone.
+
+When rare visitors descend through the cleft, they find her watching from the steam, her mineral-crusted form so still they might mistake her for an elaborate carving—until she moves with liquid grace to adjust a vessel, to clear a channel, to maintain the endless conversation between human craft and elemental force that is the chamber's true miracle.

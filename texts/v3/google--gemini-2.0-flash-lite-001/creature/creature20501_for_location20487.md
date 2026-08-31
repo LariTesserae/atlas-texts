@@ -1,0 +1,15 @@
+The warren breathes, and within that breath, so do they. The Builders, or what's left of them. Not creatures of flesh and bone as we understand it, but something...else. Imagine sentient coral, a species that fused with their environment millennia ago. They *were* the builders, the original architects of this labyrinthine city, but now they are the brick, the mortar, the very stone itself.
+
+They are not seen whole, because they *are* the whole. The deep purple of the walls, that's their essence, their being. The pearlescent veins are not just veins, but their thoughts, their memories, their consciousness, flowing, coursing through the very core of the world. They are the pulse, the slow, rhythmic expansion and contraction felt on the skin. They are the luminous light, their collective mind shining forth.
+
+The creatures that scuttle and rustle are fragments of them. Former tools, former servitors, maybe even offspring, but now warped, twisted into the chitinous and scaled forms that have outlasted their masters. They are extensions, manifestations of the Builders' will, though now fragmented and devolved. 
+
+Each click, each chirp, each rustle is a word in a lost language, a fragmented signal, a yearning echoing through the tunnels. A language of necessity: the creation and preservation of the only world available.
+
+The fungi are their gardens, the fleshy plants their progeny, fueled by the slow, inexorable metabolism of the Builders. The plants seek something, but what isn't clear. Something, perhaps, they cannot have.
+
+How did the Builders come to be this way? Maybe they were once like any other species, with hands and eyes, building with tools. Maybe they embraced the stone, chose to become one with it, seeking some ultimate form of unity or immortality. The evidence lies in the faint glyphs, the echoes of architecture that remains. The geometries that are their history. They were not just building, they were *becoming.* The perfect cubes, spheres, and other repeating forms are the remnants of their old logic, the structure they sought to impose on a limitless world that did not have rules. They are the remnants of control, long-abandoned.
+
+The Builders' consciousness, fragmented as it is, still echoes through what must have been their greatest accomplishment: a living tomb. The warren is a self-sustaining ecosystem; a closed biological system that will continue indefinitely, a testament to the Builders’ success. But it's also a prison. There is no beginning and no end. There is only the warren, and the creatures, and the pulse that carries on without end.
+
+They are not just alive; they are *living.* The Builders, in a way, have endured in a state of eternal becoming. They are the essence of the place, the deep heart, and the stone echoes their name, even if no one can hear it completely. They *are* the warren, and the warren is them, a never-ending cycle, a testament to the creative, self-destructive, and all-consuming power of the will to endure.

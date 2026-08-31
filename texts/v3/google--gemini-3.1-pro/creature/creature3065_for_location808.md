@@ -1,0 +1,23 @@
+If you follow one of the smoothed grooves up the spine of a colossal leaf, pressing through the sweltering, sap-heavy air, you will eventually reach the woven bowers. They sit in the high crooks of the titanic sprouts, suspended miles above the deep basins of trapped water. Here, perfectly centered within the intricate domes of living vine, and sitting in the exact centers of the pale stone circles, are the pilgrims who walked these paths an eternity ago. 
+
+They are sitting exactly where they stopped, caught in the same terrifying, suspended animation as the embryonic world around them.
+
+At first glance, they appear as statues sculpted from frosted glass and poured wax. They are humanoid, but the environment has aggressively purged them of the chaotic, mortal markings of their past. Their bodies are completely hairless, their skin possessing the same glossy, unblemished smoothness as the cathedral-sized flora beneath them. Whatever race or species they belonged to before they descended into this subterranean hothouse has been erased, or rather, regressed. 
+
+Because the landscape around them rests in a perpetual, undeveloped infancy, their bodies have done the same. They have reverted to a flawless, giant fetal purity. They carry no scars. There are no calluses on their hands, no wrinkles around their eyes, no tension in their jawlines. Their limbs are soft, pliant, and perfectly rounded, curled into absolute stillness over layered, crossed legs. Their flesh has taken on the translucent, pale-gold hue of the glowing rock ceiling, and beneath their skin, no red blood seems to flow. Instead, the faint, sluggish network of their veins runs a pale, cool green, fed entirely by the heavy humidity they absorb through their pores. 
+
+They do not wear clothing; whatever fabric they brought with them rotted away into nothingness eons ago, before the deep stasis of the cavern took full hold. They sit utterly exposed to the eternal noon, yet they do not burn, and they do not sweat. 
+
+They breathe, but only just. Their respiration is so drawn out that a single intake of the thick, motionless air might span a decade. If you were to press your ear to their smooth, cool chests, you would not hear the staccato drumming of a mammalian heart. You would hear only a prolonged, ocean-deep hum—a slow, geological thrum vibrating in perfect harmony with the ringing quiet of the cavern.
+
+Their eyes remain open, staring up at the blinding, solid sky. They do not blink, for there is no wind to dry their corneas, no dust to irritate them. Over the countless ages, the cavern’s immense humidity has gathered over their wide, pupil-less irises, coating them in thick, convex shells of stationary water. They see the world through a liquid lens. What they perceive through that golden, watery distortion is unknowable. Minds trapped in a perpetual, unwavering 'now' simply cannot sustain the concept of a thought, which requires a beginning and an end. Instead, their consciousness has likely expanded inside their skulls, flattening out into a single, unending tone of pure existence. 
+
+Yet, for all their assimilation into this timeless biome, they cling to the relics of their past. 
+
+This is the great tragedy—or the grand triumph—of their existence. Anchored in their perfectly smooth, infant-like hands are the wooden bowls and polished bone staves. In an ecosystem entirely devoid of maturity and death, these items are violently alien. The rough, darkly stained grain of a wooden bowl speaks of a towering tree that was permitted to grow hard, to crack, to age in a world with wind and seasons. The bone stave, porous and dense, screams of mortality—the quiet, holy remnant of a creature that lived, suffered, and died.
+
+These artifacts are their anchors. The ascetics brought the wood and bone from a dying surface world, carrying the memory of *endings* into a realm of eternal beginnings. They hold these relics with a loose but unbreakable reverence, resting them at the centers of the stone rings. 
+
+They do not move. If they ever do, it is on a timescale imperceptible to the waking universe. They wait in unimaginable patience for the rare, thunderous *plop* of a condensation drop falling into the distant lower basins, or they watch, unblinking, as a single, fist-sized bead of water forms in the air above them, hovering for centuries before it finally graces their bowl. 
+
+Like the shield-sized moths resting motionless on the petals below, these pale, heavy-limbed mystics ask nothing of their world, and their world demands nothing of them. Together with the cathedral-seeds and the glowing rock sky, they hold their breath, sealed forever in the sweltering, golden womb of an eternity that will never be born.

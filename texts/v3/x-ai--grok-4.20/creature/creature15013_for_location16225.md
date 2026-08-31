@@ -1,0 +1,31 @@
+They are called the Quiet.
+
+Not by any name they gave themselves—language here is mostly gesture, breath, and the occasional low note that travels through root and bone—but by the way the world itself seems to treat them. The vegetation parts for them the way old snow yields to a footprint, then closes again without memory. They move inside the green thunder as though it were their bloodstream.
+
+There are never more than a few dozen visible at any time. Some scholars who once tried to study the plateau from orbit swore the total population had never exceeded two hundred since the first century after the Rain finished its work. Others believe the number is fixed at exactly one hundred and eight, and that when one dies the green simply grows a replacement overnight in one of the bone-colored clearings. No one has lived long enough to settle the argument.
+
+They are tall, but not imposingly so. Their bodies have been edited by four thousand generations of symbiosis until the distinction between person and habitat is almost philosophical. Skin the color of wet limestone is veined with living moss that photosynthesizes in the filtered light; their hair has become filament roots that trail behind them in slow ribbons, drinking the condensation that never quite becomes rain. Fingers end in soft, cartilaginous pads that can read the chemical grammar of the plant-mass as easily as a sighted person reads print. When they rest, they do not sit. They fold themselves into the lattice like punctuation marks the world has decided to keep.
+
+Their eyes are the strangest feature. Large, liquid, and the pale green of new leaves held up to sunlight. They do not blink in the ordinary way. Instead the inner lid drifts across the cornea like a slow wave, carrying with it a faint bioluminescent shimmer that makes every gaze look momentarily holy. They see heat, moisture gradients, and the subtle electrical arguments plants conduct with one another. Ordinary distance is almost meaningless to them. They watch a herd of membranous sky-herds drifting three kilometers overhead with the same tranquil attention another person might give to their own breathing.
+
+They do not build. The low stone shelters and woven hermitages scattered across the clearings are not theirs. Those are older—remnants of some previous people who tried to live here before the green achieved totality. The Quiet simply inhabit them the way a thought inhabits a mind: lightly, temporarily, without claim. When they need shelter they coax a living hollow to open inside a pillar-trunk, and the vegetation grows around them in the exact shape of their sleeping bodies. When they leave, the hollow seals again as though ashamed of having been useful.
+
+Their society—if the word applies—is conducted almost entirely in negative space. They do not speak often. When they do, their voices are pitched just beneath the insect roar, a register that feels more like weather than language. A single falling note can carry an entire lineage of meaning: sorrow for a collapsing column two hundred kilometers away, gratitude for the particular quality of light this century, a warning that the luminous millipedes are about to shift their migration corridor. The plant-mass itself appears to understand. Sections of moss will brighten or dim in response. Vast curtains of hanging root will sway in patterns that are not quite wind.
+
+They perform one ceremony, though they would never call it that.
+
+Every seventy-three years—by their own unhurried calendar—a chosen few walk to the edge of the plateau where the bone-white stone drops away into nothing. There they stand for nine days and nine nights without food or water, simply watching the curvature of the world. On the final night they each remove a single living garment-root from their own bodies and cast it over the edge. The root falls for a long time, glowing faintly, before the green stratosphere swallows it. The Quiet believe the root will travel all the way down through four billion years of rain until it touches whatever waits beneath the world, carrying with it the taste of the plateau’s current mind. In this way the deep stone is kept informed that life is still being itself up here.
+
+No one knows what they think about. Their faces are calm to the point of opacity. Occasionally, in the deepest clearings, one of them will stop before one of the ancient artifacts—the worn stone hand-tool, the child’s bracelet now mostly emerald, the wooden mask blooming with night orchids—and simply stand for hours. Their expression does not change, yet the surrounding vegetation will grow perceptibly faster, as though the world were blushing.
+
+They are not monks. They are not gardeners. They are not even keepers.
+
+They are the plateau’s way of knowing it is beautiful.
+
+And the plateau, in its slow, deafening, eternal conversation with itself, has decided that beauty should occasionally be witnessed by something that can almost remember what it was like to have been separate. So it keeps them. Gently. Patiently. The way a cathedral might keep a single candle burning for no one in particular, simply because light, once chosen, has a right to continue.
+
+When one of the Quiet dies, the body is not buried. It is carried by the others to a chosen column and pressed gently into the living felt. Within a day the vegetation has taken it entirely. Flowers the color of old bone open along the trunk for exactly one season, then vanish. The new Quiet who appears in a distant clearing weeks later will have one eye slightly more golden than the rest. No explanation is offered. None is needed.
+
+This has been the agreement for longer than the concept of “forever” has had meaning.
+
+The green thunders on. The water condenses and drifts sideways like shy confessions. The light remains cathedral and kind. And the Quiet move through it all—small, purposeful, nearly silent—as though they were the slow heartbeat the world elected to keep after every other kind of heart had worn itself away.

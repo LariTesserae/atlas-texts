@@ -1,0 +1,26 @@
+Life here does not scamper or hide; it drifts, heavy and deliberate, moving through the thick air as if swimming through a warm ocean. The creatures of the High-Sponge are molded by the twin tyrannies of the environment: the crushing, chewable density of the atmosphere and the relentless, drenching humidity.
+
+**The Ground-Breakers**
+The most immediate presence is the massive, low-slung herbivores that dominate the plateau. They are evolutionary cousins to the tapir, though swollen to the size of a small ox, their physiology adapted to the altitude’s strange pressure. They possess chests that look disproportionately deep, barrel-like organs evolved to process the thick, oxygen-rich air. Their skin is not furry—fur would rot in the damp—but sleek and hairless, a texture like cured leather that is constantly slick with a layer of protective, oily mucus.
+
+Because the ground is porous basalt foam, their feet are not hooves, but broad, spade-like pads, designed to distribute their weight so they do not punch through the softened rock. As they move, they leave behind shallow, bowl-shaped impressions that instantly fill with weeping water. They are the plows of the High-Sponge, pushing through the dense thickets of car-sized ferns. They are indifferent to the hissing vents, often sleeping in the warm drifts of steam, their dark grey bodies looking like moving boulders until a long, flexible snout twitches, testing the air for the scent of tender moss shoots.
+
+**The Canopy Gliders**
+Above the steam, the birds operate with a different logic. In air this dense, flight is less about fighting gravity and more about managing buoyancy. The avians here have short, stubby wings and wide, fan-like tails; they do not flap so much as row. They are iridescent streaks—emerald, violet, and mercury-blue—catching the diffuse light that filters through the mist.
+
+Their calls are not the sharp chirps of lower altitudes but low, resonant thrums that carry through the heavy vapor. They feed on the swarms of insects that hover over the thermal vents. These insects are sluggish, bloated by the heat, and the birds catch them with an easy, languid grace. The birds nest not in the branches of the stunted, swollen trees, but in the hollows of the porous rock itself, lining the volcanic air-bubbles with soft mosses dried on the hot vent rims.
+
+**The Moss-Weavers**
+Beneath the notice of the lumbering giants live the ecosystem’s constant engineers. These are small, badger-like creatures that have evolved to live in the interstitial spaces between the roots and the rock. They are the "weavers," named for their fur, which is coarse and tangled, often collecting so much moss and lichen that they become walking gardens themselves.
+
+They are territorial, darting through the miniature ravines and gullies. Their paws are webbed, as the ground is less soil than a network of flowing water channels. They eat the tuberous roots of the giant ferns and the crustaceans that live in the fresh-water springs. They are nervous creatures, constantly pausing to listen to the *industrial* rhythm of the valley, freezing in syncopation with the hiss of a vent, disappearing into the neon-green drape of the jungle floor the moment the silence shifts.
+
+**The Hydraulic Stalker**
+The apex predator of this humid foundry is a creature that mirrors the stealth of the landscape itself. It is a feline, sleek and streamlined, but with a unique adaptation: its skeletal structure is semi-cartilaginous, allowing it to compress its body to slide through the dense, root-choked undergrowth without disturbing the heavy fronds.
+
+Its coat is a masterpiece of camouflage—a mottled pattern of charcoal, wet slate, and the deep, bruising purple of the shadows found under the ferns. It moves with a liquid grace, its movements slowed by the heat, conserving energy. It hunts not by outrunning its prey, but by outlasting it. The cat will wait for hours, waist-deep in the warm, marshy water of a gully, its breathing synchronized with the rising and falling of the steam vents to mask its scent. When it strikes, it is a sudden, explosive violation of the valley’s slow patience—a flash of violence that ends as quickly as the steam hiss, blending back into the mist before the ripples in the water have settled.
+
+**The Vent-Grazers**
+Finally, there are the smallest inhabitants, clustering around the iron chimneys. They are crustaceans—giant, wood-louse-like creatures with shells the color of rust. They thrive on the mineral-rich water and the bacterial mats that grow around the hottest vents. They are blind, sensing the world through vibration and heat. They clack and click against the rock, a percussion section to the valley’s deep hydraulic hum, scuttling away into the porous stone if the temperature shifts or the earth shudders.
+
+Everything here is wet, heavy, and slow. The life of the High-Sponge is an endurance test against the sauna, a biology that has learned to breathe the pressure and drink the air.

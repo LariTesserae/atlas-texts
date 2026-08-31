@@ -1,0 +1,15 @@
+In the eternal circulation of the bronze sphere live the Flux-Dancers - fish so adapted to their mechanical home that they are both creature and current made flesh. Their bodies are long and sinuous, like silver ribbons drawn thin by generations of swimming the same circular paths. Their scales have an almost metallic sheen, having taken on something of the bronze that surrounds them.
+
+Where eyes once were, they now have only smooth, copper-tinted patches of skin crossed by extraordinarily sensitive nerve endings that can detect the smallest changes in water pressure. Their lateral lines have evolved into complex networks that spiral around their bodies like circuit patterns, allowing them to read the sphere's currents as intimately as we read the ground beneath our feet.
+
+They move in perfect synchronization with the sphere's rhythms, their undulating bodies becoming part of the flow itself. When the great gears turn, the Flux-Dancers adjust their swimming patterns with such precision that they seem to be conducting the machinery rather than responding to it. They dance through the darkness in interwoven schools, their movements so practiced they never collide, even in the tightest formations.
+
+The fish have developed a curious relationship with the copper-gardens. They tend these patches in their own way, their bodies' mucus coating helping to cultivate the specific bacteria that sustain the crucial crustacean colonies. Some of the largest and oldest Flux-Dancers have developed specialized scales that can scrape away excess mineral deposits while leaving the beneficial growth untouched.
+
+Most remarkable are their sound-bones - modifications of their swim bladders that have evolved to resonate with the sphere's eternal humming. These organs allow them to contribute to the mechanical symphony, adding biological harmonics to the industrial drone. During certain cycles of the pumps, the entire school will align in formations that amplify these resonances, creating deep, whale-like songs that vibrate through the metal walls.
+
+They breed in the phosphorescent channels, laying their eggs in precise patterns that mirror the ancient pictographs above. The young emerge already attuned to the sphere's rhythms, their bodies pulsing in time with the pumps from their first moments of life.
+
+The Flux-Dancers are neither fully natural nor artificial - they are the living embodiment of their manufactured habitat, carrying in their flesh and behavior the memory of whatever vast purpose called this place into being. They are the curators of their own world, maintaining its delicate balance through their endless dance of adaptation and response, their very existence both an expression of and a reason for the sphere's continuation.
+
+In the rare moments when the bioluminescent bacteria flare brighter than usual, one might catch a glimpse of their dance - hundreds of silver bodies moving in hypnotic patterns, their scales reflecting the blue-green light in brief, ghostly flashes before they disappear again into their preferred darkness, leaving only the sensation of movement in the warm, humming water.

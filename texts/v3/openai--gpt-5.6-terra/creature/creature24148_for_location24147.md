@@ -1,0 +1,39 @@
+What lives on the plateau is not one thing but a layered occupation.
+
+First there is the wetland itself, which lives with a persistence so slow it can be mistaken for stillness.
+
+The mosses are its oldest citizens, though no individual patch is old in the way a tree is old. They grow by accumulation, by patient burial. A green surface becomes brown beneath itself; brown becomes black; black becomes a depth that remembers every season of wetness. Some mosses stand in dense, springy heads, each one holding a private lens of rain. Others lie flattened by wind and frost, red at the tips, wine-dark in their hollows. They are not decorative cover. They are engineers. They raise the ground by fractions, divert water, acidify it, preserve what falls into it. A beetle shell, a lost glove, a dead bird, a length of cable insulation: all can enter their keeping.
+
+Liverworts occupy the places too wet even for most moss. They spread in dark, slick sheets over stone and around the mouths of drains, their surfaces shining like animal skin. In the narrow seams where water continually arrives from below, pale rushes stand with their feet drowned and their heads rattling in the wind. Sedges make the firmer-looking places dangerous. Their roots stitch a thin roof over black water, and their stems offer no warning of how little earth lies beneath.
+
+There are dwarf shrubs that have accepted the terms of the place. Crowberry, heath, small willows pressed almost flat to the peat, their branches running sideways under the wind. They flower close to the ground in brief, easily missed seasons. Their leaves are small, leathery, and dark: built to survive cold light, wet roots, and a summer too short to trust. In sheltered folds behind boulders, they may stand high enough to catch on a worker's trousers. Elsewhere they are only a texture among the moss, a low woody resistance beneath the hand.
+
+The plateau also supports a hidden population of things living in water without ever appearing to be in it. Algae film the pools in green-gold clouds. Fine threads of fungus travel through peat and root matter. Bacteria work in the black depths where oxygen has no authority, changing buried plant remains into gases, acids, and soft mineral stains. The bog breathes through them. On warm afternoons it gives off a sweet, sour, iron-rich smell, like wet wool left beside a rusting tool. In colder weather its breath is almost absent, held down beneath surface water and frost.
+
+In the clear channels live small, hard-bodied creatures that endure current, cold, and sudden floods: insect larvae clinging beneath stones, pale freshwater worms in the silt, caddisflies building cases from grains of sand or fragments of leaf. The pools appear empty until sunlight strikes at the right angle. Then minute things begin moving everywhere: water boatmen drawing sudden lines through reflected cloud, midges rising and settling, black larvae flexing in the submerged roots. Around the warmer outlets of the works, this life becomes denser and slightly uncanny. Water that should be too cold carries a little heat. Green growth thickens around culverts. Flies gather even in weather that seems hostile to flying things. The machinery makes small accidental climates, and life finds them immediately.
+
+Birds do not live here in crowds, but some make their temporary claims.
+
+A wader may nest in a concealed scrape among sedge, its eggs the color of peat and lichen. It rises only when a person has come too near, protesting in a thin, furious voice that is almost swallowed by the turbine noise. Small brown birds use the dwarf shrubs as lookout posts. In the brief insect-rich weeks, swallows or martins may sweep along the service road, taking advantage of the open corridor and the warmth around buildings. Higher up, where the pale stone begins, larger birds pass rather than settle: ravens, perhaps, or a raptor drifting through the clean light, dark enough to make the whole valley seem suddenly larger.
+
+The deer are not truly residents either, but they return often enough to become part of the plateau's grammar. They follow firmer ground remembered beneath snow and summer growth. Their tracks appear at the margins of pools, on the raised roadbed, around salt-stained equipment sheds. They know where the water can be crossed and where it cannot. A worker who follows them carelessly may find that the deer crossed in winter, over frozen ground, and that the route is now a drowning place.
+
+There are animals that use the industrial structures as if they were cliffs, trees, or strange mineral outcrops. Spiders string lines beneath valve-house eaves, their webs coated each morning in mist. Mice or voles nest in insulation where it stays warmer than the bog. In abandoned machine cabs, flies gather in the window corners and die there, forming a granular history of summers. Lichens arrive first on concrete feet and rusted bolts, making maps in gray, orange, and black. Moss follows wherever dust can settle. A transformer shed that is still maintained remains bluntly separate from the land; one neglected for a decade begins to acquire a green base, then a wet collar, then a softening outline.
+
+And there are the people.
+
+They do not live there in the full sense, not usually. They work rotations in small crews, arriving by road in weatherproof vehicles that look too clean for a few hours, then become streaked with peat and mist. Their inhabited spaces are cabins, pump rooms, tool lockers, mess corners warmed by electric heaters. They learn to recognize one another by shape and gesture because speech is so often lost to the sound. A raised hand means stop. Two fingers toward the eyes means watch the ground. A flat palm held low means water rising. Someone points at a vibrating pipe, and everyone understands the urgency without needing a word.
+
+The workers become attached to small details that outsiders do not notice: a dry patch beside a transformer shed where one can stand without sinking; a window in the maintenance cabin through which, on rare clear evenings, the western slope turns pink; the particular gate that always jams in sleet; the tea kettle that rattles when the turbines are under heavy load. They speak of pumps and sluices as if they have moods. They call certain channels by unofficial names. They know which abandoned machines have become unsafe to approach, which access roads vanish after heavy rain, which pools have no bottom anyone has found.
+
+Some stay long enough that the plateau enters their bodies. Their hearing changes. In town, ordinary quiet feels pressureless and strange. Rain on a roof reminds them of water in cable trays. They wake when a distant industrial fan changes pitch. They find themselves looking at lawns, roadside ditches, even garden moss, and judging automatically whether the ground would bear weight.
+
+But the true resident is the water.
+
+It lives in every form available to it: held in peat, sliding under root mats, trembling in grass stems, fogging windows, clouding the basin, rushing through intake grates, sealed in pipes, released as white violence below the works. It is the thing that crosses every boundary. It enters metal seams, concrete pores, boot leather, engine housings, skin. It brings the machinery its purpose and promises eventually to erase its shape.
+
+The pumps may direct it. The roads may bridge it. The pylons may stride over it. Yet all of these are temporary accommodations made by people to a country whose real inhabitants have no need to stand upright.
+
+Moss lives there. Peat lives there. Water lives there.
+
+Everything else is either passing through, or being slowly taught how to remain.

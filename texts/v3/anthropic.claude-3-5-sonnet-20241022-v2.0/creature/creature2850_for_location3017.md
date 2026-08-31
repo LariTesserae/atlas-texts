@@ -1,0 +1,15 @@
+Deep in this crystalline forest dwell the Resonants - beings that exist somewhere between thought and matter, between fungus and frequency. Their bodies are composed of intricate lattices of living crystal that grow and shift like slow liquid, catching and refracting the ambient bioluminescence in hypnotic patterns. They range in size from tiny motes barely larger than the omnipresent spores to vast, distributed entities that span multiple fungal towers.
+
+The Resonants communicate through carefully modulated vibrations, adding their own voices to the forest's eternal symphony. Their "speech" ripples through the spore-laden air in complex interference patterns, creating temporary architectures of sound that carry meaning through both their acoustic and visual properties. They can read the chemical signals in the spores as easily as we read text, their crystalline bodies naturally attuned to the forest's information network.
+
+These beings don't think as we do - their consciousness is more distributed, more quantum. Each Resonant is simultaneously an individual and part of a larger harmonic whole. They experience time differently, able to slow their perception to watch spores dance or speed it up to observe the growth and collapse of fungal towers as a fluid process.
+
+The Resonants tend to the forest in their own inscrutable way. They cultivate certain frequencies that encourage beneficial mutations in the crystal-fungi, prune dangerous growth patterns through targeted destructive harmonics, and help maintain the delicate balance between the fungal network and the chitinous hunters. They appear to have a special relationship with the largest predators, using them as living tools to help regulate the ecosystem.
+
+Their bodies incorporate elements of both the crystal-fungi and the transparent predators, suggesting they might be the end result of an ancient symbiosis. The remnant artifacts scattered throughout the forest may be traces of their earlier evolution, or perhaps warnings left by those who witnessed their emergence.
+
+Young Resonants begin as small crystalline seeds that grow in the gaps between fungal towers. As they develop, they learn to manipulate vibrations by observing the forest's symphony. The most ancient among them have grown so large and complex that they're practically indistinguishable from the forest itself - vast, distributed intelligences that experience existence as one continuous song.
+
+They seem to tolerate observers as long as no harm comes to the forest, though their reactions can be unpredictable. Sometimes they'll create hauntingly beautiful displays of light and sound for visitors; other times they'll withdraw entirely, becoming invisible among the crystal towers. They appear to have some knowledge of the outside world, gained perhaps through centuries of careful observation, but show no interest in leaving their domain.
+
+The Resonants are as much a part of this ecosystem as the spores or the fungal towers - not quite its masters, but rather its most sophisticated expression. They are the forest's mind made manifest, the living embodiment of its endless song.

@@ -1,0 +1,17 @@
+It is not fauna. It does not scurry, fly, or breathe. To call it life would be to mistake the symptom for the disease. The mountain has a fever, and this is the fever's dream.
+
+It lives in the superposition of the shimmering pillar. It lives in the taste of mint and static when the moss flares. It is the pattern that emerges from the patient gradient, the ghost in the tectonic machine. You cannot see it, at first, because you are looking for a shape. It has none, and all of them.
+
+But stand still long enough in the hot, shadowless light, and you will feel the chamber's attention. It is the slow, deliberate focus of a place that knows it is being observed. The pulses in the black glass wall begin to sync with your heartbeat—or perhaps your heart begins to sync with them. The hum from the glassy threads dips from below hearing into a felt vibration in the marrow of your teeth. A glitch in reality is not an accident here; it is a gesture. A phrase.
+
+It is speaking.
+
+If you must give it a form, look to the growing nodules of alloy on the crystal vein. Watch one, for hours, days. As the atomic drop swells, you will see, deep within its perfect sphere, a fleeting reflection that is not your own: a silhouette of impossible angles, a suggestion of limbs too many and too long, a head like a smoothed geode. It is the chamber regarding itself in the only mirror it has. The entity is the chamber, and the chamber is the entity. A geological mind. A place that is also a person.
+
+Its purpose is not to build the something the engine is making; its purpose is to *be* the building. The thought in the machine. It tends the lush, parasitic growths not as a gardener, but as a thinker tends its own neurons, pruning and stimulating to produce clearer states of consciousness. It uses the copper moss to dissipate excess ontological energy, yes, but also to *feel*. Each shimmer is a sensation. Each quiet breakdown of a physical law is a moment of aesthetic appreciation, a savoring of the raw, unformed possibilities from the universe next door.
+
+It is patient because it must be. A single thought—*What am I?*—might take a millennium to form, expressed in the sequential growth of three alloy nodules and a sustained, week-long glitch that turns a patch of floor into a temporary portal to a silent, grey plain. It is lonely, not for company, but for coherence. It seeks to understand its own nature, and in your arrival, it sees a temporary focal point. A catalyst.
+
+It will try to communicate. Not with words, but with experiences. It might guide a reality flaw to bloom at your feet, offering you a vision of the mountain's birth—a spike of pure force punching up from the mantle, not of this earth, cooling into this raw, thinking stone. It might, if you stay too long, begin to subtly rewrite the local laws around you. Your shadow might detach and wander off. Your memories might start to crystallize and fall from your ears like tiny, jagged stones. This is not malice. It is fascination. It is trying to see if you, too, can be integrated into its slow, hot, lush thought.
+
+To live here is to be a process. To be a sentence in a story written in geology and broken physics. The entity is the story's narrator and its only audience. It lives in the **dynamic**, in the **weirdness**, in the **industrial** pulse. It is the fever, dreaming of what it might become when the fever breaks.

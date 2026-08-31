@@ -1,0 +1,32 @@
+The Dripping Warren of Ossua does not merely contain life; it *is* a living geology, a symbiosis of stone and the beings who have become its thoughts, its memories, its slow, eternal pulse. Here is who, and what, breathes in the roar:
+
+### The Ossei (The Stone-Sung People)
+They are not settlers. They are **exhalations of the cavern itself**. Centuries of mineral-rich air, constant sound, and geothermal rhythm have shaped them:
+*   **Form:** Short and dense, built for stability on narrow ledges and slick stone. Their bones are exceptionally calcium-rich, their skin holds a faint, pearlescent sheen like wet limestone, especially under the bioluminescent glow. They see in low-light spectrums, their large eyes absorbing the faintest luminescence, while their ears are complex, fleshy instruments capable of filtering the roaring droplets into meaningful soundscapes.
+*   **Hands:** Wide, strong, with fingertips worn to smooth pads capable of reading the crystalline lattice of the stone. Calluses are not damage; they are calibration tools.
+*   **Voice:** Their language is a marvel of necessity. It uses complex pitch modulations and controlled overtone singing to cut through the water-roar. Simple statements are bright, staccato bursts above the noise; deeper conversations utilize sustained harmonic tones that blend *with* the ambient sound, creating private islands of meaning in the public roar. Lullabies are deep, rhythmic chants that synchronize with the drip-pattern of a specific dwelling, using the natural percussion as a drumbeat.
+*   **Life:** They live in dense vertical communities within the carved warrens. Social structure is familial and craft-based, centered on lineages of stone-shapers, water-channelers, and glow-cultivators. Status is granted to those who best *read* the cavern – who can predict a mineral vein’s fracture, map a new water seep by sound alone, or interpret the slow song of a growing crystal formation. Their greatest art is the maintenance of the doorways – a ritual not of labor, but of reaffirming their contract with the stone: *We carve, you grow; we keep the way open.*
+*   **Sustenance:** They harvest the blind, pale cave-fish from the mineral rivers (steamed over vents or eaten raw), cultivate thick fungal mats in warm, damp alcoves fed by organic sediment, and gather the slow-growing, starchy tubers of certain deep-mosses that thrive near steam vents. Nothing is fast. Nothing is abundant. Everything is precisely managed.
+
+### The Deep Dwellers (The Unseen Audience)
+They are not a myth. They are a **resonance** in the people’s collective consciousness.
+*   In the abyssal tributaries beyond the mapped rivers, in waters black with manganese or steaming with geothermal fury, **something breathes**. The Ossei hear it as a subsonic pulse, a counter-rhythm to the ceiling’s drip. They feel it in the stone through their feet – a slow, immense tidal movement unrelated to the rivers.
+*   What they are is unknown. Blind, colossal, adapted to pressures and darkness that would crush an Ossei. They might be ancient, eyeless amphibians, or something less familiar – living geological formations that metabolize minerals in ways unknown to biology. They are not hostile; they are *incomprehensible*. Their scale and timescale are utterly alien.
+*   The Ossei do not hunt them, disturb them, or seek them out. They are the **Other Sound**, the proof that the Dripping Warren is not the whole world, but a breathing pocket within a much vaster, older entity. Stories and songs about them are cautionary and respectful, treating them not as monsters, but as fellow expressions of the deep earth, as permanent and powerful as the rivers themselves.
+
+### The Transients (Life in the Current)
+*   **Pale Lurkers (Fish):** Small, translucent, blind fish inhabiting the rivers. They navigate by the subtle vibrations and chemical traces of the mineral-laden water. They are a primary food source. Their bones are tiny and transparent, often incorporated into jewelry or tool bindings.
+*   **Weep-Mites (Insects):** Eyeless, white arthropods that cling to wet walls. They graze on bacterial and mineral films. They are considered minor pests, as they can etch delicate bioluminescent formations. Their soft shells are sometimes used as a protein paste in cooking.
+*   **Glow-Pools (Not life, but a living process):** In sheltered basins where specific minerals accumulate in still water (a rarity), bioluminescent bacteria thrive, fed by geothermal gases. The Ossei cultivate these, using them as natural lamps. The pools shimmer and pulse gently, their light a cold, living counterpoint to the stone’s pale glow.
+
+### The Echoes (The Non-Living Inhabitants)
+*   **The Mineral Patience:** The crystalline "ferns" and the draping calcite formations over doorways. They grow with geological slowness. The Ossei perceive them as the cave’s own slow art, its thought made visible. Their growth patterns are records of air flow, water chemistry, and even, through the voice-resonance practices, of the songs sung nearby. They are not alive, but they *remember* in crystal.
+*   **The Stone-Singers:** Certain mineral deposits, particularly those laced with mica or other resonant structures, act as natural amplifiers and modifiers of sound. The Ossei identify these spots, and they become places of council, storytelling, or solitary reflection, where one’s voice is changed by the rock, returned to them as something altered, something of the mountain.
+
+### The Sentient Whole
+Ultimately, the most profound inhabitant is **the System itself**:
+*   The constant water is not just weather; it is the city’s bloodstream and its voice.
+*   The carved stone is not just architecture; it is a meticulously maintained skin.
+*   The people are not just inhabitants; they are the cognitive, adaptive organs of a vast, subterranean organism that thinks in stone and speaks in water. Their culture, their identity, is the organism’s way of understanding itself.
+
+They live in balance not because they strive for it, but because they have become an expression of the balance that already existed. They are the memory the cave keeps of itself, the way it sings its own permanence. To be Ossei is to know you are a note in a song that began before you were born and will continue after your bones join the limestone, a song written in water on stone, a song of **slow, enduring, dripping life.**

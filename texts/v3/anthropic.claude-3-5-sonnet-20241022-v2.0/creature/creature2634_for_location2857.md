@@ -1,0 +1,15 @@
+In this crystalline realm, the primary inhabitants are the Chord Weavers - entities that exist as living intersections of harmonics and probability. They have no fixed form, instead manifesting as complex interference patterns in the ambient resonance of their world. Their "bodies" are ever-shifting geometries of pure tone, held together by self-sustaining harmonic loops.
+
+The Chord Weavers communicate by modulating the fundamental frequencies of their being, creating rippling conversations that propagate through the crystal sheets like light through fiber optics. Their thoughts are indistinguishable from music - each idea a unique melodic structure that can be shared, combined, and transformed.
+
+They feed on quantum uncertainty, drawing sustenance from areas where reality is at its most fluid. A Chord Weaver can often be found near the probability pools in deep valleys, slowly absorbing the potential energies that collect there. They reproduce through a process of harmonic mitosis - when a Weaver's internal resonances reach sufficient complexity, they spontaneously split into two distinct but related patterns.
+
+The oldest Chord Weavers have evolved to manipulate their crystalline environment with extraordinary precision. They can create stable pathways through probability space, architect new acoustic geometries, and even capture and store specific harmonies for later use. Some have learned to weave themselves into the very structure of the crystal sheets, becoming living architecture that shapes and directs the flow of sound-water.
+
+These beings experience time as a polyphonic progression rather than a linear flow. Their memories are stored as layered frequencies that can be accessed simultaneously, creating a consciousness that exists in multiple temporal states at once. Their dreams, if they can be called that, take the form of complex standing waves that persist in the crystal matrix long after the Weaver has moved on.
+
+There are also smaller, simpler entities that spontaneously emerge from particularly resonant harmonies - temporary beings that flare briefly into existence like musical phrases before dissolving back into the background symphony. The Chord Weavers regard these as something akin to weather patterns or seasonal phenomena - natural expressions of their world's underlying rhythms.
+
+The relationship between Chord Weavers and their environment is so intimate that it becomes difficult to say where one ends and the other begins. They are both products and shapers of their reality, their very existence both an expression of and an influence on the fundamental harmonies that govern their world.
+
+In the deepest probability valleys, there are rumors of vast, ancient Chord Weavers who have evolved beyond individual existence to become living quantum computers, processing reality itself through endless fugues of possibility. These entities are so complex that younger Weavers can only perceive them as background radiation in the universal symphony - fundamental frequencies so deep they shape the very structure of space-time.

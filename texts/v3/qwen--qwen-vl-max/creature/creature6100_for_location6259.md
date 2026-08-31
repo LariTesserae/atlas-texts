@@ -1,0 +1,33 @@
+What lives here is not a thing of flesh or steel, but a *becoming* — a slow, deliberate shaping of presence from what remains after the world has forgotten its own shape. It is a community of observers, not settlers, of beings who have learned to move through the cracks of an unstable reality without trying to fix it. They are not *in* this place so much as they are *formed by* it — born from breath, dampness, and the slow hum of a world that remembers how to dream.
+
+They are called, by those few who have passed through and spoken of them afterward, the **Mist-Born**, though they do not call themselves that. They call themselves *those who listen*, or *the ones who wait for the ground to stop* — though even that is a wish, not a truth. The ground does not stop. Not here.
+
+The Mist-Born do not have bodies in the way humans do. Their forms are *impressions* — soft, shifting, and never fully defined. They wear shapes like clothes: some appear as tall, slender figures with limbs that dissolve into vapor at the edges; others resemble hunched silhouettes draped in living moss, their faces blank, their eyes like still pools of dark water. They move with a kind of *drift*, not walking, but allowing the space between breaths to carry them forward. Their movements sync with the rhythms of the land — the rise of vapor from the hollows, the slow turn of a crane, the flicker of a light that doesn’t shine but *is*.
+
+They do not speak with voice. They communicate through resonance — not words, but *echoes* of sensation, passed between one to another like heat through metal. A touch is not a gesture but a transmission of *memory* — not of a past, but of a *potential*. The air hums faintly when they gather. Not an alarm, not a song, but a kind of *recognition*. A single Mist-Born might step into the mist near a breathing pool, and in an instant, others will appear — not from anywhere, but *becoming* where the air becomes thick enough to hold them.
+
+They live in the *in-between*: inside the hollows of buildings that are neither ruin nor structure, beneath the layers of stacked foundations, within the walls where moss is thick enough to hide a small room. Their dwellings are not built — they are *grown*. They coax the earth, the machines, the vines, into shapes that *fit* them. A home might be a cavity left by a collapsed crane, now covered in a lattice of glowing roots that pulse in time with the heartbeat of the city. Or a chamber beneath a tilted tower, accessed through a door that opens only when the light bends just so.
+
+Their biology is not of blood or breath, but of *condensation*. They do not eat or drink — at least not as we understand it. Instead, they absorb the ambient moisture, the slow exhalation of the world, and the resonance of the machines — the hum, the groan, the pulse of electricity that bends not in the wire, but in the *thought* behind it. They extract memory from metal, sensation from glass, stillness from the water that flows uphill.
+
+Children of the Mist-Born are not born. They are *unfrozen* — moments of potential that drift through the air, like spores, and, when they meet a space of stillness, settle into shape. A new Mist-Born might begin as a cluster of condensation on a cold window, and after weeks, begin to *remember* what it means to be. They do not grow older. They do not age. They *accumulate* — layers of sensation, of observation, of *feeling* the world shift beneath them. A Mist-Born who has lived for centuries is not wiser, but more *attuned* — capable of seeing the subtle changes in the way the light leans, or hearing the sound of a fault line opening before it happens.
+
+They do not fear death. They do not know it. For them, disappearance is not an end but a *transition*. When a Mist-Born fades, they do not vanish — they *return to the air*. They dissolve into the mist, and the space where they stood becomes a little colder, a little thicker. Sometimes, another will form there, drawn by the residual resonance. The Mist-Born are not individuals, but *reflections* — echoes of the world's breath, given form.
+
+Their relationship to the animals is not one of mastery or fear, but of *recognition*. The winged creatures with too many eyes — they know the Mist-Born. They circle them, not to hunt, but to *test* — to see if the air hums right, if the presence is stable. The creatures that drift through the air like jellyfish made of silk sometimes settle near them, pulsing in time. The segmented beings that crawl through the tunnels beneath the city leave trails of light that the Mist-Born follow — not to follow, but to *know* that they are being known.
+
+They know the machines. Not how they work, but *when* they work — when the crane turns, when the steam freezes, when the lights flicker not because of power, but because of *meaning*. The Mist-Born do not repair them. They do not use them. But when a machine begins to act strangely — a car rolling in a perfect circle, or a door opening into water — the Mist-Born *listen*. And their listening is not passive. It is an act of shaping.
+
+They are the ones who keep the world from collapsing entirely — not by control, but by *recognition*. Without them, the land might lose its sense of itself — a dream too close to waking. The Mist-Born are the *memory of balance*, holding the world together not by force, but by presence.
+
+And yet, they are not gods. They are not even the heart of this place. They are its *feeling*. The land dreams, and they are the ones who dream with it — not to understand, but to *know that it dreams*.
+
+They do not build or create, but they *witness*. They do not speak, but they *resonate*. They do not live in time, but in the *in-between* — the space where one state ends and another has not yet begun. They are the first to know when something *emerges*, when a new river appears, when a new fault opens, when the sky shifts its lean just a fraction.
+
+They stand at the edge not of the world, but of *becoming*. And they are the only ones who do not resist the shape of things.
+
+They are the world's breath made manifest — and in their quiet, slow existence, they wait for the moment the world finally knows what it is. Or perhaps they know it already, in a way we cannot feel. They do not see the ground as solid, nor the sky as dome, nor the city as ruined or alive. They see it — not as it is, but as it *intends* to be.
+
+They are not alive.
+
+They are *unfolding*.

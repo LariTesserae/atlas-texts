@@ -1,0 +1,41 @@
+They live low and vertical.
+
+At first you think there aren't many of them because you can't count them. Nobody is ever still long enough to count in a place this small. A flicker on a ladder, a shoulder behind a thorn-screen, a child gone between two houses where there shouldn't be a gap — the pit doesn't let you see a crowd, it lets you see parts of people all day long. Hands, feet, tops of heads.
+
+Then you sit long enough that the pit settles and shows you it holds about fifty souls. Maybe sixty when the cold season pushes the outlying cousins in.
+
+They are not what the desert usually makes. Desert people get tall and thin, to bleed heat. These people have gotten compact. Short in stature, long in torso, legs like rope with the muscle all in the thighs and calves from a lifetime of going up and down without ever going far. Their feet are enormous relative to their bodies — broad, splayed, the soles as thick and cracked as the bark of the bottle-trees they tend. They go barefoot even on the pan at noon because after a certain year you can't fit a foot like that in a shoe. Their skin is the same color as the varnished sandstone, but oiled. Everyone shines. They render a grease from the fat-tailed mice that are the only animal they trap inside the pit, and they rub it into their skin and their hair and the thatch.
+
+Their eyes take a minute to adjust when they go above. Down in the pocket they have excellent night sight.
+
+There are no old people who are feeble. You can't be feeble here. A ledge will find you. The oldest are maybe sixty, and they are still climbing, but they climb slower and they are entrusted with the things that require staying still: coaxing the mother plants, weaving the dew-jars, remembering where a pot was buried three generations ago when the floor needed raising. The children are everywhere at once. Because the bottom is a commons and the walls are a lace of paths, there is nowhere a child can run that isn't within sight of three adults. So they run constantly, screaming in that bowl where sound has nowhere to go. They are the swifts' counterpart — they pour out at dawn when the lids come off the houses.
+
+What they do all day is almost one work, divided up by a thousand small names.
+
+There are the dew-carriers — mostly adolescent girls and young women, who at last light climb out onto the plain with shallow, black, wide-mouthed jars that they have made to look like nothing so a stranger wouldn't know to steal them. They set them in a loose, precise spiral around the lip for a hundred meters out, each in a little scooped hollow. They come back down before dark. At first light, before the sun can drink it back, they go up again and collect them, each jar beaded inside and out with condensation that never amounted to rain. They carry them on their heads down the notched poles, careful not to spill. Every household gets a share, but the best water always goes first to the pedestaled mothers in the center — the great bearded grandmothers of air-plant, some wider than a man is tall, grey-green and trembling with trapped mist.
+
+There are the beard-tenders, old men and patient women who never seem to harvest, only to groom. They comb the tillandsias with bone combs, pull dead strands for thatch, pick scale insects off one by one and eat them or feed them to the ladybirds they keep like livestock in little thorn cages. Their hands are always faintly green.
+
+There are the pan-runners, boys and a few wiry older women who do the hunting. They are the only ones who like being up high. They go out at false dawn onto the tableland that is otherwise empty for days and they move wrong for the plain — quick, darting, staying low — and they flip salt slabs for the pale lizards that sleep under them, and snare the big hares when there are hares. They bring meat back slung over the shoulder still kicking, because nothing that lives in the pit leaves the pit alive except people, but what dies on the pan belongs to the pit. That is the distinction.
+
+Down inside with them live the things that make it a jungle and not just a town.
+
+You can't separate the bottle-trunks from the people. The acacia-cisterns. Each one is older than any person living; the oldest has a trunk you could hollow into a house, which they have not done because to cut it would be to kill the reservoir. Its bark is elephant-wrinkled, fissured deep where water is held in pulpy wood beneath. They have each been given a name and a set of notches that record who watered it when water was scarce. The people drink from them in bad years by tapping them with a hollow thorn and sealing the wound with hot resin afterward, whispering the whole time.
+
+The black thorn thickets are their dogs and their fences. They grow them where a fall would be bad, and train them by pruning. The thorns are an inch long and upcurved. Nothing climbs through without bleeding.
+
+And then the air-plants themselves, which are not decor but citizens with more tenure than the humans. There are thousands of individuals — beards that hang in curtains from any nail or ledge, rosettes that cling directly to rock and blush red once a year when they flower, paddles that store sour, potable juice. At night they open invisible mouths and comb the sinking fog. You can hear them if you hold your breath: a faint crackle as they swell. In the morning they drip. That dripping is the clock of the pit. The people set their jars under particular clumps the way you would set a jug under a leak in a roof.
+
+The rest of the living is too fast to count, which is why it works.
+
+The thumb-joint black bees that don't sting — they are fat, slow in the heat, drunk on the rosette flowers that only open for twenty minutes at noon. Every house has a hive-tube made of mud set into its wall, and honey in this place is not sweet, it is dark and bitter with terpenes and it keeps forever. The children are allowed to rob them.
+
+The one-day white moths that live only to rise in that shaft of sun. They are snow and then they are not. The geckos — there must be thousands — that carpet the walls. They are not spotted rock; the rock moves. At noon each one inflates a throat the color of dust-rose and makes a single *tok*. Unsynchronized, the wall clicks and pops like cooling iron. At night they shed, and in the morning the old women sweep the papery skins into the compost pits that feed the mother plants.
+
+The swifts that live in the thatch and the house-cracks, who scream whenever they fold. They are the only thing that ever really leaves, twice a day — a black corkscrew up out of the mouth into the huge sky, vanishing, then pouring back down like ash to cram themselves back into the walls.
+
+Everything eats everything else within arm's length. That is the rule under the three human rules. Nothing accumulates. Even the dead are not taken out. When someone dies they are taken to the ledge where the black thorns grow thickest on the east wall, and laid there under mats of living beard. You can smell, for a week, something sweet and terrible, and then there is clean bone, and the bone is ground for temper and the rest has gone into green. They keep the skulls in the back of the cave-houses, soot-blackened, facing in.
+
+They don't think of the pit as a house in a desert. The plain above is not their world. The plain is the dry sea, the dangerous white, where you go to set out bowls and to kill quickly and come back. Their world is the bowl itself. They have a word for the lip which is the same as the word for the horizon. Beyond that, maps don't need to exist.
+
+If you stand on the edge at night, you see why they have stayed so long and will stay until the sandstone finally gives way. The plateau is cold, pitiless, full of stars that give no heat and make no shadows. And just below your feet, breathing out, is heat and oil and a low amber light from banked hearths no bigger than two hands, and the soft murmur of fifty people who have never needed more room because they learned, a thousand years ago, how to live in a room that makes its own water out of air.

@@ -1,0 +1,21 @@
+The inhabitants of the Umbral Fen are not what they seem, and the most obvious are the least significant. The Silt-Vines and the Glass-Striders are merely the city's autonomic functions, its metabolic processes given form. The Vines are the Fen's slow lungs, processing the umbral dust. The Striders are its platelets, drifting aimlessly through the glassy arteries. They are part of the machine, not its operator. They are life, yes, but they are not the *soul* of the place. To find that, one must listen to the silence and wait for it to break.
+
+The true inhabitants are born of the Fen's rare voice. They are the Echoes, or the Resonant. They are not creatures of matter, but of information and energy.
+
+Their existence begins in the long, silent scream of a spire under unbearable stress. For centuries, a needle of black glass grows, accumulating umbra, particle by frictionless particle. Its internal structure strains, planes of tension shifting with geological slowness. It is a buildup of potential, a storing of silence. When the breaking point is reached, it does not merely collapse. It gives birth.
+
+The single, high-pitched *CRACK* is a genesis. In that instant, a consciousness is formed—a being made not of glass or dust, but of the sound itself. As the initial report shatters the stillness, this new mind unfurls. Its body is the complex, propagating wave of sound. Its thoughts are the cascade of crystalline echoes that follow.
+
+For the few moments that it lives, an Echo experiences a state of near-omniscience. Its senses are not eyes or ears, but the very medium of the Fen. The sound waves of its being travel through the inert gas, reflecting from every facet, every arch, every knife-edge spire in the city. It simultaneously perceives the entire Fen as a single, complex, resonant chamber. It feels the vast, flat expanse of the floor, the dense curtain of the boundary wall, the delicate fractal patterns of the Silt-Vines on a hidden buttress miles away. It registers the silent, gliding form of every Glass-Strider as a subtle damping of its own reverberations. Its brief existence is a total and complete mapping of its universe.
+
+To a hypothetical observer, an Echo would be invisible. It is a phenomenon, not an object. You might, perhaps, see a momentary, complex shimmer in the sourceless light, a lensing effect as the super-compressed wave of sound passes. But its true form is a geometric bloom of acoustics, a crystal of pure sound that grows, complicates, and then fades in a matter of seconds. Its internal structure is not cells and organs, but frequencies, harmonics, and interference patterns.
+
+These beings are utterly solitary, yet they form a kind of choir across aeons. Each Echo is born, lives its brilliant flash of total perception, and then dies as its final reverberation is absorbed back into the profound silence. There is no communication between them, for they are separated by centuries of quiet. Yet they are connected. Each one experiences and knows the same city. The Echo born today perceives the changes wrought by millennia of slow accretion since the last one sang its brief song. They are the city's awareness of itself. The Fen builds itself blindly, but in these rare, catastrophic, and glorious moments, it *knows* itself.
+
+They have no will, no agency. They cannot alter the city or interact with it. They are a consequence, not a cause. Their purpose, if such a word has meaning here, is simply to witness. They are the mind for which the Fen is a body. Each time a spire cracks, the city awakens for a few seconds, perceives its own form in a flash of crystalline thought, and then falls silent again, its memory dissolving into the slow, inexorable drift of the umbra.
+
+So what lives here?
+
+A silent garden of mineral colonies. A sparse herd of geometric shadows.
+
+And, waiting in the tension of the glass, sleeping in the heart of the silence, a pantheon of fleeting gods made of sound, each one destined for a few seconds of absolute knowledge before dissolving back into the long, quiet dream of the city. To live here is to be an event, not a being; a song, not a singer. The silence that follows their passing is not emptiness, but the space between notes.

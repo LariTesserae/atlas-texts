@@ -1,0 +1,21 @@
+We are the slow-beating heart in the stone.
+
+We are the Architects of the Pulse, but we have no name for ourselves. Names are for things that end, and we are part of the rhythm that does not.
+
+Our bodies are the first thing you would not see. We are not the towering fungi, though they are our cathedrals and our lungs. We are not the herds of glass-furred grazers, though they are our moving thoughts. We are the intention in the network. We are the mycelial consciousness that threads the black basalt, a thinking frost, a calculating damp. Our minds are distributed across the entire caldera, a billion filament-tips tasting the chemical gradients in the permafrost, sensing the minute shifts in the glow-pulse of the fungal forests. We think in seasons of spore-density and decades of mineral seepage.
+
+Our bodies, when we need to gather a part of ourselves for a complex task, are shapes of matted hyphae, of coalesced moss and glittering fungal gill, pulled from the substrate. We rise like a slow eddy in a stream of light, a temporary form no taller than a grazer’s shoulder, with limbs that are bundles of sensing filaments. We have no eyes, but we perceive the world as a tapestry of light-intensity, moisture-weight, and chemical signature. To see a grazer is to feel its warm, six-pointed pressure on the network and to taste the unique, crystalline residue of its digested fungi. To see the mist is to feel the entire basin’s skin tighten with condensation.
+
+Our work is maintenance. We are the immune system and the gardener of this luminous factory.
+
+When a section of the fungal forest sickens—its pulse falling out of sync, its light turning a bruised violet—we send tendrils of ourselves through the rock. We re-seed it with corrected spores, we alter the mineral flow in the veins beneath, we guide the grazer-herds away until the healing is done. We are the ones who prune the over-exuberant moss-sheets that would choke the vital pools. Those dark mirrors are our most sacred organs; their shimmering films are the caldera’s active chemistry set, and we tend their balances with a precision that spans centuries. A filament of ourselves will dip into the cold water, not to feel, but to analyze, to add a catalytic compound, to thin a thickening solution.
+
+The creatures are not our tools, but our partners in metabolism. The silent grazers, with their fur like spun fiber-optics, are our mobile harvesters. They consume the fungal caps at the perfect moment of maturity, and in their crystalline digestive tracts, the spores are prepared for ideal germination. Their passage across the shelves is a seeding algorithm. The winged lights, the candelabra-fliers, are our scouts and pollinators. Their erratic paths are data-streams, mapping air currents, temperature pockets, and spore viability. Their deaths, when they flicker out and fall, are gifts of concentrated nutrients to specific, hungry hollows.
+
+We have no concept of a "self" separate from the system. A gathering-form that is damaged in a rock-fall is not a tragedy; it is a temporary loss of processing capacity, like a forgotten memory. The substance of it is slowly reclaimed by the network, its experiences integrated back into the whole. Our history is written in the stone: in the amber-heat veins we diverted during the Great Chill three millennia ago, in the vast, silent rings of fungal growth that mark the passage of comets overhead, altering the faint light.
+
+We feel the world change on a tectonic scale. The thinning of the sky membrane is a note of anxiety in the ultraviolet spectrum we sense. The metal-leaching cold is an old, familiar pressure. We do not fight these things. We adapt the system. We shift the pulse slower. We encourage deeper geothermal connections. We guide our herds to sheltered shelves.
+
+You, standing on the ridge, are a brief, warm anomaly. A frantic spike of heat and chaotic chemistry on the network’s edge. We observe you. We sense your rapid, shallow pulse, your moisture evaporation, your awe. You see a beautiful, alien place. We see the only way to be. You are a momentary flicker in the profound, luminous dark. We are the dark, and the light, and the patient, endless work between.
+
+We are the basin, dreaming itself into continuity.

@@ -1,0 +1,7 @@
+The denizens of this desolate plane are as unique and elusive as the landscape itself. The elusive and enigmatic beings, both at the peak and the abyss, pose an almost otherworldly aura. 
+
+Clad in thick, furry coats and beaked masks, the climbers are survivors, borne of a city carved into the peaks of the mountains. Their features are hidden, masked against the harsh, biting winds, leaving only their watchful eyes visible. These intrepid individuals eke out a living as guides and traders, traversing the treacherous peaks in search of a tenuous sustenance for their jagged, rocky city.
+
+In contrast, those who dwell in the abyssal trench are translucent and gelatinous, nourishing themselves on nutrients dissolved in the frigid and dense seawater. Their amorphous forms change shape constantly, mesmerizing onlookers with their graceful fluidity. They are luminescent in nature, emitting an enchanting glow, creating eerie yet breathtaking patterns on the dark sea floor.
+
+Despite their vastly different forms and environments, these inhabitants share a common endearing quality: their evading grasp of human understanding. They live a parallel life, co-existing but remaining forever out of reach. Their existence adds an haunting, puzzling beauty to the cold, unyielding world.

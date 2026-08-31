@@ -1,0 +1,13 @@
+In this verdant, alien landscape, life takes on myriad forms, each more bizarre and wondrous than the last. Here, amongst the twisting, kaleidoscopic trunks and fractal branches, dwell creatures that seem plucked from the dreams of a mad botanist.
+
+Clinging to the bark of the great arboreal spires are colonies of motile, plantlike beings. At first glance, they resemble clusters of vibrantly colored fungi or intricate lichens. But a closer look reveals something far stranger. These are communal organisms, each individual a specialized component working in concert with its kin. 
+
+Some possess delicate, cup-shaped fronds that unfurl to capture passing spores and nutrients on the breeze. Others sprout long, whiplike tendrils tipped with barbs and hooks, allowing them to clamber across the bark in an inchworm-like fashion. Still others bear waving cilia or intricate pollen sieves, exchanging the vital essences that sustain the colony.
+
+As alien as they appear, these beings are but a small part of the kaleidoscopic ecosystem. For where their clusters spread, whole ecologies take root. Diminutive, furred grazers no larger than a child's hand nibble on the tender tips of the fronds and fungi. In turn, they are stalked by sinuous, scales predators - ribbon-like hunters whose bodies bend and flex in hypnotic, snakey undulations as they slink through the tangled branches.
+
+Below, in the mossy underbrush, other curiosities lurk. Insectile scavengers crab-walk across the damp loam, gnawing mouthparts rasping as they shear off and consume fallen detritus. Delicate, spore-headed stalks sway in the humid air currents, their ruffled bells passively capturing tiny airborne life to consume at a molecular level. Massive, semi-immobile fungal blooms as wide as houses brood in the shadows, cyclopean rumpled centres pulsing slowly as they digest any organic matter that strays too close.
+
+And yet, amidst the riot of nature's fecundity, there are signs that this realm once knew the ordering influence of an intelligence other than nature's own. The scattered, weathered stones and structures speak of visitation or even habitation by some long-departed race of builders. What cyclopean vistas did they craft here, in this verdant, overgrown world before departing or being overcome? What unknowable truths did they unearth in the exploration of such a uniquely alien ecosystem?
+
+Perhaps some lingering legacy or descendent lineage of those pioneers endures, eking out survival alongside the landscape's teeming life. Or perhaps greater things slumber, waiting for discovery amidst the riot of arboreal architecture and tangled, vegetalian yearnings...

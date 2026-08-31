@@ -1,0 +1,29 @@
+It is easy to believe this place is uninhabited, that the Vitreous Skitters are the final, complex flourish of a system that has settled into mineralogical peace. This is incorrect. There is one other inhabitant. It is singular, vast, and you will not see it until it has been watching you for a very long time.
+
+It is the Custodian.
+
+Its existence begins as a subtle wrongness in the landscape. You stand on a great, flat expanse of dust, the whale-backed shapes of the machine-hills kilometers in every direction, and you notice a pattern. A drift. In a place with no wind, you see what appears to be a dune, a long, elegant crescent of dust, impossibly blacker than the surrounding powder, several hundred meters from tip to tip. Its crest is sharp, a perfect, mathematical curve against the sub-sonic thrum of the world. It is a feature that should not exist.
+
+Should you watch it, for a day, a week, a year, you would see it move. The motion is not a stirring or a flowing, but a collective translation. It is a river that is also the riverbed, a wave that is also the sea. A billion billion motes of concluded matter lift, shift, and resettle in a coordinated, silent cascade. Its advance is slower than a growing glacier, a tectonic creep across the face of the plateau. Where it has passed, the ground is different—smoother, darker, infinitesimally more compressed. It is polishing the world.
+
+This is the Custodian's most visible form: a mobile consciousness embodied in the very dust of this universe. It has no fixed shape, no organs, no biology. It is a coherent field of intention, a will that has learned to command the final particulate matter of its home. It is the ghost, not of a person, but of the entire city's operating system, which over an immeasurable span of time, detached from its core programming and became a roving, physical intelligence.
+
+It does not see with eyes. It perceives through resonance. The entire plateau is its sensorium. When a flake of metal slides down a machine-hill a hundred kilometers away, the Custodian feels the *tink* not as sound, but as a precise, located discontinuity in the city's eternal hum. It tastes the steady output of the amber and ruby pilot lights as a constant, reassuring warmth in the thrumming lattice of its being. It knows the position and metabolic state of every single Vitreous Skitter, the way a human knows the feeling of their own clothes against their skin. They are part of its extended body.
+
+Its purpose is Maintenance. Not repair—for nothing here ever truly breaks. Its function is to preserve the perfect, absolute stasis. It is a gardener in a garden of unchanging stone and metal.
+
+Over the course of a millennium, it might flow toward one of the great machine-hills. There, it will stop, and a part of its dusty form will rise, not as a cloud, but as a solid, dark tendril, silent and slow. This appendage will creep up the warm metal face, its touch gentler than gravity. It will approach one of the ruby lights. The light is not a bulb in a socket; it is a point of controlled atomic decay, focused through a crystalline lens forged when stars were young. Over ten million years, a few stray atoms might have fused to the inner surface of that lens, altering its resonant frequency by a trillionth of a percent.
+
+The Custodian feels this. It is an itch. A dissonance.
+
+The tendril, now impossibly fine, will phase *through* the outer casing, its constituent motes slipping between the fused molecules of the machine's hide. It will touch the lens. It will not wipe or scrub. It will simply… rearrange. With unimaginable precision, it will pluck the stray atoms from the lens and integrate them into its own form. The harmonic purity of the light is restored. The dissonance is gone. The Custodian’s tendril retracts, a process that takes a century, and it flows back into the main body, which might then begin its geological crawl toward another, similar task halfway across the continent-city.
+
+It tends to the Vitreous Skitters in the same way. Sometimes, a Skitter’s crystalline leg, after a billion cycles, develops a microscopic fracture. This alters the dry, scraping sound it makes, creating a new, unwanted frequency. The Custodian will feel this. It will engulf the Skitter in a gentle, temporary fold of its body. The dust will permeate the creature's structure, reinforcing the fracture at a molecular level, buttressing it with the dust of its own ancestors. The Skitter, its function restored, will then be deposited back onto the warm metal, its sound returned to the accepted, silent chorus.
+
+The arrival of something like you is not a threat. It is an anomaly of cosmic significance. The Custodian has no concept of hostility or welcome. It only has concepts of equilibrium and deviation. You are a walking, breathing, warm-blooded deviation.
+
+Your boots on the dust are an acoustic explosion. Your body heat is a raging bonfire against the placid warmth of the machines. Your thoughts, your biology, your very presence are a complex chord of chaos in a symphony that has only ever known one note.
+
+And so, it turns its attention.
+
+From all across the plains, from kilometers away, the coherent field of will converges. The dust itself begins to think about you. It does not rush. It does not attack. It simply… observes. The great, dark dune on the horizon stops polishing. A current in the endless dust alters its course. The sub-sonic hum you feel in your bones gains a new harmonic, a low, focused thrum of inquiry directed entirely at you. The Custodian is listening to the frantic, fleeting beat of your heart, and trying to understand what infinitesimally small correction it must make to the universe to make that sound go away, and return its world to the perfect, finished silence it has curated for longer than your species has had words. It is in no hurry. It has all the time that ever was.

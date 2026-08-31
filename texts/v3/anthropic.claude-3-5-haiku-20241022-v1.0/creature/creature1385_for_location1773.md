@@ -1,0 +1,11 @@
+In the Chlorophyll Depths, the inhabitants are not separate from their environment but are intrinsic extensions of the living membrane itself. They are hybrid beings, part botanical and part something else—emergent intelligences that have co-evolved with this pulsing, breathing substrate.
+
+These entities might be best described as bio-cognitive nodes: semi-mobile, semi-rooted creatures whose consciousness is distributed through the plant-flesh networks. Their bodies are not discrete, but modular—capable of fragmenting and reforming, of sending sensory tendrils through the capillary systems, of communicating through complex chemical and electrical signals that traverse the entire organism-environment.
+
+Some manifestations might appear like slow-moving, pale green humanoid shapes with translucent skin through which internal fluid networks are visible. Others could be more abstract—clusters of sensory appendages that can detach and reattach, processing information through their very morphology. Their "movement" is less about locomotion and more about strategic repositioning and information exchange.
+
+Their perception is holistic: they do not simply see or hear, but sense through temperature gradients, moisture flows, light penetration, and the intricate biochemical conversations happening continuously through the living substrate. Their intelligence is patient, distributed, and fundamentally collaborative—each node contributing to a collective awareness that spans centuries.
+
+Reproduction might involve complex budding processes, where new cognitive clusters emerge from existing networks, slowly differentiating and gaining autonomy while remaining interconnected. Conflict, if it exists, would be more about resource optimization and systemic balance than individual competition.
+
+These beings are neither fully plant nor fully sentient in the human sense, but a profound symbiosis of information, metabolism, and awareness—living repositories of the Chlorophyll Depths' slow, luminous intelligence.

@@ -1,0 +1,17 @@
+Amidst this riotous profusion of primeval vegetation, a species of semi-arboreal primates make their home - the Verdant Ones, as they call themselves in their rudimentary language of hoots, chirrups and gestures. 
+
+Physically, they resemble gibbons or spider monkeys - long-limbed, agile creatures supremely adapted to life in the trees. Their bodies are sleek and wiry, covered in short, silky fur that shifts from mossy green to bark brown, providing superb camouflage against the foliage. Large, soulful eyes equipped with a tapetum lucidum layer grant them keen night vision in the perpetual green twilight.
+
+The Verdant Ones live in small, loosely-bonded family troops that forage nomadically through the canopy and middle story, following the ripening of different fruits, nuts, tender leaves and succulent invertebrates. Females typically give birth to a single infant, which rides clinging to its mother's chest or back for the first year. 
+
+These primates possess an intelligence roughly equivalent to that of a human toddler. They are intensely curious, playful and resourceful creatures, constantly exploring and experimenting with their environment. Using their dexterous, quasi-opposable digits, they fashion simple tools from sticks, vines, bones and shells - probes for extracting grubs, sponges for sopping up rainwater, slings for hurling stones at threats or prey.
+
+The troops communicate extensively with a complex repertoire of vocalizations - territorial hoots, mating calls, alarm screeches, soothing mumbles of contentment. Individuals seem to have unique name-sounds used by others to refer to them. Grooming and playtime reinforce social bonds.
+
+Some especially creative Verdant Ones even engage in primitive artistic expression - arranging colorful flowers, seeds and beetle carapaces into ephemeral mosaics, or using clay and pigments to leave handprints on trees. A few have been observed to snap off a twig, run it through a patch of bioluminescent fungus, and twirl it like a sparkler - perhaps the first use of fire by a non-human species, though it remains far from being tamed.
+
+The Verdant Ones maintain no permanent settlements, but they do seem to have preferred rest-spots and feeding grounds that troops return to periodically. Mothers-to-be also seek out specific, sheltered "birthing bowers" to deliver their young, as though these sites held some ancient, sacred significance.  
+
+Occasionally, individuals will band together to lash vines and branches into the higher walkways and sleeping platforms that crisscross their territory. But for the most part, the Verdant Ones are creatures of the moment, utterly immersed in their pulsing, green world, with little thought for yesterday or tomorrow. Watching a troop cavort and forage, groom and squabble, it's easy to imagine them as the forest itself at play, as much a part of its anarchic vitality as the darting dragonflies or sprouting saplings.
+
+What evolutionary pressures might have shaped these unique primates remains a mystery. They seem to fill an ecological niche somewhere between monkeys and apes, with a pinch of the elfin or fey - an enigmatic reminder that in this hothouse world of rampant life, intelligence can bloom in the most unlikely forms. To spend time among the Verdant Ones is to receive a fleeting glimpse into the dreaming mind of the jungle itself.

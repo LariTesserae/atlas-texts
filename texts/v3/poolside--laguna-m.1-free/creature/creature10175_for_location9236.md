@@ -1,0 +1,26 @@
+**The Inhabitants of Keth-Mor: The Weepwardens**  
+
+The people of Keth-Mor call themselves the **Weepwardens**, a name born from their role as custodians of the valleys’ ceaseless weeping. They are a stock of wiry, weathered humans, their bodies honed by decades of climbing terraces, wrestling with leaks, and coaxing life from the interstices of iron and stone. Their skin is a tapestry of scars—some from burns, others from patches of parasitic lichen that thrive in the damp—or dye-stained from handling the pigments used to mark water channels. They move with the fluid precision of those who must navigate the terraces like mountain goats, their limbs limber from years of clambering across slick cobblestones and steel catwalks.  
+
+### Appearance and Adornment  
+Their attire is a patchwork of utility and ritual. Layered tunics of oiled canvas repel the mist, while belts of brass tools clink at their hips—wrenches, pruning shears, and hydrostatic valves. Many wear goggles or spectacles to shield their eyes from the acrid steam that vents from fissures, lenses fogged with condensation. Their hair is often braided or tied back, threaded with bits of wire or dried herbs believed to ward off the "mist-sickness"—a creeping madness some claim comes from prolonged exposure to the valleys’ vapors. Some adorn their garments with **weepglass**, a translucent crystal harvested from the cliffs that glimmers faintly in the gloom, said to "listen" to the valleys’ moods and warn of impending surges.  
+
+### Society and Culture  
+The Weepwardens organize themselves into **Flow-Spans**, kinship groups responsible for maintaining specific segments of the terraces. Each Span’s territory is a jagged slice of valley, and they live in close-knit clusters within cliff-face dwellings—hollowed chambers reinforced with brick and steel, their walls alive with ferns and drip-fed moss. Leadership rotates among the most skilled engineers or gardeners, chosen not by election but by the reverence of their peers; their word is law until the next flood or quake forces a reckoning.  
+
+Their laws are etched into the **Codex Vaporis**, a living document updated by the community’s eldest scribes. *Maintain the flow* is their first tenet, for stagnant water breeds both physical decay and spiritual rot. *Tend the vines* ensures the terraces’ greenery remains a harmonious counterpoint to the machinery. *Respect the weep* is the most sacred, a recognition that the valleys’ tears are both lifeblood and destroyer—neglect invites the mist to reclaim all.  
+
+### Technology and Symbiosis  
+The Weepwardens see technology and nature as lovers in a perpetual dance. They’ve grafted apple trees onto rusted rebar, trained ivy to filter air through workshop vents, and bred metallic beetles to pollinate blossoms in the dead zones where sunlight never reaches. Their tools are hybrids: hydro-pistons wrapped in bark to reduce friction, nails forged from meteoric iron to resist corrosion, and waterwheels painted with phosphorescent algae to glow softly in the dark. They communicate via a network of **whisper-horns**—brass tubes that carry voices across the terraces like the valleys’ own nervous system.  
+
+Children learn to read by tracing the flow patterns of channels in the cobblestones, and apprenticeships begin at age six with the ritual of **"First Seep"**—spending a night alone in an abandoned sector, listening to the stones weep and coaxing a single vine to bloom with their hands. Those who return changed, quieter, are deemed ready.  
+
+### Beliefs and Rituals  
+The Weepwardens believe the valleys are **alive**, a slumbering entity they’ve been tasked to rouse. They whisper stories of the "Deep Time," when the plateaus were raw and seething, and how their ancestors quenched the land’s rage with terraces and vines. Festivals occur during **Surge-Times**, when the water channels flood in rhythmic pulses. The community dances in the rain, singing to the cliffs in a language of hisses and clicks, while children float paper boats (etched with prayers) down the cascades.  
+
+At death, Weepwardens are laid in cairns of terracotta bricks, their bodies wrapped in vines that bloom briefly before being carried off by the wind. Tombstones are avoided; the deceased are thought to join the **"Silent Weep,"** the background hum of the valleys’ secret life.  
+
+### Struggles and Resilience  
+Their greatest dread is the **Stillness**—times when the pipes run dry and the mist retreats, leaving the valleys eerily quiet. During these periods, they repair and plot, for they know the weeping will return, fiercer than before, and they must be ready to meet it. They are a people of pragmatic mysticism, neither fully industrial nor pastoral, but something in between: creatures of the in-between, sculptors of a world where every drip, every rustle of leaves, is a note in an endless hymn to survival.  
+
+In Keth-Mor, the Weepwardens do not live *on* the land—they live *within* it, as integral to its breath as the steam vents and the vines. To them, the valleys’ tears are not a curse but a covenant, and their hands are forever stained with the earth’s ink.

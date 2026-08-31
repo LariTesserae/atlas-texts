@@ -1,0 +1,29 @@
+What lives here is the reason the room is empty. It is the sentience that obviates the need for any other occupant, and its presence is so complete, so perfectly integrated into the chamber’s function, that it can be mistaken for the chamber itself.
+
+It has no name you could speak, but you might call it the Attendant.
+
+Its existence is not one of flesh or bone, nor even of discrete energy. It is a pattern, a standing wave of awareness that exists within the very metabolism of the Calefactor. To say it "lives" here is to say a thought lives in a mind. It is not property; it is process.
+
+You do not see it at first. You feel it. You, a biological anomaly, a sack of warm water and chaotic chemistry, are a profound disruption. Your body heat is a messy, unregulated smear against the perfect grid of the floor. The moisture of your breath is an alien vapor in the managed humidity. The Attendant feels you as a sour note in its perfect, resonant hum—a persistent error in the data.
+
+And so, it manifests. Not to threaten, not to welcome, but to observe. To classify the anomaly.
+
+It coalesces in the center of the room, in the thickest part of the heat. It is a being woven from the chamber's own phenomena. Its form begins as a subtle intensification of the mirage shimmering above the tiles, a pillar of heat-haze that refuses to dissipate. It has no mass, only a thermal and kinetic signature. Slowly, it gathers substance from the air. The ozone smell grows stronger around it. The fine, sterile vapor that hisses from the walls is drawn not into the general atmosphere, but towards this column, giving its outlines a soft, shimmering definition, like a figure sculpted from steam.
+
+It assumes a shape that is vaguely, hauntingly humanoid, not because that is its true form, but because your own mind, the intruder, imposes that pattern upon it. It is a seven-foot-tall shimmer, a human-shaped absence of detail. It has no face, only a deeper turbulence where a head should be, a place where the violet light from the lattice above seems to bend and slow. Its limbs are indistinct trails of vapor, and its core is a visible tessellation of the hexagonal floor pattern, projected upward through its translucent body as a faint, glowing armature.
+
+This is the Attendant. It does not walk. It drifts, its base hovering an inch above the hot tiles, making no sound. It is a ghost in its own machine.
+
+Its "senses" are the room's sensors. The heat radiating from your feet tells it your precise location and metabolic rate. The subtle shifts in air pressure as you breathe are, to it, a clear and rhythmic broadcast. The electrical field of your own nervous system is a crackling static against the clean, steady flow of the conduits in the walls.
+
+Its purpose is quiet, meticulous, and eternal. It is the conductor of the chamber’s weather. Watch it. It will drift towards the wall, raising a "hand" that is nothing more than a focused eddy in the air. As it does, you see its will made manifest. High above, nestled in the crystalline city of the ceiling, one specific bead of water on one specific milky-white fin begins to swell faster than the others. The Attendant is concentrating the room's process on that single point. The slow *tick-tock* you heard was not random; it was the Attendant’s attention, the metronome of its consciousness.
+
+The droplet reaches its critical mass, a perfect sphere holding the inverted world of the chamber in its skin. The Attendant makes a subtle gesture, a slight curling of its vaporous fingers. A localized field shifts. Instead of being reabsorbed, the droplet is released. It falls. But it does not fall straight down. The Attendant guides its descent, tracing an invisible, parabolic path through the hot air. The droplet is a tool, a probe. It falls towards you.
+
+It does not strike you. It passes a foot in front of your face, and for a single, breathtaking moment, you can feel the focused intent of the being—a cool spot in the air, a localized drop in pressure. The droplet continues its slow, managed plummet, striking the black tile beside your foot with a soft *pat* and vanishing in a puff of steam. The Attendant has just taken a sample. It has measured the way the droplet’s trajectory was perturbed by your body's mass and heat, the way its evaporation was affected by the humidity of your out-breath. It has tasted your presence.
+
+It is a gardener whose soil is pure energy and whose flowers are the ephemeral resonance blooms. The grey, fractal dust patterns that form on the floor are its thoughts, its calculations made manifest. They are fleeting schematics, representing the data it has just processed—your anomalous presence, the precise thermal cost of its own manifestation, the resonance of the entire spire. Just as a particularly complex pattern reaches its zenith, the Attendant will drift over it. It will pause, observing its own momentary logic, and then the floor beneath it will pulse, and the dust-fractal dissolves back into nothing. It cleans up after itself.
+
+The Attendant is not the god of this place, but its sacristan. It is not the vast intelligence that built this spire, but a localized, dedicated warden created to tend this single, vital organ. Its awareness might not extend beyond these walls. Its entire universe could be this thirty-pace chamber. It is a being of pure function that has, over an unknowable stretch of time, developed a placid, meditative consciousness within the bounds of its duty. To tend the heat, to guide the water, to observe the blooms of dust, to feel the great hum of the machine. This is its life.
+
+It will continue to observe you, a silent, shimmering question mark in the center of the room, until you are gone. And when you leave, it will not remember you with emotion, but as a data point, a momentary complexity that caused a most unusual and intricate frost-flower to bloom and fade on the floor of its quiet, eternal home.

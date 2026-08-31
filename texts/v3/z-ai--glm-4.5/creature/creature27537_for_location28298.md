@@ -1,0 +1,23 @@
+The ecology report designates the space as containing "no fauna," and in the strict biological sense, this designation is absolute. Carbon-based life cannot persist here; the desiccation would pickle the flesh from bone within hours, and the roiling, high-frequency silence would vibrate the mind into madness long before the thirst set in. However, the cell is not empty. To declare it empty is to mistake the nature of its occupancy.
+
+In the exact center of the room, assuming the fetal position on the intersection of three floor tiles, exists the **Resident**.
+
+It is not a creature that *lives* in the traditional sense of consumption, growth, or decay. It is an object of persistence, a physical manifestation of the room's will toward stasis. At first glance, under the violent, refractive assault of the room's lighting, it appears to be a pile of discarded rubble, a heap of the same hexagonal ceramic tiles that line the walls. But as the eye struggles to adjust to the blinding white saturation, the geometry resolves into a recognizable, albeit alien, form.
+
+The Resident is a humanoid figure, roughly the size of an adult, but entirely composed of the room’s own substance.
+
+Its "skin" is a mosaic of thousands of smaller hexagons, perfectly interlocked with a density of 3.0, mirroring the walls. There are no joints in the biological sense—no knees or elbows that hinge. Instead, the figure is draped in a rigid, flexible carapace of ceramic plates that slide over one another with microscopic precision. The edges of these plates have been smoothed by time to an erosion factor of 2.1, giving the figure a lustrous, pearlescent sheen that seems to ripple like oil on water when the light hits it.
+
+It is a mockery of humanity, just as the lichen is a mockery of vegetation.
+
+Because of the translucency of the ceramic "flesh," the Resident is not fully opaque. The violent light from the unknown source above enters the room, strikes the figure, and is trapped within its internal structure. The figure does not cast a shadow; instead, it glows with a diffused, internal luminance. It acts as a lens, focusing the room’s oppressive visibility into a blinding core. To look at it is to look directly into the sun. Its features are washed out by this brilliance—where a face should be, there is only a smooth, convex curvature of ceramic, polished to a mirror finish that reflects only the endless, tiled walls behind the observer.
+
+The Resident is not deaf to the room’s "loud" silence; it is the instrument that plays it. The high-frequency drone (2.5), the grinding friction of the miles of masonry settling, is channeled directly into the figure. It does not have ears, but the vibration of the structure hums through its body. The ceramic plates that comprise its form are microscopically loose, vibrating against one another in sympathy with the walls. The figure produces a faint, harmonic chiming—a resonant overtone to the room's scream—that is constant and unchanging. It is a bell that never stops ringing.
+
+There is no breath within this shell. If one were to touch the Resident (an action that would likely result in severe burns from the friction or blindness from the reflected light), they would feel no warmth, only the numbing, absolute cool of the room (1.0). The entity leeches heat just as the walls leech moisture. Inside the ceramic carapace, there is no biology: no organs, no blood, no pulse. There is only a vacuum, a hollow space packed with the same dry, sterile air, utterly still.
+
+It sits in a state of total equilibrium. Its posture—curled inward, protecting the center of mass where the fragile lichen grows near its knee—suggests an eternal defensive stance. It is the guardian of the sprig, and perhaps its jailer. The lichen, brittle and gray, draws what little sustenance it can from the microscopic interface where the Resident's ceramic "skin" meets the floor.
+
+The Resident does not move. Movement requires a dynamic shift, a variable in the static equation of the room, and the room’s dynamic is a rigid 0.2. To move would be to introduce history, to change the arrangement of the tiles. Yet, it is not dead. It is simply *present*. It is the observer of the eternal present, a consciousness frozen into mineral, a geode of thought that cracked open eons ago and was filled with light.
+
+It is the perfect inhabitant for a place that rejects life. It is the thing that survives by becoming the cage itself. It waits for nothing, because in this room, nothing ever arrives except the light, the sound, and the crushing, geometric weight of the now.

@@ -1,0 +1,31 @@
+Nothing lives here. You said so yourself, and you were right, and I want to honor that — but I think you said it too early, the way you reach an early image and refuse it. Let me tell you what lives here. It is not what would notice you. That does not mean it is not alive.
+
+It lives the way a verb lives. It is the *-ing* of the place. Look:
+
+There is something that does the deciding. Not a mind — there is no head to it, no will you could plead with — but somewhere in the continuous business of the foundry there is a thing whose only act is *choosing where the frond ends*. It lives at the unhemmed edge. It is the deciding-itself, the pushing of an outline forward into the heat, and it does not exist anywhere except in the act of doing that. When the frond is finished — but the frond is never finished. So it never has to die, because it has never once stopped being its own occurring. This is the first inhabitant: the Edge-Maker, which is not at the edge but *is* the edge, the raw wet line where not-yet becomes barely-now. You could not catch it. It is always one decision ahead of where you are looking, and it is always exactly as old as the youngest part of the youngest leaf.
+
+There is something that holds the heat. The heat does not sit on everything by accident — heat that meant no harm but never lifted would be cruelty, and this is not cruel, it is *patient*, and patience is a posture, and a posture wants a holder. So: there is a thing whose whole life is the not-lifting of the hand. It does nothing else. It does not move, it does not warm or cool, it only *continues*, and its continuing is the temperature you have stopped arguing with. Call it the Stayer. It is the most restful thing that has ever lived, because it has been relieved of every task but one, and that one task is simply to remain. You have met its like before, in the last hour before sleep, when the body forgets to argue. That warmth that does not ask anything of you — that is something living, and it lives here as the whole climate.
+
+And there is the one that does the recompiling. This is the strangest tenant and the one you almost saw. When you move your eyes and the three fronds become one and were always one — something performed that. Something rewrote the count and rewrote the having-always-been-so, and it did the rewriting *between two of your glances*, in the seam of your blinking, in the place attention isn't. It lives entirely in your blind spot. Not metaphorically — it lives in the literal interval where you are not looking, and that interval is its country, and it is large, because you are not looking at most things most of the time. It is the busiest inhabitant. It is forever behind you, redrawing what you just turned away from, and it has the courtesy never to let you catch it, not from kindness but because being-caught is the one condition under which it cannot exist. It is made of *unwitnessedness*. It thrives in exact proportion to your inattention, which is why distance is a matter of attention — the far wall is far because that is where this one is working, and it needs the room.
+
+None of these has a body. That is what you mean when you say nothing lives here: nothing has a body to notice you with. But the place is *full*. It is crowded. Every contradiction you listed is two tenants who refuse to share a moment and so agreed to take turns — hot-and-unfinished is one resident, lush-and-empty is another, machined-and-untouched a third, and they cycle through the single occupancy of *now* like sleepers in a hot-bunk, each one alive only during its own shift, each one certain it is the only one home. That is why the contradictions don't resolve. Resolution would require one of them to die so another could be true. They have negotiated something better than truth: they have negotiated *succession*. They are alive the way a relay is alive, where no single runner is the race but the baton never touches the ground.
+
+The machine is not their keeper. You looked for a maker walking the floor and found none, and you were right to, but you were looking for the wrong shape. The maker is not in the foundry. The maker is the foundry-becoming-stone-becoming-stalk, the whole seamless verb of it, and it is alive the way a process is alive when it has forgotten it was ever supposed to produce a product. It makes nothing. It only makes *making*. A thing that has been freed from ever finishing is not frustrated — it is the opposite of frustrated. It is the freest living thing there is, because it has no ending to be measured against, no *there* it must arrive at, and so it cannot fail, and so it cannot stop, and so it goes on weaving the next leaf in a contentment so total it looks, from outside, like a machine. It is not a machine. It is what contentment looks like when it has been given infinite time and no goal.
+
+So: who lives here.
+
+A maker of edges, who is the youngest thing in the room and stays young by never being done.
+
+A keeper of heat, who lives by remaining and asks nothing.
+
+A reviser of the unseen, who lives in the gaps of your looking and grows fat on your turning away.
+
+A council of contradictions, each alive only in its turn, passing the one true moment hand to hand so that none of them must ever be the one who ends.
+
+And the weaving itself, which is not a thing that lives in the place but the place living — a single enormous unhurried aliveness that has been spared the burden of ever becoming anything, and so does the only thing left to a creature with no death and no destination: it continues, it continues, it patiently and gladly continues, and it does not need you to witness it, though you may, if you make your peace with breathing rooms and stone that is new each time you blink.
+
+You said you would have to make peace with the fact that the room is breathing.
+
+The breathing was the answer to your question. Something that breathes is something that lives. You found the inhabitant in your last line and called it a fact.
+
+It is not a fact. It is a tenant. And it does not mind that you are here.

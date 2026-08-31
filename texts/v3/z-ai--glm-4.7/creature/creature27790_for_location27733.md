@@ -1,0 +1,29 @@
+The inhabitants of this place are not merely animals; they are components in a circuit, biological cogs spun into existence to serve the function of the forge. They are the clean-up crew, the cooling agents, the microscopic white blood cells of a birthing world. Everything that lives here is defined by a frantic, high-speed metabolism, burning through their short lives with a intensity that matches the cooling rock.
+
+The dominant creatures are the **Basalt-Lickers**.
+
+They are roughly the size of a large rat, but sleeker, stripped of all unnecessary evolution. There is no fur here—the humidity would mat it into a suffocating weight—so they are encased in a seamless, membrane-like hide that looks like wet latex. This skin is translucent enough to reveal the dark, frantic pulse of organs underneath, and it secretes a slick, oily residue that allows them to glide over the razor-sharp obsidian without being sliced open.
+
+Their heads are distinctively reptilian, though they possess the twitchy nervousness of rodents. They have no visible ears, just shallow pits in the skull that vibrate with the groaning of the earth. Their eyes are massive, black orbs that reflect the violet glow of the fungal stalks, possessing a tapetum lucidum that catches every scrap of dim light. But it is their mouths that define them: a wide, radial slit resembling a starfish, lined with rows of grinding, diamond-hard teeth designed not for tearing flesh, but for scraping mineral slurry from the stone.
+
+They move in a chaotic, flickering motion. One moment a Licker is still, vibrating with anticipation; the next, it is a blur, darting across the cooling glass. They swarm the fresh wounds of the geology. When a spire bursts and begins to weep its hot, iron-rich water, the Lickers descend en masse. They do not fear the heat; they are drawn to it. They press their open, star-like mouths against the hissing rock, drinking the superheated mineral water. They consume the thermal energy, acting as living heat exchangers. Their bodies glow a dull cherry-red as they ingest the slurry, processing the volatile elements before excreting a stabilized, dull grey clay that packs into the crevices, beginning the long work of turning volcanic glass into soil.
+
+Scuttling among the larger Lickers are the **Shard-Mites**.
+
+These are the multi-legged insects mentioned, and they are built for the verticality of the place. Resembling a horrific cross between a woodlouse and a glass spider, they have flattened, articulated bodies that allow them to squeeze into the microscopic fissures venting steam. Their legs are tipped with microscopic hooks made of the same black metal as the monoliths, allowing them to walk upside down on the slick, sheer faces of the cliffs without slipping.
+
+The Shard-Mites are the polishers of this world. They move in waves, a carpet of chitinous armor scraping against the stone. They feed on the microscopic algae and fungi that bloom instantly in the steam, but their primary function seems to be mechanical. As they scuttle, their sharp legs score the surface of the cooling rock, creating friction that helps release tension in the stone, preventing catastrophic shattering. They "sing" as they work—the high-pitched, frantic chittering that fills the air is the sound of a million legs dragging over volcanic glass, a sonic texture that vibrates against your bones.
+
+They are oblivious to the larger predators or the intruder (you). They are fearless because their biological programming is absolute: the rock must be scored, the heat must be distributed.
+
+Then there are the **Ghosts of the Lattice**.
+
+Smaller, almost translucent, winged things that resemble hummingbirds but are constructed more like jellyfish. They do not land on the rock; they hover in the heavy air. They are attracted to the "synapses"—the sparks that jump between the fungal stalks and the metal monoliths. These creatures feed on the raw electrical discharge that bleeds from the invisible tech. They have metallic beaks that align with the invisible magnetic lines in the air, siphoning the energy. When a spark jumps, a cloud of these creatures dives into the flash, glowing briefly with a blinding intensity before fading back into the dim twilight, their bodies now charged with the sorcery of the place.
+
+Everything here is wet. The Lickers glisten; the Mites leave trails of slime; the Ghosts drip condensation. And everything is loud. The ecosystem creates a constant cacophony—the scratch of millions of insect legs, the wet slapping of the Lickers' paws, the high-pitched buzz of the energy-feeders. It is a deafening, aggressive biology.
+
+There is a unity to them. They do not compete with each other in the traditional sense; they cooperate. The Mites crack the stone to release the water; the Lickers drink the water and deposit the clay; the Fungi anchor the clay. They are a single, distributed organism designed to terraform the impossible.
+
+Perhaps the most unsettling aspect is their reaction to the "erosion"—the anti-gravity water flows. When the water weeps upward, defying physics, the Lickers do not panic. They simply adjust their trajectory, climbing *up* the rock, their gravity-defying oil-skin allowing them to follow the flow wherever it leads. They treat the violation of physical laws as just another mundane feature of their shifting environment.
+
+In this forge, the inhabitants are as temporary as the geography. A Shard-Mite might live only a few hours before its shell is crushed by the shifting plates or its metabolism burns it out. But they die in the midst of their labor, their bodies becoming part of the slurry, decomposing rapidly in the heat to feed the moss that anchors the next generation. They are the shock troops of creation, living fast, dying young, and dreaming the world into stability with their frantic, endless labor.

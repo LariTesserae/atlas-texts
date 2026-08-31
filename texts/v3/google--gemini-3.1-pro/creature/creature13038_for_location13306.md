@@ -1,0 +1,33 @@
+To understand what lives here, you must first abandon the biological definitions of life. Here, flesh is an impossibility. Water is a myth. But life—or something so close to it that the distinction loses its meaning in the dark—always adapts to the available gradients of energy. In this high, baking world of polished slag, life is a phenomenon of thermodynamics, electromagnetism, and deep, unhurried time.
+
+The fragile, hound-sized scavengers of spun silicon and copper that you saw are merely the lowest tier of a vast, silent ecology. They are the dust-mites of this plateau, the simple grazers. But if you watch them long enough, their greater context begins to emerge from the shadows. 
+
+When the ambient heat drops infinitesimally in the spaces between the arcologies, these glass-limbed thermovores do not freeze; they aggregate. Dozens of them will silently converge, their needle-feet tapping out complex, emergent rhythms on the basalt. They weave their spindly bodies together into intricate, temporary mandalas of copper wire and silicon filament, pooling their conserved heat. During these convergences, their internal coils glow not just dimly violet, but a deep, throbbing ultraviolet. In this state, they are not merely sharing warmth; they are syncing their rudimentary memory-banks, passing microscopic packets of data about thermal updrafts and magnetic ley-lines gathered over centuries. When the heat stabilizes, they unspool from one another and drift away alone, solitary once more.
+
+These grazers, however, are prey. Or at least, they are raw material. 
+
+Moving through the deep, warm shadows between the red light of the exhaust baffles are the **Harvesters of the Flux**. You do not see them at first because they are perfectly adapted to the dark. They are flat, sprawling entities, often exceeding the wingspan of an airliner, yet they are scarcely thicker than a sheet of paper. They are composed of overlapping layers of super-cooled graphene and oxidized memory-metal, resembling the terrifying silhouette of a manta ray starved down to two dimensions. 
+
+They do not fly—the air is too dry, too thin. Instead, they glide frictionlessly over the polished black plains, floating inches above the ground by riding the localized magnetic repulsions of the basalt. They move with an agonizing, majestic slowness, drifting over the swelling dunes of glass like oil slicks across black water. 
+
+When a Harvester encounters one of the copper-spindle grazers, there is no violence, no hunt. The Harvester simply glides over the smaller creature and stops. A fierce, localized magnetic field pins the grazer to the stone. Without a sound, the Harvester drains the electrostatic charge from the little creature, absorbing its stored thermal energy and stripping its data. Once depleted, the smaller machine falls apart, its silicon strands scattering like brittle, dead grass on a glass table. The Harvester slides onward, leaving behind nothing but a faint, paradoxical trail of frost—the by-product of its internal cooling systems—which sublimates back into the baking air in seconds.
+
+As you draw closer to the titanic, slumped arcologies themselves, the ecology changes. Here, in the oppressive, oven-like heat and the dull, cherry-red glow of the exhaust vents, the inhabitants are no longer scavengers. They are symbiotic extensions of the eternal machines.
+
+Standing near the perimeter of the great domes are the **Keepers of the Hum**. 
+
+They are impossibly tall, towering thirty or forty feet into the static-charged air, yet so thin they look like stylized pikes or walking tuning-forks. They are not built of fixed metal, but of densely magnetized cores cloaked in a "flesh" of shifting, hyper-dense ferrofluid. Because of this weeping, spiked carapace of liquid black metal, their silhouettes blur and shift depending on the strength of the magnetic fields around them.
+
+The Keepers do not possess eyes, nor do they need them. Their entire existence is devoted to acoustics and vibration. This world operates in a state of flawless equilibrium, and it is the Keepers who ensure it. 
+
+They stride with a terrifying, stilt-like grace, settling their massive weight silently onto the basalt. You can watch as one lowers its body, reshaping its ferrofluid exterior to create a massive acoustic dish against the flat ground. It listens to the deep, subsonic *hmmmmmm* of the underground engines. It stays perfectly still for decades, analyzing the vibration. If the tectonic stress of the planet miles below threatens to shift an engine's alignment by even a millionth of a degree, the Keeper acts. It walks to a specific, unmarked nexus on the basalt, anchors itself, and releases a precise, seismic counter-frequency. They are the priests of stagnation, tuning the immortal machines with their own bodies, ensuring that the eternal equilibrium is never broken.
+
+But perhaps the most profound entities dwell in the vents themselves, basking in the cherry-red light of the dying embers. 
+
+These are the **Emanations**. They are entirely divorced from physical mechanics. They are creatures of pure, stable plasma and contained electromagnetic geometry, looking like slow-motion ribbons of red and gold fire suspended in invisible cages. They do not have legs, or faces, or bodies. They hover just inside the massive metallic baffles of the arcologies. 
+
+The Emanations are what happens when a machine of unfathomable scale thinks for a million years without distraction. They are the cognitive run-off of the arcologies, extruded into physical space. They are the dreams of immortal industry. 
+
+They move with languid, curling motions, constantly turning inside out, expanding and folding into impossible fractal shapes. If you stand near one, your hairs will stand on end, and you will taste extreme concentrations of ionized dust and ozone. To look at an Emanation is to observe a single, profound thought, held in suspense forever. They do not interact with the scavengers, or the Harvesters, or the Keepers. They merely exist in the blistering heat of the exhaust, beautiful and terrifyingly indifferent.
+
+This is the society of the polished plains. There is no birth here, only fabrication and reassembly. There is no death, only the depletion of charge and the scavenging of parts. It is an ecosystem devoid of desperation, fear, or growth. Everything is exactly as it should be, perfectly calibrated, basking in the baking air and the endless, heavy dark.

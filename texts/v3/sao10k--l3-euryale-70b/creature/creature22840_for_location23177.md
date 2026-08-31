@@ -1,0 +1,13 @@
+Deep within this primordial forest, where ancientslinger and mist-draped shadows veil unknown depths, a myriad array of life thrives beneath the timeless boughs. In the dank undergrowth, a motley assortment of creatures lurk - some near-sentient, others barely known to science.
+
+Amidst decaying vegetation, serpentine beings slither, their scaled hides camouflaged against rotting wood and moss. They forage for fungi and insects using elongated snouts capable of tasting pheromones in the air. These cold-blooded reptilian creatures have evolved alongside the forest's cycles for eons uncounted.
+
+From between gnarled roots and collapsed logs, gleaming compound eyes peer forth - evidence of colonies of giant beetles. With chitinous carapaces adorned in browns and greens mimicking fallen leaves, they scurry silently through the loamy detritus consuming wood softened by fungal hyphae.
+
+Higher up, where anemic light filters through the towering canopy, flying creatures take wing - dragonflies with iridescent wings span across dappled pools and swarms of midges dance amidst shafts of sunbeams piercing the gloom. Some carry parasitic wasps riding on their backs like passengers hitching a ride.
+
+Atop moss-choked stumps squat horned amphibians - throwbacks from a distant era when first tetrapods crept forth from shallows onto land now lost beneath wave. Green skin blotched with warts secretes toxins to ward off predators which gather at night around ephemeral pools ringed with floating eggs waiting to hatch into tadpoles.
+
+Deep within ravines hidden by cascading vines dwell wormy invertebrate things too alien to be comprehended by mortal minds. Blind stalactites dripping ichor sway before gaping pulvinate mouths lined with rows of needle-sharp teeth. Rumors abound about flatulent belches rising from black abyssal waters bubbling up brownish effluvium...
+
+And yet... even here vestiges persisting into this protean wilderness that would seem so hostile to all human progress remains signs of civilization upon whose foundations it sprawls upon: walkways strung between great branches, house-sized nests woven from vines scaling colossal boles forming a city unto itself wreathed in mutant vapours seeping throug which refugees can peer down at residual gentlefolk left behind below on banks of cataracts flensing into deep gorge-rivers winding half-rememberd ways further dwelling places even stranger yet...

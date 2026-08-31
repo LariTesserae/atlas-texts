@@ -1,0 +1,34 @@
+Who, or what, inhabits this manufactured, living warren of density, moisture, and endless modulation? To conjure its residents is to imagine life that has abandoned wildness for adaptation, improvisation, and interdependence with its engineered cradle.
+
+**The Humankind:**  
+The primary population are humans, but not as we know them in looser cities or open country. Here, adaptation is measured in comfort amid congestion—a comfort earned through centuries of accommodation to perpetual crowding, perpetual work, perpetual damp. Their bodies are limber, of moderate stature, accustomed to stooping and folding, to squeezing through the honeycomb of chambers and terraces, to climbing root-ladders and mesh that weeps with condensation. Their skin is moisturized, thick in places; hair kept short or tied to avoid tangling in vent-grown epiphytes and trailing drips. Their customary dress is light, water-wicking, resistant to mold, with layered belts for tools—everyone is both worker and maintainer, custodian and beneficiary.
+
+Their habits are marked by the negotiation of space: a waltz of cohabitation. They seldom move alone, always in pairs or trios; roles fixed for a day or a week by shifting signals in the system—one day a hydroponics-keeper, the next a conduit-untangler, after that a sort of street-market auctioneer. There is little private ownership, for possessions are burdens in laced, narrow quarters. Instead, everything is briefly borrowed, passed along in a tide of utility, tracked by bright glyphs glowing in the moisture on shared surfaces.
+
+Their faces reflect a mild vigilance—the need to notice and adapt to subtle changes: a rerouted walkway, an unexpected outgrowth of root or machine, the subtle inference of a wall’s bulge forecasting a repair. They are, above all, improvisers and readers of their immediate environment.
+
+**The Machinefolk:**  
+To call the machines mere tools would ignore the seamlessness of their integration. They are a secondary population: spider-jointed automatons that brush and polish living walls, conveyor pods that snake along root-strung tracks suspended between terraces, pulley-plant hybrids that ferry containers of fermenting grain or pools of fertilized water up and down misty shafts. Each has its own function, form following a logical beauty—frondlike manipulators for handling plants, heated bellies for drying foods or clothing, flexible carapaces for squeezing through choked passageways.
+
+Sometimes, these machines are overseen by human coordinators who tweak light patterns or scent markers to direct their flow. More often, they operate on distributed routines—a kind of urban mycelium of intelligence, pulsing data and changes through light and subtle sound, orchestrated but never tyrannical. The machines are not companions, but they are not mere background noise; they are as necessary and as accepted as the root mesh and the glowing water ducts.
+
+**The Engineered Flora:**  
+Every surface is colonized. Crops are engineered to climb, to shade, to fix nutrients, to thrive in thin, filtered light. Mosses and ferns dominate, but thick-stemmed fruiting vines snake upward, with pods and edible shoots regularly harvested by passing hands or machine claws. Roots dive through layers of artificial soil pressed into scaffolds; some are reservoirs for water, others hosts for fermenting microbes, others simply anchors for the whole living superstructure.
+
+Symbiotic relationships are everywhere. Walls “sweat” not just water, but nutrients that feed specific, tailored clusters of edible leaves; in places, root pockets open to reveal bioluminescent nodules, signals to caretakers that replenishment or harvest is due. Rhizomes snake through walls, stabilizing and feeding both plants and the building's living skin; flowering spikes time their blooms to the flicker of misted day-cycles.
+
+**The Allowed Fauna:**  
+Animals are rare—pets, really, or limited, essential partners. Small birds, brightly colored or smoke-grey, find niches in the upper gardens, their droppings valued as a minor fertilizer. A few, thin-limbed mammals flit along pipes and vents—rat-kind redesigned into delicate, useful scavengers, scrupulously unharmed but rarely seen. Some families keep cats, which serve as mouser, companion, living heat source.
+
+Insects are closely regulated: pollinators and decomposers introduced in controlled numbers, their populations monitored by the constant, algorithmic oversight of house and garden. Bees and beetles do not buzz untended here; their hives are maintained as precisely as engines, admitted to the ecosystem only so far as their work is strictly required.
+
+**The Social Ecology:**  
+If there is a soul to the place, it is the relentless, improvisational engagement—everyone is always busy, always involved. There are no spectators, no idle windows. Conversation is constant, carried in hand signals and clipped phrases, in shared recipes and the negotiation of schedules. Marketplace and workshop are the same place: wares and tasks change by signal and consensus, conducted amid a tide of self-reconfiguring furniture, pop-up kitchens, self-stripping fabrication cells.
+
+No one is apart—the meshwork does not allow it. A person’s worth is their willingness to become a node: to plug in to the work, to pass along information, objects, support, or a hand in repair. Any attempt to separate is gently rebuffed by the press of need; those who impede, who take without giving or block a thoroughfare, are swiftly rerouted, their roles dissolved and reassigned by the soft insistence of collective habit.
+
+**The Genius Loci:**  
+Perhaps, in the sum of it, something more exists. Beyond people, plant, and machine, there is a guiding intent—a distributed, algorithmic awareness woven into the systems and networks, softly steering flows of work, light, moisture, and energy. It is not conscious, but it is not quite unfeeling: it pulses in the green-edged glow panels, hums in time with the engines, sifts and sorts announcements and assignments, resolves conflicts before they grow. It administers, enables, constrains—a caretaker that is everywhere and nowhere, an ever-shuffling arbiter of use and fitness.
+
+**In Sum:**  
+This is a place not of individuals, but of *participants*—creatures, mechanisms, and seeded intelligences bound in communal improvisation, each layer informed by the last, each cycle yielding surplus and loss, invention and decay. Life here is the art of fitting oneself into a living, ongoing composition, one in which every strand, even the smallest, holds the weight of a world layered and remade, root and wire and will, forever in motion.

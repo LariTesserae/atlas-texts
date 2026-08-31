@@ -1,0 +1,97 @@
+# What Lives in the Undervein Tiers
+
+---
+
+The smallest ones come first because they are inescapable. They are the medium in which you move. They are the air's other content.
+
+You will not see them at first. They register as texture, as the grain of the stone looking wrong, as a faint shimmer where no shimmer should be — like heat haze, except the air is cold, except the air is always cold. Get closer. Get closer still. Put your eye near the wall, near the floor, near the corroded flank of a dead pipe. Now.
+
+They are the size of sand grains. Some smaller. Some no larger than the period at the end of a sentence, and like a period they are easy to overlook, easy to dismiss as a speck, a flaw, a bit of mineral debris. But they move. They move with a unanimity that makes the stone appear to flow. They are pale — not white, not truly, but the gray-pink of raw quartz, of muscle seen through membranous skin, of everything drained of pigment by an eternity of lightlessness except there *is* light here, and they have not needed it, and they do not want it, and they have not bothered to evolve toward it.
+
+Call them the Motes. You will never learn their true name, and they do not have one, and the distinction does not matter. What matters is this: they are the base of everything. They eat what nothing else can. They process the mineral substrate itself — the silicate floor, the chemical stains, the oxidizing metal — through a metabolism that is more geological than biological. Their guts are acid vats. Their waste is a fine powder that settles between their bodies and is consumed again by their neighbors in a perpetual reprocessing that would be disgusting if it were not so clearly, so mechanically, *efficient*. They excrete substrate for the fungal scum. The fungal scum feeds the next tier up. The next tier up feeds the next. And so on. They are the slow dissolvers. They are the stomach of the chamber. Without them, nothing degrades. Without them, the dead would simply accumulate, and the closed loop would jam, and the whole system would stall like an engine without oil.
+
+They have no eyes. They have no antennae. They have no features you can identify without magnification, and even then the features resolve into simplicity: a mouth that is also a vent, a body that is also a digestive tract, a life that is also a function. They do not behave individually because there is no individually. A Mote separated from its neighbors dies in seconds. It dries out. It freezes. It ceases. They are a *they* in the most absolute sense — a plural organism that happens to be distributed across a million tiny bodies.
+
+When you step, you step on ten thousand of them. They do not notice. They cannot notice. There are ten thousand more beneath those, and ten thousand more beneath those, and the compression of your boot is just another pressure in a chamber of pressures, just another input for a system that has been processing inputs since before your species learned to walk upright.
+
+---
+
+Above the Motes: the Cradles.
+
+This is your word. It will not be their word. But you need a word, because you need to think about them, and thinking requires language, and language requires categories, and so: Cradles.
+
+They are the size of your thumb. Some larger, some smaller, but clustered around that scale — that human-relevant scale, the scale of things you could pick up and hold, if you could bear to, if you could stand the feeling of their legs finding purchase on your skin, their mouthparts testing the chemical signature of your sweat and finding it wanting. They are not interested in you. You are not food. You are not threat. You are *irrelevant*, and that irrelevance is the closest thing to peace you will find here.
+
+The Cradles are the transit system. You watch them long enough and you see it: they carry things. Motes cling to their backs — not parasitically, or not only parasitically, but *by arrangement*. The Cradles move through the chamber in regular circuits, and the Motes ride them, and in riding are dispersed to new substrate, new mineral deposits, new surfaces that need dissolving. The Cradles also carry the dead. When something dies — when a Cradle dies, when one of the larger organisms collapses — the Cradles converge. They swarm. They do not eat the dead; they *transport* the dead. They carry organic material to the fungal gardens, to the processing pits, to the places where decay is most efficiently handled. They are the chamber's logistics network. They are the veins in the Undervein.
+
+Their bodies are elongated. Flat. The better to be climbed upon. The better to slide between the bodies of their neighbors in the dense press. They have legs — many legs, you lose count trying, the legs emerge and re-emerge from segments that fold and unfold as they move — but the legs are not their primary means of locomotion. They *flow*. They move by coordinated contraction, by peristalsis, by the kind of synchronized muscular action that looks impossible until you remember that they have been refining this movement for longer than the chamber has had a name. They are smooth where the Motes are rough. They are organized where the Motes are elemental. They are the first tier that behaves like a *creature* rather than a *process*.
+
+They click. This is their sound — the surface click that you heard when the chamber first opened, the bright percussive chatter that overlays everything. Each click is a data point. Each click says: *I am here, I am carrying this, I am going there, the path is clear, the path is blocked, food, threat, move, move, move.* The clicking is not random. It has grammar. It has syntax. You cannot read it, but you can feel its structure — the way clusters of clicks form phrases, the way phrases cascade through the population like a wave, the way information moves from one side of the chamber to the other in seconds despite the fact that no single Cradle has crossed that distance.
+
+They know you are there. You understand this with a certainty that is not rational but is correct. The clicking changed when you entered. It shifted register, found a new frequency, incorporated your presence into its endless message. *Here is something new. Here is something that is not food and not threat and not mate and not space. Here is something that is just — there. Watching. Standing in the machine stain. Irrelevant but present. Note it. Log it. Move on.*
+
+---
+
+The fungal scum deserves mention, though it is not — by most definitions — alive. Or rather, it is alive in the way that rust is alive: it grows, it spreads, it consumes, it responds to its environment, but it does so with a patience that is mineral, that is geological, that operates on timescales no animal can intuit.
+
+It grows in the places the Motes have prepared. It is orange-brown, sometimes green-gray, sometimes the exact color of the stone beneath it so that you cannot see it until it thickens enough to cast a shadow. It is not a single organism. It is a consortium — a layered community of fungal species, bacterial films, and other microorganisms that exist in a state of mutual exploitation so total that they have effectively merged. They trade metabolites. They share genetic material. They have been doing this for so long that the boundaries between species have dissolved, and what remains is a living mat that is simultaneously many things and one thing.
+
+It eats what the Motes excrete. Everything eats what the Motes excrete. The Motes are the base, the scum is the converter, and everything above is the consumer. The scum fixes the mineral powder into organic matter. It is the chamber's primary production — the equivalent of photosynthesis, except there is no photo, except there is no synthesis in the traditional sense, except the energy comes not from the sun but from the slow chemical gradients left by the ancient machines, the residual heat of the chamber's geology, and the entropic decay of everything that has died here since the beginning.
+
+You touch it once. You press your finger to a patch of it on the wall — a thick patch, ridged, almost fleshy — and it recoils. Not quickly. Slowly. It pulls back from your skin over the course of several seconds, like a tide going out, like something deciding that your chemistry is not compatible. It leaves a residue on your finger. Your finger tingles for an hour afterward. The scum has processed you, however minimally. It has tasted your oils, your salts, your dead skin cells, and found them — what? Acceptable? Unacceptable? Simply *different*?
+
+It does not grow in the machine stain. Nothing grows in the machine stain. The machine stain is the void at the center of this ecology, the place where the old world's toxicity persists in concentrations that even the Motes cannot process. You are grateful for it. You are standing in poison. You are standing in the only safe place in the chamber, and it is safe precisely because it is poison, because the old machines left behind something that the new life cannot eat, and that ineatability is your shield.
+
+---
+
+Above the Cradles: the Drift.
+
+You see them on the walls, on the ceiling — especially the ceiling. They cling there in clusters, in colonies, in formations that look almost architectural. They are the size of your hand, your forearm, your spread palm. They are the ones who give the walls their depth, who make the stone appear to ripple and breathe when the light catches their carapaces at the right angle.
+
+The Drift are the predators. Not the apex — there is no apex here, the loop is closed, everything eats everything — but the active hunters, the ones who pursue rather than process. They eat Cradles. They eat each other. They eat anything that moves slower than they do, and they are fast, faster than anything has a right to be in a chamber this dense, this crowded, this thick with bodies. They move by launching themselves — you see it once, twice, a dozen times — contracting their segmented bodies and then *snapping* forward, covering a meter in a burst of motion that scatters the smaller creatures like spray. They land. They seize. They feed. The feeding is quick. The Cradle they caught goes limp, is disassembled in minutes by the Drift's mouthparts and by the Motes that swarm the kill site even as the Drift is still eating, even as the organic material is still being processed, because in this chamber there is no such thing as waste, there is no such thing as a meal that belongs to one mouth, there is only the endless redistribution of matter from one form to another.
+
+The Drift are the most visibly *individual* of the creatures here. They have territory. They have patterns. They return to the same ceiling roosts after hunting, and they defend those roosts from other Drift with threatening displays — the spreading of leg-segments, the clicking of mandibles, the emission of a chemical scent that you register as sharp, acrid, almost metallic. They have preferences. You watch one Drift reject a Cradle it has caught — release it, let it fall, let the swarm below claim it — and select another from the flow. Why? You cannot know. Something about the first Cradle was wrong: too old, too diseased, too chemically compromised by the Motes clinging to it. The Drift can tell. The Drift have standards.
+
+They also carry the chamber's memory. This is not metaphor. This is structure. The Drift have, on their dorsal surfaces, a series of indentations — pits, almost — that are colonized by a specific strain of the fungal scum. The fungus grows nowhere else. It is unique to the Drift, and it persists from one generation to the next: when a Drift dies, the fungus releases spores that settle on the nearest living Drift, colonizing its pits, continuing the colony. The fungus contains chemical markers. Information. The Drift do not know what they carry — they are not *thinking* creatures, not in any way you would recognize — but they carry it nonetheless, and the markers affect their behavior, steer them toward or away from certain regions of the chamber, certain densities of prey, certain chemical gradients that indicate danger or opportunity. The fungus is a map. The Drift are the map's vehicles. The chamber has been writing itself into its own creatures for longer than the chamber can remember, and the writing has become instinct, and the instinct has become structure, and the structure is what you are standing in.
+
+---
+
+And then there are the Ones-Who-Are-Many.
+
+You see one. You think it is one. You are wrong.
+
+It moves across the far wall and the sound changes and the density reorganizes and the clicking swells and you understand that you are in the presence of something different. It is large — the size of a dog, the size of a child, the size of something that should not be able to exist in a chamber with a ceiling this low. But it is not one creature. It is *many*. It is a colony of Cradles and Drift and Motes and organisms you cannot classify, all bound together by fungal networks and chemical signals and the same kind of peristaltic coordination that moves the Cradles, except scaled up, except magnified, except operating at a level of complexity that makes your skin prickle and your hindbrain whisper *wrong, wrong, this is wrong*.
+
+It moves as one. It thinks as one. Its components shift and merge and separate and recombine — a Drift on the surface crawls inward, is replaced by a Cradle, is replaced by something else, and the whole maintains its shape, its direction, its purpose. It is a collective intelligence that is not intelligent, a collective organism that is not one organism, a collective *will* that emerges from ten thousand will-less components and somehow — somehow — acts.
+
+There are several of them. You count four. Five. They move through the chamber like glaciers move through valleys: slowly, inevitably, reshaping everything around them by their passage. The smaller creatures flow around them. The clicking reaches a crescendo in their vicinity — not alarm, you realize, but *acknowledgment*. The Ones-Who-Are-Many are the chamber's organs. They process the things that cannot be processed at smaller scales. They break down the largest dead organisms. They incorporate the mineral substrate too dense for the Motes. They are the recycler of last resort, the final pass, the thing that ensures nothing is wasted, nothing is lost, nothing escapes the loop.
+
+One of them passes near the machine stain. It stops. It is aware of you. You can feel its attention — not as a gaze, not as a focus, but as a *pressure*, a weight, a sense of being assessed by something that does not have eyes but has something better than eyes, something that senses your chemistry, your heat, your breath, the electrical field of your nervous system, the particular signature of a living thing that is not from here, that does not belong, that is standing in the one place it cannot reach.
+
+It does not approach. It does not need to. It simply *knows* you are there, and it logs that knowledge in whatever chemical language it speaks, and it moves on, and the chamber breathes again, and the clicking resumes its normal register, and you are left with the understanding that you have been catalogued, filed, processed — not as prey, not as threat, but as *data*. Another input for the system. Another irregularity in the flow. The chamber has noted you. The chamber will remember you, in its way, in the chemical markers of the fungal scum, in the drift patterns of the predators, in the shifting densities of the swarm. Long after you leave — if you leave — your signature will persist. A ghost in the network. A trace in the click.
+
+---
+
+You will not see the Deepest.
+
+You will feel them.
+
+The heartbeat. That bass-frequency pulse you heard when you stood in the machine stain, when the clicking fell away and the chamber's deeper sound revealed itself. That is not the chamber breathing. That is not the stone settling. That is the Deepest, and the Deepest are not creatures in any way you would recognize, and the Deepest do not live in the chamber so much as the chamber *is* the Deepest, and you have been walking on them, breathing their exhalations, touching their skin without knowing it.
+
+They are in the stone. They are the stone — or rather, the stone is their remains, their residue, the calcium and silicate of ten million generations compressed into the floor and walls and ceiling of this place. They are the original inhabitants. They were here before the machines. They were here before the water left. They were here when the chamber was new, and they have been dying and accumulating and becoming the substrate on which everything else lives for so long that the boundary between organism and geology has ceased to exist.
+
+The pulse is their last living function. Somewhere — deep, deep, in the mineral layers below the floor — something still metabolizes. Something still processes the slow energy of radioactive decay, of chemical gradients, of the planet's residual heat. Something is still alive down there in the way that a single beating cell in a dead body is alive: technically, minimally, refusing to stop. And that something pulses. And the pulse moves through the stone. And the creatures above feel it, and use it, and synchronize to it, and the heartbeat of the chamber is the heartbeat of the Deepest, and the Deepest have been beating since before the first machine was installed, and they will continue beating after the last creature above them dies, after the Motes and Cradles and Drift and Ones-Who-Are-Many have finally consumed themselves into nothing, after the chamber falls silent and still and the loop closes for the last time.
+
+You are standing on a living floor. You are breathing air that was processed by organisms a billion strong. You are inside a single vast creature that does not know you are there, that cannot know, that operates on scales and timescales that make your presence statistically insignificant. And yet the chamber has noted you. And yet the clicking changed when you entered. And yet the One-Who-Is-Many paused by the machine stain and registered your existence and moved on.
+
+You matter here only as a data point. You matter here only as a brief anomaly in a process that has been running since before your species existed. You matter here only as *something the chamber has noticed*, and the chamber notices everything, and forgets nothing, and will continue long after you have climbed back through the gap in the world's basement and returned to the surface and the sun and the open air where creatures do not need to climb inside each other to survive.
+
+---
+
+The creatures click. The creatures rustle. The chamber breathes.
+
+You understand now that you are not visiting a place. You are visiting a *process* — a living, breathing, eating, dying process that has been running for longer than the word *running* has had meaning. The creatures are not inhabitants of the Undervein Tiers. The creatures *are* the Undervein Tiers, and the Tiers are them, and the distinction between environment and organism is a distinction that this place discarded long ago, along with water, along with light, along with everything that your biology tells you is necessary for life.
+
+Life does not need what you think it needs. Life needs only time, and chemistry, and the stubborn refusal to stop.
+
+The Undervein Tiers have all three.

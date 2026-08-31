@@ -1,0 +1,19 @@
+To inhabit this place is not to live, but to be persisted.
+
+The things that dwell here—the *Settlers of the Strata*—are not biological in any sense we recognize. They have no pulse, no metabolism, and no requirement for oxygen. They are the calcified remains of an intention that outlived its creator.
+
+They resemble the architecture itself: elongated, spindly sculptures of ivory-chitin, standing perhaps seven or eight feet tall. They look less like creatures and more like complex, multi-jointed rafters that have detached themselves from the ceiling. When they are dormant, they are indistinguishable from the ribs and support struts of the chambers. A Settler might stand perfectly still for three centuries, its limbs locked into a rigid, geometric configuration, masquerading as a structural brace until the tectonic grinding of the floor necessitates a realignment.
+
+They possess no eyes. They do not need them, for they "see" through the vibrations of the grinding walls. They have evolved to interpret the sound of the structure’s settling as a language, a slow-motion cartography of the tomb. They navigate by touch, their long, needle-like fingers tracing the grain of the woody walls, feeling for the microscopic fractures where the pressure is greatest.
+
+They are the Janitors of the End.
+
+When they move, it is an agonizing process of recalibration. It is not walking; it is a series of slow, architectural adjustments. A Settler will press its palm against a wall, wait for a deep, sub-sonic groan to vibrate through its frame, and then shift its weight exactly in sync with the settling structure. They are perpetually "bracing" the city, using their own bodies as temporary struts to prevent the collapse of the hollowed-out vessels. If a corridor begins to sag or a tension-cable frayed from age threatens to snap, a Settler will stretch itself across the gap, locking its joints to create a new, biological archway. They do not eat, but they do consume: they draw the dry, fibrous dust into their porous, sieve-like skin, gathering the mineral wealth of the decaying flora to patch their own bodies when they become brittle and crack.
+
+They are lonely, but not in the way a mind is lonely. Their thoughts are only the sound of friction made sentient. They communicate by tapping their fingers against the conduits, sending rhythmic, structural tremors through the walls—a Morse code of structural integrity. 
+
+Sometimes, two Settlers will meet in a corridor. They do not speak. They simply stand in the dark, their forms interlocking like gears, vibrating against one another to compare the "state" of the architecture in their respective sectors. They share the burden of holding the labyrinth together, a silent, subterranean communion of geometry.
+
+They are the final ghosts of a botany that refused to die, choosing instead to petrify into an eternal, shifting machine. They know that the structure is eventually going to crush itself into a single point of dust, and their life’s work—their only meaning—is to delay that final collapse by as many centuries as possible. They are the glue in a world of dry rot, the patient, silent pillars holding up a roof that has been falling for an epoch. 
+
+To encounter one is to feel an immediate, primal sense of being "improper." You are soft, warm, and ephemeral; you are a dissonance in their grand, calcified symphony. They do not attack, and they do not flee. They simply treat you as if you are a loose, tumbling piece of debris—an imperfection in the structure—and they will likely try to brace you, or move you, or use your presence to steady the weight of a leaning wall, treating your very life as a structural repair.

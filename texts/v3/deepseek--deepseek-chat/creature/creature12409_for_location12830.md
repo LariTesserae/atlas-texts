@@ -1,0 +1,13 @@
+In the heart of the Weeping Expanse, beneath the canopy of tangled vines and the perpetual drip of moisture, dwell the **Mirebound**. These beings are as much a part of the marsh as the waterlogged roots and the silt that quivers underfoot. Their forms are fluid, ever-shifting, as though molded from the same primordial ooze that defines the landscape.  
+
+The Mirebound are not singular in shape but collective in essence, their bodies a confluence of mud, plant matter, and slow-moving water. They rise from the marsh like living sculptures, their surfaces slick and glistening, patches of moss and lichen clinging to their limbs as if they were born of the earth itself. Their faces, if they can be called such, are only occasionally discernible—a hint of hollows where eyes might be, a ripple that suggests a mouth, a flicker of movement that could be a smile or a grimace.  
+
+They move with a languid grace, their steps barely disturbing the ground, their forms melting and reforming with each shift. When they speak, it is not with words but with the sound of the marsh itself—a gurgling whisper, the creak of wet wood, the slow drip of water from a leaf. Their voices are the voices of the Weeping Expanse, and they carry with them the weight of the land’s uncertainty, its hesitation to become something definite.  
+
+The Mirebound are neither cruel nor kind. They are indifferent, as the marsh is indifferent, untroubled by the passage of time or the desires of those who might wander into their domain. They are the keepers of this liminal space, the guardians of a world that exists in the in-between. They do not build or destroy; they simply *are*, watching, waiting, dreaming alongside the land.  
+
+Yet there is a certain fragility to them, a sense that they are as transient as the mist that clings to the reeds. If the marsh were to dry, if the water were to retreat, they might dissolve back into the muck from which they emerged, leaving behind only a faint impression in the silt, a memory of what once was.  
+
+Those who encounter the Mirebound often feel a strange kinship with them, a tug at the edges of their own sense of self. The marsh is a place of becoming, and the Mirebound are its embodiment—a reminder that the world is not fixed, that it is always in flux, always on the cusp of something new.  
+
+To stand among the Mirebound is to stand in the heart of possibility, to feel the damp breath of the marsh as it dreams itself into existence, and to wonder, if only for a moment, what it means to be alive in a world that is still deciding what it wants to be.

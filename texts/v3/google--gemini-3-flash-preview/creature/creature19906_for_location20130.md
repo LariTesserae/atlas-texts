@@ -1,0 +1,24 @@
+To live within the Great Hanging Cascades is to exist as a component in a closed-loop engine. In this vertical pressure cooker, life has no use for the horizontal or the hollow; everything that breathes is built from the same tension and torque as the basalt pillars themselves.
+
+### The Pulse-Tenders: The Vane-Hounds
+The dominant terrestrial presence belongs to the **Vane-Hounds**, those metallic-scaled amphibians mentioned in the lore. To look at them is to see an extension of the hydraulic vines they inhabit. Their bodies are long, corded with externalized musculature that mimics the peristaltic pumping of the plants. Their scales are not merely for protection; they are conductive plates of bio-silicate that harvest the static "ozone tang" of the air.
+
+They do not walk; they lock. Their five-fingered limbs end in suction-pads that create a vacuum seal against the moss-slicked stone. When the great vines *thud-hiss* with the movement of silt, the Vane-Hounds press their translucent underbellies against the wood. They are "frequency-feeders," partially nourishing themselves on the kinetic vibrations of the landscape’s industrial pulse. Their eyes are milky, hemispherical bubbles that do not see detail so much as they see pressure gradients—detecting the subtle "bruising" of the air before a lightning strike or a vent-burst.
+
+### The Steam-Reapers: Gossamer Heavyweights
+Above the shelf-bogs, the insect life is dominated by the **Aurelian Beetles**. These are not delicate creatures; they are the size of dinner plates, encased in matte-black carapaces that absorb the fierce, white-hot noon sun. They congregate at the "vent-exhausts," where the hydraulic vines expel scalding steam.
+
+The beetles act as the pressure valves of the ecosystem. They possess specialized thoracic vents that draw in the excess steam, stripping it of trace minerals before venting it out as a high-pitched whistle. To fly in this heavy, 3.0-heat air requires immense power, and their wings do not flap so much as they vibrate at ultrasonic speeds, sounding like the whine of a distant turbine. They are the pollinators of the "lung-plants," carrying electrified pollen from peak to peak in the electrostatic wake of their flight.
+
+### The Weavers of the Abyss: Silt-Spiders
+Deep within the spray-heavy shadows of the pillars, life takes on a more architectural form. The **Silt-Spiders** are not true arachnids, but colonial organisms that resemble tangled clusters of copper wire. They spin "gravity-nets"—webs of high-tensile, conductive silk that stretch between the pillars, sometimes spanning hundreds of meters.
+
+These nets are not designed to catch prey in the traditional sense, but to harvest the *falling*. As the water "sweats" from the stone, carrying nutrient-rich silt and organic debris, the nets filter the cascade. The Silt-Spiders live in the center of these shimmering, mercury-coated webs, processing the minerals into the very "cement" that the plants use to anchor their roots against the erosion. They are the maintenance crew, patching the leaks in the vertical marsh, ensuring the "melting wax" shapes of the cliffs do not dissolve into nothingness.
+
+### The Apex: The Gliding Monoliths
+High above, silhouetted against the blinding white sky, are the **Vapor-Whales**. They are gargantuan, flat-bodied drifters, resembling living kites made of translucent, leathery membrane. They possess no wings; instead, they are biological hot-air balloons. Their porous skeletons are filled with the super-heated steam expelled by the "Hydraulic Vents."
+
+The Vapor-Whales never touch the basalt. They spend their centuries-long lives drifting between the heat-columns, their trailing, root-like tendrils brushing the tops of the canopy to snag Aurelian Beetles or to drink from the high-altitude cloud-caps. They are the silent overseers of the circulation, their low-frequency moans harmonizing with the industrial drone of the vines. When a Vapor-Whale dies, it does not fall; it deflates slowly, its body snagging on a shelf-bog to become the foundational peat for a new generation of succulent ferns.
+
+### The Sentience of the Cycle
+There is a sense, as one listens to the *thud-hiss* of the world, that the Great Hanging Cascades possess a collective, slow-motion intelligence. The flora and fauna are not separate from the "Machine"; they are the cogs and the lubricant. To live here is to be part of the labor. There is no play, no wasted movement—only the rhythmic, humid work of pushing the water up so it may fall back down, a world-sized heart beating in a chest of basalt and moss.

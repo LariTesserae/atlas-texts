@@ -1,0 +1,19 @@
+They are the **Dwellers of the Soft Stone**.
+
+They are beings intimately attuned to the vibratory hum of their plateaus, their forms shaped by a life lived in perpetual twilight and amidst the murmur of damp earth. Their bodies are slender, elongated, with a graceful fragility that belies their resilience. Their skin, rather than skin as we understand it, is a seamless covering that shifts in hue from deep, mossy greens to the muted greys of weathered stone, often with iridescent streaks that catch and refract the meager light. This integument is not merely for protection, but a sensory organ, capable of detecting the subtle shifts in atmospheric pressure, the minute tremors of the earth, and the faint, internal luminescence of the strange flora.
+
+Their eyes are large and liquid, lacking pupils, instead possessing a depth that seems to absorb the surrounding dimness. They are adapted to perceive a broader spectrum of light than humans, enabling them to navigate the perpetual twilight and to discern the bioluminescent pulses of their plant life. They rarely blink, their gaze steady and ancient.
+
+Their limbs are long and articulated with an extra joint, allowing for an almost impossibly fluid and silent movement. Their hands, or appendages that serve the same purpose, are long-fingered, with tips that are slightly adhesive, allowing them to scale sheer rock faces with ease and to pluck the delicate, phosphorescent fruits from the most precarious of places.
+
+They speak not with a discernible voice box, but through a symphony of subtle clicks, soft whistles, and resonant hums that blend seamlessly with the ambient sounds of their environment. Their communication is layered, capable of conveying complex emotions and abstract concepts through variations in pitch, rhythm, and timbre. They also perceive and transmit emotion through subtle shifts in their skin's bioluminescence, a silent language that speaks volumes.
+
+The Dwellers are vegetarians, subsisting on a diet of the unusual flora that thrives in their realm. They are particularly fond of the crystalline fronds, which they harvest with meticulous care, and the fleshy, bioluminescent stalks, which they consume for their unique energetic properties. They understand the symbiotic relationships between the plants and the humming rocks, and consider themselves guardians of this delicate balance.
+
+Their society is organized in small, closely-knit communities, nestled within the natural formations of the plateaus. They live in dwellings carved from the living rock, or constructed from carefully shaped, organic materials that blend seamlessly with the landscape. Their homes are filled with a soft, diffused light emitted by cultivated bioluminescent fungi and crystalline growths.
+
+They value silence, contemplation, and observation. Their lives are not driven by ambition or conquest, but by a deep respect for the cycles of nature and a profound connection to their ancestral lands. They move with a deliberate, unhurried pace, their actions imbued with a sense of purpose that is both ancient and enduring.
+
+The "urban" elements of their settlements are not imposed upon the landscape, but are an extension of it. Pathways are worn smooth by generations of their careful passage, bridges are woven from living vines, and simple mechanisms for lifting water or manipulating materials are powered by the slow, steady flow of underground streams or the subtle vibrations of the rocks.
+
+They are a people who have learned to thrive in a world where the unusual is the ordinary. They are the quiet custodians of the soft stone, the luminous fronds, and the humming earth, forever existing in a state of harmonious integration with their strange and beautiful home.

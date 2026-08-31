@@ -1,0 +1,15 @@
+In this place live the Translators - beings that exist to mediate between states of reality. They don't have fixed forms, instead manifesting as interference patterns in the fabric of space itself. When they move, they leave trails of probability - areas where multiple versions of the same space temporarily coexist.
+
+The most visible sign of their presence is how they affect the liquid glass streams. As they pass through, the glass briefly crystallizes into complex lattices that capture and refract moments from other timelines. These crystalline formations hold their shape just long enough to broadcast fragments of information between realities before dissolving back into flowing pink glass.
+
+The Translators tend to the mathematical ferns, not by traditional gardening, but by adjusting the underlying equations that govern their growth. They reach into the fractal patterns and tweak variables, causing cascading changes that ripple through all scales of the plants simultaneously. This is how they communicate with each other - through the manipulation of growth patterns that serve as a living mathematical language.
+
+They make their homes (if such a concept applies to them) in the spaces where the ground loses its certainty. They exist most comfortably in these areas of undefined properties, where they can more easily maintain their role as mediators between states. The industrial ruins serve as their archives - each impossible angle of the towers contains stored information about reality transitions they've facilitated.
+
+The flickering almost-animals are their early attempts at creating interfaces between different systems of natural law. These experiments never quite stabilized, leaving behind echoes that can't fully resolve into any one form. The Translators keep them around as reminders of the complexity of their work.
+
+The youngest Translators manifest as subtle distortions in the hanging water droplets, learning to manipulate reality on a small scale before graduating to larger interventions. The oldest ones are so integrated into the fabric of the place that they're practically indistinguishable from the background processes of reality itself - they can be detected only by the deep resonance that emanates from the glass wells, which is actually the sound of them maintaining the delicate balance between different versions of existence.
+
+They are neither creators nor destroyers, but maintainers - essential intermediaries in a multiverse that would fragment into chaos without their constant adjustments. The increasing frequency of reality folds suggests they're currently dealing with some sort of cosmic instability, their work becoming more visible as they attempt to prevent different versions of reality from collapsing into each other.
+
+Their consciousness, if it can be called that, operates on principles of transformation rather than fixed thought. They don't so much think as they process - converting one state of being into another, always seeking the most elegant solutions for maintaining continuity between divergent possibilities.

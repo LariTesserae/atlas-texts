@@ -1,0 +1,15 @@
+The inhabitants of this plateau are not so much "living" as they are the incidental byproducts of the landscape’s metabolism. They are the **Tether-Keepers**, though they possess no consciousness to understand their own identity, nor any form of hierarchy to give them status.
+
+They emerge from the soil itself, curdling out of the thickening, oily slurry whenever the Pump-Flowers experience a shudder of mechanical over-exertion. Initially, they are little more than puddles of iridescent, viscous film, but within seconds, the erratic laws of the plateau pull them into structure. They solidify into skeletal, spindly frames, composed of translucent ivory marrow and rusted, interlocking plates harvested from the "dead" gears of ancient, discarded Pump-Flowers.
+
+These creatures are masterfully, horrifyingly efficient. They have no faces, only a dense cluster of faceted sensory nodes that twitch in time with the rhythmic, wet *thwack-hiss* of the nearby pistons. Their limbs are unnaturally long, multi-jointed things that move with a stuttering, strobe-light cadence. They do not walk so much as they reset their position in reality, flicking from one spot to the next to keep pace with the shifting, accordion-folding horizon.
+
+Their existence is defined by a frantic, wordless panic—not an emotional terror, but a biological imperative to stave off the landscape’s constant liquefaction. 
+
+A Tether-Keeper spends its cycle clinging to the rusted exterior of a Pump-Flower, its spindly fingers—tipped with fine, hypodermic needles—piercing the metallic hide to draw out the bioluminescent condensate. They work the fluid like molten glass, weaving it into thick, shimmering strands of polymer silk. With these threads, they anchor the groaning machines to the pulsating moss, suturing the erupting cracks in the soil, and bracing the bruised ridges against the physical "glitches" that threaten to tear the plateau into nothingness.
+
+When a Pump-Flower inevitably seizes up, clanking to a grinding halt, the Tether-Keepers surrounding it do not mourn. They do not abandon it. They collapse. Their own skeletal frames lose their internal pressure, and they pour themselves back into the mire, dissolving into the very condensate they were trying to contain. 
+
+Yet, there is a pulse—a strange, lingering intelligence that isn't theirs. When the mist rises in those perfect, geometric spirals, the Tether-Keepers freeze. Every single needle-limb snaps upward, vibrating in a harmonious, high-pitched screech that mimics the machines. In that moment, they are not separate entities; they are a distributed brain, a nervous system for a world that has forgotten how to think. They are the ones who ensure that the rot never consumes the rhythm, and the rhythm never loses its grip on the rot. 
+
+They are the janitors of a collapsing equation, forever mending the seams of a tapestry that is perpetually trying to unravel. They are cold, they are wet, and they are beautiful in their total lack of meaning—simply another set of gears, albeit ones composed of bone and duty, grinding away until the final, inevitable cycle runs dry.

@@ -1,0 +1,49 @@
+At first the inhabitants appear to be ordinary industrial workers: pump attendants, fitters, dredge crews, electricians, screen clearers, painters, clerks, cooks, and cleaners. They wear pale coveralls darkened at the spine and under the arms, rubber boots softened white at the creases, and belts hung with keys, rags, test lamps, and short-handled tools. Ear protection rests around their necks even at meals. Their hair is cropped or wrapped close against belts and fans. Nearly everyone carries two smells—the mineral smell of wet concrete and the warm metallic smell of machinery.
+
+They are never dry. Sweat glosses their faces before a shift begins. Condensation stipples their sleeves. Those who work near the outer pumps develop a permanent scaling of salt along their collars and eyebrows. Small cuts remain pale and swollen beneath strips of waterproof tape. The oldest workers have palms broad and smooth from heat, oil, and wet gloves, with rust ingrained in the grooves around their nails.
+
+Because the noise makes ordinary speech difficult, they possess an extensive language of gestures. A fist turned slowly means a valve is to be opened. Two fingers drawn across the wrist mean the flow is weak. A flat hand held low warns of a slick surface; held high, of a live cable. People converse across workshops by pointing, touching their own shoulders, and miming the shape of a fault. Their faces remain curiously calm while their hands are urgent and exact.
+
+They do not hurry, but neither do they stop. A person walking an empty ledge will straighten a crooked drain screen without appearing to notice. A child crossing the square will lift a fallen washer from the pavement and place it on the nearest cabinet. Loose objects are collected. Drips are watched. Any unfamiliar vibration draws a hand to the wall.
+
+The inhabitants distinguish machinery by touch more readily than by sight. Each pump has its own tremor, each transformer its own pressure in the jaw. A mechanic can tell which intake screen has begun to clog by laying two fingers on a railing three buildings away. The turbine crews speak of machines as if describing large domestic animals: one is reluctant when hot, another pulls to the left, another “sleeps badly” after heavy rain. Officially the units are numbered. In conversation they have names inherited from dead workers, old foremen, wives, storms, or jokes whose meaning has been forgotten.
+
+The workers live in the identical apartment blocks, though no two interiors remain identical for long. Rooms are narrow and high-ceilinged, with fans turning above enamel tables. Clothes hang beneath them but never quite dry. Bed legs stand in shallow ceramic cups to deter insects. Every household keeps sealed tins of grain, coils of mosquito netting, spare fuses, and a bucket beneath some leak too harmless to justify opening the wall.
+
+Domestic life is fitted around the shifts. Meals are eaten whenever a household overlaps: soup at dawn, fried fish in the middle of the night, tea thick with condensed milk at any hour. Lamps are seldom switched off. Someone is always sleeping behind a hanging cloth while someone else washes boots in the corridor.
+
+Children learn the district as a sequence of permissions. They know which rails may be touched, which grates bear weight, which canals hold crabs, which red-painted doors must never be opened. They race along painted routes and build miniature pumping stations from tins, bottle caps, and lengths of tubing. Their games are about floods narrowly prevented. One child plays the water, pressing inward with spread hands; the others become gates, walls, pumps, and emergency crews. The water almost always wins until an older child intervenes and explains that the game has been designed incorrectly.
+
+They are taught early to swim, though there is nowhere they are permitted to swim. They practice in a settling basin emptied and scrubbed for the purpose, watched by adults with ropes. The lesson is treated with the seriousness of fire drill or first aid. To fall into moving water is to enter the hidden part of the town, where channels pass beneath foundations and screens divide one black chamber from the next.
+
+Old people remain useful because they remember sounds. Some no longer climb ladders or lift motor housings, but sit in control rooms with one hand resting on a pipe. They can hear wear before an instrument records it. Younger technicians arrive with gauges and headphones, yet still wait for the old person to say whether the change is harmless.
+
+Knowledge is passed physically. A senior worker places a novice’s hand against a bearing, then over their own wrist, teaching the difference between a healthy pulse and a dangerous one. Much instruction consists of standing still in places where stillness seems impossible.
+
+Their customs are practical enough to be mistaken for superstition. No one whistles in a conduit tunnel, because it conceals small changes in pitch. No one steps over a hose, because a hose that appears slack may stiffen without warning. A cup of water is poured onto a new concrete patch, partly to test its run and partly because every sealed crack is said to deserve “its first rain.” When a major pump returns to service, the crew touches its casing in turn. They call this checking for heat, even when the casing is still cold.
+
+They have little use for ornament, but they decorate repairs. A well-fitted patch may be painted with a narrow blue border. Replacement pipes sometimes bear the initials of the crew, hidden on the wall-facing side. Inside electrical cabinets are tiny drawings: fish with wrench-shaped bones, frogs wearing helmets, saints or ancestors standing ankle-deep in water. These images are not shown to visitors. They are meant for the next person who opens the cabinet.
+
+There are disputes, romances, jealousies, and feuds, though the town’s continuous work compresses them. Two workers who have not spoken socially in years will still lift a housing together with perfect coordination. Former lovers exchange shift reports without omitting a temperature reading. A quarrel may survive for decades, but it cannot be permitted to reach a valve.
+
+The animals are treated less as invaders than as minor, unreliable departments.
+
+Geckos are tolerated in control rooms and occasionally named. Frogs are moved away from fan housings in cupped hands. Pigeons are cursed for fouling crane rails, then fed scraps behind the cold store. Rats are killed only when they approach cables or food, and the rat catchers know individual pipe colonies by color, size, and boldness. Children recognize the old females that cross the upper racks at shift change.
+
+Screen-clearing crews throw fish and shell waste onto designated slabs. Within minutes the gulls arrive, followed by pigeons, crabs, flies, and rats. Nothing is left long enough to rot. Carp learn the sound of boots at feeding places and gather beneath the black surface, their mouths appearing like soft valves. Frogs claim particular drains. Pale crabs patrol the warmest ledges at night, tapping against discarded bolts.
+
+Mosquitoes belong to everyone. Nets, smoke coils, mesh doors, oil films, larval traps, and drainage inspections keep them from becoming unbearable but never remove them. The people accept a certain number of bites as they accept condensation. A person with no bites is assumed either ill or newly arrived.
+
+What the inhabitants fear is not water itself, nor fire, nor machinery. They fear imbalance: a level creeping upward, a motor drawing too much current, a new silence in a familiar wall. Sudden events are less troubling than gradual deviation. An alarm can be answered. A change so slow that no one agrees when it began is considered far more dangerous.
+
+For this reason the central inspection well is never left entirely unattended. There is no formal guard, only a bench beneath the three trees. Someone is usually there: an off-shift mechanic drinking tea, an elderly woman shelling shrimp, a child doing arithmetic, a clerk eating from a tin. They seem idle. In fact, they are listening.
+
+The rush beneath the iron cover contains all the district’s waters mingled together—seepage from the wall, runoff from roofs, overflow from basins, condensation from cooling lines, leakage gathered from rooms no one often enters. Those who have lived there longest claim they can hear the whole town in it. A sharper hiss means rain over the workshops. A deepening throat means the outer marsh is pressing harder. A faint regular knocking may be a loose gate three streets away, or a crab trapped behind a screen, or nothing at all.
+
+No one agrees whether the sound has ever changed.
+
+Seen from outside, the people might appear imprisoned in their ring of concrete, maintaining a place that can neither grow nor be abandoned. Inside, they do not think of themselves as holding back the marsh. Nor do they believe they have conquered it. They say the marsh carries the town and the town gives the marsh a shape.
+
+This is why it is difficult to decide what truly lives there. The workers do, certainly, and their children, frogs, rats, pigeons, carp, shrimp, crabs, mosquitoes, algae, and three constrained trees. But the machinery also possesses appetite, temperature, pulse, exhaustion, and dependence. Water circulates through the foundations like blood through an organ. People move where valves and ledges permit them, while animals occupy the spaces the people leave warm.
+
+Together they form the inhabitant: a crowded, many-bodied creature with concrete skin, iron teeth, human hands, and a marsh forever pressing against its side. It does not sleep. It does not grow. It survives by noticing every small departure from itself and correcting it before the change can become a future.

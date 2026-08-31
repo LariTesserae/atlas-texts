@@ -1,0 +1,15 @@
+In this desolate yet serenely beautiful landscape, there exist creatures that have adapted to the slow pace of time and the unique conditions of this world. They are beings that have evolved to thrive in this timeless realm, where water is plentiful but life is scarce.
+
+The most visible inhabitants are the ancient, sentient rock-forms known as the Elders. These beings are the structures themselves, crafted from the native rock over millennia, not by tools, but by the gradual, purposeful rearrangement of mineral compounds by the Elders' own, extremely slow biological processes.
+
+Each Elder is a repository of the collective knowledge of its kind, holding the memories of countless generations within its crystalline heart. They communicate through subtle vibrations that travel through the water and rock, their thoughts echoing across the expanse in a silent, perpetual dialogue.
+
+Beneath the surface, a different life form exists, all but invisible to the untrained eye. The Drippers are tiny, amoeba-like creatures that seep through the rock, their bodies made largely of water and trace minerals. They are the source of the water that pools on the surface and are the only true producers in this ecosystem, harnessing energy from the faint radiation and chemical reactions in the rock to sustain themselves.
+
+Over time, Drippers can coalesce into larger, more complex forms — pools of wet, glittering material that reflect the sky above and ripple with every disturbance. In these forms, they are capable of basic sensory perception and can react to their surroundings, sometimes altering their shapes and patterns in what appears to be a primitive form of communication.
+
+Despite their primitive nature, the Drippers are essential to the landscape. They are the true architects of this world, slowly shaping the rock through their movements and chemical secretions. Over eons, their constant seeping and flowing have worn down the hard edges of the terrain, creating the smooth, rounded shapes that dot the landscape.
+
+The Drippers and the Elders exist in a symbiotic relationship. The Elders provide wisdom and guidance, sharing their vast knowledge to influence the Drippers' slow, geological-scale manipulations of the environment. In turn, the Drippers sustain the Elders, their water and minerals necessary for the gradual repair and growth of the stone bodies.
+
+In this way, the Drippers and Elders form a harmonious, mutually supportive ecosystem that has persisted for ages. It is a dance of stone and water, thought and physical change, each playing its part in the timeless ballet of this serene and ancient world. As the water drips, the rocks endure, and the dialogues of the Elders echo through the stone, life here moves at its own, uniquely slow pace — a testament to the boundless diversity and resilience of existence.

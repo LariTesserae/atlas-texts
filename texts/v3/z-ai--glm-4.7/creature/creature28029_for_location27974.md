@@ -1,0 +1,27 @@
+To call them "inhabitants" implies a separation between the living thing and the container that does not exist here. In the Drip Spires, the distinction between biology and architecture is meaningless; the things that live here are the mobile components of the city itself.
+
+If you stand still on the rippling nanite floor for long enough—ignoring the urge to flee as the heat clings to you like wet wool—you will begin to notice that the shadows are not all static. The darkness between the monolithic towers has a texture, a density. It moves.
+
+They are called the **Resonants**, though they have no word for themselves. They are tall—easily eight or nine feet at the shoulder when they choose to stand upright—but they rarely do. Their default posture is a fluid, low crouch, their spines curved in a perfect, aerodynamic arch that mimics the flow of water up the walls.
+
+Their bodies are masterpieces of evolutionary mimicry. They are covered in the same dark, glass-smooth material as the spires: an obsidian carapace that absorbs the scant light, leaving them as silhouettes cut from the void. This "skin" is not rigid; it is segmented like plate armor, but the joints are sealed with a translucent, viscous membrane that glows with the faint, sickly green of the lace-ferns when they are digesting energy.
+
+They have no eyes. In a place where visibility scores a 0.3, vision is a useless sense. Instead, their faces are dominated by complex, hydraulic structures—a series of expanding and contracting chitinous plates that vibrate constantly. They read the world through the architecture of sound. They feel the thrumming of the planet’s digestion through the soles of their wide, splayed feet. They taste the ozone-rich air with sensory tendrils that writhe where a mouth should be. They track the *clack-hiss* of the cobalt pulses with a precision that suggests they are anticipating the rhythm rather than reacting to it.
+
+Movement for a Resonant is a violation of physics. They do not walk across the nanite floor; they *negotiate* with it. As they step, the dark suspension of the ground ripples beneath their weight, but they manipulate the field, gliding forward in a silent, frictionless drift. When they need speed, they kick off, their legs extending explosively, and for a moment, they surf the shockwave of their own momentum, skimming over the plains like a stone over water.
+
+They are solitary hunters, though they hunt nothing akin to meat. They are the custodians of the process.
+
+When the rhythmic *clack-hiss* illuminates the chamber, you might see one perched halfway up a sheer vertical spire, defying gravity just as the water does. It clings to the wall using microscopic setae in its carapace, interlocking with the polished stone. Here, it "shepherds" the water. It runs long, multi-jointed fingers along the upward-flowing streams, tasting the mineral content, filtering out impurities with a flick of a vibrating tongue. They consume the energy carried by the water—the thermal heat, the kinetic charge—and excrete the pure, distilled fluid back into the system. They are biological filtration units, mobile kidneys for the machine-city.
+
+Their relationship with the Glint-runners is one of indifferent predation. To a Resonant, the small, eyeless crustaceans are pests—clogs in the filter. You might see a Resonant snatch one from the air without breaking its stride, the hydraulic glass legs of the crab crunching loudly against the roar, providing a fleeting burst of calcium that the Resonant absorbs instantly.
+
+But it is during the "Inhalation" cycle that the Resonants reveal their true nature.
+
+As the fifteen-minute mark approaches, the air pressure begins to spike. The roar deepens. The Resonants do not flee; they sync. They stop their gliding and position themselves at specific nodes on the floor—geometric intersections where the cobalt veins cross. They root themselves.
+
+The obsidian plates of their bodies unfold and flatten, locking together with a sound like a vacuum seal. They dig their claws into the nanite suspension, anchoring deep. As the ceiling descends and the scream begins, they act as grounding rods. They absorb the excess kinetic energy, the massive spike in pressure, and the thermal shock. Their bodies glow blindingly bright, pulsing with the overload of energy, acting as capacitors that protect the delicate internal machinery of the spires from the strain of the cycle. They scream, too—a harmonic, resonant tone that cuts through the mechanical roar, a counter-frequency that stabilizes the room.
+
+When the inhalation ends, the ceiling rises, the scream fades to a thrum, and the Resonants uncurl. Steam vents from their joints. They shake themselves, the condensed water flying from their carapace like diamonds, and they resume their silent patrol.
+
+They are not waiting for you. They are not watching you, though you feel the weight of their gaze-less attention. To them, you are simply a source of inefficient heat and noise, a soft, erratic anomaly in the perfect, rhythmic digestion of the world. You are a ghost in the machine, and they are the immune system, waiting for you to stop moving so they can process you back into the dark.

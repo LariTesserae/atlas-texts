@@ -1,0 +1,15 @@
+In the lightless depths of this vast cavern, a vibrant, alien ecosystem pulses with life. The tangled, pulsating growths that carpet the floors, walls, and ceilings are not mere plants, but rather a merging of flora and fauna into beings that blur the boundaries between the two.
+
+At the heart of this living lattice dwell creatures that defy easy categorization. Some graze upon the fibrous tendrils, their bodies contorted into strange shapes to better digest the tough vegetation. Others are predators, their forms equally twisted by the unique pressures of this realm. Insectoid scavengers scuttle across the cavern floor, while vaguely reptilian shapes slither through the twisted branches, hunting smaller prey with senses keyed to the faintest movements or chemical signatures.
+
+But the true masters of this bizarre ecosystem are the beings that have transcended the divide between plant and animal entirely. In the deepest reaches, where the living mass undulates as if possessed of a single consciousness, dwell entities whose forms and behaviors are wholly alien. Here, the growth is densest, fused into an ever-shifting, pulsing superorganism that spans the entirety of the chamber.   
+
+Cradled within this undulating, arboreal womb exist lifeforms whose shapes seem to flow between the vegetative and the animate. Some resemble grotesque, fanged blossoms, their petals lashing with barbed tendrils that lure and ensnare unlucky prey. Others are supported by gnarled, root-like appendages that raise them into the cavern's shadowed heights, allowing them to drop ponderous, spore-filled sacs upon those below.
+
+Still others appear as vast, semi-amorphous masses of living tissue, absorbing nutrients from the surrounding growth as readily as they consume smaller creatures that stray too near. Their bodies swell and diminish in constant flux, pseudopods extending and retracting as they endlessly reshape themselves in cyclic patterns of growth and redistribution.
+
+In the lightless heart of the underground forest, the most bizarre of these lifeforms congregate – vast, pulsing, arborescent horrors whose forms and functions are truly inscrutable. Whether they are sentient beings, collectives akin to colonial organisms, or merely the enormously complex reproductive structures of some unseen progenitor, is impossible to discern.
+
+All that is certain is that despite their alien existences, all of these organisms form part of an exquisitely balanced whole – a self-sustaining web of interdependence that has persisted for untold ages in perfect equilibrium, isolated from the world above. An entire enclosed biosphere unto itself, suspended in a lightless stasis, yet still gradually expanding its reach through the slow colonization of new caverns and tunnels.
+
+This is a realm of profound, unsettling beauty and impossibility – a place where the known laws of biology and evolution seem to bend and distort, giving rise to horrors and wonders in equal measure. A hidden universe, thrumming with its own unique rhythms mere meters beneath our feet, yet as psychically removed from our conceptions of reality as the far side of the cosmos.

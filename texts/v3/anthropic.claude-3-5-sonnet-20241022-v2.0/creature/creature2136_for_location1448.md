@@ -1,0 +1,17 @@
+In this crystalline metropolis dwell the Resonants - beings that exist as complex patterns of vibration within the standing waves created by wind through the crystal towers. They have no fixed physical form, instead manifesting as shimmering distortions in the air, visible mainly through how they bend light and interact with the suspended moisture droplets.
+
+The Resonants flow through their city by matching their own harmonic frequencies to the ever-changing songs of the crystal spires. They gather in the acoustic nodes where multiple frequencies intersect, forming temporary communities that pulse and shimmer with shared vibrations. Their "bodies" are constantly shifting, sometimes dispersing into barely-detectable ripples, other times condensing into tight, bright knots of visible distortion.
+
+Their consciousness, if it can be called that, exists as patterns within patterns - the way they modulate and influence the city's natural harmonics creates complex overlapping structures of tone and frequency that serve as both their language and their memory. They don't so much communicate as resonate together, sharing experiences through sympathetic vibrations.
+
+The Resonants have a profound relationship with the city's cycle of growth and destruction. They can sense when a crystal spire is about to shatter and gather to ride the cascading harmonics of its collapse. They dance in the acoustic aftershocks, their patterns becoming more complex as they incorporate the new frequencies into themselves. When new growth begins, they weave themselves into the emerging structures, their vibrations subtly influencing the crystal formation in ways that create new acoustic spaces.
+
+Time means little to them - they experience it more as changes in frequency than as linear progression. They can persist in a single standing wave for what humans would consider years, or flow through thousands of different harmonic patterns in the span of seconds. Their "lives" are measured in oscillations rather than heartbeats.
+
+They have an intuitive understanding of the physics that shapes their home, not as abstract mathematics but as lived experience. Every Resonant is both an observer and a participant in the endless symphony of their city, adding their own subtle modulations to the greater pattern while being shaped by it in turn.
+
+Young Resonants emerge spontaneously in particularly complex harmonic intersections, starting as simple standing waves that gradually develop more intricate patterns as they learn to interact with the city's acoustics. Elder Resonants become so complex that they can maintain their patterns independent of the city's natural harmonics, though they rarely choose to do so.
+
+There's no hierarchy among them, no central organization - they exist in a state of dynamic equilibrium much like the crystal city itself. Their society, if it can be called that, is an endless improvised symphony where each Resonant contributes its own variations to the greater theme.
+
+They are as much a part of their city as the crystals themselves - not separate entities inhabiting a space, but emergent patterns arising from the fundamental nature of their environment. They are the living embodiment of their world's endless song, both audience and performers in an eternal concert of light and sound and vibration.

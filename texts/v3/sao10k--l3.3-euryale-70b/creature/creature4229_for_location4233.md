@@ -1,0 +1,7 @@
+Caelwynn's inhabitants live in harmony with the city's labyrinthine layout and adaptive ecosystem. They move deftly through the winding alleys, often pausing to sample local delicacies sold from street stalls. Their attire reflects the city's damp environment, with layers designed for warmth and waterproof fabrics common. Travelers and traders bring exotic goods through these passage ways, enriching the cultural tapestry.
+
+Locals navigate using mental maps honed over years of living among the uplifted layers. Outsiders may find themselves bewildered by seemingly impossible trajectories that lead unexpectedly from one district to another. Despite challenges, residents love their complex city dearly.
+
+Customs reflect life within a self-sustaining, vertically integrated community. Festivals celebrate harvests of especially prized crops native only to Caelwynn's unique conditions. Musical traditions weave together sounds echoing off wet stone and dripping water, accompanied by instruments crafted from resonant woods.
+
+These people understand the intricacy and depth of their home better than any outsider possibly could. They've learned to appreciate beauty hidden within Caelwynn's ever-changing form, gaining profound insights visible only after fully embracing its puzzles and contradictions. This symbiotic relationship fosters a deep appreciation for home and community that outsiders cannot grasp until they too walk these narrow streets long enough to uncover some fraction of her secrets.

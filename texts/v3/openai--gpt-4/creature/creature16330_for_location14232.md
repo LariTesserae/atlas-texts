@@ -1,0 +1,15 @@
+There are indeed inhabitants in the Crackling Flora-verse, though they are not what one might first conceive to be life as we understand it. Beneath the twisting canopies and amidst the ever-warping foliage are beings—sentients woven into the seamless ebb and flow of this plant-dominant reality. They are not traditionally animal, nor even entirely plant. Their lives blur the lines between organism and environment, consciousness and instinct, individuality and collective will.
+
+### The Lichenwise
+
+Emerging from the fibrous mats of moss and mushrooms, the Lichenwise are subtle presences rather than overt, physical beings. They are semi-sentient entities formed of symbiotic networks of lichen, fungi, and microbial colonies. They shift within the soft, spongy ground like slow, breathing waves beneath your feet, communing in imperceptible exchanges of chemical signals. They do not speak in our sense of the word; rather, they communicate through the release of microscopic spores and pheromones, pulsing messages into the atmosphere that ripple through the air and bind to the chemical receptors of nearby lifeforms. To the untrained visitor, stepping into their domain might induce strange whispers at the very edge of conscious understanding, as if reality itself were leaning in to murmur secrets in alien tongues.
+
+The Lichenwise operate as the unseen custodians of the flora-verse, redirecting the growth of the rolling vines and reshaping the yawning trunks of the floral monoliths that spin above. They seem to have a guiding intelligence, as though orchestrating the otherwise chaotic symphony of growth and decay. But their motives are unclear—they lack the human penchant for hierarchy or dominion. They exist for balance: trimming the growth of wayward vines here, encouraging a bloom of phosphorescent fungi there. Their concern is the rhythm of the flora’s song, maintaining its harmony through subtle interventions.
+
+If one were to linger in place long enough, the Lichenwise might allow themselves to be briefly glimpsed. A glimmering, faintly emerald mist would rise from the mosses, coalescing into delicately woven shapes—humanoid, perhaps, or something more alien with serrated edges and spindly, shifting limbs. But even these forms would flicker and fade, transient knots of energy in the greater swell of the biome.
+
+### The Orchidophages
+
+Among the more tangible inhabitants are the Orchidophages, luminous and semi-motile beings resembling ambulatory plants. Their forms are an exquisite crossbreed of orchid, anemone, and insect: they possess petal-like limbs that radiate in dozens of overlapping hues, glowing faintly in the cyan mist. These “petals” ripple like the gills of a breathing creature as they crawl silently through the undergrowth, their movements both unnervingly graceful and arachnid-like. Instead of eyes, they have glistening clusters of bioluminescent pores arrayed across their bodies, as if the flora-verse itself gazes through them.
+
+Orchidophages are scavengers, gathering the decaying remnants

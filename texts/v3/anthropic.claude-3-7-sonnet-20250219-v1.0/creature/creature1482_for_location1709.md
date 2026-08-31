@@ -1,0 +1,19 @@
+# The Keepers of High Moss Hollows
+
+The Luminous Elders live here—beings neither wholly animal nor plant, but something evolved to transcend such distinctions. They stand five feet tall when fully upright, though they rarely assume this posture except during their seasonal harmonics. Their bodies consist of fibrous mycelia cores wrapped in translucent amphibious skin that pulses with bioluminescent patterns—primarily deep blues and purples that mirror the moss canopy they tend.
+
+The Elders possess no distinct heads but feature sensory clusters distributed across their upper portions—crystalline structures that detect vibration, moisture, light, and chemical signatures with extraordinary precision. What appear to be multiple elongated limbs are actually extensions of their central mass, capable of dividing into finer and finer filaments for delicate work. When still, they become nearly invisible against the hollow's background, their patterned skin matching the surrounding environment perfectly.
+
+They communicate through rhythmic tapping on the hollow floor, adding their voices to the chamber's perpetual symphony. Each Elder has a unique percussive signature, recognizable to others of their kind. For complex exchanges, they release controlled spore clouds that carry chemical messages, visible as brief flashes of more intense bioluminescence. Their language has no words but conveys concepts through rhythmic patterns and biochemical exchanges that have evolved over countless generations.
+
+The Elders are the garden-keepers of the Hollows. They cultivate the spiral-patterned moss, trim it when it grows too heavy, and transplant it to maintain the cathedral's perfect acoustic properties. The unusual mushroom formations are their agriculture—each cluster carefully shaped over decades, harvested for nutrients and medicinal compounds, then regrown in the same location according to ancient patterns. The tools found in gathering sites are indeed theirs, crafted from stone compressed and crystallized through a biological process involving their own secretions.
+
+They live extraordinarily long lives—several centuries each—but do not recognize time as linear. Instead, they perceive existence as cyclical patterns, measuring duration through growth cycles of their fungal gardens. Individual Elders are simultaneously autonomous and collective; each maintains a distinct role while sharing a distributed consciousness through mycelial networks that connect beneath the hollow floor.
+
+Their young begin as small nodules that bud from the parent's base during rare alignments when certain fungi release specific spores. These nodules are placed in the shallow water pools, where they develop over decades, absorbing nutrients and vibrations from the hollow's symphony before eventually rising and joining the community.
+
+The mercury-sheened amphibians and ceiling beetles are their symbiotic partners—the former help clean the floor pools, while the latter maintain the ceiling ecosystem and provide early warning of ceiling collapses through their movement patterns.
+
+When outsiders enter the Hollows, the Elders rarely initiate contact. Instead, they observe by blending with their surroundings, studying visitors through vibrations and chemical traces left behind. They have witnessed countless explorers come and go, watching civilizations rise and fall beyond their domain, preserving their perfect balance regardless of external chaos.
+
+Only those who demonstrate patience—who sit motionless for days, attuning to the Hollows' rhythm—might witness an Elder slowly materializing from what seemed merely a vivid patch of moss, extending a delicate filament in greeting, inviting communion with a world that exists on a fundamentally different timescale than our own.

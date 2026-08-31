@@ -1,0 +1,13 @@
+**The Glass Wastes of Hissing Silence** are home to the **Shardborn**, spectral entities woven from the very fractures and reflections of the broken landscape. They are not alive in any conventional sense—more like echoes given form, or the land’s half-hearted attempt at mimicry.  
+
+The Shardborn are tall, slender figures, their bodies composed of overlapping planes of glass, shifting and reconfiguring as they move. Their edges blur where the light catches them wrong, and their forms are never the same twice—sometimes they appear almost human, with elongated limbs and featureless, mirrored faces; other times they twist into jagged, abstract shapes, all angles and knife-thin protrusions. They make no sound as they glide across the glass, though their passage sometimes triggers faint vibrations in the ground, sending ripples through nearby shards.  
+
+They do not speak. They do not breathe. But they *watch*. Wherever a fracture spreads, wherever a new glass tower heaves itself upward, the Shardborn are there, drifting just beyond the edges of perception. Their attention is not hostile, nor is it curious—it simply *is*, as inevitable as the slow collapse of the land itself. Some say they are recording the Wastes, mapping its endless permutations in some silent, inscrutable way. Others believe they are the Wastes’ caretakers, though what they tend to is unclear.  
+
+Occasionally, a Shardborn will pause and kneel, pressing its glass hands against the ground. Where it touches, the fractures smooth over for a moment, the glass flowing like liquid before resuming its shattered state. No one knows why they do this. Perhaps they are trying to repair something. Perhaps they are simply remembering.  
+
+They are drawn to movement, to warmth, to anything that does not belong. A traveler foolish enough to enter the Wastes will soon find themselves flanked by Shardborn, their mirrored surfaces reflecting the intruder’s face back at them in distorted fragments. The reflections are wrong—sometimes showing the traveler as they were years ago, sometimes as they might be in some impossible future, sometimes as something entirely *other*.  
+
+The Shardborn do not attack. They do not need to. The Wastes themselves are weapon enough. But those who linger too long in their presence begin to… change. Their skin takes on a glassy sheen. Their thoughts slow, their movements grow deliberate, their edges sharpen. Some say the Shardborn are not native to this place—that they were once like you or me, until the Wastes remade them.  
+
+And perhaps, given time, they will remake you too.

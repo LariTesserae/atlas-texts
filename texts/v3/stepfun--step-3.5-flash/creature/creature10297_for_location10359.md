@@ -1,0 +1,1 @@
+The people of *The Breathing Stone* have no fixed name for themselves, for names, like all fixed things, are seen as temporary, out of step with the slow

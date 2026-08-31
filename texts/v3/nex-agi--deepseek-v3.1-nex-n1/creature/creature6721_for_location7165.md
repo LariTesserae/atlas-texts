@@ -1,0 +1,17 @@
+What lives here is not fauna but a kind of slow-moving clockwork.
+
+Not plants, not animals—hardly even organisms anymore—these things are more like mechanisms that have learned to imitate life over eons of repetition. They have no language but frequency, no purpose but endurance.
+
+To call them arthropods would be misleading. They share more anatomy with industrial machinery that has forgotten how to stop. They have bodies scaled and segmented like old heat shielding, joints that click instead of flexing. Their outer shells are polished by the wind until they look like basalt, but inside they are hollow with the faint, metallic ring of forced cooling. Their legs are thin rods of hardened material that move in precise, measured steps—never more than necessary.
+
+They are slow because they are calibrated to the rhythm of this world's heartbeat, not to their own hunger or fear. There is no predator here beyond the whisper of cold and the slow drain of heat into the sky. There is no need to hurry. They move across the plateau in patterns so repetitive they might be charged with maintaining it: smoothing ridges, stirring dust, carrying microscopic droplets of moisture away from where they ought not gather.
+
+In the shallow depressions between the hummocks, where thin mist pools like oil in water, they gather in threads around the edges. They dip their heads into the faintly shimmering surface, not drinking but extracting something—minerals dissolved in time, traces of heat, whatever trace remains in the water that remembers its source in the hidden engines below. When they lift away, their translucent shells pulse faintly with the captured glow, like filaments carrying light away from the world's last failing fires.
+
+From above, they look like a slow, shifting patina over the rock itself—a living skin of metal and fluid and memory. They do not swarm or panic. They simply adjust, step by step, to every change in pressure, temperature, or moisture in the air around them. Over millennia, they have worn down their own paths into the basalt: trails not wider than your smallest finger, but polished deep enough to feel like the grooves in a phonograph, each one etched with countless small steps.
+
+They are not sleeping or waking. They have no circadian cycle, only the slow loop of this world's cooling. They do not die, they simply wear thin until their joints fail to move and their shells crack open. Then, others of their kind—or perhaps they are all the same kind, wearing different bodies the way a machine wears different tools—come to dismantle them, piece by piece, carrying away fragments of shell to be inserted into fresh-birthed bodies that emerge from faint cracks in the rock beneath.
+
+They are not aware of you. They are aware, in some distant sense, of pressure: of your weight on the plateau surface, of the heat your body leaks into the cold air, of the moisture you exhale into the thin sky. They adjust their paths to accommodate you without acknowledgment or curiosity. They step aside, each a tiny gear shifting position by a fraction, until their pattern has rearranged itself around you, leaving you standing alone in a space cleared and maintained by their instinctive calculus.
+
+What lives here is the last moving part of a world that finished itself long ago and now only persists. They are not caretakers or survivors. They are simply the mechanism that has not yet received the signal to stop.

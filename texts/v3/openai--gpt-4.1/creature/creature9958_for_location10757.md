@@ -1,0 +1,30 @@
+Here dwellers are not easily named. They are not defined by war or industry, not by extravagance nor wealth, but by a patient attunement to scarcity and stone. Their manners are inward, evolved from long apprenticeship to constraint. They belong to this plateau because nothing else does—not mammals drawn to forests nor the larger birds of the peaks, not the restless herders nor the bustling townspeople of the valleys below. To live here is to live lightly, quietly, and with deep regard for endurance.
+
+**Their Appearance:**  
+The people who inhabit this place are as weathered as their home, though not diminished. Their skin shows the signature of the elements—sunned, wind-dried, taking on the pale and dun tones of stone and straw. Cheekbones and brows are marked by long exposure, features broadened, laughter lines slowed, each face an articulation of time’s broad sweep. Their hair—dark at youth, then streaked or dulled, worn short for practicality or long and tightly bound—catches the dawn frost on hard mornings, and their hands bear the graven records of labor: thickened knuckles, clean-worn nails, palms polished like pebbles. Their eyes are alert, calm but never restless, clear with the far-seeing gaze of those who must judge weather and water with single glances.
+
+Clothing is unsparing and pragmatic. Coarse wool woven from the hardy animals kept in sheltered folds, jackets and cloaks layered and patched, all in earth tones or faded plant dyes: lichen green, the gray of rainclouds, the ochre of sun-touched grass. Foot coverings are stitched tightly from hide, soles thick, adapted more for stone than soil. In colder months, each layer is methodically applied—a demonstration not of poverty but of custom.
+
+**Their Lives:**  
+To live here is to practice sufficiency. Life is orchestrated around the rhythms of water: the gathering of dew and scarce rain, the careful tending of cisterns, the maintenance of channels and the small, stony gardens. These people coax what little soil exists into shallow troughs where resilient herbs and compact roots are grown—sorrel, chive, the wiry shoots of tiny tubers. The occasional berry, hard-won, is prized; bitter greens are gathered from rocky margins, blanched and roasted at night.
+
+Animals are companions, not commodities: small, shaggy ruminants that glean their sustenance from the sparse grass and lichen, valued both for wool and the distant comfort of their company. The people do not keep large flocks—the land would not support it—but each animal is known, named, a subject of daily care and patient exchange between families.
+
+Their homes are inherited, not only in stone and wood, but in knowledge—the best position for collecting warmth, the pattern of stacking slabs against the wind, the angle to lay a gutter for the meager harvest of each rainfall. Children climb the stones, learning each by touch and use, guided by elders whose speech drifts in the local tongue, thick with consonants clipped and rounded by the dry air.
+
+**Their Days and Gatherings:**  
+Dawn is a private affair: a quick summoning of light, a ritual circuit of the stones to check for inadvertent drifts, the first collection of water, the careful lighting of fires within walled hearths—smoke leaking almost unwillingly out of narrow vents. The village is never busy, only attentive; work unfolds in accord, but without haste: repair of a step, repointing of a wall, the turning of a garden bed. Voices rise and fall in measured tones, mostly close conversations, sometimes laughter that rings clear and then is replaced by silence.
+
+On cold evenings, after labor, families gather close under their low ceilings. Elders recite stories, not heroic but truthful: harsh winters survived, a new stone fitted, a plant returning after thought extinct. Children listen, not expecting surprise—the greatest drama is always a storm, the rare appearance of a large animal, or a traveler found cresting the rim.
+
+Once in each stretch of fair weather, there is a communal meal in the council ring: flatbread baked on hot stones, root stew simmered over low fire, a sharing of preserved berries or pickled herbs. There is a sense of honor in this—offering a portion of what is scant, trusting that the giving returns in kind. Songs here are sparse, repeating, old beyond memory.
+
+**Their Character:**  
+They are neither suspicious nor especially open; they are as unyielding as their walls, but polite in their sparingness. Hospitality arrives in the form of a seat near the fire and a cup of heated water, sometimes flavored, if supply allows. Strangers are rare but neither celebrated nor feared—curiosity here is private, questions direct and economical, for survival has no room for the extraneous.
+
+Their traditions are the logic of survival elevated into art—how to mend, how to judge, how to accept what is and how to let be what cannot change. They distrust waste, but honor the stories behind anything mended, repurposed, or saved. They understand death as they understand drought: as an inevitable pause in a pattern already known by heart.
+
+**The Essence:**  
+The people of this stone-basin town are not static, but persistent. Progress, if it comes, is measured in the gradual way a wall settles more firmly into the earth, in the birth or loss of a garden, in the seamless stitching of one generation’s tools into the hands of the next.
+
+If a stranger should linger, they would find kindness in small things, wisdom in restraint, and an enduring humility before the slow patience of the stone. Here, the settlement bears its human mark only as lightly as the moss—each supporting and softening the other, bound together by the vow that nothing shall change more than the land will bear. The people are, above all, survivors by consent—steadfast, shaped to fit what endures.

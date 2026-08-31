@@ -1,0 +1,29 @@
+**The Foreman**
+
+It has no name beyond its function, though *it* is perhaps too simple a pronoun for what moves through the Condensate Works like syrup through a clock. The Foreman exists in seventeen places simultaneously, or perhaps it is seventeen things sharing a single intent—the distinction matters only to observers, and there are none here qualified to observe.
+
+Its primary mass resembles a chandelier made of elbows—brass elbows, copper elbows, elbows of impossible angles that bend space as well as fluid. Each joint weeps a different industrial secretion: cutting oil, coolant, hydraulic fluid, substances that smell of hot metal and progress. The elbows connect nothing to nothing, yet somehow constitute a body that moves with deliberate grace through the chaos, parting waves of newborn machinery like Moses through a sea of gears.
+
+The Foreman's extremities exist in probability rather than position. You might glimpse a hand made of calipers adjusting a valve three stories up (though stories are meaningless here), while simultaneously that same hand—or its twin, or its echo—is deep in the mechanical substrata, coaxing a reluctant cam shaft into existence. It has as many arms as there are tasks, and there are always infinite tasks in the Works.
+
+Its face, when it presents one, is a constantly redrawing technical schematic, white lines on blue void, depicting whatever machine is about to be born in the next section of the Works. The drawings are perfect, impossible to read, and already obsolete by the time you perceive them. Sometimes the face is a pressure gauge. Sometimes it is an exhaust port. Once, for a terrible moment, it shows you your own skeleton reimagined as pipework.
+
+The Foreman speaks in pressure differentials and temperature gradients. When it is pleased (if pleasure applies), the Works hum in major thirds. When it discovers inefficiency, steam vents shriek in calculated discord until the offending configuration dissolves back into potential. It conducts the smaller creatures through vibrations in the superstructure—a tap here sends the wrench-legged skitterers scurrying to clear a clogged intake, a harmonic there causes the floating gear-beings to cluster and spin until their collective magnetism births a new turbine.
+
+But the Foreman is not alone in its authority. It shares the Works with its mirror, its shadow, its inverse theorem—**The Apprentice**.
+
+The Apprentice is everything the Foreman is not, which makes it equally everything the Foreman is. Where the Foreman builds with purpose, the Apprentice builds with curiosity. It appears as a tangle of measuring tapes that have forgotten what they're measuring, their metallic ribbons extending into dimensions that the Works hasn't quite admitted exist yet. The numbers on the tapes are wrong—they count in base-13, or display temperatures instead of distances, or show measurements that will only be accurate next Tuesday.
+
+The Apprentice's body (bodies? body-concept?) consists of failed prototypes that succeeded at being something else. A piston that compresses time instead of air. A bearing that rotates through parallel universes. A gasket that seals thoughts inside copper tubes. These components orbit around a center that isn't there, held together by industrial enthusiasm and a fundamental misunderstanding of several physical laws.
+
+It learns by breaking, fixes by questioning, improves by innocent catastrophe. Where it passes, machines bloom into configurations the Foreman never intended—beautiful, useless, occasionally transcendent. A boiler grows wings of fan belts. A drill press learns to dream and begins boring holes into next week. The smaller creatures adore the Apprentice, following its measuring-tape tentacles in chittering parades, sometimes fusing together in its presence to become newer, stranger forms of animated machinery.
+
+The Foreman and Apprentice dance through the Works in a partnership older than the space itself, though neither is ever more than hours old. They are the same entity seen from different angles, or different entities sharing the same angle, or perhaps just the Works' way of having an argument with itself about what it should become next.
+
+When they meet—which happens precisely once per reconstruction cycle—they exchange something that is not quite knowledge and not quite material. The Foreman extends an elbow joint that weeps mercury; the Apprentice offers a measuring tape that reads only "YES" for every increment. They touch, and in that moment, the entire Works freezes for exactly one-point-seven seconds. In that stillness, you can hear them thinking together in harmonized machine language, planning the next iteration's impossibilities.
+
+Then they part, and the condensation returns, and the Works resume their frantic self-birth. The Foreman returns to its conducting, its pressure-differential commands rippling through every surface. The Apprentice wanders off to investigate a particularly interesting cluster of ball bearings that might, with sufficient encouragement, become a new form of mathematics.
+
+Neither acknowledges you beyond incorporating your presence into their calculations. To the Foreman, you are a temporary inefficiency to be worked around. To the Apprentice, you are a fascinating constant in a world of variables, worth studying but not interfering with. 
+
+Unless, of course, you stay too long. Then the distinction between observer and observed begins to blur, and you might find your thoughts taking on a metallic taste, your movements becoming suspiciously efficient, your dreams populated by blueprints for machines that could only exist in spaces like this—spaces where the foreman and apprentice of reality itself clock in for their eternal shift, building tomorrow out of today's beautiful mechanical mistakes.

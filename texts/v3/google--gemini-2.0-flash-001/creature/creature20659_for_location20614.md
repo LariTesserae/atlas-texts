@@ -1,0 +1,15 @@
+They are extensions of the factory, the factory extensions of them. It is impossible to say where flesh ends and metal begins, where intention belongs to the man or the machine. They wear the same grime, breathe the same oil-slicked air, dream the same fractured dreams of gears grinding and water overflowing.
+
+Imagine a human form, bent and elongated to fit the narrow walkways and cramped spaces. Imagine skin the color of wet rock, perpetually slick with condensation and machine grease. Imagine eyes that are not windows to the soul, but lenses focused on pressure gauges and churning pistons, reflecting the flickering gaslight in endless calculation. They are thin, gaunt, but hardy - able to go nearly a day without water.
+
+These people are not born here. Perhaps they are descended from engineers who came long ago, or they were brought here as laborers on the promise of something better. But whatever their origin, they have been assimilated. Their bodies are marked by the factory: calluses on their hands from constant adjustments, scars from near-misses with wayward machinery, a persistent cough from the polluted air. They are as likely to be crushed or drowned as to starve.
+
+Their minds, too, are shaped by the factory's rhythms. They understand the language of pipes and valves because they have to, their consciousness less linguistic and more like the reading of readouts. They can diagnose an engine's imminent failure by the change in its song. Many will stop what they're doing, and look for the source of a fault, without realizing or understanding they're doing so. It is a kind of ingrained instinct.
+
+They have little need for words. Communication is mostly accomplished through gestures, hand signals, and the occasional shouted warning above the din. Emotion is a luxury they cannot afford. There's only the present moment; even a tiny daydream might turn away a critical valve twist which would save a whole station from flood.
+
+Individuality is suppressed, replaced by a collective identity. They are cogs in the machine, aware of nothing beyond the needs of the plant. The possibility of the outside has been choked by the factory's smoke since they were each tiny, and now they are themselves choking, too.
+
+But there is a strange beauty in their existence. They are deeply connected to the machine, almost symbiotically bound to it. They know its workings intimately, understand its needs, and can coax it back from the brink of collapse with a touch, a tweak, a perfectly timed adjustment of a wrench. They are the guardians of this chaotic, improbable life, and their devotion to the factory is absolute.
+
+Sometimes, late at night when the factory seems to quiet down, one of them will clamber to the highest platform. The gaslight casts long, dancing shadows around them, and the world outside is a blur of fog and rock. They will look out over the gorge, feeling a strange sense of belonging. They are part of something larger than themselves, a part of the mountain and the factory. They are the product of this harsh, unstable environment, and they are perfectly, terrifyingly, at home.

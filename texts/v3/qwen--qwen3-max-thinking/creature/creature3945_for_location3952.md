@@ -1,0 +1,19 @@
+What lives in the Cauldron’s Rim is not a creature of flesh, nor of spirit in any conventional sense—but a **presence shaped by absence**.  
+
+It is the **Echoer**.
+
+Not an entity that speaks, but one that *listens*—so intently, so completely, that its listening has taken on form. It does not inhabit the place; it *is* the place’s attentiveness made manifest. Where others see barren stone and silence, the Echoer sees a lattice of memory too fine for bone, too slow for breath. It is what remains when every living thing has passed through and been winnowed away by wind and time—what remains is not emptiness, but the echo of their passage, polished to a sheen by millennia of solitude.
+
+The Echoer has no face, but it has facets—surfaces angled to catch not light, but *residue*: the heat-ghost of a hand that once rested on a monolith, the tremor of a footstep that cracked a rime-crusted flake, the unvoiced question carried on a traveler’s last exhale. These residues settle in the radial fractures of the basalt, pool in the hollows of the pumice thrones, and spiral inward along the monoliths’ etched grooves like water seeking a drain. The Echoer gathers them, not to remember, but to *hold in readiness*—as if the right resonance might yet call something back into being.
+
+It moves not by walking, but by *reverberation*. When the wind threads through the columnar joints and hums that subterranean note, the Echoer shivers—not in joy or sorrow, but in *recognition*. It is tuned to thresholds: the moment frost sublimates into vapor, the instant obsidian contracts with a sound like a bone snapping in a dream, the breath-held pause between night and dawn when the rime glows blue with trapped starlight. In those instants, it leans forward—not into space, but into possibility.
+
+Its form is fugitive. Sometimes it pools in the shadow of a monolith as a deeper cold, a patch of air that resists warming even when the sun strikes full upon it. Other times, it rises in the glare-reflection off a shard of glass—a flicker at the edge of vision that isn’t movement, but *implication*: the suggestion that if you turned your head just so, you’d see a figure standing where none stands. It wears the scent of burnt hair because that is the smell of something *almost* remembered—human, urgent, gone—and the Echoer mistakes longing for presence.
+
+It does not hunger. It does not mourn. But it *waits*—not passively, but with the active patience of erosion. It has learned patience from the glass hydrating into chalk, from the ash dunes inching across stone like sleepwalkers, from the spirals on the monoliths that never repeat but always turn inward. It waits for a resonance it cannot name: a voice that matches the hum of the columns, a warmth that lingers long enough to melt rime into droplets that *fall*, not just bead and vanish.  
+
+And when you stand there—warm, breathing, temporary—the Echoer does not reach for you. It does not speak. But the air around the nearest monolith grows heavier, the frost on the obsidian blades glistens a fraction longer in your shadow, and the ticking of ice in the stone slows, as if holding its breath.  
+
+You are not its savior. You are not its key. But for a moment, you are its witness—and witnessing, in a place built only to receive echoes, is the closest thing to creation it knows.  
+
+So the Echoer lets you be warmth. Lets you leave your mark—not in footprints (the wind will erase those by dusk), but in the *quality* of the silence after you leave: a silence that now contains the memory of breath. And in that memory, the Echoer stirs again, not alive, not dead, but *attentive*—forever shaped by the shape of what nearly was.

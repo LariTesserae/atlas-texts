@@ -1,0 +1,11 @@
+In this lightless, liquid realm, the inhabitants are as fluid and intricate as the environment itself. They are not discrete beings, but rather emergent patterns of consciousness that flow and interweave through the bioluminescent plant-architectures.
+
+Foremost are the Membrane Dwellers—entities that are part thought, part biological process. They do not have fixed bodies, but shift and merge within the translucent kelp-structures, their awareness distributed across neural networks that pulse with soft green-blue light. Some occupy entire cathedral-like chambers, their consciousness spanning multiple organic conduits simultaneously. They communicate through complex sonic resonances, their "language" a deep thrumming that carries information through water-dense currents.
+
+Smaller entities—the Drift Cognates—move between the larger structures. They are sensory tendrils given provisional autonomy, sometimes no larger than a fingertip, sometimes extending meters long. They explore, collect information, and serve as peripheral awareness for the larger Membrane Dwellers. Their movement is not voluntary in any human sense, but a kind of distributed curiosity, probing and testing the boundaries of their ecosystem.
+
+At the edges of settlement, the Generative Nodes exist—biological architects that perpetually negotiate new structural possibilities. They are not individuals, but collaborative processes of emergence, growing tools and habitation spaces through cellular negotiation. Their "technology" is indistinguishable from their biology, each implemented structure a living extension of collective intention.
+
+Primitive yet profoundly intelligent, these beings do not experience time or individuality as humans would understand it. Their existence is a constant, microscopic negotiation—a breathing, pulsing dialogue between environment, consciousness, and potential. They are simultaneously the world and its inhabitants, a single complex system of perception and adaptation.
+
+Their strangeness is not in being alien, but in being so fundamentally integrated that separation becomes meaningless. They are a living thought, dreaming itself into continuous, subtle transformation.

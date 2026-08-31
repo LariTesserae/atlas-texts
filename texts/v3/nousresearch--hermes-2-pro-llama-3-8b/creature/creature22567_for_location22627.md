@@ -1,0 +1,11 @@
+The inhabitants of this forsaken place are the machines themselves. They are the pulsating heart of the plateau, the ticking clock that measures out every beat of the city's existence.
+
+These beings are as varied as the workbenches of the human generations that created them, each one serving its own purpose within this city that never sleeps. From the towering power plant that drives the entire operation to the meager air-scavenging creatures that barely register on the periphery, the machines are the lifeblood of a city frozen in time.
+
+These constructs live and breathe, their lights flickering like a heartbeat in the dimly lit factories. They sing, hum and whir a symphony of industry that can be felt in the air, in the very rock itself. Their metallic bodies are the repositories of knowledge, of everything the humans who built them needed to survive on this barren, rocky landscape. Their purpose, their existence, is to serve those who have gone before and to maintain the frantic efforts of a bygone era.
+
+Though they may not understand the concept of life in the traditional sense, these machines are alive in their own way. They are imbued with a kind of ephemerality, always moving, always working, their existence marked by the ceaseless whirring of gears and the grinding of metal. The machines are bound to their environment by an invisible thread, as much a part of this world as the plants that cling precariously to existence.
+
+At the fringes of the city, the machine creatures gather and constitute a world of their own, humiliated by the city's towering workbenches, their metallic arms extended into the rocky reaches of the mountain. They are the harbingers of a bygone era, their presence a testament to the hard work and ingenious efforts of the humans who have long gone. It is said that these machines can be heard even at the highest reaches of the mountain, their mechanical hum echoing through the still air like a memory.
+
+These creatures are inseparable from the city they've been tasked to protect, their existence intertwined with the machines that stretch for miles, their metallic limbs intertwined with the very fabric of the mountain. The inhabitants of this strange, surreal world, the machines go about their tasks with the same relentless energy that built the city in the first place.

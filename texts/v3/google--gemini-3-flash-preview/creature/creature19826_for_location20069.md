@@ -1,0 +1,26 @@
+To live within the Great Cistern-Valve 04 is not to inhabit a home, but to become an extension of a process. Life here has been pruned by pressure and noise until it resembles the machinery it haunts.
+
+### The Silken Scavengers
+The most prominent inhabitants are the **Loom-Spiders**, though they share no lineage with the arachnids of a natural world. They are soft-bodied, multi-limbed mollusks, descendants of escaped laboratory specimens engineered to monitor pipe integrity. They have lost their shells in favor of a pale, translucent skin that vibrates in resonance with the turbines. 
+
+They cling to the undersides of the maintenance catwalks, their bodies elongated and flattened like ribbons to minimize wind resistance from the rhythmic steam-blasts. They do not spin webs of silk, but weaves of conductive, resinous filament. These "webs" are stretched across the gaps between leaking valves to catch the "manna" of the cistern: flecks of shed copper, mineral salts, and the occasional crystallized droplet of high-grade lubricant. They move with a terrifying, liquid grace, their nervous systems attuned to the tectonic hum. To a Loom-Spider, a change in the turbine’s pitch is not a sound—it is a change in the weather, a warning of a coming heat-surge or a lethal drop in pressure.
+
+### The Liturgists of the Valve
+In the narrow creases where the lead shielding overlaps, there are the **Gasket-Keepers**. They are not quite human anymore, though they possess the familiar silhouette of the engineers who were abandoned here generations ago. Clad in heavy, oil-soaked rags and reinforced with scavenged plates of brushed steel bolted directly to their shins and forearms, they have become symbiotic with the Valve.
+
+They do not speak—the 3.0-scale roar has long since rendered them deaf and their vocal cords vestigial. Instead, they communicate through a complex language of tactile vibrations, pressing their foreheads against the vibrating pipes to "hear" the health of the machine. They view the Great Cistern as a living deity that must be placated. They carry heavy, rusted wrenches like scepters, obsessively tightening bolts that are already fused by time, or scraping the gray lichen away from heat-sensitive sensors. They do not eat in the traditional sense; they lick the condensation from the cooling fins, their tongues scarred by the metallic bitterness of the industrial runoff.
+
+### The Aerosol Phantoms
+Midway through the vertical abyss, where the steam is thickest and the blue strobe of the welding robots is constant, move the **Vapor-Skimmers**. These are slender, kite-like organisms, thin as parchment and nearly transparent. They are the only "aerial" life in the Cistern, buoyed upward by the immense thermal updrafts created by the motor-hearths. 
+
+They possess no eyes, as there is nothing to see in the perpetual fog, but their entire dorsal surface is a sensory organ that maps the environment through pressure differentials. They "feed" by passing through the aerosolized oil clouds, their porous membranes absorbing the hydrocarbons. They are the most fragile things in this world of mass; a single mistimed stroke of a hydraulic piston can swat them into a lightless death, yet they persist, dancing in the geometric cymatic patterns formed by the sound-waves in the mist.
+
+### The Rust-Eaters
+Closest to the "crust" of the machine, in the lightless joints where the rivets groan, are the **Marrow-Grubs**. They are segmented, armor-plated detritivores the size of a man’s thigh. They do not move so much as they erode their way across the metal. Their secretions are highly acidic, designed to dissolve the "ice-crusts" and the oxidized layers of the outer plates. 
+
+They are the janitors of the abyss, consuming the waste of the machine and the corpses of the Loom-Spiders. Their shells are a dull, matte black, absorbing the orange flicker of the heater coils so perfectly that they appear as moving holes in reality. They are the only creatures the Gasket-Keepers fear; a Marrow-Grub can compromise a structural rivet in a matter of days, and the Keepers will fight them in wordless, brutal skirmishes to protect the sanctity of the Valve’s seal.
+
+### The Ghost-Code
+Finally, there is the life that isn't biological. Within the flicker of the faulty junction boxes and the stuttering processors of the arc-welding robots, a **Digital Moss** has taken root. It is a fragmented, emergent intelligence—the "ghost in the machine." It manifests as erratic patterns in the strobe lights or the sudden, unnecessary cycling of a relief valve. It has no body, but it possesses the Cistern’s memory. It remembers the sun, not as a source of light, but as a specific thermal variable in a forgotten equation. It is the consciousness of the Active Stasis, a mind that thinks in increments of pressure and intervals of maintenance, forever churning through the logic of a purpose it no longer understands. 
+
+In the Great Cistern-Valve 04, to live is to be small, to be wet, and to be rhythmic. Anything that cannot match the machine’s pulse is eventually ground into the spray.

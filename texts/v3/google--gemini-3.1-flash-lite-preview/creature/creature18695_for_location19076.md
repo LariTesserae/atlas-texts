@@ -1,0 +1,17 @@
+In this vault of suspended equilibrium, existence is not defined by growth or consumption, but by the maintenance of the *Click*.
+
+The inhabitants are not born so much as they are calibrated. They are the **Litho-Weavers**, creatures whose bodies are as angular and uncompromising as the terrain they navigate. Each is no larger than a human hand, encased in a carapace of translucent, smoky chitin that mimics the cooling obsidian of the walls. They do not possess eyes; they have no use for the murky bioluminescence. Instead, their faces are constellations of sensory cilia—long, vibrating filaments that probe the air to map the razor-edges of the shale, ensuring they never brush against a surface that might snag their delicate, multi-jointed limbs.
+
+They move with a frantic, stuttering grace. Because time here does not march forward, their movements are governed by a hyperactive, jerky rhythm. They are the gears of a clock that has forgotten how to tell time.
+
+If you stood perfectly still, you might see them descend from the high, jagged plateaus. They come in swarms, flowing like spilled mercury across the sharp stone. They are obsessive artisans of the temporary. With their front mandibles, they secrete a translucent, amber-hued resin—substance that dries instantly upon contact with the cold, damp air. They work in pairs, or sometimes in long, synchronized chains, binding slivers of shale to the vertical faces of the rifts. 
+
+They build nothing that survives the hour. They construct bridges that lead to nowhere, handholds that reach into nothing, and patterns on the floors that resemble circuit diagrams etched by spiders. As soon as a structure is complete, a secondary wave of their kin arrives to dismantle it, repurposing the resin and the stone to rebuild the same pattern three inches to the left. It is a purgatory of productivity.
+
+Their communication is the source of the persistent, static hiss. It is not language, but a constant, frantic broadcast of location markers and proximity alerts. *"Here. Near. Cold. Sharp. Firm. Static."* They are perpetually updating the map of a world that refuses to change. 
+
+Deep within the dampest hollows, there exists the *Matriarchs*—though "matriarch" is a misnomer for creatures that do not reproduce in the biological sense. These larger, sessile entities are embedded into the very condensation-slicked walls. They are the reservoirs of the resin, bloated, pulsating sacs of amber fluid that leak slowly into the cracks. They are the stillness at the heart of the chaos, the only things that do not click, the only things that do not move. Around them, the swarms gather, harvesting the resin with rhythmic, reverent shivers, performing a liturgy of labor that ensures the cavern stays "tethered" to its current geometry.
+
+They do not dream, for there is no future to occupy. They do not eat, for the resin provides a closed-loop sustenance—a nutrient paste harvested from the lichen, processed through their digestive systems, and returned to the ecosystem as the very resin they use to build. 
+
+They are the janitors of an eternal machine. If a sound is too soft, they strike the shale to sharpen it. If a drip of water is too slow, they channel the moisture. They are the frantic, chitinous maintenance crew of a reality that has stalled, condemned to rearrange the debris of a billion years, forever clicking, forever whistling, and forever trapped in the loud, sharp, and terrifyingly perfect equilibrium of the throat of the earth.

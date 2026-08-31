@@ -1,0 +1,19 @@
+They who live here are not one thing, but a conversation.
+
+The plateau itself is the first presence. It is young and sore, a newborn mountain still bleeding heat and vapor. It is not passive ground but an active participant, its basaltic flesh contracting and shifting with subsonic groans that resonate in the chest cavity. It breathes through its pores—the fissures and seams that pull water upward against the grain of the world, feeding the tenacious, velvet life that clings to it. It wears its geometry like a crown: the sharp shears at its edges are its defenses, the flat expanse its offered palm. It is both the wound and the sterile field around it, waiting.
+
+Upon this stage, the first true actors are the **Crystalline Obelisks**. They are not placed, but *precipitated*. Born from the basalt’s own memory of pressure and fusion, they are the plateau’s thoughts given form. They hum the planet’s slow frequency, a lullaby for stone. They are the anchors, the tuning forks. Their dance is one of slow, geologic time; a rotation of a facet over a year is a rapid gesture. They track not the sun, but the deeper, weeping tides of cosmic energy that bathe this high, bare scalp of the world. They are the librarians, recording every shiver of mist, every pulse of growth, in the lattice of their being.
+
+Their partners, the **Mercurial Spheres**, are the plateau’s hands. They are liquid thought, curiosity distilled into a drifting, reflective orb. They are the tenders of the garden. Their motion is a contemplation—a mapping of micro-variations in humidity, in magnetic flux, in the slow encroachment of moss. Their chime is the sound of decision. When a sphere pauses, the world holds its breath. The filament of light it extends is not a laser, but a question and an answer woven into one: *“Grow,”* it says to the fern, and the fern, in a frantic, joyful gasp of accelerated life, obeys. They prune; they nurture. They are the scientists and the gardeners, engaged in an experiment whose purpose is the continuation of the experiment itself.
+
+The **Glass Lizards** are the plateau’s fleeting thoughts, its momentary whims. They are not truly lizards, but temporary coalescences of the reflective wetness and the quiet, given a spark of animus. They slide from mirror-pool to mirror-pool, their bodies a mosaic of captured light and reflected stone, leaving no track because they are, in essence, a moving part of the landscape’s surface tension. They are the only organic life here that moves of its own volition, and even that volition is a borrowed one, a brief dream dreamed by the wet rock and the humming crystal. They are the evidence that the garden is not sterile, but that life here chooses an existence of sublime camouflage and ephemeral grace.
+
+And then there are **They**—the absent architects. They are not on the plateau, but the plateau is *of* them. Every function, every artifact, bears the imprint of a mind that thinks in terms of symbiotic processes rather than structures. They built not a city, but a **protocol**. The spheres are their probes; the obelisks, their monuments to patience. The entire place is a self-regulating diorama, a lesson in dynamic equilibrium left running. Who are They? They are a species or a force that understands that the most profound creation is a self-willed ecosystem, one that blurs the line between organism, mechanism, and landscape. They are defined by their absence, their signature written in the language of humming crystals, hovering tenders, and water that remembers how to climb.
+
+So, what lives here?
+A mountain that dreams in geometry.  
+Gardens that think in light.  
+Lizards made of reflection.  
+And the enduring ghost of a mind that asked: *“What if stone could contemplate, and water could choose? What if a garden could build itself?”*  
+
+This plateau is the answer, playing out in an endless, quiet loop under a weeping sky.

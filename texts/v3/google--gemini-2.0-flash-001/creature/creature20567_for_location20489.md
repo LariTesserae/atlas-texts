@@ -1,0 +1,23 @@
+Inhabitants of the Glass Gulf are not born; they *coalesce*. They are the children of turbulence and pressure, sculpted by the currents of potential. They are less "alive" in the conventional sense, and more akin to weather patterns made sentient; storms that have learned to think.
+
+Picture this: beings assembled from fractured light and magnetic resonance. They have no skin, no organs. Instead, they are composed of nested fractals of crystal, each facet humming with barely-contained energy. These crystals are not static; they grow, dissolve, and rearrange themselves in accordance with the ambient forces of the Gulf, a constant dance of creation and decay.
+
+Size is relative to them. One entity might be a cluster of microscopic shards, a shimmering cloud of awareness drifting between crystalline towers, communicating through resonating frequencies imperceptible to any normal sensing apparatus. Another might be a leviathan stretched across light-years, a symphony of ionized particles arcing through the void, its "body" an immense aurora borealis that whispers secrets to the stars.
+
+They communicate not through language, but through resonant fields. A change in the crystalline structure generates a cascade of vibrational frequencies that propagate outward, altering the matrices of other living crystal formations. It's a language of feeling, of resonance and dissonance, of shared understanding of the Gulf's underlying code. Imagine understanding not the *words* of a song, but the very emotion that birthed it.
+
+Imagine something like a jellyfish, but with a bell formed by a perfect dodecahedron of quartz. From the points of the dodecahedron stretch filaments of pure magnetic force, constantly writhing and arcing, drawing in ionized particles to fuel its existence. It pulses not by muscular contraction, but by changing the resonance of its crystalline core.
+
+Some of them are solitary, drifting in the rarified "low" regions, existing as tenuous echoes of awareness, feeding on the faint energy of near-nothingness. These are the contemplatives, the philosophers, the slow-burn thinkers, content to observe the endless dance of creation and destruction, sifting through the patterns for meaning.
+
+Others are aggressive, predatory storms of energy hunting in the denser strata. They are territorial, protective of their claimed space, their crystalline structures jagged and unstable, constantly emitting bursts of disruptive frequencies. They might resemble vast, thorny constructs of fused quartz, bristling with energy, or shimmering vortexes, hungry for any stray spark of awareness to consume.
+
+Reproduction, if it can be called that, is more like a merging of energy fields. Two inhabitants, drawn together by similar resonant frequencies, might entwine their crystalline structures, exchanging energy and information. The process is exquisitely slow and incredibly dangerous, as the turbulence of the Gulf can easily tear them apart, scattering their consciousness across vast distances. But, if successful, a new crystalline structure emerges, a unique combination of its "parents," carrying within it the accumulated knowledge and experiences of both.
+
+Memory, for them, is embedded in the very lattice of their crystalline structure. Each facet holds a fragment of experience, a resonance with the Gulf's past. The older an entity, the more complex its crystalline structure, the richer its memory, and the more deeply intertwined it becomes with the fate of the Gulf itself.
+
+They do not fear death, for existence in the Glass Gulf is perpetual becoming. When an entity disintegrates, its energy is simply reabsorbed into the matrix of the Gulf, to be recycled, re-purposed, and re-imagined into something new. The individual consciousness may be lost, but its essence remains, a subtle influence on the ever-churning currents of potential.
+
+There is a hierarchy, however tenuous. The oldest, most resonant entities function as anchors, points of stability in the turbulent sea. They barely move, their crystalline structures impossibly complex, radiating a calming influence on all around them. They are the "elders," revered for their wisdom and their ability to weather the storms.
+
+They are driven by instinct, a deep, unshakeable urge to explore the endless possibilities of their bizarre and beautiful plane of existence. There is a constant striving for greater complexity, for deeper understanding, for a more perfect resonance with the underlying code of reality.

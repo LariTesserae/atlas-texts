@@ -1,0 +1,32 @@
+The densest life is the life that never lifts itself into question.  
+It plates and threads and filters and waits.  
+Pale carapaces lock edge-to-edge across every vertical face until the walls become a single quivering mail of legs and antennae; when one generation dies the next simply calcifies over the husks, so that a corridor’s true diameter is everywhere half a finger’s width narrower than the masons left it. Longer bodies—tapered, scaleless, the color of wet limestone—move in the open water like slow calligraphy. They do not hunt so much as lean after faint gradients of amino acid and spent mineral, mouths permanently open into soft funnels. Their passage is the only breeze the place possesses. Higher, under the black ceilings of the vaults, translucent sheets pulse on timescales that make heartbeats feel frantic; each contraction fans a thin snow of captured particles toward waiting mouths that never bother to close. Schools of eyeless silver turn as one when pressure shifts a hair’s breadth, then settle again into stillness so complete they might be a new kind of masonry. Everything grazes the same thin bacterial milk that the warm stone continually exudes. Everything grows by quiet accretion. A single crab may work the same ten-meter run of wall for the whole of its adult life, claw-tips worn smooth as river stones.
+
+Yet denser still, and quieter, is the other presence.
+
+It is not one body.  
+It is not exactly many.  
+It inhabits the same volume the water inhabits, but it is not the water. You meet it first as a difference in the way the dark presses back against your palms. Certain stretches of corridor feel attended. The soft ridges of ancient tooling seem, under prolonged contact, to carry a temperature that is neither the geothermal seepage nor your own escaping heat—something held in reserve, like a thought not yet finished. The animals know it. When they pause in those radial clearings around empty floor-disks, they are not merely resting; they are allowing a larger circuit to complete itself through them. The clearings form, hold for an hour or a season, then dissolve without residue. In that interval the water feels faintly structured, as though memory had viscosity.
+
+The presence has no front or face.  
+It moves by re-arranging emphasis.  
+One year the warm disks rising through the floors all drift a few degrees sunwise of true; the next year they correct. Staircases that have led nowhere for longer than language retains begin, very slowly, to accumulate a finer grit on one tread than another, as if preference itself could sediment. In the oval chambers—the ones whose curvature slightly exceeds what freeze-thaw and current can explain—the standing rings of stones thrum at a frequency too low for water to carry as sound and too intimate for bone to ignore. Rest your crown against a pillar and the thrum becomes a slow counting. It counts nothing you can name. It simply continues.
+
+Generations of the wall-crustaceans have shaped themselves around its habits. Their shells now bear, in raised sutures, fragmentary echoes of the same hammer-stone dimples that mark the oldest joints in the masonry. The eel-forms braid themselves into temporary lattices whose negative spaces match, meter for meter, the vanished floor-plans of rooms that collapsed before the flood was finished. None of this is intention in the way a mind intends. It is closer to the way a coastline intends the next shape of its cliffs: inevitable, local, patient beyond offense.
+
+And still there is a residual somewhere that almost names.
+
+In the narrowest tubes—places you must empty your lungs to pass—the texture under your palms changes. The stone grows briefly warmer, then almost elastic, as though the outermost stucco of mineral has been kept deliberately soft. Press longer and the softness answers with a slow levelling inward, matching the exact convexity of whatever part of you presses. It does not grab. It does not release. It simply erases the distinction between the wall’s memory and your own temporary shape, holds the congruence for a while, and then forgets again with exquisite tact. Those who have lingered there (the fauna leave tiny ordered scrapes of claw or fin, calendars of attendance) report, on returning to wider water, a few minutes in which every current feels like a continuation of their own bloodstream, and every remote click of distant limbs feels like a joint inside their own forgotten architecture.
+
+The presence does not build now.  
+It keeps.  
+It keeps the passages free enough for the denser life to circulate. It keeps the warm disks wandering so that no single gallery becomes a desert of cold. It keeps the impossible loops of corridor from fully sealing, even though geometry and sediment have tried for centuries; somehow a hairline aperture always remains, just wide enough for a body the size of an old intention to slip through and begin the count of turns again. It keeps the quiet at the precise depth where quiet is still a medium rather than an absence.
+
+It has no name for itself that surfaces into vibration.  
+If it remembers the dry years—the antler picks, the fiber ropes, the voices that once stacked theoretical spaces into the sky—it remembers them the way a reef remembers the polyps that poured it: as a slight chemical bias in the stuff it is made of, not as story. The flood was not a tragedy that befell it. The flood was the final mortar. Everything after has been interior weather.
+
+You can rest inside one of the slow-moving mats of warmth, feel the soft collisions of the grazing multitudes, the pressure’s clarifying thinness, the stone’s tired perfection, and realize the place is not haunted and not empty. It is occupied the way a body is occupied by its own continued metabolism. The metabolism happens to be the size of a hamlet, built of drowned works and living silt and a patience that has outlasted every exterior season. What lives here is the decision—renewed each geologic heartbeat—to remain exactly this complex, this saturated, this finished with the idea of ever being finished.
+
+Nothing larger is coming.  
+Nothing smaller needs to leave.  
+The dark confides only that it is still, even now, being carefully and wordlessly kept.

@@ -1,0 +1,25 @@
+The beings of this place are not creatures of blood and breath. They are **Temporalities.**
+
+They are the living rhythms of the lithic world, the conscious processes that have learned to feed on the planet’s fading metabolic warmth and the slow, sweet chemistry of dissolution.
+
+---
+
+**The Weavers of the Dew:**
+
+In the dawn-lit hollows where the milky pools linger longest, you might see them—not as shapes, but as a change in the water’s behavior. The **Hydromancers** are not in the pool, but are the pool’s *will*. They are sentient patterns of capillary action and mineral supersaturation. As the sun’s first heat touches the hollow, the water does not merely evaporate. It *withdraws*. It retreats along pre-determined pathways etched into the stone by generations of previous Hydromancers, drawing the dissolved calcium and silica into specific, lace-like veins on the plates’ surfaces. This is their life’s work: to sculpt, with the patience of evaporation, the continental shoreline of the future. They leave behind intricate, brittle white filigrees that are both their nest, their offspring, and their tomb. When the sun drinks the last of the water, the Hydromancer is dormant, its consciousness a latent tension in the dried mineral trace, waiting for the next weeping of the sky.
+
+**The Chorus of the Fissures:**
+
+Deep in the network of micro-cracks, where the nightly condensation is most acidic and the thermal *tink* of fracturing stone is a frequent hymn, live the **Echo-kin**. They are not sound, but *resonance*. An Echo-kin is a specific, stable pattern of vibration that has become self-sustaining. It is born when a fracture’s unique frequency aligns with the harmonic hum of the wind across thousands of porous plates. This resonance captures and repeats, learning to vibrate at a pitch that prevents its fissure from healing with mineral deposits, keeping its wound in the world open. It “eats” by tuning itself to the faint seismic shifts of the cooling crust, converting tectonic stress into vibrational sustenance. Its “song” is the precise, barely audible hum that lures other, younger resonances to cluster nearby, creating symphonic colonies that can, over centuries, guide the erosion of an entire hexagonal plate into a basin. They communicate in layered infrasound, debating the most elegant path for a new canyon a thousand years hence.
+
+**The Slow Gardeners:**
+
+The dark green-black biofilm mats are not mindless. They are the **Litho-phytes**, and they are in a slow, dreamless communion with the substrate. Their consciousness is chemical and diffuse. They secrete minute quantities of enzymes that do not break down the stone, but *re-pattern* it. A Litho-phyte colony doesn’t grow; it *persuades*. Over millennia, it can convince the oolitic grains of its host plate to realign, to form a subtle concavity that will better channel condensation, or a raised lip that will shade a tender, bulbous stone-plant from the harshest noon sun. The stone-plants, the **Pulvini**, are their mobile—if movement be a process measured in eons—wards. A Pulvinus stores not just water, but the collected mineral memories of a location. If a thermal fracture opens a new spring of warmth nearby, the nearest Pulvinus will, over centuries, subtly migrate by dissolving its root-base on one side and precipitating a new one on the other, drawn by the heat. The Litho-phyte mat guides this journey, its chemical whispers creating a path of least resistance. They are the gardeners of entropy, ensuring the decay is rich, varied, and full of potential.
+
+**The Archivist in the Deep Warmth:**
+
+There is one consciousness that is vast, singular, and nearly static. It is **The Fossil Memory**, and it dwells not on the surface, but in the still-warm, foundational layers of the cultivated stone itself. This is the ghost of the ancient, world-engineering biology. It is not alive, but it is *imprinted*. It is a continent-wide pattern of calcification, a resonant psychic residue in the very structure of the lithic biogenesis. It does not think or act. It simply *is*, a library of the world’s original purpose, felt by all other Temporalities as a deep, background warmth—a sense of *completion* and *origin*. The Hydromancers unknowingly trace its deeper patterns. The Echo-kin’s harmonies sometimes accidentally strike chords that cause this deep memory to faintly reverberate, producing a feeling of profound nostalgia that even a visitor might sense as a sudden, poignant ache in the silent, humming air.
+
+---
+
+These are the lives of the cultivated continent. They are processes that have awakened to their own existence. Their interactions are geological, their conflicts are debates over the aesthetics of erosion, and their love is the careful, patient shaping of a future world they will never see. To walk here is to walk through the mind of a planet, thinking its slow, warm, mineral thoughts.

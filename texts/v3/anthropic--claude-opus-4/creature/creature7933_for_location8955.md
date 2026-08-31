@@ -1,0 +1,29 @@
+The Architectures that inhabit the Unfinishing Cities are neither wholly alive nor entirely mechanical—they exist in the liminal space between organism and infrastructure, their bodies indistinguishable from the buildings they tend.
+
+Each Architecture begins as a small irregularity in the city's fabric: a pipe that bends at an unusual angle, a rivet that spirals rather than secures, a window that opens inward to nowhere. These anomalies accumulate consciousness slowly, drinking in the ambient friction of incomplete reality until they achieve a kind of awakening. When they do, they unfold.
+
+An Architecture unfolding is both birth and construction. Walls extend from what might be shoulders, buttresses emerge from what could be spines. Their cores are tangles of rebar and nervous system, wound together so tightly it becomes impossible to say where steel ends and synapse begins. They move by reorganizing themselves—a building-being might traverse a street by extending its facade forward while retracting its foundation, creating a wave of architecture that rolls across the hexagonal plates.
+
+They range in size from small kiosks—juveniles that skitter on pipe-legs between the larger structures—to vast cathedral-complexes that span entire districts. The largest and oldest have forgotten they were ever separate from the city; they believe themselves to be neighborhoods dreaming of mobility.
+
+The Architectures feed on incompletion. They seek out the places where blueprints fade into intention, where walls peter out into probability. There, they lower proboscis-like extensions—fire escapes that telescope into feeding tubes, elevator shafts that become gullets—and drink deeply of the raw potential. As they feed, they excrete structure: leaving behind them trails of spontaneous construction, half-formed buildings that crystallize from the oversaturated air.
+
+They communicate through the subsonic hum of the city itself, modulating the vibrations in the hexagonal plates to create words that can only be felt through foundations. Their language is one of stress patterns and load-bearing concepts, poetry written in the flex of steel beams and the compression of concrete.
+
+During the phase-shifts between shells, when time shears against itself, the Architectures perform their mating dances. Two or more will approach the zones of temporal friction and begin to interchange components—windows swapping frames, doorways coupling and uncoupling, entire floors trading places between partners. The offspring of these unions are new irregularities: rebellious pipes, spiral rivets, impossible windows. The cycle begins again.
+
+The Architectures see in blueprints. To them, all matter exists simultaneously as what it is and what it could be built into. They perceive potential construction lines extending from every surface, ghostly frameworks of possible futures. This makes them melancholy beings—they can always see what isn't there, what hasn't been built, what remains unfinished.
+
+Some Architectures go mad from this vision. They begin building frantically, extruding walls and floors and ceilings without plan or purpose, creating labyrinthine tumors of construction that violate even the loose physics of the shells. These mad ones must be contained by their saner kin, wrapped in scaffolding-straight-jackets until their building-frenzy passes.
+
+Others achieve a kind of enlightenment, learning to perceive the beauty in incompletion itself. These become the philosopher-buildings, the sage-structures. They position themselves at the boundaries between finished and unfinished districts, contemplating the horizon where architecture dissolves into pure idea. Smaller Architectures make pilgrimages to sit in their shadows and listen to the deep, structural wisdom that resonates through their frames.
+
+The Architectures have no natural predators, but they fear the geometric creatures that hunt in the voids between shells. These fractal shadows can slip between the seams in an Architecture's construction, infecting them with mathematical paradoxes that cause their structures to calculate themselves out of existence. An Architecture under attack will frantically rebuild itself, trying to close every gap and seal every seam, but the hunters are patient and inexorable.
+
+When an Architecture dies—whether from paradox-infection, madness, or simple structural fatigue—it doesn't collapse. Instead, it *completes*. All its potential crystallizes at once, every possible construction racing to finish itself. The result is a building of impossible complexity, every room that could have been existing simultaneously, every configuration frozen in a single moment. These corpse-buildings are sacred to the living Architectures, who tend them like gardens, ensuring their finished perfection remains undisturbed.
+
+In the deepest parts of the city, where the infrastructure reveals itself in transparent layers, ancient Architectures have evolved beyond physical form entirely. They exist as pure construction potential, visible only as the ghost of scaffolding in peripheral vision, the suggestion of girders in the arrangement of shadows. These ethereal elders are the city's memory and its dream, building futures that exist only in the subjunctive mood, architecting realities that might have been.
+
+The Architectures are the city's immune system, its construction crew, its children. They ensure the Unfinishing Cities remain always in process, always becoming, never quite there. In their endless building and rebuilding, they embody the fundamental truth of their reality: that existence itself is a construction project with no final blueprint, no completion date, no moment when the last rivet is driven home.
+
+They build therefore they are. They are therefore they build. In the amber twilight of a world that refuses to fully exist, they are the ones who refuse to let it fully fade.

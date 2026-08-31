@@ -1,0 +1,71 @@
+At first they are difficult to distinguish from the city.
+
+A figure waiting beside a lift may be taken for a folded maintenance frame: a narrow arrangement of dark rods, ceramic plates, cable loops, and hooked feet. Then the lift cable trembles. The figure answers with three precise taps of one hand, unfolds itself, and steps onto the moving cage without waiting for it to stop.
+
+They call themselves, in the vibration-language used between districts, something like **those who keep purchase**. Spoken into the thin air, the name is only a dry sequence of clicks. Through stone it carries a second meaning: *the held fast*, *the continuing grip*, and *the ones not yet fallen*.
+
+They are tall when fully extended, but they seldom stand that way. Height has little advantage in a city without level ground. Most keep their bodies low and spread across the available surfaces, three or four points of contact maintained even while walking. They have six primary limbs arranged around a long, jointed trunk. Any pair may serve as arms or legs. A citizen climbing down toward the warm districts can reverse its posture at a landing and continue headfirst without appearing to have turned around.
+
+Their feet divide into fans of small gripping digits. Some end in mineral claws for bare rock. Others bear replaceable magnetic pads for bridges and machinery. Craftspeople often fit one or more feet with specialized tools: a cable comb, a current probe, a riveting spur, a spool of repair filament. These fittings are not considered amputations or prostheses. The distinction between a body part, a worn tool, and a useful animal attached by harness is of little importance to them.
+
+Their torsos are protected by overlapping plates, usually gray, black, cream, or the dark green of nickel salts. The plates are grown slowly from the body’s own mineral secretions, though they are cut, polished, engraved, and sometimes replaced after maturity. Underneath lies no soft flesh in the ordinary sense. Their living substance is a dense web of conductive fibers suspended in amber-black ionic gel. The gel does not evaporate readily and does not bleed when exposed. A wound leaks with the reluctance of cold grease, gathering metal dust around itself until it can be sealed.
+
+Their joints are the most vulnerable parts and therefore the most expressive. Rings of flexible filament encircle them, changing tension with mood. Alarm draws the limbs tight against the trunk. Concentration makes the small wrist rings flutter. Grief causes a characteristic loosening: the body settles closer to its supports, distributing weight as though expecting a greater load.
+
+There is no single obvious head. At the forward end of the trunk is a low wedge of sensory plates, but nearly as much perception occurs through the hands, feet, and belly. Their vision is good in narrow bands. Furnace heat appears to them as a thick orange architecture, electrical leakage as a branching haze, and fresh fracture surfaces as vivid stains that fade over hours. Fine details are read by touch. When two citizens meet, they may press forelimbs together and exchange minute pulses through their conductive skins. Names, recent movements, health, urgency, and social permission can all pass in that brief contact.
+
+They do possess eyes: clusters of black crystal facets recessed beneath sliding shutters. In dust storms the shutters close, and the inhabitants continue through the city by vibration, electric field, and memory. A stranger watching them cross a swaying bridge with their eyes sealed might think them fearless. They are not. They are simply looking with their feet.
+
+Breath enters through a line of valve slits along the trunk. The slits open one after another in a slow traveling sequence, drawing thin air across reactive membranes. They do not breathe continuously. While resting, many become motionless for several minutes, conserving charge and gas, then take one deep mechanical inhalation that slightly lifts every body plate. In crowded rooms the sequence becomes contagious. A whole assembly may breathe together, the walls receiving a soft, regular pressure like distant drilling.
+
+They eat infrequently. Their meals are compact cakes of reactive film, powdered shell, sulfur compounds, carbon salts, and carefully measured oils. Flavor is partly electrical. A desirable food produces a long, changing voltage across the mouth combs; a crude one merely warms the body. Dust-mites are eaten alive in some districts, crushed into paste in others, and protected by custom elsewhere. Deep-gallery hunters are prized for the charged organs running along their flanks. These are sliced into translucent wafers that remain faintly luminous for days.
+
+No vessel in their homes resembles a cup. Nothing is poured. Oils are carried in collapsible bladders and transferred through sealed couplings. Powders are pressed into rods or beads. A host offering refreshment presents a tray of pellets arranged by composition, temperature, and charge. Courtesy requires the guest to take from the least stable row first, relieving the host of the burden of preserving it.
+
+Their clothing is sparse but intricate. Mineral-fiber wraps protect the joints. Braided belts carry tools, identification plates, offspring, food pellets, and coils of personal cable. Long mantles would snag, so rank and affiliation are shown by short fringes that vibrate against the body. The resulting signals can be felt through a shared railing. In this way a procession announces itself before it appears: foundry workers with a dense, even buzz; lift tenders with descending rhythms; fracture surveyors with patterns that repeatedly break and resume.
+
+The oldest citizens wear bodies crowded with repair.
+
+Their plates bear incompatible colors from districts that no longer exist. Broken limbs have been replaced with articulated metal grown over by living filament. Some carry fragments of former homes riveted to their backs: a door staple, a child’s sleeping hook, part of a bridge cut apart during an old closure. Age does not make them slower so much as heavier with attachments. An elder entering a room may have to ask which portions of the floor can bear them.
+
+Their young begin as small, many-legged forms no larger than a fist. They are produced in warm brood chambers where parent-groups deposit woven bundles of conductive tissue around a seed of porous ceramic. Charge, nutrient oils, and trace gases circulate through the bundle for many months. Parenthood is shared by those who contribute material, those who regulate the chamber, and those who accept future load obligations for the emerging child.
+
+Newly opened young have soft, dull plates and an excessive number of gripping limbs. They swarm over their caretakers and household rails, tasting every voltage, tapping every surface, and repeatedly dropping objects to observe where they go. Nets beneath family chambers are correspondingly dense. Over the first years, some limbs fuse into stronger pairs while others remain as delicate manipulators. Their permanent plating grows in layers. Each layer records local chemistry, so an adult’s body contains a geological record of where it matured.
+
+Children learn danger first as rhythm. A rapid double pulse means release the rail. A long scrape means move toward the wall. Three impacts followed by silence mean do not cross, regardless of what can be seen. Before they can read maps, they are taught to recognize bearing beams by touch. Games consist of traversing rooms while specific supports are declared absent, or passing a weighted object among several players without allowing any one surface to take too much strain.
+
+They laugh by drumming their side plates with their smallest limbs. In air the sound is barely present. Through a bench it spreads quickly, and laughter often runs along a crowded platform among people who cannot see one another. Embarrassment is a sudden electrical dimming. Anger announces itself as heat at the limb joints. Intimacy is often practiced in silence, two or more bodies braced against the same beam, allowing private rhythms to mingle while the city moves around them.
+
+Much of their daily speech is transmitted through whatever they touch. There are air-clicks for emergencies and gestures for use across open gaps, but ordinary conversation passes through floors, handrails, cables, and walls. The language is layered. A speaker may send a quick practical message down a railing while maintaining a slower emotional undertone through the feet. Deliberate lies are therefore difficult in direct contact; the body’s involuntary tensions travel with the chosen words. Politics favors distance, intermediaries, and carefully insulated chambers.
+
+Public debates take place on suspended grids where each participant occupies a separate panel. Agreement is expressed by bringing panels into resonance. Opposition is damping: hands and feet spread to swallow a vibration before it can travel. A unanimous decision is not called a vote but a **shared bearing**, and laws are described as loads distributed among citizens.
+
+Their leaders are rarely commanders. The most respected officials are those who know where weight can go: structural adjudicators, migration planners, air stewards, cable archivists, brood guarantors, and keepers of the Salvage Dark. Authority is temporary and attached to a problem. When a district begins to close, control passes swiftly to whoever has the most accurate sense of the stone, even if that person is ordinarily a cage cleaner or animal tender.
+
+This does not make them harmonious. Access to stable cavities is fiercely contested. Old districts resent taking in migrants whose homes have been crushed. Foundries conceal productive ore skins. Lift guilds can isolate whole tiers by refusing service. Families feud over salvage rights for collapsed rooms, particularly when ancestral plates or brood ceramics are involved. Sabotage is regarded with special horror because a loosened clamp may kill someone several districts away and many days later.
+
+Their criminals are not imprisoned in fixed cells; fixed cells are too valuable and too unsafe. Instead, serious offenders may be denied access to public load paths. Their identifying fringe is cut, their magnetic pads marked, and they must travel only on designated outer routes. The punishment is not mere inconvenience. It separates them from the constant bodily speech of the city. Many describe it as becoming weightless while still alive.
+
+Art is made from controlled transmission.
+
+Musicians string tuned cables across cavities and excite them with charged beads. Listeners gather along the walls, feeling multiple patterns pass through their limbs. The finest works incorporate the mountain’s own movements, leaving pauses into which an unpredictable shudder may enter. A poor performance fights the stone. A great one seems to reveal that the stone has been participating from the beginning.
+
+Their sculpture is often kinetic and temporary: assemblies of balanced scraps that alter shape as the fissure narrows, or mosaics made from living electrochemical films coaxed into branching geometries. Portraits are not likenesses of faces. They are small grip-objects engraved with a person’s characteristic pulse. Held correctly, they reproduce the pressure pattern of that individual’s greeting.
+
+They have stories about the sky, though few have approached it.
+
+To most, the white slit above is not freedom but exposure: a direction with no wall to grip, no ceiling to brace against, and no dependable return of signals. Workers of the uppermost districts are thought eccentric. They wear reflective shells and anchor themselves with several independent cables. They know the passage of stars, the tug of summit winds, and the terrible spaciousness beyond the crack. When they descend, children gather to touch their plates and feel whether the emptiness has left a vibration there.
+
+Death comes when the ionic web can no longer maintain its gradients. The body cools, its electrical field collapses, and the gripping limbs gradually release. This last failure is anticipated with solemn practicality. The dying are secured in woven cradles so they cannot fall.
+
+Afterward, almost everything is recovered. Conductive tissues go to brood chambers. Gel is purified. Plates become tools, memorial objects, or structural shims. Personal modifications are distributed among kin and workmates. Only a small engraved piece is placed in a chosen wall, where it joins thousands of others. When the mountain shifts, these pieces tap faintly against the stone.
+
+The inhabitants say this is the dead continuing to report strain.
+
+Yet they are not wholly severe. They keep impractical animals whose shells shine pleasingly. They trade defective signal beads because the irregular sequences are amusing. They polish hidden sides of tools that no one else will see. They ornament emergency braces with tiny geometric marks. Lovers exchange matched fasteners and secretly install them in distant parts of the city, so that two neighborhoods remain joined by a connection known only to them.
+
+During a major closure, all of this individuality seems to vanish. Bodies pour from dwellings. Old disputes are suspended. Citizens link limb to limb across gaps, becoming living cables while bridges retract. Children are passed in brood slings. Animals are driven ahead in glittering streams. Every person feels the same warning through the rock and takes up whatever portion of the city’s weight arrives.
+
+Later, when the danger has passed, they separate again: workers, rivals, parents, thieves, officials, musicians, keepers of luminous pets. They recover their tools from their tethers. They revise their addresses. They tap jokes into the rails about the walls’ bad manners.
+
+And throughout the fissure, from the hidden roofs near the summit to the amber depths below, they maintain the act that defines them—not resisting change, exactly, and never expecting permanence, but catching one another in the interval between release and fall.

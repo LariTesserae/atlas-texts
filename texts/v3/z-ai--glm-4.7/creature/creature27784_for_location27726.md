@@ -1,0 +1,30 @@
+Here, in the suffocating dark where the air itself thickens into a physical weight, life does not merely exist; it infests. It is a biology of pressure and vibration, evolved not for the gentle caress of a sun, but for the crushing claustrophobia of the deep basin.
+
+**The Lithotrophic Leviathans**
+First, there are the movers of the earth, the great basin-scrapers. They are the primary architects of the din. Imagine a low, domed carapace the size of a pillaged wagon, formed from dense, gray chitin that has calcified over centuries of wear. Beneath this shield lies a creature of pure muscle and grinding mineral. They are the **Geophagi**.
+
+They possess no distinct head, only a frontal, soft underbelly that houses a maw resembling a complex, rotary grindstone. This orifice is lined with diamond-hard, replaceable ridges of biological enamel. They do not walk; they slide. Their movement is a slow, creeping avalanche, lubricated by the oily sheen of the stone. As they traverse the basin, their massive bodies emit a low, infrasonic thrum—the tectonic groan of shifting weight—that vibrates through the soles of your feet. They are blind, their eye-stalks having evolved into sensitive, fleshy paddles that taste the mineral content of the rock ahead. They leave behind trails of immaculately polished, gray dust—the waste of the stone they consume—and in their wake, the air smells of ozone and crushed granite.
+
+**The Sessile Citadels**
+Rising from the slick floor like the petrified remains of an ancient forest are the **Ossuary-Trees**. These are not plants, but vast, communal colonies of filter-feeders, stationary organisms that anchor themselves to the geothermal vents in the rock. They begin life as a microscopic spore landing on the stone, but over millennia, they build upward, secreting a calcium-rich tube that hardens into a towering, porous spire.
+
+A single mature Ossuary can stand thirty feet tall, its surface a jagged, crenellated mess of millions of individual breathing holes and feeding tubes. They are pale as bone, streaked with veins of rust where iron-rich water bleeds from the rock. They pulse with a faint, sickly bioluminescence—greenish flashes that travel in waves up the spire as the colony filters the humid air for drifting spores and microbial mats. They are the architecture of this place, providing the vertical geography. Their hollow interiors echo with the whistling of the windless air, adding a mournful, piping note to the basin’s roar.
+
+**The Scuttling Horizon**
+Between the grinding giants and the towering bone-trees flows the river of the swarm. These are the **Chitin-Tides**—multitudes of fast-moving, opportunistic scavengers and grazers.
+
+There are the **Mandible-Hounds**, crustacean-like creatures with flattened bodies and too many legs to count. They move sideways with terrifying speed, their armored shells clicking against the stone with a sound like falling dominoes. They possess oversized, serrated claws that are constantly snapping at the air, a nervous tic that serves as their echolocation, reading the chaos of the environment through the rebound of sound. They are the jackals of this world, darting in to feed on the sloughed skin of the Geophagi or the sickly falling from the Ossuary-Trees.
+
+Then there are the **Spring-Lancers**. Resembling grotesque, fleas the size of dogs, they have coiled hind legs of springy cartilage capable of launching them twenty feet into the air. They travel not by walking, but by ricocheting off the slick shells of the Geophagi and the hard surfaces of the Ossuary-Trees. They move in erratic, humming arcs, trailing streamers of phosphorescent mucus. They land with a wet slap, instantly securing themselves with hooked barbs before launching again. They are the sparks in the dark, living projectiles that feed on the bacterial films growing in the crevices of the rock.
+
+**The Resonance Weavers**
+High above the ground, clinging to the upper branches of the Ossuary-Trees, are the apex predators: the **Resonance Weavers**. They are spindly horrors, appearing as bundles of long, articulated legs arranged around a central, pulsing sac. They do not hunt by sight; their eyes are vestigial, covered over by thick lenses of chitin.
+
+Instead, they hunt through the deafening noise. Their legs are equipped with thousands of sensory hairs that detect the microscopic vibrations caused by a heartbeat or a muscle twitch amidst the roar of the basin. They hang suspended in the tangled upper reaches of the sessile colonies, spinning webs not of silk, but of ultra-thin, vibrating wires that are strung tight between the spires.
+
+When a large grazer blunders below, the Weavers pluck these wires, sending harmonics through the web that confuse and paralyze the prey’s sensory organs. Then, they descend. They drop like falling stones, their limbs extending into gliding membranes that allow them to silently swoop down onto the neck of a Geophagi. Their bite is a corrosive neurotoxin that melts the creature's thick armor from the inside. They are the silent death in a noisy world, the only things capable of moving without making a sound.
+
+**The Grey-Plague**
+And finally, there is the decomposition. The waste of this world does not rot away quietly; it is aggressively reclaimed. The floor is slick with **Grey-Mold**, a colony of semi-sentient slime molds that act as the basin’s immune system and digestive tract. They are a translucent, pulsating carpet of grey goo that secretes the oily sheen seen on every surface.
+
+The Mold envelops the dead and the dying, dissolving the complex proteins of the swarm into base nutrients that seep back into the stone, feeding the bacterial mats that the Geophagi will one day graze upon. It is a slick, living muck that coats the ankle of every creature, a constant, damp reminder that in this place, death is not an end, but merely a lubrication for the next cycle of the machine.

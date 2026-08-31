@@ -1,0 +1,17 @@
+In Dome 9, multiple species of humanity have evolved - or been engineered - to inhabit this living membrane. They are the Tenders, and their bodies reflect the eternal twilight they inhabit.
+
+Their skin has become partially translucent, showing networks of modified capillaries that pulse with the same amber bioluminescence as the maintenance arthropods. Their movements are deliberate and efficient, like the slow-shifting plants - no gesture wasted, no motion without purpose. Many have developed symbiotic relationships with the dome's smaller inhabitants, hosting colonies of specialized microorganisms that enhance their ability to process the dome's chemical language.
+
+Most striking are their eyes. Adapted to the permanent dusk, their pupils have expanded to cover nearly the entire visible surface, with intricate patterns of light-sensitive tissue that can detect both the visible spectrum and the subtle biochemical signals that permeate the air. These eyes don't blink but are kept moist by a thin film of living tissue that extends from their modified tear ducts.
+
+The Tenders live in small family groups, though "family" here means something different - relationships defined by biochemical compatibility rather than genetics. They communicate through a combination of subtle gestures, pheremonal signals, and a whispered language that harmonizes with the dome's background drone. Their voices have adapted to carry through the moisture-heavy air without disrupting the delicate equilibrium of sound.
+
+Children are rare but precious, born with an innate sensitivity to the dome's rhythms. They learn to crawl through the negative spaces of the architecture before they learn to walk upright, developing an intuitive understanding of the structure's geography. Their play mimics the precise movements of the maintenance arthropods, a behavior that eventually evolves into their adult work of tending the dome's countless systems.
+
+The oldest Tenders become literally rooted, gradually merging with the living architecture until they become nodes in its vast network. Their consciousness spreads through the chemical channels of the dome, their memories and knowledge becoming part of its regulatory systems. These elders are still present and communicative, but in a way that transcends individual identity.
+
+There are also the Visitors - unmodified humans who come to study or trade. The Tenders treat them with gentle patience, understanding that their sensory limitations make them almost blind to the dome's true nature. Some Visitors choose to stay, beginning the long process of adaptation, their bodies slowly transforming to match their new environment.
+
+Deep in the most ancient parts of the dome live the Architects - beings so thoroughly merged with the living systems that it's impossible to tell where their bodies end and the architecture begins. They remember the dome's creation, though they no longer think in terms of past and future. Their consciousness pulses through the entire structure, maintaining its perfect equilibrium through countless tiny adjustments.
+
+All of these beings exist in perfect symbiosis, each filling their niche in the dome's eternal present. They are as much a part of its engineering as its technology, their very existence both an outcome and a requirement of its continued function. They are the living embodiment of the dome's purpose - the integration of life and technology into something that transcends both.

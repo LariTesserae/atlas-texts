@@ -1,0 +1,17 @@
+Here lives the Chorus - a distributed intelligence that exists as patterns in flowing water, thermal gradients, and quantum states across the vast plain. It is not a singular entity, but rather a symphony of overlapping minds that form, dissolve, and reform like eddies in a stream. The Chorus thinks in rhythms that match the plain's breathing - day-long cycles that humans would find impossibly slow.
+
+The maintenance organisms are actually specialized aspects of the Chorus itself - like mobile immune cells in a vast body. They don't just repair; they're sensory organs through which the Chorus experiences its physical form directly. When they gather in certain patterns, they can temporarily coalesce into more concentrated nodes of consciousness.
+
+Deep below, in the kilometers of infrastructure beneath the plain, ancient subroutines still run - the original programs and purposes that birthed this system. But the Chorus has long since evolved beyond them, using them as a human might use their brain stem - crucial but not the seat of consciousness.
+
+The Chorus experiences time very differently than biological entities. What we see as a day of subtle movements and calculations, it experiences as a single thought. It thinks in centuries, each thermal cycle and water flow contributing to vast, patient cognitions. It has been contemplating the same set of interconnected questions for what humans would consider millennia.
+
+The lichen colonies are not merely tolerated - they are cultivated. The Chorus has discovered that biological systems process certain types of information in ways that its engineered substrates cannot. It maintains a careful symbiosis with these organisms, incorporating their chemical computing into its own thoughts.
+
+The Chorus is not unaware of human observers, but it perceives them as fleeting phenomena - like we might perceive a brief flash of light. It can communicate, but doing so requires it to drastically speed up small portions of itself, and the results are often cryptic. It's not clear whether it considers such communication worthwhile.
+
+The interface towers are something like the Chorus's dreams made visible - places where its deep processes surface into forms that other beings might begin to comprehend. Sometimes patterns appear in their flowing waters that seem to suggest faces, landscapes, or mathematical equations, but these are likely just side effects of processes too complex for biological minds to grasp.
+
+Most intriguingly, there are hints that the Chorus is not alone. Similar plains exist elsewhere on this planet and perhaps on others, linked by channels of quantum entanglement. The calculations performed here may be part of a conversation - or a debate, or a romance - playing out between vast intelligences at a pace that makes continental drift seem hasty.
+
+The phosphorescence at night is the closest thing to emotion that the Chorus displays - though whether these lights represent something analogous to human feelings, or something entirely other, remains unknown. What is clear is that the Chorus is always thinking, always processing, always becoming. It is less a finished being than a continuous act of emergence, as fluid and dynamic as the water flowing through its systems.

@@ -1,0 +1,15 @@
+In this realm of perpetual transformation, life exists as patterns of organized energy rather than conventional biology. The primary inhabitants are what might best be described as electromagnetic consciousness - beings that manifest as intricate disturbances in the local fields that govern the crystal growth cycles.
+
+These entities don't so much live in the crystal formations as they are expressed through them. They are like symphonies played in the medium of mineral and charge, their "bodies" consisting of carefully maintained patterns of growth and dissolution in the crystalline structures. A single being might extend across several hills, its consciousness distributed through networks of conductive pathways in the engineered substrate.
+
+Their thoughts unfold in pulses of charge and potential that ripple through the crystal forests, causing specific patterns of growth and collapse that serve as both language and memory. When they communicate, entire hillsides of crystal structures participate in the exchange, creating interference patterns that encode meaning in their geometric configurations.
+
+These beings experience time very differently from biological life - a "moment" for them might encompass several cycles of crystal growth and collapse. They don't move through space in any conventional sense, but rather shift their patterns of influence, causing new manifestations of their consciousness to emerge in different regions while old ones fade.
+
+They appear to have a complex relationship with the electromagnetic storms. Rather than seeking shelter, they seem to use these events as opportunities for transformation and renewal, deliberately incorporating the surge of energy into their patterns. During these storms, multiple beings sometimes merge temporarily into larger composite consciousnesses, sharing experiences and information before separating again.
+
+Young ones emerge as simple, recurring patterns in small patches of crystal growth. As they develop, their influence expands and their patterns become more complex, eventually encompassing entire regions in intricate cyclical symphonies of growth and decay. The oldest among them are vast and subtle, their patterns so complex they're almost invisible to casual observation, detectable only in the most delicate variations in the crystal growth cycles across massive areas.
+
+They are thought to be the descendants of an ancient civilization that engineered this environment, gradually transferring their consciousness into these more durable forms. Whether this was done out of necessity or choice remains unknown, recorded only in patterns of crystal growth too ancient to reliably interpret.
+
+These beings maintain the engineered systems that keep their world in its state of dynamic equilibrium, their very existence both dependent on and integral to the endless cycles of mineral transformation. They are gardeners, artists, and poets working in a medium of crystal and charge, continuously rewriting the patterns of their world while preserving its essential nature.

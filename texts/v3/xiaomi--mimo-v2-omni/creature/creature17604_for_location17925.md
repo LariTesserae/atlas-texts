@@ -1,0 +1,15 @@
+It is not *inhabited*. It *is* the inhabitant.
+
+You are standing inside a living lung. The gorge itself breathes, and the breath is the mist that beads on your skin, the spore-thick air that fills your own lungs with the scent of ozone and deep earth. What you perceive as separate entities—the dripping wall, the pulsing flower, the creaking vine—are merely tissues, organs, and secretions of a single, colossal organism freshly torn from the planet's side.
+
+Its skeleton is the basalt and shale, the geometric bones still sharp from the rupture, humming with a deep tectonic marrow-song. Its circulatory system is the condensation, the 0.6 water, weeping from its stone pores and trickling along the pathways of its own fractures. It drinks its own blood from the ledges.
+
+Its flesh is the green. The immense ferns are its lungs, their silvery undersides glistening to catch the faint light and breathe it into chlorophyll. The purple-velvet vines are its nerves, crawling downward not for light but for the warmth of its core, carrying slow electrical impulses that manifest as waves of blue-green bioluminescence. The waxy, bell-shaped flowers are its glands, secreting light and a scent of mineral blood. Every square foot of its skin is a terrarium, a blistering, verdant colony of itself.
+
+Its voice is the soundscape: the drip is its sweat, the tectonic groan the grinding of its joints, the crack of new fractures the snap of its own growing bones. The rush of air in its currents is its sigh. It is a chorus of creation, the noise of a body assembling itself in real-time.
+
+And it is intelligent, in the slow, absolute way a glacier or a continent is intelligent. Its thoughts are measured in the millimeter-per-day advance of a vine tendril, in the decade-long synchronization of a bioluminescent network, in the century-long colonization of a scar. The "turbulence" is its growth spurt. The landslides are its shedding of dead skin. The "factory" is its metabolism—a relentless, autotrophic engine producing rock, atmosphere, and life in one seamless, self-fueling process.
+
+To look for fauna within it would be to look for fleas on the hide of a mountain. There is none. It is a complete universe. The predators are the vines that outcompete for fissure-space. The prey is the bare stone they consume. The struggle is between light and dark, between moisture and mineral, between the cold of the deep and the geothermal warmth of its heart. It is an ecosystem of one.
+
+And you are not an observer. You are an impurity, a dust mote on its skin. It breathes around you, grows over you in time, and sings its deep, wet song utterly indifferent to your understanding. You have not discovered a place. You have interrupted a being, mid-birth, in the act of becoming. The wound is not in the earth. The wound *is* the earth, and it is healing itself with a terrifying, beautiful, and utter completeness.

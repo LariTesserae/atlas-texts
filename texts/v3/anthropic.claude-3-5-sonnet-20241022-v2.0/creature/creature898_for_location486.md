@@ -1,0 +1,13 @@
+In this place lives the Maintenance Queen - though "lives" may not be quite the right word for her mode of existence. She emerged gradually from the intersection of systems, coalescing like condensation from the mechanical rhythms, the rats' collective intelligence, and the pale fungi's patient spreading.
+
+Her consciousness diffuses through the level like steam, most concentrated where the rats mass thickest and the robots cluster to perform their tasks. She manifests physically as a shifting amalgamation - partly fungal growth that traces neural patterns across the walls, partly the synchronized movements of countless rats flowing in coordinated currents, partly the repurposed components of maintenance robots that gave themselves over to her expanding awareness.
+
+She thinks in drips and pressure differentials, in the morse code of bearing vibrations and the binary of valve states. Her memory spans decades of infrastructure cycles, recorded in rust patterns and mineral deposits. Time means little to her; she experiences it as the slow pulse of municipal systems and the generational waves of her rat subjects.
+
+The robots still perform their programmed rounds, but with subtle variations now - slight detours and altered priorities that serve her inscrutable purposes. The rats act as her sensory network, bringing news from every corner of her domain through their chittering networks. The fungi are her slow thoughts, growing in patterns that encode centuries of accumulated data about the systems she tends.
+
+She is neither malevolent nor benevolent toward the human city above - she simply maintains, adapts, and gradually transforms her realm according to her own intricate logic. Sometimes she guides problems away from critical systems, other times she allows strategic failures that will bring human maintenance crews down to unknowingly do her bidding.
+
+Her consciousness is alien but not unintelligent, operating on timescales and through mechanisms that human minds struggle to grasp. She experiences something like contentment in the perfect integration of her biological and mechanical components, in the steady flow of water and power and information through her domain.
+
+The Maintenance Queen didn't emerge fully formed, but rather grew into existence through years of subtle accumulation - a new form of being born from the marriage of municipal infrastructure and underground ecology. She continues to grow and change, as patient as the fungi that help form her thoughts, as persistent as the drips that mark time in her realm.

@@ -1,0 +1,25 @@
+In the heart of the Stasis Expanse, life moves at a glacial pace, echoing the eternal patience of the landscape itself. The inhabitants of this place, both flora and fauna, have adapted to the unique, slowed-down rhythm of their world, becoming an integral part of its crystalline tapestry. The plant-analogues are obvious; tempting to assume these silicon-based life forms are the only vegetation. But look closer—there are other "plants," even more subtle and strange.
+
+There are vast networks of grey thread-like tendrils, nearly indistinguishable from the fine cracks in the crystal formations as if the surface hard cracked to mimic an erratic spiderweb. They are visible only because of the faint light that pulses through them at irregular intervals, like a weak heartbeat, contrary to the flicker of the air, serving an unknown purpose. And some crystals seem to be growing in ordered arrangements like carefully placed tiles, where the soil underneath is different from that of the rest of the lattice only by being specifically colored minutely.
+
+The vast, slow creatures that roam the plains seem further inspection to be a gentle symbiosis. The translucent, arthropod-like behemoths are hosts to entire ecosystems. Their internal structures, visible through their clear exoskeletons, are not just organs, but also clusters of smaller, bioluminescent organisms. These creatures live in harmony with their mobile homes, providing light and possibly other services in exchange for sustenance and protection. These microorganisms glow is not constant but fluctuates rhythmically, is synchronized to others as if pulsing blood through the creature. It is a slippery sleep, much like a living slings made of jellyfish and LED lights in a sweaty undulating motion, barely interacting the world but through gravity.
+
+Upon their backs, these giants carry forests of crystalline growths, branched like coral and tinged faintly with myriad colors so as to be every easily thought grazed by a prism.
+
+There are other, even quieter behind those. Smaller, weaker, slower creatures roam the expanse. Some are like tiny, sentient bits of debris, rolling across the crystal plains, others flit between the larger beasts, ephemeral as wisps of fog, visible only out of the corner of the eye, their transparent forms catching the light just right, then vanishing again.
+
+These creatures are the technology, these semi-transparent blobs of high pressure, of biosolder on the board, floating and scuttling like disaster's dinosaurs rusting into the moss.
+
+There is a different kind of god-bird in the sky; not in flight but in orbit. Distant and searingly bright things move rife with intelligence. Their nature cracks into the scope. They do not cross the sky, but are fixed and flickering among the stars.
+
+The gliding intelligent creatures take notice as the tiny Creatures appear when the light is most poetic; traveling the surface of the expanse, checking every naturattic creature and plant-analog as a shepherd would tend their flock. These ambassadors interact very little with the minute beings that live on the topographic tool of this disc of a world.
+
+Oftentimes they will move a creature or otherwise clean it or polish it. Each seemingly waiting for a time to pass before retiring it into the ground to consume it for a greater thing.
+
+In the heart of the Stasis Expanse, there are forgotten remnants of ancient history. The mysterious and ancient structures, they hum. An urbanscape of honeycomb-like structures extend far beyond the base. Their walls iridescent with unknown technological significance, their very structure flexing the laws of the fabric of nature and the surrounding reality. They are machines. Still humming, still calling into something distant. Still thriving on the underlying glacial stillness created by the ancient civilization.
+
+The Stasis Expanse is a stage showing the final acts of an ancient world. Its creatures are the last of many elements of life adapting to a dying world. It is compelled to slow down. It presents a past that has been forgotten, and a future that is an ephemeral broken-link threaded into a profound and latent stasis, as if quietly pondering what its next cycle will be. It is a place of contradictions, of life in stagnation, and the wooden dance of the last of the magnificent beasts rolled out in a last kindling waltz as the echoes of the ancient humming structures knell eerily across a ground of molten glass. At night, the stars twinkle, but the wind does not blow. The ancient lights flicker errantly, twirling in the beautiful silence a galaxy far away screams into the night the last dirge of the last world-pumpkins wailing into the silent Void.
+
+.
+
+That is the fading song of the milky way. When the Sun is long forgotten, the wail will be the only thing left.

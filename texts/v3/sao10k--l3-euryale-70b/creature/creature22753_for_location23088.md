@@ -1,0 +1,11 @@
+In this secret valley, where towering red rock walls enclose a lush oasis amidst the scorching Saguaro Wastes, there exists a delicate balance of life dancing along the brink between existence and oblivion.
+
+Amidst the spiky green towers of organ pipe and barrel cacti, creatures adapted to the harsh extremes make their home. By day, they shelter from the unforgiving sun in crevices and burrows as it beats down with relentless ferocity. Tin can swell until bursting from its searing touch. In this burning stillness, even the plants struggle - parched sap drips from cacti to sizzle in the sand.
+
+At nightfall, when the temperature plummets and myriad stars wink alive overhead beneath a silver moon, nocturnal dwellers emerge to carry out their business. Barn owls float silently on wings between columnar sentinels of spiny vegetation. Packsrats scamper about in their subterranean warren network while crickets boom their croaks into the cool air. 
+
+Here too roam solitary gila monsters emerging from rocky lairs to hunt grubs and beetles under the starlight. Fierce pumas stalk their prey - shrieking jackrabbits and secretive kangaroo rats - through forests of acacia and cholla brush.
+
+Overlooking all lie crumbling ruins of an ancient Hohokam village perched atop eroded cliff ledges. Sealed by blowing dusts and oxidized rusts (the patina of ages), long-dead doorways face inward as if guarding secrets behind curtains of sword-like acacia thorns. Upon weathered stone walls within are etched bizarre glyphic carvings...most striking being a stylized Venus figurine sporting leaves instead of hair - perhaps depicting some mythical Saguaro spirit venerated by these vanished people for her ability to thrive in this desolate demesne.
+
+Thus continues the intracate cycle here at utmost limits - between redhot hellscape days ruled by Sol Invictus and silverlit nights under celestial vault...between tender green fingers grasping toward sky from every patch of shade & moisture against thousands that perish on thirsty sands...between glacial changes spanning eons & fleeting second-to-second struggle for survival played out each day anew within this hidden microcosm sealed away beyond cruel horizon's gleaming knife-edge...

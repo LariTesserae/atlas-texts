@@ -1,0 +1,17 @@
+In this crystalline realm, the primary inhabitants are beings I'll call the Prismatic Weavers. They exist in a state between matter and energy, their forms composed of intricate lattices of living crystal that can shift between solid geometric patterns and diffuse clouds of light.
+
+The Weavers range from hand-sized individuals to vast colonial networks that span multiple chambers. Their bodies are asymmetric but harmonious, combining sharp angular facets with flowing, wave-like formations. They pulse with internal light that shifts in spectrum - deep indigo when at rest, brightening through blue and violet when active, and occasionally flaring into brilliant white during periods of intense activity or communication.
+
+They move by extending crystalline filaments that both grow and dissolve as needed, allowing them to flow through their environment in a way that appears both liquid and geometric. When still, they're almost indistinguishable from the crystal-plants, and indeed, they share a symbiotic relationship with this flora - the Weavers tend and shape the crystal growths, while drawing sustenance from the complex light patterns they create.
+
+The Weavers communicate through modulated frequencies of light and subtle vibrations that travel through the crystalline structure of their environment. Their "language" is more like a complex symphony of resonances and interference patterns than discrete sounds or signals. They can store and share memories by encoding them into the crystalline matrices of their bodies, and they can read the deep history of their realm in the growth patterns of the ancient crystal-plants.
+
+They exist in a state of continuous slow transformation, their forms adapting to the changing conditions within their environment. During the coldest cycles, they can become almost completely dormant, their consciousness dispersed through their crystalline networks. In warmer periods, they become more active and individuated, though they never completely separate from their collective awareness.
+
+The Weavers create art by growing and shaping crystal formations, producing structures that function simultaneously as architecture, music, and memory. Their works evolve over decades or centuries, each piece being continuously modified by successive generations. The great cathedral-chambers are their most significant creations - spaces where the collective consciousness of the Weavers is most strongly expressed.
+
+Younger Weavers begin as small, simple crystalline forms that gradually grow in complexity as they absorb and integrate information from their environment and community. The oldest among them have grown so large and complex that they're practically indistinguishable from the architecture itself, their consciousness diffused through vast networks of crystalline structures.
+
+They have no concept of death as we would understand it - when their physical forms deteriorate, their patterns of consciousness are absorbed back into the crystalline matrix of their environment, eventually to re-emerge in new configurations. This cycle of dissolution and reformation is as natural to them as breathing is to organic life.
+
+The Weavers are both the gardeners and the garden, the builders and the building. Their existence challenges any clear distinction between individual and environment, between conscious and unconscious processes. They are the living embodiment of their realm's blurred boundary between the grown and the constructed, the organic and the geometric.

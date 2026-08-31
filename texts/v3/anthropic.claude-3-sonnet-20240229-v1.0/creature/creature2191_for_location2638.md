@@ -1,0 +1,13 @@
+The Sodden Crescents is a realm where the line between the civilized and the wild blurs into a fascinating symbiosis. Here, the amphibious denizens have adapted to thrive in the ever-shifting landscape, their forms as mutable as the terrain itself.
+
+Lithe, slick-skinned humanoids glide effortlessly through the murky waters, webbed digits propelling them with powerful strokes. Their large, unblinking eyes are well-suited to piercing the dim, cloudy depths, while feathery gills flare open to filter oxygen from the water. Some sport dorsal fins that undulate gracefully, while others bear clawed, prehensile tails to aid in climbing the reedy embankments.
+
+On the banks and muddy islets, stockier, more terrestrial kin go about their business, their muscular bodies coated in a perpetual sheen of moisture. Thick pads on their broad feet and palms allow them to traverse the slick surfaces with ease, while their wide, flat snouts taper into lipless maws filled with rows of sharpened teeth – well-adapted for tearing into the fibrous reeds and tough-shelled crustaceans that make up their diet.
+
+The very young take on vibrant hues of green and gold, their mottled patterns offering camouflage in the shadowy shallows where they play and learn to hunt. As they mature, these colors fade to the drab browns and grays that allow the adults to blend seamlessly with the muddied waters and dripping vegetation.
+
+In the hazy twilight, strange, luminescent creatures can be seen drifting through the canals – eel-like beings with undulating tendrils that glow with a soft, bioluminescent radiance. Some take on more fanciful forms, trailing gossamer fins and fluttering appendages that resemble the vivid courtship displays of exotic deep-sea creatures.
+
+The Sodden Crescents is not just a home to these resilient amphibians, but an entire interconnected ecosystem. Countless smaller lifeforms teem in the murky depths – from the tiny, translucent fish that drift in silvery clouds, to the armored crustaceans that scuttle along the bottomless ooze. Aquatic insects skate across the glassy surfaces in chaotic dances, while waterfowl glide overhead, their raucous calls echoing through the misty air.
+
+In this fluid realm, the line between the natural and the fashioned is ever-shifting, ever-mutable. The denizens themselves are shapers of their environment, weaving the living reeds and supple muds into intricately latticed dwellings that seem to grow organically from the saturated earth. Yet even as they impose their will, shaping the landscape to their needs, the primal power of the waters continually reshapes and reclaims, ensuring that the Sodden Crescents remains a perpetually emergent, perpetually adapting entity – much like its remarkable inhabitants.

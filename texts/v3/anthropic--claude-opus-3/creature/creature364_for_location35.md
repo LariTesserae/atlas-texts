@@ -1,0 +1,15 @@
+In this ancient, mist-shrouded city that spans an entire mountain range, life has found a way to thrive in myriad forms, each uniquely adapted to the damp, cool, stone environment. 
+
+The most numerous inhabitants are the Mossfolk - small, lithe humanoids who make their homes in the crevices and hollows of the weathered peaks. Their skin is tinged with green and their hair is a soft, spongy moss that helps them blend into their stony surroundings. Mossfolk are nimble climbers, using the network of bridges and walkways to navigate the vertiginous cityscape with ease. They are a quiet, unassuming people who live in harmony with the dampness and the stone, tending the small patches of greenery that soften the edges of the urban landscape.
+
+In the depths of the city, where the sunlight rarely reaches, live the Umbral Dwellers. These pale, almost translucent beings have large, nocturnal eyes that glimmer in the darkness. They are a solitary folk, rarely seen by the other inhabitants, and are said to possess an intimate knowledge of the city's deepest secrets. Umbral Dwellers move silently through the shadows, leaving only faint, damp footprints in their wake.
+
+High above the city, riding the misty winds, are the Zephyrs - ethereal, birdlike creatures with feathers that shimmer like opalescent mist. They nest in the highest spires and rooftops, their haunting songs echoing through the quiet air. Zephyrs are the messengers of the city, carrying news and gossip on the wind.
+
+In the damp, mossy parks and gardens, the Verdant Keepers tend to the precious greenery. These beings are almost plantlike themselves, with bark-like skin and hair that rustles like leaves. They have a deep connection to the sparse vegetation, coaxing life from the unyielding stone. Verdant Keepers are the healers and nurturers of the city, their gentle touch bringing comfort and growth.
+
+Moving unseen through the labyrinth of streets and alleyways are the Whispering Shades - the city's rodent and insect life, but with a twist. These creatures are slightly larger than their mundane counterparts and possess an eerie intelligence. They communicate with each other in a language of skittering feet and rustling wings, a constant undercurrent of noise in the quiet city. Some say the Whispering Shades see all and know all that happens in the city's hidden corners.
+
+Overseeing it all are the Stone Wardens - ancient, craggy beings who seem to have been carved from the very mountain itself. They move slowly, with the patience of ages, watching over the city and its inhabitants. Stone Wardens are the keepers of the city's history and the guardians of its future. They are rarely seen, but their presence can be felt in the very bones of the city.
+
+Together, these diverse beings form a unique, interconnected ecosystem, each playing a role in maintaining the delicate balance of life in this ancient, mist-shrouded city on the peaks. They are the lifeblood of this place, pulsing through its stony veins, making it a living, breathing entity unto itself.

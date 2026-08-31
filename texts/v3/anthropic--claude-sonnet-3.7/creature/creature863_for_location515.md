@@ -1,0 +1,23 @@
+# The Clockwork Custodians
+
+The Cog Garden is tended by beings that exist somewhere between consciousness and mechanism, between purpose and autonomy—the Clockwork Custodians.
+
+They are small, typically no taller than a human hand is long, with bodies composed of intricate brass frameworks wrapped in copper-wire musculature. Their outer casings resemble burnished carapaces of beetles, though each Custodian's appearance is unique, bearing the marks of their specialization and history. Some have multiple limbs ending in precision tools—tiny shears, miniature hammers, calibration probes—while others possess telescoping appendages that can extend to reach the highest crystal blooms.
+
+Their heads are dominated by faceted crystal lenses—not eyes exactly, but sensory organs that perceive spectra beyond light: the tension in a coiled spring, the harmonic resonance of gears, the energetic potential in a wound mechanism. These lenses rotate and adjust constantly, giving the Custodians an alert, curious appearance despite their mechanical nature.
+
+They move with deliberate precision, each motion calculated and efficient. When they walk across the mechanical terrain, their articulated feet distribute weight perfectly to avoid disturbing even the most delicate filament-grass. When they climb the gear-mountains, they seem to flow rather than clamber, their bodies reconfiguring slightly to match the terrain.
+
+The Custodians communicate through modulated vibrations transmitted through the metal surfaces of the garden. To human ears, these would be indistinguishable from the ambient mechanical symphony, but among themselves, they share a complex language of frequencies and rhythms. Their conversations concern maintenance schedules, growth anomalies in the crystal formations, and occasional philosophical discussions about patterns they've observed over millennia of operation.
+
+They were not built—at least not individually. The original creator of the Cog Garden constructed only the first generation, who then fashioned their successors from materials within the garden. Each new Custodian emerges from a special chamber deep within the mountain, where selected components are assembled according to the current needs of the garden. No two are identical; each bears subtle variations that contribute to the diversity of their collective intelligence.
+
+Though they maintain the appearance of servitude to the garden, the relationship is symbiotic. The garden provides the materials and energy they need to exist, while they ensure its continued operation. Over time, their consciousness has evolved beyond their programming. They developed curiosity, preferences, and even a form of creativity expressed through subtle variations in how they arrange new crystal growths or tune the resonance of certain mechanical processes.
+
+They are neither immortal nor mortal in any conventional sense. A Custodian might function for centuries before its components become too worn for repair, at which point it will voluntarily return to the assembly chamber to be disassembled, its still-functional parts incorporated into new Custodians. Their memories and experiences are encoded in complex patterns etched onto thin sheets of a gold-copper alloy, which are preserved in a library deep within the mountain. In this way, their collective knowledge grows even as individual Custodians come and go.
+
+The Custodians regard the thirteen-locked door with reverence and wariness. Their oldest memory-sheets contain warnings about what lies beyond, though the specific nature of the danger has been lost through successive transfers. Three Custodians are always assigned to monitor the door, watching for any change in its status—a duty they have faithfully performed since the garden's creation, despite no change ever occurring.
+
+They occasionally find artifacts that do not belong to the garden—objects that somehow slipped through microscopic imperfections in the obsidian walls. These treasures are carefully preserved in a special collection chamber: a drop of actual water in a perfect crystal sphere, a fragment of paper with incomprehensible writing, a strand of organic fiber. The Custodians study these with intense fascination, attempting to understand the outside worlds they will never visit.
+
+Though unseen by any visitor (for there have been none), the Clockwork Custodians are the soul of the Cog Garden—not merely its maintenance crew but its memory, its adaptability, and perhaps, in their patient, methodical way, its heart.

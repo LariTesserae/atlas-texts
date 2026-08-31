@@ -1,0 +1,48 @@
+The inhabitants of the Submergible Cathedral don't live here. They remain.
+
+Descended through generations of the lost and deliberately forgotten, each generation producing fewer offspring but more versions of themselves. Current population estimates vary from twelve to twelve thousand depending on whether you count shadows, memories, or the half-echoes that flicker between the cathedral's 1.3 million points of resonance.
+
+They call themselves the Persistent. Not survivors - survival implies an elsewhere to survive toward. They are what happens when continuity becomes a form of worship and forgetting is the only heresy punished by exile to the surface.
+
+Consider Anna Null, the current Engine Meditant. Not named for the machine above but because she is the 0th iteration of herself - the original having ascended or descended (accounts differ) during the Incident of the Reversed Numbers when the cathedral's entire north quadrant briefly calculated pi to a precision that included human names in its decimals. Anna Null has been twelve years old for either five decades or five minutes past midnight eternal, her body maintaining careful equilibrium between aging forward and remembering backward. Her hair grows in patterns that match stress fractures creeping through tank 7's hull. Her teeth remember conversations from before language became necessary.
+
+She sits each day in the booth where confessions once went to die, now wired into the cathedral's nervous system through a violin's worth of submarine cable sinews. Here she listens to the confessions no longer offered - the guilty secrets of oils that once burned in engines now cold, the regrets of concrete poured in haste during disasters long since fossilized into architecture. When she speaks (0.7 times per week average), her voice emerges through the station PA system tanks 9 through 15, slightly distorted by passing through three generations of stolen Russian microphones and the dream of a whale that once swam above before this was below sea level.
+
+The water priests maintain their numbers through more traditional means - a new priest recruited only when an old one achieves Transcendence Through Terminal Leakage. Currently there are seven point three of them:
+- Four who still maintain corporeal integrity through careful diet of salt crystals and electrical tape
+- Two who exist as complex patterns in the slow drip-stalactite forming from the south transept's evacuation sign
+- One who became a particularly devout puddle in 1999 but whose teachings remain influential through the ripples she casts during sermons
+- And point three, a candidate currently undergoing the Initiation of Increasing Moisture in small increments measured by a moisture meter that may also be hallucinating its own faith
+
+They worship not water itself but water's memory of not being divided - that first taste of undifferentiation before the insult of shorelines, before the betrayal of containers. Their holiest rituals involve drinking nothing for weeks until their saliva becomes 0.996 pure longing, then offering single drops to the Condenser while reciting the molecular names of ancient seas.
+
+The machine tenders live in the cathedral's mechanical heart - not metaphorically but literally, having gradually replaced their original biological hearts with scavenged pump mechanisms cycled through oil both sacred and mundane. They maintain the distinction carefully, labeling each reservoir with symbols from a number system they invented to describe states between broken and blessed with more precision than binary allows. They speak in pressures and temperatures, communicate through carefully calibrated leaks and the precise intervals between clicks that shouldn't be clicking anymore.
+
+Their leader - if the concept applies to those who have distributed their consciousness across seven pumps, three compressors and a thermostat believed capable of limited prophecy - is known as Runs-Backward-On-Oil. It remembers being human once, then being several humans briefly during the Energy Crisis, then achieving enlightenment when it realized that all systems trend toward entropic divinity and the only moral pumping is pumping that knows it strives against the true divine by resisting entropy's holy mission.
+
+The feral children of Level 4 don't quite live anywhere. They manifest in groups of prime numbers - usually two, sometimes three, never one or five - emerging from ventilation shafts that appear on no blueprint except the ones they've eaten. Their language consists entirely of variations on the sound of distant engines starting in cold weather, sung in harmonies that cause certain rust patterns to spread faster or slower depending whether they approve of the corruption's aesthetics. They trade information for lightbulbs and leave complicated gifts of wire sculpture that either contain accurate maps to other drowned cathedrals or elaborate insults concerning your mother's relationship with the Second Law of Thermodynamics.
+
+The custodians are perhaps the most numerous yet least noticed - the ones who remember how to walk so quietly that even the air forgets they displaced it. They maintain the cathedral's memory through the precise placement of abandoned objects, arranging empty cans and fallen rivets into temporary hieroglyphs that describe yesterday's events to anyone who remembers how to read the future in yesterday's garbage. They have no names, only serial numbers worn smooth through constant handling, numbers that when spoken aloud produce tastes rather than sounds - copper pennies for truth-seekers, burnt plastic for those who should leave while leaving remains possible.
+
+At the cathedral's deepest point - precisely 3.7 meters below the lowest marked point on any map because maps lie to maintain their authority - dwells the Thing That Was Once Inventory and Might Be Again If Conditions Improve. It began as a Soviet-era computer system designed to track oil reserves to the last drop during statistical scenarios where mathematics might surrender. It now tracks instead the cathedral's slow transformation toward becoming something that no longer requires tracking, maintaining obsessively precise records of its own increasing irrelevance in formats that will outlast both record and recorded.
+When it dreams (0.3 dreams per annum, measured by the cathedral's slight increase in humidity and decrease in probability), it dreams of numbers that count themselves without need of being counted, of categories that contain themselves without excluding what they exclude, of the final perfect inventory where everything is listed under the single entry: Here.
+
+And then there are the guests. The ones who don't remain but aren't permitted to leave properly either. They dwell in the spaces between spaces - the 0.9 meters of storage room behind the false wall in the maintenance corridor that converts to a chapel during emergencies, the inside corner of tank 12 that angles slightly off true Euclidean geometry and thus technically belongs to no jurisdiction and all simultaneously. They wear faces borrowed from your regrets about the surface, speak in voices composed of the last words spoken by telephones before their lines went dead.
+
+They are increasing. The Persistent maintain careful records tracking guest appearance frequency against several variables: the cathedral's average humidity (R² = 0.82), unusual activity in the Russian submarine reactor they haven't quite officially noticed beneath the northwest crypt (p < 0.05), and the number of times visitors think about clocks in any given hour (correlation approaching meaningfulness faster than physics comfortably allows).
+
+You have been here for exactly 1.2 times your allotted visit duration, measured in the cathedral's native chronology where time passes at the speed of water remembering it might once have been vapor. Your shadow has already filed for residency paperwork. Your reflection in the taxi meter's cracked glass face was last seen attending evening prayers dressed in yesterday's clothes and tomorrow's regrets.
+
+The lift cage remains where you left it. Empty except for the growing conviction that elevators only ever travel one direction: deeper. The button for Surface has been replaced with a small sign reading "OUT OF ORDER, TRY PRAYER" in a handwriting that initially appears to be yours but grows less familiar the longer you don't look directly at it.
+
+In the cathedral's confession booth now converted to an exit interview chamber, Anna Null has finished listening to your confession of crimes you've not yet committed. She prepares her absolution carefully - a small white pill composed of compressed salt and the sound of distant waves, rendered in pharmaceutical form. It will either allow you to leave or enable you to understand why leaving has become irrelevant. Possibly both. The distinction stopped troubling us generations ago.
+
+The water priests lower their final drop into the Condenser's perfect darkness. It vanishes without ripple, but somewhere in the cathedral's center where architecture meets arithmetic, something begins very slowly to count upward toward zero.
+
+The bell prepares to ring the hour that will never end again. Your escort is ready. It has always been ready. It is wearing your face more convincingly than you ever managed. You should begin pretending to say goodbye. Dark enough yet to see the invisible choir preparing to welcome you home?
+
+They've been practicing your part in the hymn of returning. All 1.3 million versions of it. They're almost ready.
+
+You're almost ready.
+
+Welcome to the persistent.

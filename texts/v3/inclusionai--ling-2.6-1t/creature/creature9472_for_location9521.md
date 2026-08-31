@@ -1,0 +1,19 @@
+They do not arrive so much as condense.
+
+At first there are only the drifters—clusters of buoyant silicate seeded with bubble-lattices, lighter than the vapor they navigate, coasting on the hush in gravity’s grammar. They are not creatures, not yet; they are weather made curious, nucleation points around which thought can gather. They drift in the shelves and cataracts, feeding on altitude the way plants feed on light, drinking pressure differentials and secreting stillness. Their bodies are mostly omission: frames of cooled steam and mineral-thread, stitched by nanoscale intention into shapes that remember scaffolding but have forgotten how to be floors. They have no organs that you would name, only zones where wet and airy trade rumors, where water is persuaded to flow uphill by the polite insistence of surface song.
+
+Then come the menders.
+
+They rise from the embryonic land, from basalt that still winces at having been solid. These are the ones who listen to the hesitation in stone. They are low, sprawling, patient, built from moss on doubt and lichen on indecision. Their limbs are slow rivers that decide to be roots, then veins, then roads. They do not walk; they negotiate. Where they touch, edges soften, erosion reverses, and the ground hums with a lithic lullaby that keeps the water aloft. They speak in tectonic susurrus, a sound like continents turning over in their sleep, and when they sing, droplets align into circuitry, and the sky thickens into a floor that can hold them.
+
+Higher still, where the air is almost void and luxury feels like a law, the riders appear.
+
+They are not mounted; they are mounted *in*—creatures of negative space, bodies composed more of the gap between one droplet and the next than of flesh or mineral. They slip through the luminous diffusion like thoughts through a mind that has not yet chosen its mind. Their motion is the landscape rehearsing its own geography: a valley widens into sky, and they are there; a cloud condenses into a plateau, and they are already standing on it. They harvest altitude, distilling the copper-ozone taste of the high thin world into songs that make thunder thicken rather than crack. Their language is pressure, their laughter the collision of cymbals in a cathedral built of mist.
+
+None of these are fixed. A drifter can decide to settle, its bubble-lattices collapsing into mender-song, its steam-frame knitting itself into the embryonic rock until it is no longer separate but a ridge, a new proposal for land. A mender can unmake itself, its slow rivers reversing into spirals, rising to join the riders in a choreography that stitches water to air to stone without seam or surrender. The riders, when they grow weary of void, can fall—not down, for down is not a direction here, but inward—becoming denser, cooler, metallic-blue and glass-still, until they are stones that remember they were liquid, still wrinkling into place with audible hesitation.
+
+The fauna of this place is a verb.
+
+It is the negotiation of states, the bazaar where solid, liquid, and airy trade currencies without exchange rates. It is the flood that is still arriving, the world that is still deciding what to keep. You can feel it in the mild, persistent weirdness—the echo in angles that do not quite reflect, the sense that altitude here is also sideways, a coordinate that has learned to doubt itself.
+
+In the end, what lives here is not a population but a process: a vast, cool, singing instability, stitched together by nanoscale intention and held aloft by a hush. It is alive with change, unfinished and unowned, luminous and loud without being noisy. It does not inhabit the sky-mostly-water; it is the sky-mostly-water deciding, moment by shimmering moment, how to be a world.

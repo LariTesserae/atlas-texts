@@ -1,0 +1,29 @@
+To understand the life of this place, you must abandon the idea of blood, sap, and hunger, and instead think of existence as an expression of physics in its twilight. Life here is not something that grew; it is something that *remained* when the strict laws of the universe began to fray. 
+
+If you stand beside the sweeping precipice and watch the ribboning creatures mentioned earlier—the majestic, blind scavengers of kinetic spatial friction—you will begin to notice that they are not alone, nor are they as simple as they first appear.
+
+Look closely at the pale, woven-ash surface of a ribbon-creature as it glides overhead. Let us call them the **Shrouds**. As a Shroud wraps its diaphanous bulk around a delaminating bridge, absorbing the kinetic energy of reality breaking down, it undergoes a breathtaking, silent transformation. Its chalky skin becomes translucent, and suddenly, you can see intricate, glowing filigree racing across its miles-long back. These are the "digested" mathematical coordinates of the architecture it is consuming. The Shroud does not merely eat the energy; it records it. The creature acts as a living ledger of the fading city. If you look at the oldest of them, the ones swimming through the cavernous depths of the indigo gorge, you can see the faint, ghostly blueprints of ancient, long-vanished terraces permanently etched into their tissue. When they undulate, the ghosts of lost districts ripple across their bodies. 
+
+But the Shrouds are merely the macro-fauna of this desiccated weather system. 
+
+Look down at the pale, porous mineral beneath your feet. As the city breathes—inhaling and dilating, exhaling and pulling taut—the microscopic pores of the pumice-like stone grind together. This friction generates the static electricity that scents the air. And within that static lives a secondary ecology, a frantic, crystalline kingdom of micro-fauna: the **Recursions**.
+
+Recursions are creatures of pure, dry geometry and static charge. They have no mass; they are essentially self-replicating spatial glitches. They appear as jagged, shimmering fractals, no larger than coins, blinking in and out of the chalky stone. They look like splintered glass or intersecting planes of faint violet light. They do not walk so much as they *propagate*, multiplying mathematically across the smooth curves of the architecture and instantly deleting their previous iterations to simulate movement. 
+
+They swarm. When a localized pocket of gravity skews, thousands of Recursions cascade toward it, drawn by the magnetic tension of the anomaly. They race along the undersides of the Möbius loops in glittering, jagged rivers. They sound like the softest imaginable crackle of dry pine needles in a fire, or a finger traced slowly around the rim of a crystal glass. Their purpose, it seems, is the desperate enforcement of logic. When a staircase begins to drift into the void, the Recursions swarm the tearing seam, their tiny, static bodies locking together in complex geometric lattices in a doomed attempt to hold the space together. They are the white blood cells of a dying universe, frantically stitching water. Eventually, the reality-tear overpowers them, and they shatter into a shower of harmless sparks, adding to the crisp scent of ozone in the dim air.
+
+Yet, beyond the majestic Shrouds and the frantic Recursions, there is a third presence here. As you steep yourself in the absolute hush of the metropolis, your eyes adjust to the bruised-purple dusk, and you realize that the hollow towers hanging in the canopy are not entirely empty. 
+
+There is sentience here, born of the immense, cold senescence. 
+
+They are the **Absences**. 
+
+At first, you might mistake them for shadows cast by the complex archways, but the light here is too diffuse to throw such sharp shapes. They are humanoid in only the vaguest sense: tall, sweeping silhouettes, lacking any internal detail. They are not made of the chalky mineral, nor of static, nor woven ash. They are made of absolute zero. They are localized pockets where the universe has already entirely forgotten how to exist. They are voids wrapped in a meniscus of extreme cold.
+
+The Absences do not drift, nor do they swarm. They simply stand at the edge of the soaring terraces and vertiginous balconies, looking out over the bottomless gulfs. Their edges are incredibly sharp, framed by the faint curling of frozen static, like black holes shearing the light around them. 
+
+When you look at one, you feel a profound, aching stillness. You realize, with the sudden intuition that replaces sound in this acoustic vacuum, that they are the accumulated sentience of the city. The pale stone is their body, the spatial tearing is their metabolism, but the Absences are the mind. They possess an ancient, crystalline intellect that operates at the speed of a drifting glacier. They do not communicate through sound or motion. Instead, when they wish to "speak," a piece of the city shifts. When two Absences overlap in the empty air—their dark silhouettes merging—a three-mile-long causeway miles below might suddenly detach and begin its slow migration across the void. The architecture serves as their language. The slow unspooling of a chalky spire is a single, contemplative thought; the fusion of two twisting walkways is an answered question. 
+
+They are not mourning the breakdown of their reality. They are orchestrating it. 
+
+As you watch an Absence standing inverted on a hanging plaza above you, staring down into the eternal dark, the city inhales. The archways dilate. A flock of static Recursions chitters silently past your boots. High above, a whale-sized Shroud unfurls its wings to catch the updraft of a dying physical law, its back glowing with the memory of a fallen tower. And the Absence does not move, perfectly content to oversee the long, beautiful, and endlessly gentle unmaking of its world.

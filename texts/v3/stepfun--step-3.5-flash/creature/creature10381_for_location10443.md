@@ -1,0 +1,1 @@
+The Gilded Geode does not sit empty, even when no traveler blunders into its pink-veined quartz shell. Its inhabitants are not separate from the place itself: they are its breath, its scaffolding, its half-finished thoughts, woven into the same lattice of root and rope and possibility that makes up its floor.

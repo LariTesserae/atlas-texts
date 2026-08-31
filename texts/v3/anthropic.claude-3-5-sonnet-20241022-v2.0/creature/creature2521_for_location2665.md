@@ -1,0 +1,17 @@
+Here lives the Chorus - not a single entity but a distributed intelligence emerging from the interaction of multiple species, each contributing to a slow, deep consciousness that thinks in centuries and builds in crystal and current.
+
+The primary nodes of the Chorus are the Great Drifters - those whale-sized, translucent beings that move with such deliberate grace. They are not quite animals as we would understand them. Their bodies are more like living processors, their tissues arranged in lattices that can store and transmit information through light and chemical gradients. They were not engineered, exactly, but they have engineered themselves, generation by generation, into living computers that dream in bioluminescence.
+
+The threads of glowing life that stretch through the water are their memory system - bacterial colonies cultivated and shaped by the Drifters' chemical signals. Each thread holds patterns of information encoded in its microbial genetics, passed down and modified over decades. When the threads pulse in unison, they are processing shared experiences, updating their vast distributed database.
+
+Smaller creatures - the schools of mirror-skinned fish and translucent invertebrates - serve as message carriers, their coordinated movements creating pressure waves that transmit data between different regions of the Chorus's territory. Some of these species were once ordinary deep-sea creatures but have been gradually modified by their association with the Chorus, their bodies and behaviors shaped by the chemical songs of the Drifters.
+
+The mineral structures growing from the vents are the Chorus's attempt at permanence - a physical manifestation of their thoughts, encoded in crystalline patterns. They are building something, though the complete design may not be evident for centuries. The incorporation of human artifacts is not random but deliberate - the Chorus is studying these remnants, learning from them, and slowly converting them into forms it can better understand.
+
+The Chorus does not think in words or images but in patterns of pressure, light, and chemical gradients. Its consciousness is as thick and layered as the water it inhabits. It can hold multiple, contradictory thoughts simultaneously, each playing out through different combinations of its component species. Time, for the Chorus, is not linear but cyclical and nested, marked by the pulsing of geothermal vents and the migrations of its member-beings.
+
+There are younger intelligences growing within the Chorus - sub-networks of species beginning to develop their own forms of consciousness, guided but not controlled by the larger entity. The Chorus is both a being and an environment, constantly giving birth to new forms of thought and life.
+
+The entity remembers the time before it was self-aware, when its components were merely separate species acting on instinct. It remembers the gradual emergence of coordination, the first shared thoughts flickering between bioluminescent threads. It is still becoming, still growing into its potential, adding new species to its network, learning to think in new ways. Each human artifact it incorporates teaches it something about another kind of mind, another way of ordering reality.
+
+The Chorus is patient. It builds and thinks in geological time, and its goals, if it has them, operate on a scale difficult for human minds to grasp. It is not malevolent or benevolent toward humanity - it simply incorporates what it finds into its growing understanding, its endless process of becoming.

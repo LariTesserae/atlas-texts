@@ -1,0 +1,17 @@
+In this hidden oasis, a species of sentient beings has evolved to perfectly inhabit and steward this unique ecosystem. These beings, which we might call the Symbiotes, exist in a state of deep symbiosis with their environment, so much so that it's often difficult to distinguish where their bodies end and the surroundings begin.
+
+The Symbiotes are roughly humanoid in shape, standing about four feet tall, with slender, flexible bodies. Their skin is a mottled pattern of greens and purples, mirroring the colors of the fungal canopy above. This skin is not solid but rather a living, breathing membrane that can absorb nutrients directly from the air and moss-like substrate.
+
+Their heads are elongated and slightly flattened, with large, compound eyes that can perceive a spectrum of light far beyond human capabilities. These eyes glow softly in the dim light, pulsing in rhythm with the bioluminescent fronds overhead. In place of a mouth, they have a cluster of sensory tendrils that can both absorb sustenance and communicate through subtle chemical exchanges.
+
+The Symbiotes' limbs are long and multi-jointed, ending in digits that can both manipulate objects with great precision and extend into root-like structures to directly interface with the living carpet beneath them. When at rest, they often partially merge with the moss, their bodies sinking slightly into the substrate as they commune with the collective intelligence of the ecosystem.
+
+These beings do not speak as we understand it, but rather communicate through a complex language of bioluminescent pulses, pheromonal releases, and subtle vibrations conducted through the moss beneath their feet. This form of communication allows them to share information rapidly across their entire community and even interface directly with the various lifeforms in their environment.
+
+The Symbiotes are the caretakers and cultivators of this hidden world. They tend to the crystalline formations, guiding their growth into tools and structures. They nurture the fungal canopy, pruning and shaping it to maintain the delicate atmospheric balance of their home. They even shepherd the smaller creatures, fostering a harmonious balance between all the interconnected species.
+
+Their society is as fluid and interconnected as their physical forms. There are no rigid hierarchies or individual possessions. Instead, the Symbiotes operate as a collective, with each member sharing in the stewardship of their world and contributing their unique strengths to the community.
+
+The Symbiotes possess an innate understanding of the complex biological and chemical processes that govern their ecosystem. This knowledge isn't learned but seems to be encoded in their very being, passed down through generations via some form of genetic or symbiotic memory.
+
+Despite their alien appearance and nature, there's a profound sense of wisdom and gentleness about the Symbiotes. They embody a state of existence where the boundaries between individual and environment, between conscious thought and instinctual action, have dissolved. They are the living embodiment of their world's interconnectedness, the shepherds and guardians of this hidden oasis of life.

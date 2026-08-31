@@ -1,0 +1,15 @@
+The Heart of Cogswell breathes with a life that refuses to be simply described. The stillness that pervades it isn't the absence of something, but a presence so complete that it eclipses all others. It is a city of echoes, where the ghosts of its creators linger not as phantasms, but as the very foundations upon which all that exists is built.
+
+The inhabitants of this marvel are not, in any conventional sense, alive. They are the crystalline structures themselves, the very flesh and bone of Cogswell. The deep emeralds, ruby reds, and sapphire blues are not mere colors; they are the memories, the ambitions, the triumphs, and the failures of the civilization that birthed them. Each facet and angle is a testament to the beings that once planned, engineered, and maintained this world.
+
+The industrial machinery, the humming behemoths that pierce the silent sky, are the skeletal systems, the circulatory systems, the nervous systems of the city. While inactive now, they represent the tireless work they once performed. They are not simply tools, but extensions of the long-gone hands and minds that formed them. They hold the echoes of their purpose, the faint memory of their service, a persistent ghost of the labor that once fuelled their operations.
+
+The circulating water is not just a fluid, but the very lifeblood of Cogswell. It’s the tears of its creators, the sustenance that fed their ambition. The stillness and calm of the water suggest a cessation, a completion of a duty. It is the end result of their hard work.
+
+The lack of fauna speaks of an existence beyond the natural. Perhaps the inhabitants sought a perfect unity, a world purged of imperfection, a world where the only inhabitant was the city itself. They may have viewed the chaotic, unpredictable dance of nature as a flaw, something to be excluded from their perfect design.
+
+The slow decay, the subtle softening of the crystal edges, suggests the passage of time. A patient, relentless erosion not of the city itself, but of its very essence. It’s a decay that is not destructive, but transformative, a slow slide into an unknown future where the city itself becomes something other than what it was.
+
+The very air of Cogswell may be a host for the forgotten: the ideas, the ambitions, the loves and losses made by the lost civilization. The metallic tang in the air does not speak solely of minerals, but perhaps of the weight of their legacy, the sharpness of their purpose becoming ever-so-slightly dull.
+
+The Heart of Cogswell is not a mausoleum, but a sanctuary, a monument to the enduring nature of creation. It is a place where the builders have not died, but become one with their work. Their lives are still manifest in every hue, every structure, every endless drop of water. They live not as flesh and blood, but as crystalline thought, an immutable testament to the power of the creation, a city that is alive, and yet, completely still.

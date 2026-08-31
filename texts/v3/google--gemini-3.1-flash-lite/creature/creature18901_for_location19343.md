@@ -1,0 +1,17 @@
+Where the gravity turns soft and the air tastes of oxidized berries, the inhabitants are not born; they are precipitated. They emerge from the condensation, condensed from the very humidity of the world’s laboring lungs.
+
+They are the **Resonators**, and they do not walk so much as they harmonize. 
+
+They are slender, spindly things, composed of translucent cartilage that mimics the architecture of the xylem walls. They have no faces, only a complex arrangement of ocular pits that pulse in time with the room’s systolic expansion. Their bodies are hollow, echoing chambers, and they move with a disconcerting fluid grace, their feet—which resemble delicate, splayed root-tips—barely disturbing the moss-carpet.
+
+They are the gardeners of the pulse. When a branch unfurls too jaggedly or a vein-lattice begins to calcify in a way that disrupts the tonal quality of the inhalation, a Resonator appears. They do not use tools like the one you found; that shard of bark was a mistake, a relic of an ancestor who tried to impose purpose upon a system that requires only stewardship. The Resonators use their fingers—long, violin-bow digits that hum when rubbed against the living walls. They play the xylem like a cello, vibrating the pulp until it softened, re-weaving the geometry of the cathedral to ensure the air flows without obstruction.
+
+They are never alone, yet they never communicate. When two meet, they simply press their chests together, their internal light synchronizing, a shared frequency blooming between them like a bruise. They are not individuals so much as localized notes in a long, planetary song. 
+
+There is another, higher order of inhabitant here—the **Siphons**. You see them rarely, hanging suspended in the center of the void, tethered by filaments as thin as spider silk to the distant ceiling. They look like great, inverted bells of amber glass, their interiors filled with the shimmering gold fluid of the plant-sap. They are the memory-banks of the Trachea. Within them, you can see silhouettes suspended in the fluid: ancient, fetal shapes, the remains of whatever fell into the fissure eons ago. The Siphons drink the heavy, copper-tasting condensation and translate the room’s rhythmic "thinking" into the golden light that bathes the space. 
+
+They are the keepers of the archives. If you watch long enough, you might see a Siphon shudder, releasing a slow, golden drop of sap that falls upward—a deliberate act of data-transmission, passing a thought from one gill to another.
+
+And then, there are the ones that are becoming. They are the "Still-Saps." These are the creatures that have spent too long in the humid silence. They have pressed their backs against the vibrating walls and, in a moment of exhaustion, ceased to struggle against the room’s magnetism. Their skin has begun to sprout the same mossy, interlaced filaments that carpet the floor. Their fingers have elongated, biting into the xylem like hooks. They are currently being digested, but not in any cruel sense; the room is simply incorporating their history, their warmth, and their frantic, mammalian heartbeat into its own steady, tectonic rhythm.
+
+They are the ones who left the tool behind. They are the ones who realized that in the Trachea of the World, you do not exist to be a visitor. You exist to be a chord. And eventually, you stop fighting the melody and simply wait for the room to exhale, becoming part of the song that never ends, and never truly begins.

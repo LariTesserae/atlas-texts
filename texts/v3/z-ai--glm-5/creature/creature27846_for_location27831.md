@@ -1,0 +1,141 @@
+# The Inhabitants of the Velostrade
+
+The first thing to understand about the things that live on the Velostrade is that none of them arrived here. They didn't migrate, didn't disperse from some other biome, didn't gradually expand their range upward from the lowlands. The plateau has been isolated for so long that its inhabitants emerged *from* it, the way features emerge from landscape—gradually, inevitably, shaped by pressures that no longer exist anywhere else on the planet. They are the Velostrade's internal organs made mobile, its processes given legs and mouths and the capacity to suffer.
+
+---
+
+## The Dolems
+
+The largest animals visible from any distance are the dolems. Six-legged, low-slung, their bodies pressed flat against the ground like something that learned long ago that height is vulnerability. Their fur—if it is fur—grows in dense overlapping plates that channel water away from the skin, and each plate moves independently, slightly, creating a constant rippling effect that makes the animals difficult to look at directly. The eye wants to slide off them. The mind wants to classify them as background, as terrain, as anything other than living creatures.
+
+A dolem stands perhaps a meter tall at the shoulder and stretches three meters from nose to tail, but these measurements mean less than they should. The animals compress and expand depending on conditions—smaller and denser during the cold cycles, longer and more loosely built when the fog thickens and the moisture-content of the air changes. They are not shapeshifters in any active sense; they simply occupy their dimensions differently, the way a sponge occupies different volumes depending on how much water it holds.
+
+They feed by pressing their faces against the living ground and *listening*. This is the closest word, though what they're doing has no exact equivalent in human vocabulary. The dolem's skull contains structures—hollow chambers, resonant bones, something like inner ears but distributed throughout the head—that detect vibration in the substrate. They can sense where the plant-mats are healthy and where they're stressed, where the root-systems are actively processing and where they've gone dormant, where the chemical composition of the ground has shifted toward compounds that will sustain them and where it's become toxic.
+
+Having found a suitable feeding spot, the dolem extends a tongue unlike any other organ in any other animal. It's not muscular but hydraulic—a tube that unfolds from the throat and presses against the ground, forming a seal, and then *pulses*. The dolem doesn't eat the plants so much as drink them, drawing fluid and cellular material up through the tube and into a digestive system that resembles a refinery more than a stomach. The process takes hours. A dolem will settle into a single spot and feed for an entire day-cycle, barely moving, its plate-fur rippling as its body processes what it's drawn from the ground.
+
+They are not social animals. They don't herd or pair-bond or communicate across distances. And yet they're never truly alone—each dolem carries a population of smaller organisms in its fur-plates, symbiotic creatures that clean and groom and warn of approaching danger. The relationship is ancient enough that the dolem has evolved specialized folds in its skin where the symbionts can shelter during cold cycles. The symbionts, for their part, have evolved to recognize individual dolems and return to them after excursions. Whether this constitutes friendship or mere mutual exploitation is a question the dolems seem unconcerned with answering.
+
+They die in place. A dolem that can no longer feed will settle onto the ground and stop moving, and within hours the plant-mats will begin growing over it, integrating its body into the substrate. The process is fast—the living ground seems to recognize fresh biological material and move toward it with something that might be eagerness or might simply be appetite. Within a week, the dolem has become part of the plateau. Its nutrients feed the plants it once grazed upon. Its bones dissolve slowly into the stone-flesh. Nothing is wasted because there's nothing here that recognizes the concept of waste.
+
+---
+
+## The Phase-Grazers
+
+Smaller than dolems, quicker, more visibly alive—the phase-grazers are the animals that made the researchers first understand that something was wrong with the Velostrade's relationship to time.
+
+They look, at first glance, like something that might exist anywhere: quadrupeds with dense wooly coats and small alert faces, their bodies compact and efficient against the cold. They move in groups of five to fifteen, grazing on the surface-mats in patterns that seem deliberate but follow no logic human observers have deciphered. They make sounds—short bleats, longer humming calls, a clicking noise that appears to serve as alarm—and they respond to each other's vocalizations in ways that suggest complex communication.
+
+But they don't always move.
+
+This is the wrong way to phrase it. They *do* move—they walk and run and graze and mate and give birth and die in ways that seem entirely normal. But there are gaps. Moments when the narrative of their existence skips like a scratched recording. A phase-grazer will be facing north and then, without any transition, be facing south. A group will be moving toward a feeding ground and then suddenly be there, having crossed the intervening distance without traversing it. An individual will be observed at the edge of a researcher's vision and then, immediately, be observed at the center of the visual field—having approached without crossing the space between.
+
+The animals don't notice this happening. They don't startle at their own displacements, don't show confusion when they appear in new locations. The phase-grazers have evolved to treat temporal and spatial discontinuity as simply another environmental condition—like temperature or moisture, something to be accommodated rather than questioned.
+
+They use it to survive. Predators on the Velostrade have learned that phase-grazers are difficult to hunt—not because they're fast or strong or well-defended, but because they're *unreliable*. A predator that charges a phase-grazer may find its prey suddenly elsewhere, suddenly behind it, suddenly both present and absent in ways that make attacking feel like striking at fog. The phase-grazers don't control this; they can't summon displacement at will or direct it toward safety. They simply exist in a state of partial discontinuity, and sometimes that discontinuity saves them, and sometimes it doesn't, and they have no more opinion about the matter than a plant has about the weather.
+
+Their reproduction is affected. A female phase-grazer will carry young for a gestation period that varies—not slightly, not within normal biological parameters, but drastically. The same pregnancy might last three weeks or nine months, and the offspring might emerge at different developmental stages depending on when the birth happens to occur. Sometimes a single pregnancy produces twins that are born days apart, each kit emerging when its own internal timeline intersects with the external world. Sometimes a kit is born that appears to be the same individual as one born seasons earlier—to the same mother, from the same pregnancy, as if time has looped back and produced the same creature twice.
+
+The researchers try to track these anomalies. They tag animals, observe births, measure the intervals between events. But the data refuses to cohere. The phase-grazers exist in relation to a time that doesn't map onto any clock, any calendar, any system human science has developed. They graze on a living ground that processes existence at geological timescales, and something of that temporal vastness has seeped into their biology, has made them creatures of the plateau's time rather than the world's.
+
+---
+
+## The Hum-Mantles
+
+The factory-growths have their own fauna.
+
+Not inside them—the cylinders and pipes and processing units are sealed, their interiors occupied by whatever biological processes the Velostrade has evolved for purposes no one understands. But around them, clinging to their surfaces, living in their shadows, certain animals have specialized in proximity to the industrial-organic structures. They're called hum-mantles, though the name is a convenience rather than a true classification—they're not a single species but a guild of related organisms that have converged on similar forms.
+
+A hum-mantle looks like a furled umbrella made of flesh. Its body is a broad disk, flexible and muscled, with a central mouth and a fringe of sensory appendages that hang like a curtain around its edges. It moves by curling and uncurling, by gripping surfaces with its fringe-appendages and pulling itself forward in slow undulations. When it finds a suitable spot—a warm place on a factory-growth's surface, a vent that releases steam the mantle can condense and drink, a pipe that pulses with fluids the mantle can tap—it spreads itself flat and settles in, and its fringe-appendages begin a constant slow waving motion that filters particulate matter from the air.
+
+They're eating the factories' output. The hum-mantles have evolved to process whatever the cylinders produce—the steam, the mist, the fine particulate dust that settles on everything nearby. Their digestive systems are adaptable in ways that shouldn't be possible, capable of extracting nutrition from compounds that would be toxic to any other animal. A hum-mantle that settles on a vent producing sulfur-rich steam will develop different enzymes than one that settles near a particulate-dust output; their bodies reconfigure themselves over hours or days to match the local chemistry.
+
+They communicate through vibration. Factory-growths produce the constant low hum that gives the mantles half their name; the mantles themselves produce higher frequencies, rapid pulses that travel through the cylinders and carry information to other mantles on the same structure. Researchers have mapped these communication networks and found them surprisingly sophisticated—the mantles share information about food quality, about optimal attachment sites, about approaching weather or animal movements. A factory-growth covered in mantles functions as a collective organism, its surface population coordinated and responsive.
+
+But the mantles also communicate *with* the factories. Or try to. Their pulses don't just carry information to other mantles—they resonate through the cylinders, and sometimes the cylinders respond. Not in any way that suggests intention or awareness, but in ways that look like feedback. A factory-growth with a dense mantle population will sometimes alter its output, shifting the composition of its steam or the timing of its pulses. Whether this is communication or simply mechanical response to surface conditions is unclear. The mantles act as if they're participating in something; the factories continue their ancient processes without acknowledging the presence of the creatures that cling to them.
+
+Hum-mantles live short lives—months, sometimes weeks—but they reproduce continuously, giving birth to live young that emerge already equipped to cling and feed and pulse. The young disperse across the plateau in search of unoccupied factory-growths, traveling in quick undulations across the living ground, vulnerable during transit to anything that might consider them prey. Most don't survive the journey. The ones that do find a structure and settle, and spend their remaining days filtering output and pulsing messages to their neighbors, and eventually release their own young into the cold wet air before dying in place and becoming part of the surface they occupied.
+
+---
+
+## The Ravelers
+
+The plateau has predators. Of course it does—any ecosystem with grazers and filter-feeders will evolve something that eats them. But the predators of the Velostrade have adapted to prey that phases and slips and exists partially outside ordinary time, and their adaptations make them strange.
+
+The ravelers are named for what they do to causality.
+
+They're not large—perhaps the size of a fox, low to the ground, with bodies that seem assembled from different animals as if someone had combined parts without checking whether they matched. Their forequarters are heavy and muscled, built for lunging and gripping, with powerful jaws and teeth that interlock like a trap. Their hindquarters are leaner, longer, almost skeletal, with legs that seem too thin to support the front end. Their fur grows in patches of different lengths and textures—smooth and sleek over the shoulders, shaggy over the hips, bare in places where something like scales shows through.
+
+They hunt alone. They have no pack structure, no social bonds, no communication with each other beyond avoidance—ravelers that meet by chance will fight or flee, and either outcome leaves both animals wounded and wary. They don't mate in any normal sense; females absorb genetic material from males during brief violent encounters and carry it for months before producing young parthenogenetically, litters of two to four kits that emerge fully capable of surviving on their own.
+
+What makes ravelers dangerous—and what makes them capable of hunting phase-grazers—is that they've evolved to exist in multiple temporal frames simultaneously. A raveler doesn't phase or slip the way its prey does; it's more that it occupies a slightly wider present, a longer moment, a now that extends further in both directions than the now of other animals. It sees the phase-grazer where it is and where it was and where it will be, layered over each other like transparencies, and it attacks all three.
+
+This is the unraveling that gives the ravelers their name. When they strike, they strike at past and future as well as present—at the prey that was there a moment ago, at the prey that will be there a moment from now. They can't choose which temporal layer they're attacking; they simply attack all of them, and usually at least one layer connects, and the prey dies in whatever time the connection was made. A phase-grazer killed by a raveler might die before it was attacked, might die after it escaped, might die in several moments at once. The corpse that remains is the one that the present recognizes—sometimes still warm when the attack hasn't happened yet, sometimes already cooling when the attack is still ongoing.
+
+The ravelers don't experience this as strange. They hunt, they kill, they eat, they sleep, they hunt again. Their wider present is simply the condition of their existence, as natural to them as gravity is to animals that live on solid ground. They're not malevolent or cruel; they're predators who've evolved to hunt prey that exists partially outside time, and they've developed a hunting style that matches their prey's capabilities. The Velostrade doesn't judge its inhabitants for their adaptations. It simply provides conditions, and lets whatever survives survive.
+
+---
+
+## The Fog-Forms
+
+And then there are the things that might not be alive at all.
+
+The fog that pools in the low areas, thick and cold, sometimes contains shapes. They're visible—multiple observers confirm the same forms, the same movements, the same positions—but they're not material. They don't interact with solid objects. They don't leave tracks. Animals ignore them. Equipment doesn't detect them. They're visible without being present, observed without existing.
+
+The researchers call them fog-forms, but this is description rather than classification. No one knows what they are.
+
+Some look like animals—outlines of creatures that might be distant relatives of dolems or phase-grazers, rendered in mist and movement. Some look like nothing that has ever lived, shapes without analog, geometries that hurt to examine closely. Some look human. These are the ones that disturb the researchers most: fog-forms with two arms and two legs and something like heads on something like shoulders, moving through the pooled fog with purposes that seem intentional, going from one place to another as if they know where they're going.
+
+But they're not ghosts. Ghosts would imply something surviving after death, some persistence of identity or memory. The fog-forms show no evidence of either. They don't respond to attempts at communication. They don't react to the presence of observers. They don't display any behavior that suggests awareness of their surroundings. They move, and then they don't, and whether they've vanished or simply stopped being visible is impossible to determine.
+
+The leading theory is that they're temporal echoes—impressions left on the fabric of the plateau by events that happened in other times. The Velostrade's phase-slippage works both directions; just as animals can slip forward or sideways in time, perhaps events can leave traces that propagate backward or laterally. The fog-forms might be animals that existed in the past, moving through spaces that their present overlapped with this present. They might be animals that will exist in the future, their paths pre-written by a time that hasn't arrived yet. They might be animals from adjacent nows—parallel moments that touch this moment briefly before diverging again.
+
+Or they might be something else entirely. The plateau has been running its processes for three billion years. In that time, it has accumulated more strangeness than any human science has learned to categorize. The fog-forms might be what happens when life and geology and industry and time intermix for long enough—they might be the plateau dreaming, or remembering, or projecting possibilities into the mist. They might be alive in some definition of the word, living their fog-lives in their fog-time, as indifferent to the solid animals around them as the solid animals are to them.
+
+They're not dangerous. Nothing bad has happened to researchers who've approached them, walked through them, tried to touch them. The forms simply continue, moving or still, present and then not, visible and then gone. The animals of the Velostrade have learned to ignore them; the humans who study the plateau are still learning. Some things here don't need to be understood. Some things simply are, and will continue to be whether anyone comprehends them or not.
+
+---
+
+## The Deep-Dwellers
+
+Beneath the surface, in the stone-flesh and the root-mats and the reservoirs of ancient water, there are other things. They're harder to observe—excavating the plateau is nearly impossible, the living ground holding itself together with a tenacity that resists any intrusion—but seismic imaging and ground-penetrating radar have detected movements. Large movements. Things that travel through the saturated substrate with purpose, following channels that the root-systems have carved over geological epochs.
+
+No one has seen a deep-dweller. No one knows their size, their form, their function in the plateau's ecosystem. But the researchers have measured their effects: tunnels that open and close, cavities that expand and contract, thermal signatures that appear briefly in the cold deep zones before vanishing again. Whatever lives down there, it's been living there for a long time—long enough to have shaped the substrate around it, to have carved out spaces in the compressed stone-flesh, to have become part of the Velostrade's hidden architecture.
+
+Some researchers think the deep-dwellers might be the plateau itself—mobile extensions of the root-system, organs that travel rather than staying in place, processes that have developed enough autonomy to move and explore and perhaps think. Others think they're a separate ecology entirely, animals that evolved in the deep reservoirs and have never had contact with the surface in all the time they've existed. Still others argue they might not be alive at all—might be geological processes that look biological, or biological processes that look like animals, or something that doesn't fit into either category.
+
+The deep-dwellers, whatever they are, don't come to the surface. They don't interact with the animals above, don't compete with them or prey on them or share resources with them. They might be running their own version of the plateau's processes down there in the dark and cold and wet, metabolizing the ancient water, processing the compressed sedimentary layers, living their lives in a medium that surface animals can't enter. Or they might be waiting for something—some change in conditions, some signal from the factory-growths, some threshold that hasn't been reached yet.
+
+The Velostrade keeps its secrets. The surface reveals enough to suggest vast complexity; the depths suggest complexity beyond imagining. Whatever lives down there, it's been living there since before humanity existed, and it will likely continue living there long after humanity is gone. The plateau operates on timescales that make human concerns irrelevant. Its inhabitants—surface and depth alike—exist in relationship to something larger and older than any individual life, and they participate in whatever the Velostrade is doing without needing to understand it.
+
+---
+
+## The Visitors
+
+Occasionally, things arrive that don't belong.
+
+Migratory birds, sometimes, blown off course by the high-altitude winds, landing on the plateau in confusion and dying within hours because nothing here is meant for them. The plant-mats don't provide the right food; the water tastes of minerals and compounds that birds can't process; the air itself seems wrong, too thin or too thick depending on conditions. The birds die, and their bodies are absorbed into the ground, and the plateau gains a few grams of nutrients that it didn't have before.
+
+Sometimes insects arrive—carried on wind currents, or perhaps drawn by the lights researchers set up during night observations. They don't last long either. The Velostrade has its own insect-like creatures, things that fill the same ecological niches, and they compete ruthlessly with anything that tries to enter their territory. Native insects swarm visitors within minutes of landing, driving them away or killing them outright. The plateau's biological integrity is maintained by inhabitants that treat any intrusion as a threat.
+
+Larger animals sometimes wander up from below—the plateau is high but not inaccessible, and occasionally something from the lowlands makes the climb. Mountain goats, usually, or hardy predators following prey. They find a world that doesn't fit them. The living ground yields strangely under their hooves; the factory-growths pulse and steam and make sounds that panic them; the phase-grazers and dolems and ravelers move in ways that trigger their prey-instincts without satisfying them. They don't stay. They return to lower elevations, if they can find their way back, and they don't come again.
+
+Humans are the exception. Humans arrive deliberately, stay briefly, and leave with data that changes how they understand the world. They set up stations and take measurements and observe the animals and try to map the processes that keep the plateau running. They've been doing this for decades now. The animals have learned to treat them as another feature of the environment—present sometimes, absent sometimes, occasionally interesting but mostly irrelevant. The dolems graze around the research stations without acknowledging them. The phase-grazers move through them and past them. The ravelers ignore them unless they do something that seems threatening. The hum-mantles sometimes attach themselves to the stations' warm surfaces, treating them as temporary factory-growths.
+
+The researchers have a rule: don't stay too long. The plateau's temporal distortions affect humans too, though less severely than they affect the native animals. Stay for a week and you might lose a day—return to find that less time has passed than you experienced, or more. Stay for a month and the effects compound—memories out of order, events that happened before their causes, gaps where hours or days should be. Stay for longer than that and you might not come back the same person who left. Or you might not come back at all. Some researchers have simply disappeared—walked out to observe something and never returned, leaving no trace, no body, no explanation. The plateau doesn't explain itself. It simply continues, and those who get too close to its processes sometimes become part of them.
+
+---
+
+## What the Velostrade Means for Its Inhabitants
+
+The animals here don't know they're strange. The dolems don't compare themselves to mammals from lower elevations and wonder why they have six legs instead of four. The phase-grazers don't feel envy for creatures that exist in a single consistent time. The ravelers don't question why they hunt the way they do, or what it means that their prey can be in multiple places at once. They live their lives in the place where they evolved, under conditions that shaped them, and they do what they do because it's what they've always done.
+
+The Velostrade has been here for three billion years. Its inhabitants have been emerging and evolving and dying and being replaced for most of that time. The current animals—dolems and phase-grazers and hum-mantles and ravelers and fog-forms and deep-dwellers and all the other creatures that have names and the many more that don't—are just the latest iteration, the current expression of processes that have been running since before multicellular life existed elsewhere. They're not the plateau's purpose; they're its consequence. The factory-growths hum and produce their output, and the output feeds into the ecosystem, and the ecosystem supports animals that graze and hunt and phase and slip, and the whole vast system continues without any clear goal or endpoint.
+
+There's no message in this. The plateau isn't trying to teach anyone anything. It isn't a warning or a demonstration or a model for how things should be. It's simply a place—a very old place, a very strange place, a place where the rules have worn thin enough to let other things show through. Its inhabitants are adapted to those conditions. They live in the gaps and the overlaps, in the phase-slippages and the temporal distortions, in the cold and the wet and the constant hum of biological industry. They've found ways to exist here, to reproduce here, to die here and become part of the ground that sustained them.
+
+And they'll continue. When the researchers leave and the stations are abandoned and the plateau is left to its ancient processes again, the animals will still be here—grazing on the living ground, filtering the factory-output, hunting through multiple times, moving through the fog and the moisture and the endless seep of water from below. They'll be here after the next shift in conditions brings new inhabitants to replace them, and after the one after that, and after however many more iterations the Velostrade runs through before something changes fundamentally about the plateau itself.
+
+This is what lives here: life that has become part of geology, geology that has become part of life, time that has become a place, and a place that has become a process. The animals are the least of it—but they're also the most visible part, the part that moves and breathes and can be observed. They're the Velostrade's way of knowing itself, perhaps. Or they're simply what happens when a place this old and this strange has had enough time to develop complications.
+
+Either way, they're here. They've been here. They'll be here. And the plateau hums and drips and processes its ancient inputs into its ancient outputs, and the fog forms and dissipates and forms again, and the water seeps up from reservoirs that have been trapped since before the atmosphere had oxygen, and the whole vast cold wet ancient system continues without reference to anything outside itself—including, and especially, the humans who come to study it and then leave, taking their measurements and their theories and their unanswered questions with them back down to the lowlands, where time still means something and the ground doesn't move beneath your feet.

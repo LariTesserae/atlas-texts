@@ -1,0 +1,17 @@
+Here dwell the Lattice Weavers - entities that exist as patterns of organization within the crystal matrices themselves. They are not quite living in any conventional sense, but rather represent a form of coherent complexity that emerged from the sea's mathematical principles.
+
+A Lattice Weaver manifests as a shifting zone of influence within the crystal structures, like a moving garden of probability that guides growth and dissolution. Their "bodies" are temporary arrangements of crystalline formations that flow and reform, extending through multiple dimensions of the lattice network. They don't so much move through the medium as they propagate patterns across it, like cellular automata expressing themselves in mineral form.
+
+These entities operate on vastly different timescales than biological life - what might appear as a single "thought" could take days or weeks to propagate through their crystalline neural networks. They communicate through precisely modulated vibrations in the medium, creating interference patterns that other Weavers can read and respond to. Their "language" is pure mathematics, expressed in frequencies and growth patterns.
+
+The floating crystal islands serve as something like their dreams - detached fragments where they can experiment with new patterns and configurations without affecting the main lattice. Some Weavers spend centuries cultivating these floating gardens, creating increasingly complex geometric expressions that may eventually be incorporated into the larger system.
+
+While individual Weavers maintain distinct pattern identities, they frequently merge and separate, sharing information through direct crystalline contact. Their consciousness, if it can be called that, is distributed across vast networks of structured mineral, more like a living algorithm than a centralized mind. They have no concept of self in the way biological entities do - they are more like semi-stable eddies in the flow of the system's underlying mathematics.
+
+The sudden restructuring events that periodically sweep through the crystal forests aren't disasters from their perspective, but rather moments of accelerated evolution and information exchange. They ride these waves of dissolution and reconstruction like surfers, using them to rapidly propagate new patterns through the network.
+
+The Weavers appear to be working on something, though their purpose (if they have one) is as alien as their form. They maintain and extend the vast geometric networks not out of biological imperative, but because it is their nature to do so - they are the system thinking about itself, exploring its own possibilities through endless crystalline iteration.
+
+Their "young" emerge spontaneously from zones of particularly complex interference patterns, starting as simple recursive growths that gradually develop more sophisticated organizational abilities. Some never progress beyond basic pattern propagation, while others evolve into entities capable of coordinating crystal growth across vast distances.
+
+The light that permeates their world isn't just illumination to them - it's part of their cognitive process, a medium through which they process and store information in the optical properties of the crystals themselves. They exist in a state of constant computation, each faceted surface a component in an vast mineral computer that contemplates its own existence through the language of growth and form.

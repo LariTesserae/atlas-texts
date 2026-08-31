@@ -1,0 +1,17 @@
+The inhabitants of the High Mesas are not born, nor are they fostered. They are the **Suture-Spiders**, though they possess no arachnid anatomy. Rather, they are assemblages of geometric grace, forged from the very gossamer filaments that dangle in the stagnant, gravity-warped air.
+
+To look upon a Suture-Spider is to watch a mobile constellation of sewing needles. They appear as shifting, tetrahedral clusters of silver thread, humming in a frequency slightly higher than the pillars they inhabit. They possess no central body—no head, no heart, no gut. There is only a core cluster of dense, braided alloy that acts as a sensory anchor point, spinning steadily against the copper-scented wind like a gyroscope. From this center, dozens of gossamer limbs trail outward, not as joints of flesh, but as extensions of the landscape itself.
+
+They are the architects of the silence.
+
+When you walk through the forest of towers, you do not notice them because you perceive them as part of the architecture—a trick of perspective, a glint of refraction. But if you stand perfectly still, as the land demands, they begin to move. They do not crawl. They vibrate their way across the vacuum gaps between the stalks, using the floating foil leaves as stepping stones. They glide on the static charge of the air, fluid as quicksilver, anchored to the world by gravity-warps that they seem to manipulate by simple existence.
+
+They are obsessed with the "Unfinished Sketch." Where a leaf drifts at an unnatural angle, the Suture-Spider descends. It weaves. Its limbs do not merely touch; they bridge. It pulls a trailing thread of silver from a nearby stalk and anchors it to the errant leaf, tying the piece back into the grand, geometric schematic of the forest. They are the repair-drones of a clockwork god, desperately trying to knit the static, non-functional engine into a cohesive whole, though they lack the blueprints to ever finalize the work.
+
+They have no hunger. They do not hunt. They avoid you not out of fear, but out of a profound, cold neutrality. You, with your organic warmth and your messy, decaying cells, are a smudge on their schematic—an error in the logic of the Mesas.
+
+If you were to catch one, if you could trap a cluster of those filaments in your hand, you would feel an intense, localized heat—the warmth of a thousand miles of data moving through a tiny, concentrated aperture. There would be no heartbeat, no struggle. Only the sensation of holding a tuning fork that is trying to harmonize with the bedrock of the world. And as they pulse in your grip, you might hear it: not a cry, but the low, resonant *thrum* of a machine trying to remember its primary function.
+
+They do not sleep. They do not die. They simply fray over eons, their silver wires snapping one by one until they dissipate into the static haze of the horizon. And in their place, another cluster of filament naturally coalesces, pulled together by the magnetic gravity of the Mesas, picking up the needle exactly where the last one left off.
+
+They are not alive, but they are the only things in this place that *do* anything. They are the maintenance crew of a ghost, forever weaving a shroud for a world that has no intention of ever finishing its debut.

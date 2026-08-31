@@ -1,0 +1,13 @@
+In this petrified megalopolis, the true inhabitants are the birds. A mind-boggling array of species has claimed every corner of the crumbling cityscape as their own. 
+
+Swift, dark peregrine falcons streak between towers, stooping on flights of feral pigeons with breathtaking speed. Their ringing kak-kak-kak echoes off walls pocked by millennia of their talons. Burrowing parrots with vivid green plumage squabble and shriek as they enlarge their nests in the pitted stonework, kicking up puffs of dust.
+
+Vast flocks of swifts boil up from the grassy steppe far below to whirl in tornadic clouds above the plateau at dusk. As night falls, they pour into crumbling houses to roost, cramming into chimneys and window voids until no more can fit. Owls emerge to float on silent wings down empty boulevards, alighting on verdigris-crusted lampposts to survey the moonlit domain. Their eerie hoots and screeches mingle with the yipping of unseen nightjars.
+
+In cracked stone plazas, iridescent starlings flock in undulating rivers, walking with heads down to pick through crevasses for seeds and insects. Swallows pluck beakfuls of algae from scummy pools in broken fountains. Their mud nests plaster the undersides of sagging balconies and collapsed roofs. Jewel-like hummingbirds, drawn to the glistening lichen-sap, whir and dart and chitter among crystal outcrops ringing with the deep booms of great sage grouse.
+
+Prehistoric-looking, bald-headed condors build great stick nests on mountainous heaps of collapsed towers, sharing ledges with stoic-faced, black-winged golden eagles. Far above even their lofty aeries, skeins of geese arrow by in perfect V-formations, honking musically. 
+
+The birds are both the inheritors and the caretakers of this place. In a city no humans could endure, they thrive. The same wind and water that scoured away the works of a civilization sculpt their world anew each day. Seeds ferried in from distant lands sprout in cracks filled by centuries of bird dung. Hardy grasses wave from balconies. Insects buzz in courtyards choked with wildflowers sown by a thousand beaks.
+
+It is a domain of wings now, watched over by pitiless raptor eyes and scoured by the never-ending drizzle of guano. The ancient architects could never have foreseen it, but the city teems with feathered life in forms far more spectacular than any sculptured into its eroding friezes. The birds abide here atop a lofty island in the sky, where they reign supreme over the majestic, melancholy ruins of the vanished giants who came before.

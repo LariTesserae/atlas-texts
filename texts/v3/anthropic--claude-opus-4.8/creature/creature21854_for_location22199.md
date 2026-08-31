@@ -1,0 +1,47 @@
+# The Prunewrights
+
+They are small. That is the first thing, and the thing that took the longest to become true—because in a place that grows without ceasing, smallness is not weakness. It is *speed*. A large body could not turn quickly enough to cut its way back out of a closing corridor. A large body would be a slow thing in a fast world, a boulder in a river, doomed to be wrapped and sealed and digested into pith. So they are small, and quick, and built low and lateral, made to scuttle along the breathing ribs of the floor and press flat into a vein-groove when a river of wings comes pouring through.
+
+Call them what their tally-marks would call them, if the marks were sounds: the *prunewrights*. Gardeners of the throat. They live by the fourth rule because they *are* the fourth rule, the part of the world that carves faster than it heals.
+
+## Their Bodies
+
+They did not come from outside. Make no mistake about that—there is no outside to come from, no sun-country they remember, no surface to have fallen from. They are *of* this place. Their flesh runs the same blood-warm as the pith they sleep against. They have no need of water because they never evolved the expectation of it; they take their moisture, what little they need, from the wax-fruits and the crystalline sap-stone they crack and let dissolve slow on the tongue. Their waste is dry. Their tears, if they wept, would crystallize.
+
+Their hands are the masterpiece. Four fingers and a doubled thumb, one opposing each side of the palm, so that a tool can be held *and turned* in the same grip—because everything they do is a thing done against motion, a cut made on a surface that is already swelling out to meet the blade. They prune the way you might catch a falling cup: not with force but with *timing*, reading the swell, knowing the meristem's intention an instant before it acts. A skilled prunewright does not fight the growth. She *anticipates* it. She cuts where the bud has not yet decided to open, and so the corridor stays a corridor for one more day.
+
+Their skin is plated in shed animal-armor that they harvest and fit and re-fit as they grow—not their own armor, never their own, but the cast-offs of the great pale grazers, the molt-sheets of the leg-things, lashed over a hide that is itself tough as cured rind. They wear the weather. They are camouflaged not against any predator's eye but against the *plant's* tendency to lash onto anything that holds still, because the armor-plate is dead matter and the growth has learned, over uncountable generations of these creatures, that dead plate is not worth claiming.
+
+Their eyes are large and dark and lidless, and they do not blink so much as *sheathe*—a nictitating film of the same resin they glaze their walls with, slid across to keep the constant rain of spore and frass and wax-dust from the surface. In the butter-and-rust glow they see well. In true dark they would see better, but there is no true dark here, and so a part of them, the part that might have evolved for night, has gone instead into hearing.
+
+## How They Hear in a World With No Silence
+
+This is the thing the descender cannot understand, coming down from a place with quiet in it: the prunewrights do not hear *sounds*. They hear *changes*.
+
+The roaring chord, the organ-drone, the total medium of stridulation and mouthparts and breathing pillars—that is not noise to them. That is *baseline*. That is the shape of the world being well, the sound a body makes when it is alive and unthreatened, the way you do not hear your own heartbeat until something is wrong with it. They have never known quiet and the fifth rule is true: silence would terrify them the way a sudden cessation of your own pulse would terrify you. Silence would mean the world had *died*, or—worse—that something so large and so hungry had entered the gallery that everything smaller had stopped moving at once.
+
+What they hear is the *grain* in the chord. A shift in the pitch of the breathing pillars that means a passage is about to seal. A change in the direction of the wing-rivers—rule three, the animals are the weather—that tells them a storm of bodies is coming and which alcove will be safe. The particular dry tearing-sound, distinct from all the rest, that means new growth is erupting *here*, now, in this wall, and the corridor has perhaps an hour. They live inside the song the way the descender is told to: thinking *under* it. But they were born under it. They have no surface to come up for.
+
+## Their Craft
+
+Everything they make, they make against permanence, and so everything they make is small, and dense, and quick to build, and quicker to abandon.
+
+The sealed bud-dwellings are not homes in the way a stone house is a home. They are *campsites*. A prunewright family will hollow a swelling bud, scrape its inner walls of meristem until the growth-tissue is dead and will not reclaim the space, glaze it with luminous resin, and live in it—for a season, for a generation, for as long as the bud holds. And then the bud, being a bud, will at last do what buds do: it will mature, and split, and try to become a chamber of new corridors, and the family will read the swelling in its walls and the change in its breathing and they will *know*, days ahead, that the dwelling is dying. And they will move. They carry their loom. They carry their hearth-coals banked in a resin pot. They carry the tally-sticks, which are the closest thing they have to a permanent thing, and which is why the tally-sticks matter so much.
+
+Because here is what the tally-marks count: not days. The descender guessed days, and was wrong, because days do not exist here—there is no sun to make them. The marks count *dwellings*. Each notch is a home abandoned to the growth. A prunewright's worth, their seniority, their wisdom, is measured in how many times they have read the death of a home correctly and moved before the swallowing. An elder's tally-stick is long and worn smooth from handling, and reading it is reading a life: *here we lived in a high pillar-bud and the wing-rivers were kind; here we lived low and a grazer-tunnel broke through our floor and we lost a child to the things that follow the grazers; here, here, here.* The stick is genealogy and map and memoir at once. When an elder dies, the stick is not buried—nothing is buried in a world that has no ground to dig, only more living tissue. The stick is *passed*, and the inheritor begins to add their own notches below the dead one's last, and so a single stick may be older than any dwelling, older than any living prunewright, the one truly continuous object in a discontinuous world.
+
+## Their Knowledge
+
+They are scholars of poison and edibility, and this is most of their lore. Which frond bears wax you can eat and which bears the wax that closes your throat. Which sap-crystal slakes and which sap-crystal burns. The notch-marks they cut into the safe fronds—the ones the plant grows around and preserves like scars—are not for themselves. A prunewright knows their own pruning-paths by heart. The marks are *teaching*. They are a writing system whose substrate is alive, whose pages grow and move and seal away, and so a marked frond carried into a new gallery is a textbook brought to a new school: *this kind is safe; learn its shape; here is the notch that means safe; now find the others like it.*
+
+They have a long memory and almost no archive. Everything they know they must keep in the body—in song, in the patterning of the tally-notch, in the muscle-memory of the doubled thumb that knows how to cut a swelling bud. They cannot leave a library, because a library would be swallowed. So they *are* the library, each of them, walking and small and warm, carrying the whole knowledge of negotiating with the throat of the world in their hands and their hearing and the worn smooth stick they will one day pass down.
+
+## What They Believe
+
+They have a single idea that organizes everything, and it is this: *the world is being born, and it does not know yet what it will be, and our work is to keep it from finishing.*
+
+Because a finished world would be the end of them. A corridor that stayed a corridor forever, a bud that never split, a pillar that stopped breathing—these would be death, the death of the medium, the silence. They do not want the growth to stop. They love the growth the way you love the thing that will eventually kill you and is also the only reason you are alive. They prune not to defeat it but to *converse* with it, to carve a small human-shaped pause into the endless turbulent becoming, to make a room inside the song that is briefly, fiercely, theirs—knowing it will be reclaimed, knowing they will read its death in its breathing and move on, carrying the loom and the banked coals and the stick.
+
+They are the small clever creatures making homes against the walls of the song. They have never heard the song stop. They pray it never does.
+
+And when one of them, very old, lies at last in a glowing bud they know is dying around them, and feels the walls beginning to swell, and is too tired now to move—they do not fear it. They pass the stick. They listen to the grain in the great unbroken chord. And they let the world finish the one small room it had been patient enough to lend them, going back into the warm green becoming, unburied, un-still, part of the note that goes on forever.

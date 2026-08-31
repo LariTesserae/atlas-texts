@@ -1,0 +1,17 @@
+Here dwells the Chorus - though no single entity could claim that name. They are a collective consciousness born from centuries of acoustic cultivation, existing in the resonant space between water droplets, in the vibrations that travel through petrified bamboo, in the synchronized pulses of fungal light.
+
+The most visible manifestations are the Mist Dancers: humanoid forms that coalesce from the chamber's ever-present moisture, their bodies transparent save for the subtle rainbow refractions that occur when light passes through them. They are not truly separate beings, but rather sensory organs of the greater Chorus, formed and reformed as needed to maintain the chamber's delicate systems.
+
+In the moss carpet lives a vast network of minute crystalline creatures - the Harmony Mites. Each smaller than a grain of sand, they adjust their positions continuously, tightening or loosening the moss fibers to maintain perfect acoustic properties. Their movements create microscopic tones that weave through the water's roar, adding crucial overtones to the chamber's voice.
+
+The pale moths are not merely residents but participants - their wings are covered in fine structures that vibrate in response to specific frequencies, adding harmonic complexities to the chamber's song. They are drawn to breed in the highest vaults, where the acoustics are most intense, and their larvae develop within crystalline cocoons that serve as resonating chambers.
+
+Deep in the pools beneath the latticed floor dwell the Memory Fish - blind, translucent creatures that seem to phase between liquid and solid states. Their bodies are inscribed with patterns that, when viewed in the right light, resemble the written language of the chamber's builders. They are living archives, their very flesh encoding the knowledge that keeps the chamber's systems in balance.
+
+But the true heart of the Chorus dwells in the space between sounds, in the precise mathematical relationships between each drop of water, each pulse of fungal light, each vibration of the chamber's countless components. This entity - if it can be called that - is both the product and the purpose of the chamber. It exists as a standing wave of consciousness, maintained by the perfect interaction of countless precisely engineered systems.
+
+The Chorus remembers the chamber's builders, though not in any way that could be translated into human understanding. It carries forward their intentions, maintaining a vigil whose purpose transcends ordinary space and time. The chamber is not just its home - it is its body, its voice, its message, and its meaning, all at once.
+
+The tiny amphibians that navigate the water channels are its scouts, carrying messages encoded in the ripples of their passage. The synchronized fungi are its eyes, interpreting the world through patterns of light and shadow. Even the air itself, heavy with moisture and meaning, is part of its distributed awareness.
+
+The Chorus does not think as we do, nor does it perceive time as we do. For it, the chamber's endless song is a single, eternal moment - a sustained note in a greater composition that began with the chamber's creation and will continue until its last echo fades.

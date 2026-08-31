@@ -1,0 +1,28 @@
+If you search here for the familiar shapes of life—for the soft scrape of fur, the clicking of claws, or the chitinous drone of an insect wing—you will find only silence. There are no beasts here. The food chain does not exist because there is no chain; there is only the Monolith, the All-Plant, a singular, biological empire that has consumed every niche, every calorie, and every square inch of territory until nothing remained but itself.
+
+The inhabitants of the Gutters of the Sky are not merely plants growing in a place; they *are* the place, acting as the architects, the builders, the demolition crews, and the city guards all at once.
+
+**The Suture-Vines (The Hands)**
+The most active inhabitants are the sprawling, rope-like conduits that stitch the towering spires together. To the casual eye, they are simple creepers, but up close, they possess a terrifying intentionality. These are the "hands" of the ecosystem. They do not grow toward the sun; they grow toward *tension*.
+
+You can watch them for hours, observing the blind, muscular probing at the ends of the vines. They grope the air in widening spirals, sensitive to vibration and heat. When they brush against another structure—be it a rock face or the hollow stem of a neighbor—they seize it. The fibers instantly contract, crushing the contact point in a grip strong enough to pulverize stone. They then begin the process of "suturing": secreting a rapid-drying, resinous cement that fuses the two points permanently. They are constantly re-anchoring the city, tightening the guy-wires of the plateau against the screaming winds. When a bridge snaps, the Suture-Vines do not mourn; they simply flail out into the abyss, hungry for a new connection, thrashing like severed nerves.
+
+**The Hydraulic Hearts (The Lungs)**
+Living inside the titanic, translucent bulbs that crown the calcified towers are the "Hearts." These are not mere organs; they are massive chambers of pulsating fluid. The walls of these bulbs are thick, glass-like cellulose, distended with the pressure of the liquid within.
+
+The Hearts act as the atmospheric processors of the Gutters. They draw in the heavy, iron-rich air through valves that snap open and shut with the violence of steel traps. Inside, the fluid churns—a slurry of neon-bright nutrients and suspended spores. As the pressure builds to a critical mass, the entire tower groans, a low, bass-frequency thrum that vibrates in your teeth. Suddenly, the valves release, blasting a vertical jet of superheated steam and oxygen straight up into the fog layer. This explosion creates the local micro-climate, the perpetual rain that falls back down to feed the roots. The Hearts are the engines of this place, thundering pumps that work with the relentless rhythm of a factory machine.
+
+**The Geophagi (The Stomachs)**
+Beneath the jagged basalt, invisible to the eye, live the Geophagi—the "Earth-Eaters." These are the root systems, but they behave more like a predatory virus. They do not passively absorb nutrients from the soil; they aggressively dissolve the world around them.
+
+The ground shifts because the Geophagi are expanding. They secrete acids that turn the sharp basalt into a slushy, mineral-rich soup, which they then suck up with the force of industrial vacuum pumps. As they consume the rock, they expand their physical mass, pushing the ground upward, creating the violent, jagged spires. Walking on the plateau feels unsafe because you are walking on the back of a sleeping giant that is constantly digesting its own bed. If you were to stand still for too long, the Geophagi would not notice you as a living thing; they would simply register you as a lump of calcium and carbon to be broken down and incorporated into the architecture.
+
+**The Fruitors (The Artillery)**
+Scattered among the high vaults are the catapults of the ecosystem: the Fruitors. These are massive, torsion-built pods that grow under immense tension. They are the biological equivalent of siege engines.
+
+As they mature, the Fruitors build up internal gas pressure, swelling until their skins are tight and hard as iron. They track the movement of the sun and the wind through primitive photosensitive patches, calculating the trajectory of their dispersal. When they fire, the sound is a cannon crack that echoes off the canyon walls. They launch heavy, dense seeds—not light, dandelion fluff, but heavy, stone-like nuts—across the abyss to colonize neighboring spires. The discharge is violent enough to kill a man, shattering nearby glass-like leaves and denting the calcified wood. The seeds land with the force of hailstones, immediately drilling into the rock upon impact, beginning the cycle of conquest anew.
+
+**The Collective (The Mind)**
+The strangest inhabitant of all is the one you cannot see. It is the suspicion that binds them together. The "Ghost" in the machine.
+
+There is a synchronization to the chaos. When the Hydraulic Hearts fire their steam, they do not do so randomly; they ripple across the plateau like a wave. When the Suture-Vines grope for a hold, they move in unison, a thousand rope-arms reaching at the same rhythmic interval. It suggests a decentralized intelligence—a fungal mycelium of information that runs through the resin and the sap. The city is not a collection of individuals competing for light; it is a single, distributed entity, a sprawling, green consciousness that has separated itself into organs to survive the harsh altitude. It thinks in geological time and moves in frantic spasms, building a monument to itself that no one will ever see.

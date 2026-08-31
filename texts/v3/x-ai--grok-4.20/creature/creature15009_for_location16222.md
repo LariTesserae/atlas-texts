@@ -1,0 +1,29 @@
+**They are called the Unfinished.**
+
+Not by outsiders—there are none—but by themselves, in the low, damp dialect that sounds like water moving through gravel. They do not have a single name for their kind. Sometimes they say “the Stoneborn,” sometimes “the Slow,” sometimes simply “those who wait inside.” All are true. All are incomplete.
+
+They are shorter than surface folk, though not by much; the ceiling has seen to that. Their spines have a permanent slight hunch, their necks thick from a lifetime of looking upward and sideways at once. Skin is the color of wet chalk, faintly luminous in the blue shafts of distant daylight, and it never quite dries. Moisture beads on them the way it beads on the pillars. Their hair, when they keep it, is lank, colorless, and often braided with tiny copper bells or fragments of blind fern so that even the smallest movement announces them to the dark.
+
+Their eyes are large, almost too large, and pale grey or milky blue. In the slanted light they look like clouded river pearls. They do not blink often. Some of the oldest among them have begun to develop a faint nictitating membrane, a second lid that slides across when the rare surface storm sends silt-laden water trickling down the vents. The children find this fascinating and try to imitate it with their fingers.
+
+They move with the deliberate patience of things that have never been in a hurry. There is no running in the Underhalls; the alleys will not allow it. Instead they flow, shoulder brushing shoulder, hip brushing hip, like blood cells in a vein that has grown too narrow. When two people must pass in the tightest gaps they press their foreheads together for a moment in silent greeting, sharing breath and the faint warmth of skin against skin. It is the only currency of privacy they possess.
+
+Their hands are their true faces. Broad, strong, perpetually chalky with stone dust, the palms cross-hatched with hundreds of tiny cuts that never quite heal. Every line tells a story: the angle of a chisel, the weight of a mallet, the precise pressure needed to coax a fossil out of living rock without shattering it. They speak with their hands even when their mouths are still—small economical gestures that the children learn before they learn words. A cupped palm tilted left means “this chamber is still dreaming.” Two fingers tapped against the opposite wrist means “the world groaned again; be gentle today.”
+
+The Unfinished are not a single people but a slow convergence of lineages that found their way down through different fissures over centuries. Some still carry the broad faces and heavy brows of the first families who arrived when the caves were little more than wet cracks. Others show the narrower features and longer fingers of later refugees who fled surface wars no one here can even name anymore. They do not fight over these differences. The stone presses everyone the same.
+
+They worship nothing and everything. Their only shrines are the half-born pillars where the rock has taken on shapes that look almost like faces, or hands, or curled fetal bodies. Around these they place small offerings of blind white fern, sour milk, and tiny copper bells that ring when the stone itself groans. They do not pray for salvation. They pray for continuation—for the world to keep choosing to become, and for themselves to be allowed to become with it.
+
+Every adult carries a personal chisel. It is never sharpened beyond the point where it can still speak to the stone without bullying it. The handle is always carved from driftwood that once saw sunlight; they consider this important. When someone dies, their chisel is driven halfway into the nearest unfinished wall and left there. The body itself is not buried. It is laid in a shallow trough where water slowly covers it, and the limestone is allowed to do what limestone does. Within a generation the person is simply part of the city. You can sometimes see them—faint outlines of a shoulder, the curve of a skull—emerging from a wall beside a hearth or beneath a shared roof. No one finds this macabre. It is the highest form of citizenship.
+
+The children are born with their eyes open. They come into the world quiet, already listening for the next tectonic groan. The midwives wrap them in soft liverwort blankets and lay them against the warmest, dampest stone so the rock can introduce itself. Some infants reach out and press their tiny palms to the wall as if trying to read it. Those who do this earliest are marked for the widening crews—the ones who will spend their lives listening to the stone and asking it, with hammer and love, to open a little more.
+
+There are no kings. There are only the Listeners—men and women whose ears have grown so sensitive they can tell, by the quality of a drip, which distant surface season is passing overhead. When the Listeners speak, everyone pauses, even the looms. Their voices are soft, almost hoarse, as though they have spent too many years translating the language of settling stone into human sounds.
+
+They are not happy, exactly. Happiness requires contrast, and they have known only this half-lit, half-born place. But they are deeply, geologically content. You can see it in the way an old woman runs her hand along a wall that is still deciding whether it will become a doorway or a pillar. You can see it in the way a man sits for hours beside a slow canal, watching a blind white fish rise and fall like a thought the world has not yet finished thinking.
+
+They are the Unfinished, and they know it. The knowledge does not trouble them.
+
+After all, the stone is unfinished too.
+
+And together—cell by cell, drip by drip, groan by groan—they are teaching each other how to become.

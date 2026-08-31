@@ -1,0 +1,95 @@
+# Who Lives in the Floodworks
+
+---
+
+No one lives here.
+
+That is the first answer, and it is almost true, and it is the answer the Floodworks themselves would give if they could speak, which they cannot, which is part of the point. No one lives here. The place was not built for living. It was built for pumping. Whatever it has become since — and it has become something, over the millennia, something that resists easy naming — it has not become habitable. It has not softened. It has not invited.
+
+And yet.
+
+---
+
+Start with the closest thing to a resident, because there is one, and it is not alive, and it is not dead, and it is not a machine, and it will take some time to describe because it does not sit still in the mind any more than it sits still on the floor.
+
+It moves through the channels.
+
+Not *in* the channels — through them. It is not carried by the water. It is not swimming. It is a pattern of movement in the water itself, a coherent disturbance, a thing shaped like the absence of stillness. If you watched a particular stretch of open channel for long enough — hours, maybe days, with the patience the Floodworks seem to demand of anyone who encounters them — you would see it. The dark water flowing quick and flat and then, for a span of perhaps ten or twelve meters, something changes. The surface develops a texture it shouldn't have. Not waves exactly. Not ripples. A *grain*, as though the water in that stretch has briefly become a different substance, denser or more structured, moving at a slightly different speed than the water around it, catching the dim phosphorescent light at an angle that makes it seem almost solid. It moves upstream. Always upstream. Against the current, against the pressure, against the logic of the system, and it moves at a walking pace — a slow, deliberate walking pace, as though it is going somewhere, as though it has business.
+
+The engineers — if there were engineers, if there had been engineers within living memory or beyond it — might have called it a soliton. A self-reinforcing wave, a hydrodynamic structure that maintains its shape as it propagates. The mathematics of such things are well-understood. A soliton in a channel is not mysterious. It is not alive.
+
+But this one turns corners.
+
+It reaches a junction where the channel splits, and it pauses — the disturbance holds its position against the current for ten, twenty, thirty seconds — and then it moves down one branch rather than the other. It chooses. Or it seems to choose. Or the word "choose" is the only word that fits what it does, even though nothing about it suggests consciousness, volition, desire. It is water moving through water. It is pattern persisting in a medium that should dissolve it. It has been doing this for a very long time. The mineral deposits on the channel walls near certain junctions are worn differently than elsewhere — smoother, the iridescent film thinner, as though something passes those spots with regularity, disturbing the slow accumulation. Whatever it is, it has routes. It has preferences. It has, god help you, *habits*.
+
+You cannot interact with it. If you put your hand in the channel as it passes, you feel nothing but the water. Cool, persistent, faintly oily water, the same as everywhere else. The disturbance passes through you or around you without acknowledgment. You are not an obstacle to it. You are not anything to it. But if you stand very still at the edge of the channel, and if the ambient rumble of the pumps happens to enter one of its rare quasi-quiet phases where the interference patterns cancel just so, you might hear something in the water as it passes. Not a voice. Something more like the ghost of rhythm. A cadence, a periodicity in the lapping against the channel walls that is almost — *almost* — structured. Almost intentional. Almost language, if language could exist without a speaker, without meaning, without anything to say. A habit of pattern. An echo of something the water learned to do when the Floodworks were young, when perhaps there were voices here, when perhaps people spoke near the channels and the water listened in the only way water can listen — by moving.
+
+It has no name. It cannot be named because it cannot be consistently identified. Is the disturbance you see at junction 4471-C the same one you saw three days ago at junction 4470-A, a kilometer upstream? The pattern looks similar. The movement is the same. But it is *water*. It is a shape in water. Calling it "the same" requires a theory of identity that the Floodworks make very difficult to sustain.
+
+Call it the Grain. That's not its name. It doesn't have a name.
+
+There may be one of it. There may be hundreds.
+
+---
+
+Now: the thing that might be alive.
+
+Deep in the pump houses — not in all of them, perhaps not in most of them, but in enough of them that it constitutes something more than anomaly — there is a growth. Not the greenish-black film that accumulates on wet surfaces everywhere. Something else. Something that seems to belong to the machinery rather than to the water.
+
+It grows in the joints of the pump assemblies, in the spaces where connecting rods meet flywheels, where gaskets have long since fused with the metal they were meant to seal, where lubricant and water and rust have been mixing under pressure and heat for epochs. It is fibrous. Dark reddish-brown, the color of old blood or deep rust, and it has a texture that is difficult to categorize because it seems to change depending on how long you look at it. At first glance it looks like a mineral deposit, like calcium or iron buildup, the kind of accretion you'd find in any ancient pipe. Look longer and it starts to look organic — fibrous, layered, with a structure that suggests growth rather than accumulation, the way a tree suggests growth rather than accumulation even when you can't see it moving. The fibers branch. They reach toward each other across gaps. They form networks that span the interior surfaces of pump housings like nervous systems without a body, or root systems without a plant, or — and this is the comparison that will not stop suggesting itself, however unwelcome it is — *like the inside of a circulatory system seen from within*.
+
+It pulses. Faintly. Almost imperceptibly. But if you press your palm against a surface where the growth is thick, you can feel it — a rhythm beneath the rhythm of the pump, faster, more organic, a kind of throb that is *not* the mechanical vibration of the flywheel or the piston but something layered on top of it, something using the mechanical rhythm as a carrier wave. It pulses and the fibers thicken slightly and then thin slightly and the reddish-brown color deepens and then fades and the whole thing breathes.
+
+Is it the Floodworks coming alive? Is it a parasite? Is it something that was always here, built into the original design, a biological component of a system so old that no one remembers what biology was supposed to contribute? The growth does not impede the machinery. That is the remarkable thing. In a system this old, any biological intrusion should clog, should corrode, should interfere. But the fibrous network grows *around* the moving parts, occupying only the dead spaces, the interstices, the gaps between function. It is considerate in the way that a very old symbiont is considerate — not through intention but through millennia of mutual adjustment, organism and machine each having long since accommodated the other's presence, their boundaries blurred by time into something that is neither purely mechanical nor purely alive but a third thing, a Floodworks thing, a category that exists only here.
+
+In certain pump houses, the growth is extensive enough that the interior walls are almost entirely covered. Entering one of these is — an experience. The orange glow of pilot flames filters through the fibrous layer and turns warm, reddish, intestinal. The walls seem to breathe. The sound changes, the hard metallic echoes softened by the organic surface into something rounded, almost intimate. You are inside something. Not a building. Not a body. Something in between. Something that runs on pistons and connecting rods and also on whatever slow metabolism drives the fibers to reach and branch and pulse.
+
+And in the very center of these heavily colonized pump houses, at the nexus of the fibrous network, there is sometimes — not always, not predictably — a denser structure. A node. A mass of compressed fibers about the size of two fists held together, darker than the surrounding growth, almost black, and warm. Distinctly warm, warmer than anything else in the Floodworks, warmer than the steam vents, warm in the way that living things are warm, from within. If you put your ear to it — and you should not put your ear to it, but if you did — you would hear, beneath the pump-throb and the valve-clatter and the whole vast mechanical symphony of the Floodworks, a second sound. Small. Intimate. Rapid.
+
+A heartbeat.
+
+Not the heartbeat of the pumps. Not a mechanical rhythm. A *biological* heartbeat, fast and thin, the heartbeat of something small and frightened or something small and working very hard to stay alive, or something that is neither small nor frightened but that beats fast because that is what it does, that is its nature, that is its contribution to the system it has grown into and that has grown into it.
+
+The nodes cannot be removed. They have been tried — there are marks, ancient marks, tool-marks and scorch-marks around some of them, evidence that someone, sometime, attempted excision. The fibers resisted. Or the machinery resisted. Or the Floodworks resisted, in the way that a body resists the removal of an organ — not through active defense but through the simple structural fact that everything is connected to everything else, that pulling at this one thing means pulling at the whole system, and the whole system is too vast and too entrenched and too *old* to be pulled at.
+
+So the nodes remain. Beating. Warm. Alive in a way that nothing else here is alive. Growing, perhaps, at a rate too slow to observe. Spreading, perhaps, from pump house to pump house through the floor itself, through the iron and concrete, fibers threading through the same seams and joints that the water uses, following the water, accompanying the water, another kind of circulation in a place that is defined by circulation.
+
+Call it the Growth. That's not its name either. It doesn't need a name because no one is here to call it anything.
+
+---
+
+And then there is what might be a person.
+
+The evidence is circumstantial and old. In certain pump houses — not the ones with the Growth, never those, always others, always at a distance — there are signs of habitation that are impossible to date precisely but that feel wrong in their recency. A valve wheel that should be frozen with rust but turns freely, its contact surfaces bright with use. A section of grating that has been unbolted and re-bolted with a different pattern of bolts, as though someone lifted it to access the space below and then replaced it with whatever hardware was to hand. A tool — a wrench, an iron bar, a thing that might have once been a screwdriver — leaning against a wall in a way that suggests placement rather than abandonment. The mineral film on a section of pipe disturbed, wiped clean in an arc consistent with someone resting their back against it.
+
+In one pump house, far from any other — at least two kilometers from the nearest structure, deep in a stretch of featureless floor where the haze is particularly thick and the steam vents particularly active — there is something that might be a bed. It is a section of grating that has been lifted from the floor and placed on top of a pipeline, creating a raised platform above the wet surface. On it, several layers of the greenish-black film have been scraped from surfaces elsewhere and piled — not randomly, deliberately, compressed into a mat, a padding of not-quite-biological material arranged by not-quite-human hands into something that approximates comfort. Next to it, a length of pipe has been bent — *bent*, which requires either extraordinary strength or extraordinary patience or a tool that does not appear to be present — into a shape that serves no hydraulic purpose. It curves. It doubles back on itself. It is, if you are willing to see it, a hook. For hanging something. A garment. A bag. Something personal. Something belonging to someone.
+
+There are no garments. There is no bag. There is only the hook, and the bed, and the wrench leaning against the wall, and the impossible question of who.
+
+---
+
+The evidence does not accumulate into a coherent picture. That is the maddening thing. It suggests presence without confirming it. In different parts of the Floodworks — sometimes very far apart, separated by distances that would take days to walk — there are similar signs. A valve adjusted. A hatch opened and reclosed. A section of floor cleaned of its water-film in a way that weather and vibration do not explain. And occasionally, very occasionally, in the deepest pump houses, on the most rusted and ancient surfaces, there are marks that are unmistakably intentional. Scratches in the oxide layer. Not language — not any recognizable language — but not random either. Tally marks, perhaps. Or diagrams. Or maps. Short sequences of lines and curves that repeat with variations, as though someone were trying to notate something — the pump rhythms? The channel patterns? The movements of the Grain? — in a system of symbols that makes sense only to them, that *can* make sense only to them, because the thing they are describing is the Floodworks, and the Floodworks can only be described from within, by someone who has lived in them long enough to develop a notation for their moods.
+
+Because the Floodworks *have* moods. Stay long enough and you feel it. Not emotion — nothing so anthropomorphic — but variation in the texture of the place, modulations in the pump-throb that correspond to no measurable pressure change, shifts in the quality of the light, in the temperature of the water, in the behavior of the Grain, that seem to follow a logic more complex than any mechanical feedback loop. The Floodworks are not conscious. They are not alive. But they are *complex* in a way that, over sufficient time, begins to resemble aliveness the way the rust resembles ore — not through any process of becoming but through the sheer accumulated weight of time and process and interaction, layers and layers of mechanical cause and effect so deep and so interconnected that the emergent behavior of the whole system develops a character, a disposition, a way of being that is distinguishable from other ways of being even if it is not, in any rigorous sense, *chosen*.
+
+Someone has been here long enough to read those moods. To scratch them into iron. To sleep above the wet floor on scraped-together fungal mats and work the valves and walk the channels and develop a relationship with this place that is not habitation but something else — something more like *participation*, like becoming one more subsystem in a system that is already so vast and so layered that one more component, even a biological one, even a conscious one, makes no meaningful difference to the whole.
+
+---
+
+You will not find this person. If it is a person. If it is one person rather than a succession of persons, each inheriting the wrench and the bed and the notation system from the last, a lineage of solitary operators that stretches back into the same fog of time that obscures everything else about the Floodworks. You will not find them because the Floodworks are too large, and the haze is too thick, and the sound is too constant, and you do not know where to look, and they — if they exist, if they are here, if they are here *now* — know how to move through this place in a way that you do not. They know which channels to follow. They know which pump houses to avoid, which ones belong to the Growth, which ones are safe to sleep in. They know the schedules of the steam vents, the rhythms of the pressure cycles, the tidal patterns of the water that seeps up through the floor. They know these things not because they learned them but because they have lived inside them so long that the knowledge has become structural, has become part of their body the way the Growth has become part of the pump housings — not added but integrated, not understood but *inhabited*.
+
+And perhaps — this is speculation, this is the haze talking, this is the sound getting into your head — perhaps they are not entirely separate from the Floodworks anymore. Perhaps the distinction between the operator and the system has eroded the way everything here erodes, slowly, by water and time, until the boundary is a formality, a seam that still shows on the surface but that, beneath, has fused into something continuous. They walk the floor and the floor vibrates and the vibration changes the pump rhythm and the pump rhythm changes the water pressure and the water pressure changes the channels and the channels change the path of the Grain and the Grain — does what? Communicates? Responds? Acknowledges? Something. Something that closes the loop. Something that makes the whole system — floor, water, pumps, Growth, Grain, and this one solitary figure walking wet-footed through the haze — into a single organism, a single process, a single vast mechanical-biological-hydrological *thing* that pumps and breathes and grows and walks and scratches symbols into itself and does not know what it is and does not need to know what it is because knowing is not one of its functions.
+
+Its function is pumping. Its function is continuing. Its function is holding back whatever presses against the underside of the floor, that unimaginable weight of dark water, that reservoir or ocean or abyss that the Floodworks were built to manage and that the Floodworks will manage forever, or until the last pump fails, or until the last valve seizes, or until the person — if there is a person — stops walking and lies down on the grating and lets the water that seeps up through the seams finally, finally cover them, and the Floodworks absorb this too, as they absorb everything, as they have always absorbed everything, adding one more layer of organic mineral rust-bloom to the infinite stratigraphy of a floor that has been wet and working and weeping and *alive* in its own terrible way since before memory, since before language, since before the question of who lives here had anyone left to ask it.
+
+---
+
+So: what lives in the Floodworks.
+
+The Grain lives in the Floodworks, if it lives.
+
+The Growth lives in the Floodworks, if it lives.
+
+Something that might be a person lives in the Floodworks, if they live.
+
+And the Floodworks live in the Floodworks. And they do. And they do. And they do.

@@ -1,0 +1,35 @@
+Here, life isn't merely adapted; it *is* the scale, the sound, the heat, the verticality. Survival demands integration with the Titans' thunderous rhythm. Behold the inhabitants:
+
+1.  **The Cloud-Walkers (Sentient Inhabitants):** Long-limbed, slender humanoids (if humanoid at all), rarely seen but evidenced by their shrines. They are masters of the vertical plane:
+    *   **Physique:** Lightweight skeletons reinforced with silica deposits from Sky-Stones. Large, multifaceted eyes adapted to perpetual twilight and deceptive distances. Skin like tough, flexible bark, often patterned with bioluminescent lichen symbionts for communication. Prehensile feet and elongated fingers/toes tipped with hardened keratin for gripping bark and vines.
+    *   **Mobility:** Primarily gliders. Membrane wings stretch between elongated limbs and torso, woven with incredibly strong, lightweight canopy-vine fibers. They ride the thermals rising from the Veil, navigating the vast inter-Titan spaces with silent, sweeping grace. For short distances or intricate canopy work, they climb with astonishing speed.
+    *   **Survival:** Extract moisture from the air via specialized frills around their necks and wicking moss patches sewn into clothing (woven Titan-silk and cured moss-leather). Feed on Sky-Swarm larvae collected from pitcher plants, luminous fruits, and symbiotic fungi cultivated in grottoes formed by buttress roots.
+    *   **Culture/Society:** Live in small, migratory clans within the sheltered grottos of Titan buttress roots or high within colossal hollow branches. Their abandoned shrines suggest ancestor veneration tied to flight paths and celestial events. Communication relies on complex patterns of bioluminescent pulses, intricate vibrations tapped onto Titan bark or Sky-Stones, and infrasound calls that cut through the drone. Tools found: Sky-Stone blades for carving/prying, bone needles for weaving, hollowed Titan-thorn syringes for collecting plant resins/water.
+    *   **Interaction:** See the Titans as sacred parents/shelter. Their movements are dictated by Titan groans (indicating shifts), localized rain patterns, and Sky-Swarm migrations (a key food source).
+
+2.  **The Sky-Swarm (Ubiquitous Fauna):** Trillions of iridescent, moth-like creatures (hand-sized). They are the atmosphere's engine:
+    *   **Role:** Primary pollinators for canopy flowers and Titans themselves. Key prey species. Their constant, shimmering flight stirs the air, distributes moisture and spores, and creates the foundational drone.
+    *   **Adaptations:** Wings covered in hydrophobic scales to shed sudden downpours instantly. Proboscises adapted to deep pitcher plants and Titan nectar vents. Bioluminescent undersides used for mating displays and confusing predators in the gloom. Breed explosively after localized rains, creating living clouds.
+    *   **Defense:** Overwhelming numbers. Their drone masks other sounds, providing cover for smaller creatures. Some species exude irritating dust.
+
+3.  **Razor-Kites (Aerial Predators):** Sleek, feathered terrors with wingspans rivaling small aircraft.
+    *   **Physique:** Streamlined bodies, multiple sets of keen eyes (forward for prey, side for threats). Beaks like obsidian daggers. Talons designed to snatch Sky-Swarm en masse or impale larger prey. Long, stiff tail feathers for precise maneuvering.
+    *   **Hunting:** Ride the high thermals, scanning below. Dive with terrifying silence through gaps in the drone, using the ambient noise as cover. Shrieks are territorial or used to panic prey into revealing themselves. Target Sky-Swarm, canopy primates, gliding reptiles, and unwary Cloud-Walkers.
+    *   **Adaptations:** Hollow bones filled with buoyant gases from digesting luminous fungi. Feathers that absorb sound, making their dives nearly silent until the last moment.
+
+4.  **Bark-Behemoths (Sub-Canopy Giants):** Unseen leviathans moving in the Veil below, hinted by mist ripples and deep, resonant calls.
+    *   **Nature:** Enormous, slow-moving creatures clinging to the colossal trunks *below* the main canopy layer, in the realm of perpetual mist.
+    *   **Physique:** Segmented, armored bodies like living boulders, covered in thick, moisture-trapping moss and symbiotic fungi. Multiple heavy limbs ending in hooked claws for gripping Titan bark. Filter-feeding maws or proboscises sifting microorganisms and condensing moisture from the saturated air.
+    *   **Role:** Ecosystem engineers. Their movement scrapes bark, creating niches for other life. Their deep calls, felt as vibrations through the Titans, may serve as long-distance communication or seismic sensing. Possibly prey for even larger, more terrifying denizens of the deepest Veil.
+
+5.  **Canopy Grazers & Predators (Epiphytic Ecosystem):**
+    *   **Armored Browsers:** Six-legged, reptilian/mammalian hybrids the size of rhinos. Bodies encased in interlocking plates of keratin and calcified resin. Low-slung to graze the canopy moss-mat and low epiphytic ferns. Move with surprising speed on springy limbs. Preyed upon by...
+    *   **Stalkers:** Sleek, feathered or scaled quadrupeds. Ambush predators using the cover of giant leaves and vine tangles. Utilize vibrations sensed through paw-pads to track prey through the constant noise. May have retractable claws of Sky-Stone-like sharpness.
+    *   **Gliding Reptiles:** Wing membranes stretched over elongated ribs. Soar between Titans. Some are fruit-eaters with blunt faces, others are piscivores with long jaws, snatching bioluminescent fish that swim in the ephemeral rain pools on giant leaves.
+
+6.  **Symbionts & Microfauna:**
+    *   **Pitcher Garden Symbiotes:** Tiny, blind amphibians living within the pitcher plants, feeding on drowned insects and keeping the pitchers clean. Their croaks create localized sound signatures.
+    *   **Bioluminescent Insects:** Countless species forming shifting constellations. Used for attraction, warning, and communication. Preyed upon by specialized arachnids that mimic their light patterns.
+    *   **Vibration Weavers:** Spider-like creatures spinning webs not of silk, but of tense, resonant plant fibers. They "tune" them to specific vibration frequencies to detect prey movement or communicate across distances, their webs humming in the Titan's groans.
+
+**The Unifying Thread:** Every inhabitant, from the microscopic symbiote to the groaning Behemoth, exists in a delicate dance with the Titans and the deafening symphony. Movement is vertical and vast. Communication bypasses audible noise. Water is harvested from the air. Perception is tuned to vibration and shifting light. Harming a Titan is not just sacrilege; it's suicide, destabilizing the entire continent-shelf upon which all life precariously thrives. This is a world where to live is to be part of the roar, the heat, the slow, monumental breath of the living sky.

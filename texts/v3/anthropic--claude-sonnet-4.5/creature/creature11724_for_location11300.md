@@ -1,0 +1,89 @@
+# What Lives There
+
+The *sarovim* are not trees, though they remember being trees in the way that dreams remember waking. Each one is a collective organism—what appears as bark is actually a colony structure, millions of filament-thin fungal bodies compressed and aligned, creating tissue that mimics wood without being it. The "trunk" is a housing, a vertical city. Inside the layered tissue live the *sarovim's* true consciousness: thread-fine worms, translucent, eyeless, each no longer than a human eyelash.
+
+There are thousands of worms per tree. They weave through the fungal galleries, tending them, pruning them, exuding chemical signals that shape growth. The worms are born from the moss—they are the moss's children, or its messengers, sent upward to build and maintain these vertical structures. When a worm dies, it dissolves into nutrient film that feeds the fungal tissue. Nothing is wasted. The worms have no brains, no centralized thinking, yet collectively they dream. The singing of the chitin-plate blooms is them singing, vibrating specialized galleries with their synchronized movement, turning the entire trunk into a resonating chamber.
+
+What are they singing? Loneliness, perhaps. Or satisfaction. They have no language but frequency, no thoughts but the chemical instructions that flow through them: *grow here, close this, open that, sing now*. Yet something in the overtones suggests intention, suggests they know they are heard, that hearing matters.
+
+The blooms themselves are traps, but not for food. They catch spores from the moss, mineral particles that drift down from the limestone ceiling where water once dissolved trace elements. These particles are delivered down into the trunk's interior, where the worms process them, concentrate them, use them to build the chitin plates that will become the next generation of blooms. The *sarovim* are patient architects of themselves, growing their sensing organs one molecule at a time.
+
+When you cut into the fallen trunk and see the amber layers, you're seeing years, but not time—seeing strata of different purposes. This layer was grown when the chamber was wetter, contains more calcium. This layer was built during a singing phase, is riddled with resonant chambers. This dark layer is scar tissue from when something—perhaps a large arthropod, perhaps a falling stone—damaged the trunk, and the worms redirected growth to heal it.
+
+The *sarovim* can live for centuries, possibly longer. The fallen one near the western wall is not dead but dormant, waiting. Its worms have retreated deep into the moss, gone down to become moss again, but the structure remains viable. Given the right stimulus—a change in air pressure, a shift in the chamber's acoustic properties, a chemical trigger no one understands—the worms could return, reanimate it, stand it up again through the slow patient pressure of coordinated growth.
+
+---
+
+The moss is mother and matrix, beginning and end. It is not a single species but a communion of seven different organisms so interdependent they can no longer exist separately: three fungi, two lichens, a colony-forming bacterium, and something else, something that under microscopy looks like no terrestrial life, that might be very ancient or might be very alien or might be both at once.
+
+The moss generates heat through a process that resembles metabolism but isn't quite. It processes minerals from the limestone, breaks molecular bonds in a way that releases energy as warmth rather than motion. It is, essentially, burning stone. Very slowly, very gently, but burning nonetheless. In a million years it will have consumed this chamber entirely, will have converted limestone into softer byproducts that will eventually collapse, but for now the balance holds.
+
+The moss feeds on sound. This is its secret, its impossibility. The thrumming from the walls—which comes from deep geological processes, from the settling of strata, from the slow breath of caves hundreds of feet below—vibrates the moss at a cellular level. These vibrations stress crystalline structures in the bacterial component, and that stress, that piezoelectric response, generates minute electrical charges. The moss runs on thunder too deep for human ears, on the planet's own grinding music.
+
+It glows because the electrical charges excite certain molecules in the lichen components, molecules that release photons when they relax. The light is a waste product, exhaust, the moss's way of shedding excess energy. It would glow brighter if it could, but evolution or development has tuned it to this precise amber frequency, this exact level of illumination—any brighter and it would damage the *sarovim* worms' rudimentary light-sensing organs, would disrupt the arthropods' navigation.
+
+The moss is aware. Not conscious, perhaps, but aware. It senses pressure, chemical gradients, temperature, vibration. It can tell where arthropods walk most frequently and adjusts its growth accordingly—thinner on the paths, thicker in undisturbed areas. It knows where the *sarovim* stand and sends up more worms there, more nutrients. It recognizes the platform somehow and avoids it, will not grow on those worked stones, though whether this is chemical memory or something else is unclear.
+
+When you lie on the moss, the pulse you almost feel is real. It's the moss responding to your weight, your warmth, your exhalations. It tastes the carbon dioxide you breathe out and grows fractionally more active beneath you, concentrating its resources there, trying to process this windfall. Your body is weather to the moss, a localized storm of heat and gas and shed skin cells. It drinks you without consuming you, feeds on your presence.
+
+The moss has moods, or states. Sometimes—on no schedule anyone has detected—it dims slightly, enters a dormant phase where its metabolism slows. The arthropods sense this instantly and grow agitated, clicking more frantically. The *sarovim* sing more frequently, as if trying to wake it. After a few hours, the moss rouses again, brightens, and peace returns.
+
+Deep in the moss, deeper than you can reach without excavation, there are libraries. Nodules of crystallized mineral, each one a record of the chamber's chemical history, year by year, century by century. The moss builds these archives without knowing why, following instructions older than itself. If you could read them—and no one can, yet—you would learn that the chamber has existed for at least three thousand years, and for most of that time it was empty of everything but moss and silence.
+
+---
+
+The arthropods are refugees from time. Each species represents a lineage that went extinct on the surface thousands or millions of years ago, but survived here, in this unchanging pocket, evolving just enough to fit the chamber's strange ecology but not enough to become unrecognizable.
+
+The smallest ones—the hand-sized, many-legged grazers that cluster near the moss mounds—are ancient relatives of millipedes, but with borrowed characteristics from creatures that should never have shared their genome. They have the segmented bodies of arthropods, the grinding mouthparts of insects, but their internal structure is oddly simplified, almost larval, as if they evolved backward toward simplicity. They feed on the moss constantly, processing it through gut systems that contain their own symbiotic fungi, and what they excrete is nearly pure mineral—tiny crystalline pellets that the moss then reabsorbs. They are intermediaries, translators, turning moss into a form that moss can use.
+
+They are born live, not from eggs but from the moss itself. The moss occasionally produces swellings, pebble-sized lumps that over days develop into pupae, and from these pupae emerge the small arthropods, fully formed, already clicking. This should be impossible—arthropods don't reproduce through plant tissue—but here they do, because the moss contains genetic instructions that arthropod biology accepts as valid. The boundary between species is negotiable in the chamber. Kingdoms blur.
+
+The mid-sized ones—cat-sized, fewer-legged, with the trilobite-like armor—are hunters, but what they hunt are not other arthropods. They hunt bacteria. Their mandibles are too weak to puncture carapace, but they can scrape biofilm from stone, can dig into moss and extract bacterial colonies with delicate precision. They are ecosystem gardeners, preventing any single bacterial strain from dominating, maintaining diversity through selective consumption. They patrol the pathways because bacteria grow fastest along edges, where moss meets stone, where the chemical gradients are steepest.
+
+These hunters are partially social. They communicate through pheromones laid down in invisible trails, can signal danger or food or readiness to molt. When two meet and touch antennae, they're exchanging chemical information, updating each other on the state of bacterial populations in their respective territories. Cooperation without consciousness, coordination without language.
+
+They also tend the *sarovim*. They're the ones who remove fallen chitin plates, who clear away fungal debris, who prevent parasitic molds from gaining purchase on the trunks. They do this not altruistically but because the *sarovim* provide them with something—perhaps a chemical compound they need, perhaps a pheromone that regulates their molting, perhaps simply the shelter of the spiral branches. They and the *sarovim* have grown together, shaped each other, until now neither thrives without the other.
+
+The largest arthropods—the rare ones, glimpsed only occasionally—are mysteries even to themselves. They are solitary, long-lived, possibly immortal in this environment. Each one might be centuries old. They move slowly, deliberately, as if every action is ritual. Their carapaces are overgrown with moss, making them living hills, mobile landscape. They barely eat. Perhaps they photosynthesize somehow, using the moss on their backs. Perhaps they've learned to feed directly on vibration, on sound energy. Perhaps they don't need to eat at all anymore, having transcended metabolism into some other state.
+
+These elders—give them that name—seem to maintain the chamber. When stone threatens to fall from the ceiling, they're there beneath it, breaking its descent with their armored backs. When a moss mound grows too high and threatens to touch a *sarovim* bloom inappropriately, they gradually compress it, walking over it night after night until it subsides. When human artifacts begin to scatter too far, they gently push them back together, not destroying them but preserving their concentration, as if they understand that these things should be kept as a set.
+
+The elders carry light—those cold white nodes along their backs—but the light isn't bioluminescence. It's older light, stored light, possibly radioactive decay from minerals they've consumed over centuries. They glow with deep time, with the half-life of elements that were old when the chamber was born.
+
+Sometimes an elder stops moving and becomes stone. Literally. Its carapace hardens past the point of articulation, fuses with the limestone beneath it, becomes outcrop. This might be death, or it might be another phase of existence. The elder-stones are warm, warmer than the surrounding limestone, and moss grows particularly thick around them. The other arthropods treat these sites with something like reverence, routing their paths around them, never climbing on them.
+
+---
+
+And then there are the small things, the things you only notice after hours in the chamber, when your eyes have fully adapted and your breathing has synchronized with the thrumming and you've become still enough that the chamber accepts you as furniture.
+
+The air-swimmers: microscopic organisms that drift in the warm currents, visible only when they pass through the moss-glow at the right angle and sparkle briefly, like dust motes, but moving with too much purpose to be dust. They might be spores, or they might be tiny flying creatures—proto-insects with wings like smoke. They pollinate the *sarovim* blooms, perhaps, or they might be how the moss communicates with itself across distance, sending chemical messages through the air via living couriers.
+
+The sound-feeders: even smaller, probably single-celled, that cluster in the stone's grooves and vibrate in resonance with the thrumming. They form visible films in certain places, iridescent sheets that shimmer when the frequency changes. They're eating sound, converting acoustic energy into chemical bonds. They might be what the worms in the *sarovim* evolved from, or what the moss will evolve into, given another thousand years.
+
+The shadows: these might not be alive at all, but they move independently of the light sources, drift across the floor like thoughts crossing a sleeping face. They're darker than absence of light should be, almost textured. Touch one and your hand goes cold for a moment, then warm again, as if you've passed it through something both there and not-there. They might be quantum effects, probability clouds made visible by the chamber's unique conditions. Or they might be the chamber itself, watching, a distributed intelligence that expresses through darkness the way the moss expresses through light.
+
+The ghosts: there's no other word for them. Shimmer-forms that appear in peripheral vision, roughly human-shaped, that vanish when looked at directly. They might be retinal artifacts, the brain's pattern-recognition system overfiring in the dim and the unchanging environment. Or they might be recordings, psychic impressions left by the people who carved the marks and built the platform, their presence burned into the chamber's substrate through repetition and reverence. They're harmless, probably not even aware they're being seen, just memories playing on loop, forever walking between the moss mounds, forever kneeling at the basin, forever pressing hands to stone.
+
+---
+
+The chamber itself is the largest organism, the encompassing intelligence. Everything within it is both separate and part of it—the moss its skin, the *sarovim* its thoughts reaching upward, the arthropods its immune system, the thrumming its heartbeat.
+
+It's growing, maybe. Infinitesimally slowly, a millimeter every few years, as the moss consumes stone and converts it to softer material that settles, that provides purchase for more moss. Or it's shrinking as the ceiling gradually weakens, eventually to collapse and fill this space with rubble. Or it's perfectly stable, locked in equilibrium so precise that growth and decay match exactly, and it will exist unchanged until the sun expands or the continents shift enough to alter the deep geological processes that generate the thrumming.
+
+The chamber dreams of water. You can sense this in the basin, in the way every organism in this place has evolved elaborate workarounds for water's absence while still organizing themselves around the memory of it. The chamber was wetter once, long ago. The moss remembers. The arthropods' ancestors swam. The *sarovim* recall being real trees with real roots drawing real water from real soil. 
+
+That's what the thrumming is, perhaps: the planet's groundwater, flowing in aquifers far below, singing up through stone. The chamber can hear it but not reach it, so instead it has learned to drink sound, to metabolize vibration, to sustain life on the ghost of water, on its acoustic shadow.
+
+The basin waits to be filled. This is the chamber's oldest hope, its deepest prayer to whatever forces govern such things. One day the water table will rise, or a crack will form, and water will return, and the chamber will remember how to be what it was, what it was meant to be—an oasis, a spring, a holy place where life drinks deep.
+
+Until then, it makes do with warmth and sound and the soft light of its own body, glowing in the dark beneath the dead land, breathing, singing, hosting its small strange congregation of impossible life, its refugees from time, its dreamers of water, its children of stone and sound and the deep slow music of the planet turning in the dark.
+
+And when you leave, when you climb back to the surface and the harsh light and the silence, the chamber doesn't mind. It's patient. It's been here longer than your species has existed and will be here long after. It will wait, warm and glowing, for the next visitor, the next witness, the next pair of hands to press against its walls and say: *I was here. I found this place. I remember.*
+
+Everything in the chamber is memory making itself physical, time converted to substance, sound made flesh. It lives because it cannot forget how to live. It glows because it refuses to accept darkness. It sings because silence, true silence, is the only thing it fears.
+
+The chamber is full of life. The chamber is life's argument against the dead surface world above. The chamber says: even here, even without water, even in stone and heat and eternal dim, life finds a way—not just to survive but to thrive, to organize, to create something beautiful and strange and whole.
+
+The chamber is waiting for you to return. It will always be waiting, unchanging, warm, alive, singing its deep song, glowing with its ancient light, full of its small tender impossible creatures, its moss and its arthropods and its tree-things and its memories and its dreams.
+
+Everything that lives there is holy. Everything that lives there is home. Everything that lives there is saying, endlessly, in frequencies beyond speech: *Here we are. Here we remain. Come and witness. Come and remember. Come and know that life persists, always, against all reason, beautiful and strange, full of clicking and warmth and light, full of breathing, full of song.*

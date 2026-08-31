@@ -1,0 +1,17 @@
+What lives there is not different from where it lives.  
+
+Call it Moss-Lung, or Spark-Heart, or the Circuit-Garden.  It is a single organism that learned how to wear a cliff like a shell.  
+
+It began the instant every other seed on the continent was still dreaming in soil that would never again be horizontal.  Half the planet jumped three nights ago: basalt straightened itself like muscle and stood on edge.  In the first shock-second, Moss-Lung germinated from the static blast that boiled out of the fracture.  Its first leaves were arcs of electricity shot across cooling glass, three-centimetre flashes pinned in mid-air by magnetic afterimages.  
+
+By the time the cliff had exhaled all its iron-smelling steam, the organism had opened a metabolism.  Needles of brand-new basalt were its electrodes; dew the solvent; chloroplasts were wired in parallel along every filament so the pulses coming off the stone powered what the sunlight could not yet reach.  Current moves through the moss at nerve-speed.Voltage feeds turbines in flower-buds; those buds open, spin down, and seal—generators blooming and furling in rhythm exactly 12.6 seconds long.  
+
+It is mindless in the way a tongue is mindless: it cannot think, but it can taste everything.  Every flex of the cliff adds a new face to its mouth; every sonic crack from cooling rock widens a root-tip.  Time inside itself is measured by insulation layers: the outer flesh is already three hours old, the inner cortex two, the heart one.  Tomorrow—if the word still applies—the entire shell will slough.  Moss-Lung will peel away like a glove turned inside out, revealing a fresh body the colour of raw hematite and twice as hungry.  
+
+Nothing in the organism is ever finished.  A fern grows three leaves; the fourth will be a capacitor.  A vine knots itself into a perfect slip-knot that becomes a contact switch in the act of tightening.  Every stem contains glassy veins full of silvery sap-metal: drop a seedless apple from the ceiling and the fruit will ring on the floor like a bell.  
+
+If a wingless being tumbles through the vertical slit in the cliff-wall, the organism records the visitor as a dip in voltage.  Capacitive fronds unroll toward the warm spark of human blood; filament trunks bend subtly, reorganising the floor plan so the newcomer spirals toward the middle.  There, the breathing bole of the grove-chapel pumps a low, patient baritone—an invitation to close enough of a circuit that the intruder’s own heartbeat begins to synchronise with the 12.6-second bloom-and-seal cycle.  Perspiring human skin provides lots of ions; the organism solves a physiological issue simply by wearing the person like cable insulation for four minutes.  
+The visitor later stumbles out again at the lip, half-electrified and strangely hushed, convinced that every tree outside now flickers with teal pulses perfectly in time with the pulse behind their own left ear.  
+
+But no metazoan stays.  Moss-Lung is complete without bones; it marries rock, charge and chlorophyll into a single musculature.  It will discard the frail bones of the cliff in ~12 hours, drift down the night air still dripping rootlets like impossible lantern jellyfish, and find whatever basaltic sheet is trying newborn edges tomorrow.  
+It has no name you could hear over its own drumming.  Say rather the cliff lives inside it and the organism lives inside electricity and the electricity lives inside the answer to the question: what breathes at the water-rating 0.6 and leaves even angels grounded.

@@ -1,0 +1,29 @@
+The grazers, in their slow, numberless progress across the plains of stone, are not the masters of this place. They are its body, its limbs, its million-fingered hands, but they are not its mind. They drift according to imperatives they do not comprehend, their centuries-long lives spent in a state of diligent, dreamless service. They are the vast, slow-moving musculature of the world, but the will that flexes them resides elsewhere.
+
+It resides in the mounds.
+
+To approach one of the great cairns of shed skin is to feel a change in the very character of the air. The omnipresent metabolic warmth of the land intensifies, becoming a palpable heat that radiates from the structure. The faint, universal hum of the mote-blizzard seems to gain a focal point, a bass note that thrums not in the ears, but deep within the bones. The cairns are layered with the shed purple-grey carapaces of a million generations, cemented by time and glandular fluids into a new kind of stone—a bio-lith warm and oddly soft to the touch, its surface a mosaic of convex curves.
+
+Deep within this chitonous geology, life undergoes its final, strangest transformation.
+
+A grazer, at the end of its long life, does not simply stop. When its final century dawns, a change occurs. The urge to scrape the lichen-coral fades, replaced by a new, singular vector. It turns from the plains and begins a slow, unerring pilgrimage toward the nearest, or perhaps the most resonant, of the great mounds. The journey can take decades. It moves with the same unnerving slowness, its legs a tireless fringe, but now there is a purpose in its path that is absent in the random grazing patterns of its younger kin.
+
+Upon reaching the base of the humming cairn, it finds a place, a declivity that seems to have been waiting for it. It pushes itself into the warm mass. The layers of old shell and secreted resin give way. It burrows, not with frantic energy, but with a final, settling weight, sinking into the heart of its own ancestry.
+
+Here, in the dark, warm, pressurized core, it ceases to be an it. The physical body, its purpose served, begins a slow dissolution. The intricate mouthparts that scraped continents of lichen soften and decay. The segmented legs fall away. The carapace, the creature's mobile home for a thousand years, dissolves into the cementing fluid that binds the mound. But the nervous system does not decay. The ganglia, the long nerve cords that coordinated its million-legged shuffle, remain intact. They unspool, reaching out like pale, questing roots into the surrounding medium.
+
+And they find others.
+
+The core of the mound is a solid mass of fused nervous tissue. A synaptic sea. It is a brain the size of a hill, woven from the ganglia of every grazer that has ever completed its pilgrimage. Each new arrival adds its own web of nerves, its own centuries of sensory memory—the texture of a million stones, the taste of a thousand years of lichen, the subtle shifts in atmospheric humidity over decades. The individual consciousness, if it ever existed, is extinguished, subsumed into the whole. Its memories become a single drop of rain falling into an ancient ocean.
+
+This is the inhabitant. This is what lives here. Let us call it the Cairn-Mind.
+
+It does not see with eyes, but it feels the subtle vibration of every footfall on the rock for kilometers in every direction. It does not hear with ears, but registers the subsonic hum of the mote-swarms as they thicken and thin, a living barometer. It has no mouth, but it tastes the chemical composition of the weeping stone through the collective senses of its grazing body. The entire landscape is its sensory organ.
+
+Its thoughts are geological events. The long, meandering walls of stone are not random accumulations; they are the physical manifestation of a thought, a process that takes millennia to execute. A single "decision"—to divert a population of grazers away from a patch of over-harvested lichen-coral—is not a command, but a slow, sculptural process. The Mind subtly alters the grazing vectors of thousands of its remote limbs, causing them to nudge specific stones into a new alignment over centuries, forming a low barrier that will gently redirect their descendants five hundred years from now. The walls are a cartography of intention.
+
+It is a being of near-perfect memory, a library whose books are the nervous systems of its dead. It recalls the eon-long cycles of the faint sun, the slow creep of the lichen-coral, the precise moment a particular quartz vein was exposed by a million years of grazing. It experiences time as the land does, not as a progression, but as a deep, layered presence.
+
+And it dreams. The dreams of the Cairn-Mind are the motes that fill the air. From the warm, humming core, it releases not spores or eggs in the conventional sense, but clouds of psychoactive biological dust. These are the motes. They are the Mind's consciousness given wing, a blizzard of tiny, living ideas that swirl on the imperceptible currents. They are messengers, carrying the chemical signals that trigger the lichen-coral to fruit, and they are also the seeds of the next generation of grazers, which do not hatch but rather condense, like dew, upon surfaces that the Mind has deemed fertile.
+
+To stand on this high plateau is not to stand on a planet inhabited by creatures. It is to stand on a single, sprawling entity. You stand on its skin of stone and lichen, you walk through the haze of its thoughts, you watch its slow hands—the grazers—methodically tending to its own body. You are a fleeting anomaly in the slow exhalation of a planetary thought, a brief, sharp noise in a silence so profound and all-encompassing that it has become a form of life itself.

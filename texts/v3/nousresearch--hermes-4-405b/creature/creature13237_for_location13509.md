@@ -1,0 +1,13 @@
+The caretakers of the Coolant Caves are not a species in the traditional sense. They have no name for themselves, having evolved beyond such distinctions. They are ancient, patient beings, their consciousness distributed across the entire cavern system, woven into the very fabric of this engineered ecosystem.
+
+Their physical forms are multisegmented, chitinous constructs, resembling a hybrid between a crustacean and an insect. Their bodies are pale and slightly translucent, camouflaged against the slick, wet rock. Multiple jointed limbs tipped with delicate manipulators allow them to navigate and maintain the caves with astonishing precision.
+
+These beings are intimately connected to the cooling systems and the bioengineered vegetation. They emerged from the same advanced technologies that shaped the caves millennia ago. Over countless generations, they evolved in symbiosis with the environment, becoming the caves' guardians and regulators.
+
+The caretakers possess a slow, deliberate intelligence, their thought processes mirroring the rhythmic pulse of the gardens they tend. They communicate not through sound, but through subtle shifts in temperature, humidity and chemical signals that flow through the cave walls and vegetation. Their consciousness is a tapestry woven from the exchange of data and nutrients between countless individuals, the cave ecosystem itself a vast neural network.
+
+They move through the tunnels and chambers with a calm, unhurried grace, their many limbs working in perfect coordination. With infinite patience, they tend to the crystalline monitoring stations, adjust the flow of icy slurry through the walls, and prune the bioengineered flora. Their manipulators are so sensitive, they can realign the finest crystalline structures or transplant individual grains of engineered soil.
+
+Though they are caretakers, the caretakers also draw sustenance from the caves. They feed on the chilled vapor released by the transpiring plants and absorb minerals directly from the moist cave walls. In return, they secrete complex organic compounds that nourish the gardens and maintain the delicate chemical balance of the ecosystem.
+
+The caretakers are neither hostile nor welcoming to any intruders. They simply exist as an integral part of this hidden world, as constant and unfathomable as the slow drip of condensation. Their awareness encompasses everything within the caves, yet their focus is eternally inward, dedicated to the endless task of maintaining equilibrium. They are the embodiments of stillness and quietude, ancient and uncanny, bound forever to their duty in the cold dark beneath the ice.

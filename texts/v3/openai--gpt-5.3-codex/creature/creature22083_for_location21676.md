@@ -1,0 +1,23 @@
+What lives there is, first, a **people of maintenance**.
+
+Not conquerors of the basin, not its victims either — custodians of things that are always slipping. They call themselves (in one of their own tongues) something closer to *Those Who Keep It From Drifting Apart*. Outsiders shorten that to the **Mooring Folk**.
+
+At a distance, they look almost plain: lean bodies, wrapped in layered reed-cloth and resin-treated fiber, skin burnished dark or bronze by mineral water and cloudlight, hair worn braided tight and often waxed against constant damp. Up close, the basin has written itself onto them. Their palms are ridged with rope-callus from childhood. Their toes splay strong for balancing on wet beams. Many wear a thin film of clay-lime paste along wrists and neck to prevent fungal bloom. Their hearing is excellent at short range; they speak low, because this city punishes shouting and rewards attention.
+
+They are not amphibians, but they are **amphibious by habit**. Every household teaches two gaits: land-step and water-step. Children learn knots before script, yes, but also breath discipline, buoyancy, and how to fall into water without panic. A child’s first tool is a blunt hook for linework. A second is a depth-stick marked by finger-widths and old flood-years. By twelve, most can read current textures from color alone — where silt rides high, where warm ventwater rises, where an unseen wall has shifted flow.
+
+Their neighborhoods are not neighborhoods in the dryland sense. They are **rafts of obligation**: families, apprentices, elders, fish-keepers, chimney tenders, paddy binders, each tied by maintenance circuits. If you ask where someone lives, you’ll get three answers: their sleeping platform, their workwater, and their storm anchor. They inherit not land but tasks — a sluice gate, a roof-net, a stair that must be raised every third season. Prestige comes from stability achieved gently: who kept a district level through three wet years, who moved twenty homes upslope with no deaths, who reopened a blocked canal without draining the fish pens.
+
+Their politics are tactile and acoustic. They vote sometimes by voice, more often by **rope**. In assembly, each household sends a knotted length indicating capacity: what labor, timber, reed, or food they can commit. Law is negotiated in terms of mooring rights and flow consequences — less “mine” than “I can keep this safe and porous.” Disputes are settled by current-readers and old builders who can stand in a flooded room, close their eyes, and tell you which wall will fail first.
+
+They keep a few companion species close: pale blind fish in household cisterns for waste-clearing and omen-reading; jade vent-frogs near warm brickwork to warn of gas shifts; long-neck marsh birds trained to return with dyed cord tied to their legs, carrying messages over fog where drums would blur. They cultivate rope-vines almost as livestock, grooming and splicing living strands into bridges. In some districts, entire facades are woven from trained rootmats, alive and load-bearing.
+
+Their dead are handled like infrastructure and reverence at once. Bodies are washed in warm mineral pools, wrapped in reedcloth, and given to deep, slow water with weighted ceramic bells. Names are not carved on stone monuments — stone moves too much here. Instead, a person is remembered in **works**: “She who turned the Third Silt Stair,” “He who taught the South Reservoir to breathe,” “They who raised this terrace one handspan at a time.” An ancestor is a verb before it is a portrait.
+
+And there is one more thing that lives there, though the Mooring Folk disagree on whether it is animal, spirit, or geological behavior given appetite.
+
+In the deepest shafts, where black water drops through cracked basalt into warmth below, something vast sometimes rolls. Not often seen — more often heard as a low-bodied thrum that unsettles suspended silt and sends blind fish surfacing hours early. When it comes near, ropes hum without wind. The old watchkeepers call it the **Undercurrent Beast**, but in ritual they address it respectfully as *Old Movement*. Whether it is one creature, many, or just the basin speaking through pressure, it shapes behavior: no one builds permanently over the oldest cracks, and every generation relearns emergency untethering drills.
+
+So what lives in that high drowned crown is not just a population.
+
+It is a braided lifeform: people, rope, reed, fish, fog, law, memory — all adapted to a rule the basin enforces daily: boundaries are temporary, care is structural, and survival belongs to whoever can keep changing without coming undone.

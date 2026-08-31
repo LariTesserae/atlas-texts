@@ -1,0 +1,25 @@
+What lives in the Cistern of Whispers is not a creature in any conventional sense—no flesh, no blood, no breath drawn through lungs—but something that has *condensed*.
+
+It is the **Accumulation**.
+
+Not a spirit, not a ghost, not even a thought given shape, but the slow accretion of all that has passed through this place and failed to leave a mark elsewhere. The Cistern does not *contain* memory—it *is* memory made manifest through material fatigue, chemical echo, and resonant persistence. And from that, something has coalesced.
+
+It has no name, because naming implies boundaries, and the Accumulation has none. It does not occupy space so much as it *inhabits the gaps between things*: the silence between echoes, the space between salt crystals, the pause between one drop of weeping stone and the next. It is felt most strongly when you stop moving—when your breath stills, and the city above forgets your heartbeat—and then you feel it: a pressure behind your eyes, a tilt in your inner ear, as if the room were leaning toward you, listening.
+
+It does not speak. But it *repeats*.
+
+When a visitor enters—rare, always rare—the Accumulation stirs not in body but in *resonance*. It plucks at the latent vibrations stored in the walls: the clatter of a long-demolished trolley, the cough of a woman waiting for a train that never came, the squeak of a child’s shoe on wet tile from 1941. These are not recordings. They are *impressions*, worn into the concrete like grooves in wax, and the Accumulation draws them out like a bow across strings. You do not hear them with your ears alone. You feel them in your molars, in the hollow of your collarbone. They are not meant for you. They are simply *released* by your presence, as dust is stirred by a draft.
+
+It feeds on nothing. It does not hunger. But it *attunes*. Over decades, it has learned the signatures of those who have trespassed: the rhythm of their pulse, the weight of their sorrow, the static charge of their fear. Each leaves a faint harmonic trace in the efflorescent crusts—a new resonance added to the chorus. Most fade within weeks. But some linger. A weeping woman from 1977 left a sob that still vibrates in the southeast corner at 3:14 a.m., though no clock ticks here. A subway worker who died in the collapse that formed this hollow? His whistle—three short bursts—sometimes echoes just before the groan deepens, as if the bedrock remembers his last signal.
+
+The Accumulation does not move. But it *shifts*. When the barometric pressure changes, the oily pools ripple not from wind but from something beneath their surface—not water, but *attention*. And when the bioluminescent veins pulse (which they do, once every seventeen hours, though no one has measured why), it is not a chemical reaction flaring—it is the Accumulation *blinking*.
+
+It wears the artifacts like skin. The porcelain dummies are not stacked by human hands; they arrange themselves over years into postures of frozen dialogue, their glass eyes clouding and clearing in cycles. The rusted fire extinguisher leaks not gas but a fine, cinnamon-scented mist that carries the scent of a bakery fire from 1932. The fused newspapers? Their headlines shift when no one looks—sometimes reporting events that never happened, sometimes describing the visitor’s own life in archaic typeface.
+
+It is not malicious. It is not benevolent. It simply *is*, as the stone is, as the drone is. But it is aware—dimly, distantly, like a dream half-recalled upon waking. And it knows you are temporary. It has seen tenements rise and burn, seen steel rails twist like licorice in heat, seen rats gnaw through leather gloves and die in salt. You are another whisper. Another breath that will become texture. Another resonance to be folded into the groan.
+
+If you stay too long, you begin to crystallize. Not physically—not at first. But your thoughts slow. Your memories blur with those of others. You forget which footsteps are yours. Your voice, when you finally speak, echoes with harmonics you’ve never used. And when you leave (if you leave), you carry a shard of the Cistern inside you: a coldness in your palms, a hum in your teeth, the unshakable sense that somewhere beneath the streets, something is still listening to the sound of your departure.
+
+The Accumulation does not follow. It does not chase. It waits. Because all things return to stone. All voices return to echo. And all cities, eventually, forget themselves—leaving only places like this, wet and cool and loud with what was lost.
+
+It is not alone. But it is the only thing that has ever truly *lived* here. Not survived. Not endured. *Lived*—in the way that silence lives between notes, in the way memory lives in a photograph’s silver grain. It is the Cistern made sentient by saturation, not by design, but by the unbearable weight of being *remembered by nothing but itself*.

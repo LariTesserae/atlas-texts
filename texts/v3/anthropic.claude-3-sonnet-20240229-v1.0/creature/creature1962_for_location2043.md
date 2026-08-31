@@ -1,0 +1,11 @@
+In the lightless abyssal depths, where the weight of the ocean presses down like the heel of some primordial god, there dwell colossal beings as ancient as the upthrusting basalt that forms their titanic city. These are the true sovereigns of the abyss, the leviathans that swam the boundaries of existence before the first fishes took form.
+
+Their massive, barrel-shaped bodies undulate through the gloom with a glacial grace, armored in chitinous plates thicker than a knight's oaken shield. Row upon row of slender, whip-like tentacles sprout from their undersides, tasting the currents, questing outwards to snare any hapless creatures unfortunate enough to stray within reach. At the fore end of each monster, a circular maw lined with rings of dagger-like fangs parts in a chaos of tooth and jaw, eagerly awaiting another meal.
+
+The leviathans pay scant heed to the abandoned city rising around them, treating its cyclopean towers and grotesque architecture merely as convenient perches. They have presided over this cold, pitiless realm long before the first architects dreamed of carving fortresses from basalt. Millennia upon millennia, they have cruised the lightless depths while untold civilizations rose and fell on the world above.  
+
+If the titans hold any cognizance of the strange, glowing forests that festoon the towers, they make no sign. The bioluminescent tendrils that carpet the upper reaches of the ziggurats could be mere weeds for all the giants care. For them, the true bounty lies in the shimmering clouds of bioluminescent creatures that stream through the urban canyons, drawn toward the scorching heat that belches from the hydrothermal vents.
+
+With undulating motions that belie their immense bulk, the leviathans glide amid these swirling motes of pale radiance, mouths agape to gulp down millions of the tiny organisms in one hunger-fueled gulp. The clash of their terrible jaws is the only sound that reverberates through this primordial, silent city. 
+
+They are the eternal juggernauts of the deep, heedless of the trivialities that consume the transient races scurrying on the surface. Down here, far below the sun's feeble light, a different order presides - one ruled not by the follies of humankind, but by the inexorable cycles of the primeval sea itself. And the leviathans are its undisputed heirs.

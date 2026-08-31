@@ -1,0 +1,13 @@
+This bleak and polluted landscape is home to a variety of twisted life forms adapted to survive amidst the harsh conditions. Thorny, worm-like creatures burrow through layers of poor-quality coal and industrial waste, their segmented bodies secreting corrosive fluids that break down toxic compounds into something marginally less deadly. These "worms" are preyed upon by larger subterranean predators - hulking reptilian beasts with armored hides resistant to acid rain and smoke. They have multiple lidless eyes that glow faintly in the gloom.
+
+Flights of leathery-winged birds circle over the blasted heaths, their feathers matted with oily grime. When they stoop to feed, long barbed beaks inject paralyzing venom before eviscerating small mammals that have made meager livings scavenging amongst the rubble. 
+
+In cracks between massive gears and pipes of the colossal machinery, colonies of gleaming insectoids scuttle - chitinous exoskeletons reflecting oil-slick colors in sickening hues. Some species emit ultrasonic squeals which resonate at frequencies designed to shatter stone or rupture metal when focused - useful skills for tunnel-mining out new habitats within rusting infrastructure.
+
+Beneath it all teem microbial mats of extremophile bacteria thriving on chemical effluents too caustic even for most other organisms. Blooms float atop tainted streams forming slick rainbow films that can dissolve flesh on contact if ingested.
+
+Skittering through shadows are packs of dog-sized rat-things, mammalian yet alien shaped like hairless hyenas crossed with lampreys. Their jaws are ringed with rows of needle teeth perpetually replaced by growing ranks behind them, allowing these vicious pack-hunters to tear apart both organic tissue and metal sheeting alike.
+
+Occasionally one glimpses a glimpse of something much larger moving deep in crepuscular fog: ponderous saurosaurs wade through poisoned sloughs on pillar-like legs while serpentine tails lash behind them leaving trails churned mud steaming with heat...for though bioluminescent moss clads some skyscrapers above, here there are still volcanoes belching geothermal energy up from ancient magma chambers far beneath...
+
+It's a nightmarish menagerie populating this hellish realm where nature has been battered into grotesque shapes by human industry run amok unto destruction...and yet such twisted ecologies find ways to thrive amidst unending war between man and his own poisonous works left festering unchecked...

@@ -1,0 +1,43 @@
+The figure lives here.
+
+It is the size of a held thing. It stands on the rock near the cairn, and it watches. Its face is the gesture of a face, not a face — a small indication that a face could be there, the line of a head, the slope of shoulders, the posture of someone standing at the edge of something. The stone it is made from is darker than the surrounding rock, which is the only reason you can read it at all in the chamber's layered dark. It does not breathe. It does not blink. It has not moved since the hand that carved it set it down. And yet it watches. It is the most oriented thing in the room — the only thing with a direction, with a chosen face. Its face is turned toward the wall where the seepage is heaviest, where the water holds itself most densely in the act of becoming water, and it watches that place the way a figure watches when it has been placed to watch, or when it has been placed to be watched.
+
+It was made by a hand that knew what it was making. The chisel marks are still in it. You can see them — small wedge-shaped scars where a harder stone worked a softer one, each mark a small decision, each stroke a small patience. The maker had time. The maker had a specific idea. And the maker left the figure here, in a place where settlement is not possible, and walked back out through a seam that closes without sound. Whether the maker ever returned is a question the chamber does not answer. The figure remains. The figure keeps watching the wall.
+
+The cairn lives beside it.
+
+Eight stones, or ten — the count is uncertain because the chamber has its own arithmetic, the way the dark has its own textures. Flat stones, each one smoothed on one side as if a hand had rubbed them against a thigh, against the palm, against the soft skin of a long walk. Fitted together with a patience you can feel in your own hands just looking — each stone set against the next so the seams barely exist, so the cairn is a small architecture rather than a pile. The cairn does not mark anything. There is no grave beneath it. There is no summit it celebrates. It is a small settlement in a place where settlement cannot succeed, a small act of building that has nonetheless been built. It is the way a person arranges a few shells on a windowsill — not for any reason, not for any use, just because the hands wanted to arrange, just because arrangement is one of the things a hand knows how to do.
+
+The small pale thing lives on the cairn.
+
+You cannot tell what it is. This is not a failure of light or attention. The chamber simply does not let you tell. It might be an animal. It might be a mineral growth that has happened to assume the shape of an animal. It might be a thing between — a creature that has been still so long its outline has begun to merge with the stone it sits on, or a stone that has grown into the shape a creature would have if a creature could grow here. It is the size of a thumb joint. It is the color of watered milk. It does not move. It does not breathe in any way you can detect. It has the geometry of a small settled thing — hips, if it has hips, set low, a head, if it has a head, slightly tilted, the posture of a creature that has come to rest and will never leave that rest. It is the chamber's smallest inhabitant and perhaps its most faithful, because it has been so still that the room itself seems to have learned stillness from it.
+
+The spider lives in a corner.
+
+It is white. Not the white of clean silk, not the white of a thing that has been bleached. The white of a thing that has lost every other color over many generations of dark, or the white of a thing the chamber has decided should be white. It hangs in a perfect corner where two walls meet the ceiling, motionless, its legs gathered close to its body in the geometry of waiting. Its web is almost not there — a few threads so fine that you only know they exist because the spider hangs from them, because the spider's small weight tells you the architecture is there. It has caught nothing. It will catch nothing. It is a comma in the corner of the room, a small punctuation of white against the layered dark, and it has been there longer than any of the other small presences have been anywhere.
+
+The beetle lives near a pool.
+
+It is dark, the color of wet iron, and it rests on the rock at the pool's edge as if it had stepped down to drink and the step had been kept. Its legs are arranged with the geometry of a thing stopped mid-stride — two forward, two back, the body slightly tilted, the antennae lifted but not lifting. Its shell catches nothing. The chamber has no light for a shell to catch. But the shell is smooth, and the smoothness is a presence. The beetle is dry in a room that is otherwise saturated, an island of aridity beside the black clarity of the pool. It is the hesitation the chamber caught and pinned into the shape of a small dark insect, a single gesture preserved forever at the edge of water it will never reach.
+
+The fern lives against the far wall.
+
+It grows from a crack in the calcite, green-brown, its fronds half-unfurled in the gesture of opening. It is the color of a thing that has decided what green means but has not finished deciding. It is not dying. It is not living in any way the word can cover. It persists. Each frond is a small held breath. The chamber has caught the fern at the moment of its opening, the moment before it becomes the fern it would have been, and the moment will not pass. The fern is a small green sentence that has been stopped halfway through being spoken.
+
+The moss lives on a ledge near the floor.
+
+It is so detailed you could count its leaves, and the leaves are not multiplying. Each leaf is a small finished thing that has decided to be a leaf and will not reconsider. The moss is a low green civilization in miniature, a small dense country of cells that has decided to keep its borders. It does not spread. It does not retreat. It is the geography of a patience that does not need to move.
+
+The lichen lives on a stone.
+
+Orange. Crustose. It maps the stone with the carefulness of a thing drawing a continent for no one. The shapes it makes — the branching, the round, the lobed — are the shapes of an interior country that will never be entered. The lichen is a small bright place in the layered dark, and it has been bright for a long time, and it will be bright for a long time still, because the chamber has stopped the bright in place.
+
+And something else lives here.
+
+It is not a creature. It is not a mineral. It is not the figure, and it is not the cairn, and it is not the water. It is what the water is in the act of holding — the patience that has suspended the drip at the lip of the stalactite, the patience that has held the trickles on the wall in their silver lines, the patience that has decided the chamber should be a photograph of itself rather than a process. You cannot see it. You can only see what it has done. You can only stand inside the done-ness, the held-ness, the caught-ness of everything around you, and feel it pressing on your eardrums with the weight of a substance that has no name but is doing the work of stopping. It is the inhabitant of the room the way the room is the inhabitant of the mountain — the way the dark is the inhabitant of the dark. It is the quiet, given a presence. It is the stasis, made into a kind of resident.
+
+It does not watch the figure. It does not need to. The figure watches it. The figure was set down by a hand that knew about it, that understood what the room was and what should be left in the room — a small offering of incompletion set down inside incompletion, a small mark in a place where marks cannot be made, a small verb placed in a room where everything else is a held noun. The figure faces the wall because the wall is where the patience is densest, where the water is most water, where the becoming is most suspended, and the figure is there to remind whatever is there — or whatever isn't — that someone saw it.
+
+The spider will not catch anything. The beetle will not reach the water. The fern will not open. The pale thing on the cairn will not stand up. The figure will not turn its head. The patience will not release what it holds. The chamber will go on being the first second of itself, the photograph of a process, the room full of almost, and you will leave through the seam and the rock will close behind you and the mountain will go on being young and you will walk back down toward the trees and you will carry the chamber in you for a while, the way you carry a dream you weren't sure was a dream, the way you carry the weight of a quiet that pressed on your eardrums and would not let go.
+
+That is what lives here.

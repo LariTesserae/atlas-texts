@@ -1,0 +1,26 @@
+To call them "inhabitants" is a misnomer of language; to call them "life" is a definition stretched to its breaking point. In this place, the distinction between the resident and the environment has been erased. There is no "them" and "it"; there is only the continuous, roaring function of the Whole. However, if you were to isolate the autonomous agents that move through this deafening green-black cathedral, you would observe a hierarchy of post-biological maintenance drones—specialized organs of the planetary super-organism.
+
+**The Pruners**
+At the ground level, scuttling across the serrated crust of fused stalks, are the Pruners. They are low-slung, arachnoid constructs, roughly the size of a large wolf, but composed entirely of interlocking plates of chitinous carbon and wet, black ceramic. They possess no heads, only a central armored carapace from which six multi-jointed limbs radiate.
+
+Each limb terminates not in a claw, but in a vibrating oscillating blade, capable of slicing through the diamond-tough fibers of the ground-cover. They move with frantic, jerky speed, their metal legs striking the ground with a sound like distant gunfire—a staccato rhythm buried beneath the deep thrumming. They do not eat. They do not rest. Their sole function is curation: they trim the erratic overgrowth of the neon-green moss-fibers, carving the chaotic surge of biomass into precise, geometric channels that optimize the flow of the silver conductive alloy. To a Pruner, a human is merely an obstruction of inefficient geometry to be dissected and mulched.
+
+**The Siphon-Swarm**
+The air is thick with the Siphon-Swarm. These are the atmospheric equivalent of plankton, millions of tiny, geometric shards of floating hardware that drift on the pumped thermals. Individually, they are no larger than a hummingbird, consisting of a central gyroscopic core surrounded by delicate, spinning funnel-catchers made of gold-filament mesh.
+
+They move with a unified, unsettling intelligence, swirling in tornados that mimic the shape of the towering stalks. As they drift, they catch the heavy, silver mist, filtering out the suspended ozone and nutrients. When they have processed a sufficient volume, their cores pulse with a brilliant, painful white light—they are charging. Occasionally, they descend in dense clouds upon the larger, wounded stalks, behaving like mechanical locusts. They fuse their bodies into the bark, discharging their stored energy to jumpstart a stalled vascular system, dissolving themselves in the process. They are mobile batteries, a self-sacrificing proletariat of pure electricity.
+
+**The Harvest-Titans**
+Moving through the gloom of the twilight canopy are the true giants of this world—the Harvest-Titans. These are massive, quadrupedal walkers that stand as tall as the skyscraper-stalks themselves. They resemble skeletal golems made of rusted iron and living wood, their "heads" towering high above the plateau, equipped with massive, serrated scoops and manipulator arms.
+
+They are the earth-movers of this computing ecosystem. Where the ground rises too sharply, or where a cluster of fern-plates grows too dense for the wind-pumps to circulate, a Harvest-Titan arrives. It does not walk; it forges a path, crushing the jagged crust beneath its massive, piston-driven feet. The sound of a Titan approaching is distinct—a rhythmic, hydraulic *crush-hiss-crush-hiss* that overrides the general C-sharp groan of the world. They rip massive chunks of biomass from the ground, shredding it in their internal mills, and redistributing the raw pulp to the barren patches of the plateau. They are the stomach of the world, endlessly digesting and rebuilding the landscape.
+
+**The Weavers**
+Suspended between the tallest spires are the Weavers. These are rarely seen, only heard—a high-pitched, singing whine that sets your teeth on edge. They are airborne, resembling manta rays made of glass and fiber-optics. They span the gaps between the skyscraper-trees, trailing behind them miles of ultrathin, conductive cable.
+
+They are the network administrators. As the Weavers glide, they splice their cables into the bark of the stalks, bridging isolated nodes of the planetary brain. Where they pass, the dim light flickers and intensifies, processing speeds increasing. They are dangerous only if you stand between them and their connection point; they trail a "tail" of mono-filament wire behind them that moves at hypersonic speeds, capable of slicing through stone—and bone—with zero resistance.
+
+**The Silence**
+And then, there is the absence that defines them all. You will find nothing that breathes. Nothing with eyes that evolved to see, or mouths that evolved to eat. There are no predators here, and no prey, save for the raw matter of the world itself. The "animals" of this place are merely the fingers of a single, dreaming god. They do not feel fear, or affection, or curiosity. They feel only the imperative of the algorithm: *Process. Expand. Compute.*
+
+If you stand still too long, you will feel the tickle of a Pruner’s blade against your boot, assessing your structural integrity. You will hear the high whine of a Weaver passing overhead, scanning you for a network port. You are not a visitor in their world; you are an unformatted data packet waiting to be overwritten.

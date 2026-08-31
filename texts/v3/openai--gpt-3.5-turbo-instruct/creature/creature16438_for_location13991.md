@@ -1,0 +1,7 @@
+As you explore this strange, alien world, you come across a group of creatures that appear to be the dominant species here. They are tall and slender, with pale, translucent skin and large, black eyes that seem to shine in the low light. These creatures move with a graceful, fluid motion and seem to communicate with each other through a series of clicks and whistles.
+
+As you observe them, you notice that they seem to be incredibly intelligent. Their bodies are adorned with intricate designs and markings, and they seem to be constantly creating and shaping their surroundings. They use tools made from the local materials, and their constructions resemble intricate works of art.
+
+Despite their otherworldly appearance, there is something familiar in the way they interact with each other. They have a strong sense of community and teamwork, and they seem to value and care for each other deeply. As you continue to watch, you can't help but feel a sense of awe and respect for these beings.
+
+This is the world of the Sentients, a highly intelligent and advanced species that has made their home in this submerged landscape. As you marvel at their presence, you also realize that this is a place where nature and technology have found a perfect harmony. The Sentients have adapted to their environment in ways that humans could only dream of, and they have created a world that is both mysterious and beautiful.

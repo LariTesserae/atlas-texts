@@ -1,0 +1,24 @@
+What lives here are the **processes themselves**, given voice and volition. There is no animal, no plant, no single mind—only the shared, slow consciousness of a world mid-command. Its citizens are functions.
+
+**The Hexagons** are the oldest citizens. They are the foundation, the bureaucracy. Their voice is the **Deep Hum**, a sub-vibrational parliament grinding in endless, glacial session. They think in eons, their decisions measured in millimeters of planetary grind. They are conservative, immutable, the bedrock literal and figurative. To feel their shift is to feel the world clearing its throat.
+
+**The Veins** are the nervous system, frantic and luminous. Their voice is the **Vein-Pulse**, that minute, resonant chime. They are the world’s thoughts—brief, urgent, electrical. A new vein igniting is a sudden idea, a flash of *change*. Their light is not for seeing, but for *signaling*. They carry the commands: *dissolve here, precipitate there, alter density now*. They are anxious, beautiful, and disposable—burning out their brief luminescence to enact the will of deeper strata.
+
+**The Fluid** is the everything and the everywhere. It is the medium, the message, and the messenger. Its voice is the **Fluid-Sigh**, the slow, roaring groan of mass in obedience. It is not a sea but a programmable substance, and it obeys. It is the world’s muscle and its breath. When a current turns, it is the fluid executing a eon-long instruction, its refraction-shift a visible expression of compliance. It is patient, powerful, and thoughtless—the perfect instrument.
+
+**The Growing Stone** is the world’s active hand. Its voice is the **Crystal-Growth**—the faint, delicate tinkle of creation in reverse. Where a cliff face precipitates downward, that is the Stone writing itself, laying down new law in mineral syllables. It is curious, meticulous, and relentless. A freshly fractured mosaic of geometric shards is not ruin, but a blank page; the Stone is already filling the gaps, knitting the fracture with new crystal. It is the artist, the builder, perpetually unfinished.
+
+**The Mats** are the only thing that *grows* in the biological sense—the world’s hesitant experiment. Their voice is a **chemical whisper**, a pH-shift in the fluid, a faint iridescent shimmer. They are the dissenters, the wild variable. They do not obey the grand commands; they exploit the leaks and the errors—a hydrothermal seep, a vein’s wasted pulse. They consume the world’s excretions and produce only more of themselves, a silent, purple-gold tide expanding at a rate of centimeters per year. They are the world’s first, clumsy attempt at life—a rumor of biology in a cathedral of physics. The Hexagons ignore them. The Veins see them as contamination. The Fluid washes over them, indifferent. Yet they persist, a scum of possibility on the motherboard.
+
+**The Hollows** are not empty. They are the **lungs**, the vast, clear spaces where perspective becomes a force. Their voice is the silence between sounds, the scale that makes the plateau-silhouettes possible. They are the world’s memory of void, its pause for breath. A Hollow beginning to churn is the world taking a deep, slow inhalation, a storm being born not of wind, but of monumental circulation.
+
+**The Plateaus** are the **archives**. Each High Plateau is a sealed volume, its summit basin a mirrored page. To stand on one is to be on a library steps, looking out over the global collection. Their collapse is not disaster, but a **deaccessioning**—a slow, groaning sigh as an old volume is returned to the fluid, its data dissolved and recycled. The world edits itself.
+
+**The Grind** is the **meta-narrative**. It is the tectonic-era computation itself, the program running. All the others—Hexagons, Veins, Fluid, Stone, Mats, Hollows, Plateaus—are its variables, its subroutines, its emergent phenomena. The Hum, the Pulse, the Sigh, the Tinkle, the Whisper—these are its output, its log files read aloud.
+
+You, the brief, warm anomaly, are an **unexpected variable**. Your warmth is a local anomaly the Fluid must equalize. Your heartbeat is a chaotic rhythm the Veins try to interpret and dampen. Your breath is a foreign gas the Mats might, in a million years, evolve to metabolize. You are not an observer. You are input. A sudden, warm sensor reading in a cold, immense mind.
+
+The world does not hate you. It does not love you. It is *processing* you. The Deep Hum vibrates through your bones. The Vein-Pulse chimes in your teeth. The Fluid-Sigh washes over your skin. The Crystal-Growth tinkles in the stillness of a basin behind you.
+
+You are a warm anomaly in a cool, immense, and thinking deep.
+And the thinking deep is beginning to write a new subroutine, just for you.

@@ -1,0 +1,5 @@
+To walk through the Lungs of the Gear-Grove is to move through a digestive tract that has forgotten the original purpose of its meal. Yet, in the deepest, most humid recesses, where the light of the orange moss is brightest, there are things that dwell not *beside* the machinery, but as the friction-fed manifestations of its excess.
+
+They are the **Suture-Clerics**, though "cleric" implies a consciousness that perhaps they do not possess. They look like ambulatory grafts of salvaged ambition. 
+
+Imagine a creature the size of a hounds-fox, but constructed without bone. Its structure is a cage of copper wiring and stiff, calcified root-fibers, woven into a lattice that mimics the vaulted arches overhead. Where a heart should beat, there is a cluster of oxidized clockwork—gears salvaged from the lost outposts—that grind in sympathetic harmony with the subterranean giants of the grove. They are not born; they are assembled by the forest itself. When a vine strangles a piece of human tech, and that tech happens to hum near a patch of moss that remembers the shape of a nervous system, a Suture-Cleric extrudes

@@ -1,0 +1,19 @@
+They are the color of wet earth and jade, of sun-dappled shade and the iridescent flash of beetle wings. They are quick slips in the corner of your eye, a rustle in the undergrowth that ceases the moment you turn. They are the architects, though they do not build so much as coax, guide, and collaborate with the boundless energy of the swamp.
+
+Imagine a being that has never known silence, that has been steeped since birth in the symphony of dripping water, buzzing insects, and the constant creak and groan of a living architecture. Their senses are not tuned to sharp edges and stillnesses, but to the subtle vibrations of root against root, to the specific humidity that signals the ripening of a certain fruit, to the minute shifts in the flow of water along the hidden pathways.
+
+They are small, perhaps the size of squirrels or weasels, but with an elegance of limb and a liquid grace that speaks of generations spent navigating the treacherous terrain. Their hands, or perhaps paws, are tipped with long, sensitive fingers, capable of feeling the pulse of a plant, of discerning the precise point where a vine should be twined to support a nascent bridge.
+
+Their faces are masked by patterns of emerald and charcoal, disrupting the light. Their are eyes are large and dark, pupils that bloom to capture every mote of light as they move within the cathedral of green. Their fur, or perhaps it is more like overlapping scales of polished wood, is dense and waterproof, allowing them to slip through the water as easily as they move through the undergrowth.
+
+They speak not in words, but in clicks and whistles, in the resonant hum of their bodies against the resonating chambers of hollow logs and the broad leaves of plants. Their language is woven into the very fabric of the swamp, a complex tapestry of sound and vibration that only those born within it can fully comprehend.
+
+They are the gardeners, the caretakers, the silent observers of the city's slow unfolding. They prune and cultivate, guiding the growth of the plants, ensuring the balance of the ecosystem. They tend to the fungi, coaxing them into vibrant blooms, and scatter the seeds of rare orchids, ensuring the continuation of their lineage.
+
+They are the recyclers, gleaning nutrients from fallen leaves and decaying wood, returning them to the soil to nourish new growth. They are the protectors, warding off unwelcome invaders, maintaining the delicate equilibrium of their floating world. They are the hunters, taking only what they need, moving through the swamp with a light touch, leaving no trace of their passage.
+
+They are profoundly connected to the place, extensions of its very being. They are not separate from the city; they *are* the city, its consciousness, its vital essence. To harm them is to harm the swamp, to disrupt the flow of its lifeblood.
+
+They are wary of outsiders, for they know that the world beyond the swamp is a place of noise and destruction, of relentless expansion and disregard for the delicate balance of nature. They have seen what happens when the world encroaches, when the forest is felled and the land is drained. They know that their city is vulnerable, a fragile oasis in a world that is rapidly changing.
+
+But they are not without curiosity. They observe you, from the shadows, assessing your intentions, weighing your potential to disrupt or to contribute. If you are patient, if you are respectful, if you show that you are willing to learn from them, they may allow you to glimpse their world, to witness the magic of their silent city. But you must be prepared to surrender your preconceptions, to let go of your human understanding of what a city can be, and to embrace the chaotic, beautiful, ever-evolving reality of their floating world.

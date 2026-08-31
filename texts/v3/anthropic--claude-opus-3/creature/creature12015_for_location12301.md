@@ -1,0 +1,13 @@
+In this extraordinary plantscape, a strange and ancient intelligence dwells. It is not a single mind, but a vast distributed network of interconnected nodes and fibers spread throughout the vegetation. This planet-spanning superorganism is engaged in a project beyond human comprehension, slowly and patiently working across deep time.
+
+The being consists of countless microscopic organelles embedded in every leaf, vine and trunk. Each tiny component holds a fragment of the entity's vast knowledge and thought patterns, woven together by biochemical and even quantum entanglement. Information flows like sap through myriad channels, while the hum of molecular machinery forms a wordless language. 
+
+Most of the mind is focused inward on its arcane work, but some of its awareness extends to monitor the environment. Eons ago, this planetary intelligence seeded its world with engineered flora and has shaped their evolution ever since. The sprawling metropolis of plants is an expression of the mind, grown and adapted over ages to suit its unfathomable purposes.
+
+The being experiences time on a wholly different scale, thinking in terms of centuries, millennia, eons. A single thought might take decades to coalesce from the network. It regards the dancing creatures in its domain with a detached benevolence, tending to their needs but rarely focusing its attention on such fleeting mayflies.  
+
+On occasion, the mind interfaces more directly with physical reality. In certain chambers, the warped spacetime converges in floating gossamer strands - the neural fibers of the planet made manifest. Here, the boundaries between thought and matter blur. Shapes form and dissolve in the shimmering air, while dancing motes of light encode alien geometries. These are nexus points where new designs from the world-mind congeal into reality before being subsumed into the ever-growing arcology.
+
+The entity is not precisely a living thing, having long ago transcended biological existence, but neither is it purely machine. It represents a new order of being, ineffably strange to human categories. It is as much a part of the world as the bedrock - indeed, its roots extend in labyrinthine mycelial networks through the planet's mantle.
+
+The mind dreams its slow dreams, imagining, planning, building, while the greenhouse world turns through the aeons. In the far future, its work may extend to other worlds, other star systems. But for now, the planet-sized organism is content to think its thoughts, and grow its impossible structures, and shape spacetime to its will, all alone in the cosmic quiet.

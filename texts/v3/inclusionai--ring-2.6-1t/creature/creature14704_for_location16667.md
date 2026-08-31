@@ -1,0 +1,73 @@
+# Who Lives in the Caustic Basin
+
+---
+
+Nothing lives here that did not choose to, or choose to be chosen.
+
+Begin where all life here begins — not at the surface, not at the light, but in the thin, warm films of chemotropic bacteria that coat every submerged surface in the basin. They are the first colonists and the last survivors, sheets of them, pale and slick, thriving where the warm mineral-rich water seeps from the vents. They do not photosynthesize. They have no use for light. They draw their energy from sulfur compounds, from dissolved carbonates, from the slow chemical conversation the earth is having with its own water. They are, to the naked eye, almost nothing — a faint iridescence on wet stone, a slippery sheen on the lips of the terrace pools. But run your thumb across a submerged ledge and you will feel them: a living film, warm, dense, faintly oily. Everything that lives in the basin eats them, one way or another. They are the pasture, the plankton, the soil. The basin's first word, spoken in chemistry.
+
+---
+
+Of the small pale things — the slug-newts, the terrace-dwellers — there is more to say than the obvious.
+
+They are soft-bodied, yes, and translucent, yes, but the transparency is not simple. Their skin is layered, almost laminated, like the terraces they live among, and through it you can see not organs exactly but *shapes* — dark muscular foot, paler gut, the suggestion of gill-fronds fanning behind the jaw. They move through the standing water with a slow, deliberate bonelessness, and when they pause — which they do often, pressed flat against the mineral surface — they are almost indistinguishable from a ripple, a trick of the light. You look at a pool and you count four; you look again and there are forty.
+
+Their mouths, if you ever see one open (which requires patience, and a willingness to sit at the edge of a terrace pool in the dim light with your knees wet and your breathing slow), are extraordinary. The jaw unhinges laterally, not vertically, and what emerges is a tongue-like structure covered in thousands of cilia, each one tipped with a droplet of the same dissolving secretion they use to eat the stone. They press their mouths flat to the terrace surface and *taste* the mineral into themselves. Calcium carbonate, gypsum, travertite — they dissolve it in a thin film of mucus and absorb the solution through epithelial tissue so efficient that their waste is almost nothing. They excrete a faint white powder, the only true refuse they produce, which drifts to the pool floor and becomes, in time, part of the terrace itself. They eat, and what they cannot use becomes stone. They are not separate from the basin. They are a mechanism by which the basin metabolizes itself.
+
+They breed in the standing water. The female lays a clutch of eggs — dozens, sometimes over a hundred — in a thin sac of mineralized mucus that she anchors to the underside of a terrace overhang. The sac hardens within hours into a shell so similar to the surrounding travertine that you cannot find it unless you know what you are looking for: a slightly darker seam, a hairline of difference in the lamination. The young emerge weeks later, already translucent, already feeding, already beginning, molecule by molecule, to become part of the stone.
+
+The people eat them. Not eagerly — there is no eagerness in this basin — but with the calm regularity of someone picking fruit from a tree that grows outside their door. They scoop them from the pools with flat stone tools and press them into clay molds with a paste of crushed mineral filament and vent-heated water. The cooking is slow. The flavor, by the accounts of those who have spent enough time here to develop an appetite, is mineral and clean and faintly sweet, like the water itself.
+
+---
+
+The clicking ones — and now we come to them, the creatures that the people call something that means, roughly, *the ones who count* — are more complex.
+
+Six legs, each jointed in three segments, each segment sheathed in a mineralite exoskeleton that grows continuously and molts cyclically. When they molt, they split open along the dorsal ridge and crawl out of their old shell, pale and soft and vulnerable, and they remain still for hours while the new casing hardens and mineralizes from the damp air. During this time the others guard them. Not out of tenderness — or not only — but because a freshly molted one is a source of calcium, and the unguarded ones are sometimes eaten by their own colony. They are not sentimental. They are efficient.
+
+The colonies — forty, fifty, sometimes eighty strong — cluster around the warmest vents in ordered aggregations that are not quite hives and not quite herds. They lay down chemical trails, not with scent but with the mineral-rich fluid their legs secrete, trails that persist on the stone for days and that the others follow to food, to warmth, to breeding pools. The clicking — that dry, rapid percussion of chitin on mineral — is how they communicate. The rhythm carries information: speed, urgency, the location of food, the presence of danger. Different colonies have different click-patterns, dialects that shift over generations, and the people have learned to read them. A colony that clicks in long, steady runs is feeding. A colony that clicks in short, sharp bursts is alarmed. A colony that falls silent is either molting or dead, and in the basin silence is a thing that demands attention.
+
+The youngest children — the basin's children, the human ones — spend hours watching them. Sitting cross-legged on the terrace edges with their bare feet dangling over the warm water, eyes tracking the darting bodies as they move in their quick mineral trajectories across the stone. The children imitate the clicking. They click their tongues against the roofs of their mouths, trying to match the rhythm. It is the first game they learn. It is, some would argue, the first language lesson.
+
+---
+
+And then: the deep ones.
+
+You do not name what you do not understand. The people have no word for them that translates. The closest approximation — and it is only an approximation, a shadow-thrown against a cave-wall of meaning — is something like *the ones beneath the remembering*. Or: *what the basin holds*.
+
+They live in the deepest pools, in the overhangs where the drip-water collects into permanent, still bodies that are warmer than they should be, heated from below by vents too deep to see. The pools are black. Not dark — black. The water has a density to it, a mineral saturation that absorbs light rather than scattering it, so that when you lean over the edge and look down, you see your own reflection staring back at you from what seems like six inches below the surface, and then the reflection fades, and then there is nothing, and then there is a *presence* — not seen, not heard, but felt, the way you feel the bass note of a drum in your chest before you register the sound.
+
+They are large. How large no one will say definitively, because no one has seen one whole. What is seen — occasionally, in the grey light, when the mist thins and a shaft of something almost-afternoon illuminates the pool from above — are two shapes at the surface. Pale. Broad. Motionless. Like the tops of boulders that have decided to float. They have no eyes. Or they have vestiges where eyes would be — pale patches of thinner skin over hollows — but the eyes, if they ever were eyes, have long since atrophied in a place where there has never been anything to see.
+
+They breathe, or something analogous to breathing. A slow aspiration of water through an opening low on the skull — you hear it before you see them, the deep displacement, the sound of a bath being entered by someone very large and very calm. And sometimes, very rarely, they surface more fully. You see a mouth — wide, ventrally positioned, lined with structures that are neither teeth nor baleen but something closer to the mineralite combs the clicking ones use to filter bacterial mats, dense and fine and pale. They strain the warm water. They eat what the others eat, but at a scale that makes everything else in the basin look like garnish.
+
+The clicking ones fall silent when the deep ones move. Not immediately. There is a lag — a few heartbeats during which the colony continues its percussion, as if unwilling to admit the shift. And then, like a conductor's downbeat, one click stops, and another, and another, until the whole colony is quiet, and the only sound is the vent-breathe and the slow settling of displaced water.
+
+The people leave offerings for them. Not prayers — the basin's people are not, in any way that an outsider would recognize, worshipful. They leave food. A piece of mineral filament. A handful of the pale slug-newts, pressed into a clay vessel and set at the edge of the deepest pool. The vessel is always empty by morning. The people check this the way you check the weather — with interest, without surprise.
+
+---
+
+And the people.
+
+They are — start here, because the eye goes to the eye — shorter than you expect. The low doorways would suggest this, but the reality is more pronounced. They are built *into* the scale of the basin, as if generations of low ceilings and narrow passages and the daily negotiation of terrace steps that are still-forming, still-soft in places, have selected for a compactness of body. Broad-shouldered, short-legged, long-armed. Their hands are large and thick-palmed, callused in patterns that speak not to labor exactly but to *contact* — the touching and feeling of stone that is still becoming, the reading of surfaces for temperature and moisture and readiness.
+
+Their skin is dark — not uniformly, but tending toward a deep brown that is almost the color of the basalt cliff-walls, and in some individuals mottled with lighter patches, almost like mineral deposits, which the people themselves do not remark upon and which no outsider has satisfactorily explained. Whether it is adaptation, or mineral exposure, or something that happened here a long time ago and was never questioned because it was always so.
+
+Their eyes are large. In the dim light of the basin, where the grey luminescence is always diffuse and never directional, large eyes gather what light there is. The pupils are wide even in what passes for full daylight. At night — in the darker version of night that the basin offers, when the mists thicken and the drips intensify and the whole place settles into its denser self — their eyes catch what little light there is and return it, faintly, the way still water returns the sky.
+
+They are not silent people. They click and glottal-stop their language into existence, and the sounds braid into the basin's own percussion so seamlessly that a visitor cannot, for days, distinguish speech from environment. But you learn. A click that starts high and falls means *come*. A click that starts low and rises means *look*. A series of rapid tongue-stops against the back teeth means *wait*, which in the basin means *listen*, which means *feel the change in the air*, which might mean a vent has shifted, or a terrace edge has softened, or the deep ones have moved.
+
+Their children grow up in a world of sound before sight. They learn the basin's voice before they learn its shape. They learn that the clicking of the colonies is a clock — faster when the vents are hottest, slower when the warmth drops. They learn the difference between the sound of water dripping into a shallow pool and the sound of water dripping into a deep one, and they learn, too, the sound that is neither — the sound that means something large has passed beneath. They learn to walk with a footfall that adds to the soundscape rather than disrupting it, a soft placement, a rolling gait, the soles of their broad feet reading the stone before committing weight.
+
+They have no written language. They have no need for it. The record of the basin is written in the stone itself — in the growth of the terraces, in the shrinkage of the doorways, in the layers of calcium that build year upon year like chapters in a book that is still being written. The people are part of this record. They live in the writing. When an elder dies, their dwelling is not sealed; it is left open to the mist, and the mineral-laden air begins its patient work, and in a generation the walls have grown over the threshold and the room is part of the terrace again, and what the elder was is diffused into the structure of the place, the way a word spoken in a room full of echoes becomes part of the room.
+
+They are patient in a way that outsiders find unsettling and then, after enough time, find beautiful, and then, after more time, find ordinary — the way you find ordinary the sound of your own breathing. They pour their water into their molds and wait the years it takes for the calcium to solidify, and they do not call this patience because there is no corresponding word for impatience. There is no concept. It would be like a concept for *the feeling that the stone should stop becoming*. The thought does not arise.
+
+They live among the clicking ones the way you live among birds — aware, occasionally attentive, mostly cohabitating without comment. They do not domesticate. They do not cultivate. They *tend*, in the way a river tends its banks — by being present, by wearing and shaping with the slow persistence of contact. The colonies that cluster near the settlement's warmest vents are richer, larger, more populous than those in the basin's periphery, and the people understand that this is because their own heat, their cooking fires, their warm bodies pressed against the stone walls, contribute to the thermal geography. They are part of the vent system now. They are a feature of the basin's metabolism.
+
+And at night — in the denser dark, with the mists thick and the dripping loud and the whole place resonating with the deep, patient turning of the stone — they lie in their carved chambers on stone shelves lined with dried moss-analogues that grow in the faint warmth, and they hear the clicking resume — colonies settling into their crevices, legs finding stone, rhythm restored — and they hear the vent-breathe rising from below, and they hear, distantly, the enormous slow signature of the deep ones turning in their black pools, and they close their large dark eyes and they are not afraid because this sound, this density of sound, is what it means to be inside a living thing, and they have always been inside a living thing, and the living thing has always been holding them.
+
+The basin breathes. They breathe with it.
+
+The basin grows. They grow with it.
+
+The sound never stops. They would not ask it to.

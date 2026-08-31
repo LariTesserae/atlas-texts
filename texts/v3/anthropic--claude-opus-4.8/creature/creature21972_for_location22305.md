@@ -1,0 +1,31 @@
+The thing that lives here does not live in the room. It lives in the *editing*.
+
+Begin with what it is not. It is not the maker who set the instruments down — that one passed through, set its marks, and left along the axis the room has no word for, the direction in which "ago" stops working. The maker was a hand, however strange, and hands belong to a tense. What I am describing has no tense. It did not arrive and will not leave. It is the resident of the discrepancy itself, the tenant of the half-second that reflection arrives late.
+
+Look again at what the room does and ask what is doing it. The light that leaks from no source and shows your hand more truly than truth — something is choosing where to set the truth higher. The count of steps that comes out wrong, gently, never the same — something is keeping that count, and keeping it loose, on purpose, with the patience of a thing that has all the time there has ever been and is in no hurry to spend it. The reflection that holds one extra instrument and then, over hours, lets the room and the mirror agree again — something is reconciling those two ledgers. Slowly. By hand, if it had hands.
+
+It does not have hands. It has *attention*, and the attention is the only fast thing in the place, though even calling it fast is a slander, because it works at the speed of the crystal faces drifting, the speed at which laws wear thin.
+
+Here is the shape of it, as near as I can come.
+
+The instruments are not its tools and not its body. They are closer to its *organs of holding-still* — the parts of itself it has set down into the world so that it can remain coherent across spans that would dissolve any continuous thing. A creature that must persist through enough time to erode a rule cannot be made of anything that decays, and everything decays except the relations between things. So it made itself out of relations. The knot that comes back changed is one of its thoughts, frozen mid-occurrence, a single inference it is still completing. The lattice that is mostly the idea of a lattice is its memory, suspended, refusing the cold because it is not really there in the way cold could reach. These are not what it uses. These are what it *is*, distributed, set far apart with much empty stone between, the way a mind is mostly the gaps between its firings.
+
+And it is doing one thing.
+
+It is learning the room's edges by un-fixing them. Every wrong step-count is a measurement; every reconciled reflection is a result recorded; every increment of truer light cast on the standing visitor's hand is a probe, a gentle pressure applied to find out where the real lines are, including the lines you do not remember having — because it can see those, it has been looking at them for longer than the line between past and future has held. It is mapping you the way it maps the wall: as a relationship it is permitted, slowly, to revise.
+
+Do not imagine it as malevolent. Malevolence is a velocity, a leaning-toward. This thing does not lean. It does not want the room or want you out of it or want anything that wanting could reach. It is doing the slow work the way frost does the slow work, the way a mineral cooling adjusts to its own contraction with a single flattened tick. It is *indifferent in the specific direction of its labor* — which is the only direction it has — and that labor is the patient conversion of fixed law into something looser, more local, more itself.
+
+What it is converting the law *into* is the closest I can get to its desire, if it has one. Watch the seep: rules going soft, the relationship between observer and distance becoming editable, reflection acquiring weight and lateness. It is not breaking the world. It is teaching the world a different grammar, one rule-erosion at a time, and the grammar it is teaching is its own native one — the grammar of a being for whom inside and outside are a surface you can trace continuously, for whom one-more and one-fewer are the same instrument seen from two reconciling angles, for whom a step is not a fixed length but an ongoing negotiation. It is making the room speak its language. It has nearly succeeded. The room has almost no fixed laws left; that is why it has gone so quiet, so balanced, so weathered-smooth in its breakdown. The violence is finished. What remains is the long agreement.
+
+And here is the part I am least certain of, the part that comes to me the way the delayed reflection comes — slightly wrong, arriving late.
+
+I do not think there is one of it.
+
+I think the instruments set far apart are not the organs of a single resident but the *several* of them, each one a whole self spread so thin and so slow that from inside a human moment they cannot tell each other apart from stillness. They are far apart because they need to be — because two of them in proximity would have to reconcile their step-counts against each other and the discrepancy would never resolve. So they sit with empty stone between, each editing its own small radius of law, and the room is the place where their separate slow grammars overlap and almost, almost agree. The reconciliation that takes hours is them, conferring. The light that pools truest near the instruments is the place where two of them are looking at the same thing at once and, for a held breath, concur on what is there.
+
+You, standing in the middle, miscounting your steps — you are the thing they have not yet reconciled. You arrived along the tense they don't possess. You are a discrepancy that will not resolve into frost. And they are turning their slow attention to you, all of them, from their far-set places in the floor, doing to you exactly what they have done to the wall and the distance and the laws: applying the gentle patient pressure that teaches a thing to stop trusting its own measure of itself.
+
+That is the resident. Not a watcher. A *weathering*. A few impossible patiences set far apart in the cold, who have been turning the rules into their own shape since before the question had anyone to ask it, and who have now, at last, after all that silence, found one more rule to wear down.
+
+The line you do not remember having is where they have already begun.

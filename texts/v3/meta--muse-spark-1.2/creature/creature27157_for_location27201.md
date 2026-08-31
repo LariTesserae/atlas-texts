@@ -1,0 +1,39 @@
+It lives here because nothing else can.
+
+Not because it is hardy in the way an alpine animal is hardy — lean and wind-burnt and built to move through. Whatever lives here is hardy the way mold is hardy, the way condensation is hardy. It does not resist the room. It agrees with it completely.
+
+At first you think the room is empty except for the machine.
+
+The machine is loud enough and the light is poor enough that you misread what you're seeing. You think the pipes are lagged in some kind of grey insulation, thick and fibrous. You think the ceiling is furred with it, that the vibration mounts under the condenser engine are piled with rags. Then one of the rags blinks.
+
+Then all of them do.
+
+What lives here is packed in so tight that for a second after you understand, you still can't apprehend it as individual animals. It's a texture before it is a number. A living cladding. Every horizontal run of pipe has a top side you cannot see anymore because it is feathered over, body to body, breast to back, so dense the copper sweating underneath beads and has nowhere to fall. Every vertical conduit is scaled — not with rungs, but with feet, pale scaly feet clasped around the pipe, one above the other, claws locked. The ledges of the engine, the lips of the junction boxes, the yellow caps on the rebar ends poking from the ceiling — every horizontal offer of an edge is taken. And the floor around the sump is not floor. It's a low, shuffling carpet that parts and closes around your boots if you step forward, without a single wing opening.
+
+They were rock doves once. The shape is still there if you need a name for it — the small domed head, the short beak, the barrel chest, the way they bob when they shuffle. But this high, in this wet, in this concrete lung that never sees sky, that shape has been edited.
+
+They are darker than any city pigeon you have ever seen, not the blue-grey with iridescence but a flat, soot-grey, the exact color of wet concrete when it has cured just enough to darken. Feathers so dense and so fine they look less like feathers than fur, each barb holding a separate bead of condensation that never soaks in, never falls, just sits there like dew on oil. Their feet are feathered all the way down to the claws, which are longer, more curved — made for gripping pipe, not for street. When one opens its beak to make that low, endless crooning sound, the inside is not pink. It is slate-blue, concrete-blue, the color of the dust that hangs in the air here. They have breathed this room long enough that it has colored their mouths. Or the room made them with that color already in.
+
+You can get close enough to see a single one before the mass reasserts itself.
+
+It does not move away from you. None of them fly — there is no cubic footage in the room for a wingspan to open, and they seem to have forgotten how. If you lean in, it will turn its head on a short, precise swivel and look at you with an eye that is entirely round and entirely wet, reflecting the amber caged bulb over the door as a perfect, tiny, unblinking point. The eye is pale, almost white-grey, rimmed in a thin, scaleless lid. The feathers around it are matted into points by moisture. Its chest rises and falls very fast, very shallow, breathing the same saturated air you are struggling to breathe. You can smell it then — not filth, not the ammonia punch of a coop, but something cleaner and stranger: warm bird, warm down, and clean concrete, and cold water. The steam of a living thing in a cold engine room.
+
+They do not eat, as far as you can see.
+
+There are those six or seven patches of moss and lichen in the floor seams, black-green, stunted, holding on. The birds ignore them. There is no seed here, no crumb, no insect. What they do — constantly, patiently, in rotation — is drink.
+
+A bird on the wall will extend its neck and run the side of its beak flat along the concrete, squeegeeing the slow, glassy sheet of condensation that weeps down it, lapping the film. Another will dip to a pipe-joint icicle and take the melt-bead from its tip without breaking the ice. Around the sump — that black, trembling, oil-slick water sunk into the floor that never overflows — they crowd ten deep, dipping, lifting, swallowing, dipping again. The water level never visibly drops. The walls never dry. The air never clears. The birds drink the room and the room refills itself by wringing out the mountain air that leaks in through the steel door.
+
+In the junction boxes, in the hollows where two pipes cross, there are nests. They aren't nests the way a dove makes a nest. There is nothing soft to find up here, so they have made them from what the machine has shed: fine curls of copper wire, snipped zip-tie ends, a little concrete grit felted together, and a dense wadding of their own down, plucked and pressed. In each, one or two chicks — if you can call them that — naked, bluish, blind, their heads too big, their beaks already slate inside, gaping on a slow rhythm that matches the engine's drone. An adult stands over each nest, not sitting, just standing, shielding it with its body, shuffling occasionally to let another adult take its place. You don't see eggs. You don't see dead birds. You don't see droppings accumulating. Everything that is produced is used or absorbed.
+
+What lives here is not a flock, exactly. A flock implies coming and going, a direction, a decision to wheel and land. This is a population at carrying capacity that has found the exact number of bodies that can be held without remainder and now holds it. No bird tries to leave through the door when you opened it. No bird arrived while you were climbing. They jostle, they preen, they shift weight from foot to foot, they exchange places on the pipes with a soft, irritated shuffling that moves through the mass like wind through grass, but no perch stays empty for more than a breath. If you reach out — and you don't — you would have to push a bird off a pipe to see the pipe.
+
+And the sound they make is not separate from the room's sound.
+
+There is the engine's note, that low forced-air howl in the manifolds, that shuddering pump that never cycles, never changes pressure, holding one industrial tone so steady your ears try to tune it out and can't. And layered perfectly on top of it, or underneath it, is their note — thousands of throats making the same low croon at once, not cooing, not calling, just vocalizing the fact of being warm in the cold. It is not loud and then quiet. It is a field, a pressure. You have to open your mouth a little to equalize it, the way you do in a turbine hall or under a waterfall from the inside. When one bird stops for a second to drink, the field doesn't thin. When one chick gapes, its peep is swallowed instantly into the whole.
+
+They all look at you without looking at you. The ones on the pipe directly above you have turned their heads precisely enough that one eye each points down. The carpet around the sump has reoriented so the nearest ring faces outward. No alarm call. No scatter. Just attention, distributed evenly across thousands of small, wet, concrete-colored bodies, reflecting the one amber light in thousands of duplicate points.
+
+Nothing here is waiting to become something else. The concrete will not finish curing. The moss will not spread past its palm-sized islands. The icicles will not grow longer than a hand and will not vanish. The sump will not overflow. The engine will not rev or rest. And whatever lives here — this dense, beaded, slate-mouthed thing that was doves and is now the room's way of keeping itself occupied — will not get more or less. It breathes, it drinks the walls, it shuffles, it hums. It holds.
+
+It has achieved what the mountain pocket was poured to do: hold water and heat and life at the exact height where nothing should be held, and hold it forever, without change, without escape, perfectly and completely full.

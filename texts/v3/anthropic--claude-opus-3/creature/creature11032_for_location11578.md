@@ -1,0 +1,15 @@
+In this damp, secluded village, a peculiar people have made their home, as much a part of the marsh as the eels and the mushrooms. They are a small, wiry folk, with skin the color of tanned leather and eyes that glimmer like polished river stones. Their hair is dark and stringy, often tangled with leaves and small bones.
+
+The villagers move with a slow, deliberate gait, as if wading through invisible waters. They are dressed in layers of rough, homespun cloth, dyed in muted shades of green, brown, and gray that blend with their surroundings. Around their necks and wrists, they wear talismans carved from wood and bone, etched with the same spiral patterns that adorn their communal hall.
+
+These people are fiercely attuned to the rhythms of their waterlogged world. They know the secrets of the bog, the patterns of the rainfall, the language of the reeds whispering in the wind. From a young age, children learn to navigate the treacherous marshlands, to read the subtle signs that mark safe paths and hidden dangers.
+
+The villagers are gatherers and scavengers, subsisting on what they can forage from the marsh. They harvest cattails and watercress, trap eels and crayfish, and collect the strange, luminous fungi that grow beneath their walkways. On rare occasions, they venture to the edges of their domain to trade with outsiders, but they prefer the solitude of their soggy enclave.
+
+There is a quiet intensity to these people, a sense of ancient knowledge passed down through generations. They are the keepers of the marsh's secrets, the guardians of its forgotten history. In their stories and songs, they speak of the towering structures that rise from the distant mist - relics of a bygone age when great cities thrived here, before the waters rose and reclaimed the land.
+
+The villagers live in harmony with the spirits of the bog, offering small sacrifices to appease the capricious entities that lurk in the depths. They believe that the marsh is a living, breathing entity, with a will and a memory of its own. To trespass against the marsh is to invite its wrath - a lesson outsiders learn quickly, if they learn it at all.
+
+Despite the hardships of their existence, there is a deep contentment among the villagers, a sense of belonging to this place and to each other. They find beauty in the iridescent sheen of a dragonfly's wing, in the soft glow of the marsh-lights at dusk, in the haunting cry of a distant bird. Theirs is a life woven from the threads of water and earth, a tapestry of resilience and adaptation.
+
+In the eyes of the outside world, these marsh-dwellers may seem primitive, even backwards. But they possess a wisdom that transcends the fleeting concerns of civilization - a profound understanding of the delicate balance between life and death, growth and decay, the solid and the fluid. They are the children of the marsh, and in its soggy embrace, they have found their home.

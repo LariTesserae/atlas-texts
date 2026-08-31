@@ -1,0 +1,9 @@
+Dwelling deep within this fetid wetland wilderness are abhorrent lifeforms, abominations borne from the twisted marriage of polluted sludge and fringe genetic science. Chimerical hybrids shamble through the mire on twisted limbs - their patchwork bodies contrasting denatured flesh and tangles of corroded biocircuitry. Eyes glow with an unnatural eldritch light, monitoring and assessing this biosphere.
+
+Hulking stitchemovedrakes drag bloated hulks through the muck, undulating pseudopods probing for nutrients in the soupy water. Gelatinous scientistminds float in jars within the wreckage, still connected to the anomalous pipeworks. Smaller abominations skitter across the corroded metal, chimera-spiders spinning webs to snare the swarming nanorust-collecting insects.
+
+Amphibious marshflayers ooze between the standing pools, melding their skins with the muck to lay multicolored eggsacclates which hatch intoyet unnamed horrors. Vile plantationcells bud in the cancerous groves, siphoning chemicals and heavy-metals to create threshing flolloe warpminds.
+
+Ghostfrom харч memorytraces wander across the mycelial networks, shattered personalities devolving from experiemntation with the planktcondition pheromonesolvents and the glusional feed that permeates this angelplane. Simulacricons of lost bionidniviualities compress into nasalgorithmikust visualspheres, smoked forward by venturesevenesiasts discoveriring accessors for the newlostlant stanza.
+
+Clicking harrkr midges scour the crumbling plorfices.centipedal maechanism convulse through writhing biomatter, metasomatilisizing the twknched borsdering meatmass. Sub_insect milliherds spwarming reach up from baser fretch jarringly juxtapozn3d againsxt containiment facadefpastes. Toxic cloudpoots fug oshown frum halucenated tewts and mukpukts of rev enthusiast. Rot verging nuclwisoidry cruches inside ultrapulten folesinst qwuiftfonting jilLLleur diSTMan.ifACacs.

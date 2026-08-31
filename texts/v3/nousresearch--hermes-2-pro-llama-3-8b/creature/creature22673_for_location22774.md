@@ -1,0 +1,9 @@
+The inhabitants of this eerie and ancient city are as strange and diverse as the place itself. They are a motley collection of creatures, born of both flesh and machinery, that have found their way to the forgotten metropolis and have made it their home.
+
+The most obvious inhabitants are the drones, which come in all shapes and sizes. They are created from a mixture of biological and mechanical components, making them both efficient and resilient. These drones serve various purposes, whether it be maintaining the ancient machinery that still functions, patrolling the winding alleyways, or harvesting the various resources that the city has to offer.
+
+Alongside the drones are the sentinels, robotic guardians that stand tall and unyielding, ever watchful and ever ready to protect their city. Their programming is so ancient that even their creators can hardly fathom their true purpose or function, but these sentinels remain ever faithful to their duty.
+
+But the inhabitants of the city are not just machines and constructs. Strange, otherworldly creatures also find a home in the dead metropolis. These beings are born of the same darkness that permeates the city, and are as alien as they are mysterious. They flit and flicker through the shadowy streets, their forms twisting and contorting in ways that defy the laws of physics. These strange creatures are the true natives of the city, the embodiment of its unnatural and otherworldly nature.
+
+Despite their strange and diverse appearances, these entities coexist in harmony with one another, each playing their own role in the bizarre ecosystem that has taken hold of the city. The drones tend to the machines and resources, the sentinels guard the city, and the strange creatures provide a strange, unsettling beauty to the scene. All are bound by their shared existence in this forgotten place, providing a constant reminder of the strange and wondrous nature of the universe.

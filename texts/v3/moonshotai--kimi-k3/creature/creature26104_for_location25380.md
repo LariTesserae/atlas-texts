@@ -1,0 +1,113 @@
+Everything in the Weave is listening.
+
+That is the first fact of life here — before the cold, before the dark, before the one-ness of the plant. Sound is what the world is made of, after fiber and water, and every living thing in the loud dark has come to its own arrangement with sound: to be a voice, to be a secret, or to be an ear. Most things are all three in turn — a voice when it is safe, a secret when it is not, an ear always.
+
+What follows is a census of the loud dark. Who is singing. Who is lying. Who is holding still. And who — lately — seems to be answering.
+
+## The small multitudes
+
+The felt is not a floor. It is a larder, a graveyard, and a medium, and it is thoroughly inhabited.
+
+Felt-worms work it the way worms work soil anywhere: pale as the felt they eat, long as a forearm, taking in ancestor-fiber at one end and leaving soft new felt behind at the other. The ground the strandborn walk on is worm-work, generations deep. The people return the favor by drying the worms on windward strands and grinding them into meal, and there is a quiet understanding between the two species that they are eating each other's ancestors and that this is simply what floor means.
+
+Tap-lice drum. That is their whole character. A lousy cable gossips to itself — thousands of mating taps, hour after hour, until the strand's true voice is buried under chatter and a chew-listener has to sort the lice-taps from the settling-creaks from the one sound that matters. Children de-louse the home strands as a chore, and hate it, and are right to.
+
+Choir-beetles saw their legs against the cable edges, and each kind owns a pitch and keeps to it, so that a healthy stretch of Weave carries a layered sawing under the Chord, an orchestra tuning itself forever. They are the world's first storm-warning: before a seam-storm, every beetle on a continent's worth of cable stops at once, and the sudden absence of that sawing wakes the strandborn in the deep hours more reliably than any shout. And when the strand-fire comes crawling blue along the lattice, the beetles come out and mate in it, frantic and glittering. The small folk keep their weddings in the strand-fire. It is the only noon they get.
+
+The strand-borers are the danger among the small. A grub the size of a child's arm, jaws like a slow saw, hollowing the living cables from inside. You find their galleries by a faint seam of light — they smear sap as they go, and their tunnels glow like infected cuts — and you find them, too late, in the long note: a cable that fails of borers has a particular flatness, and the Chord-keepers can name the cause of a failure from the color of its note the way a physician names a sickness from a cough. Against them stands a whole profession: the chew-listeners, apprenticed in childhood for the quality of their ears, walking the strands with ear-horns of hollowed tendril pressed to the fiber, listening for jaws. Borer meat is good, faintly lit from inside, and eating it leaves a glow on the teeth for a day or two. Children dare each other. Everyone knows. No one much minds.
+
+In the black ponds under their ice-skins live the pond-pales — finger-length fish of glassy nothing, who freeze solid in the deep hours and thaw when the day's warm pulse comes up through the cables, and die every night, and think nothing of it. On the ice above them walk the skaters, long-legged and patient, listening through the skin of the pond with their feet, spearing down through with a single needle-toe. And everywhere there are frost-mice, harvesting rime-feathers into felt-lined burrows, cache upon cache of stolen ice. In the dry season, when the dew-nets come in empty, a mouse-cache is water. The rule is thirds: take one, leave two, and never clean a cache. Mouse-trails are maps, and the strandborn read them.
+
+Once a year the Anchorless sows. The spores come down out of the breath-fog like slow snow, dim-lit, warm enough to feel on the face, drifting for days, and everything that can eat spore eats spore — the fog-striders at their sieves, the beetles, the mice, the people sweeping drifts off the felt into baskets for a pale bitter flour. The plant feeds its tenants with its own unborn. Nothing here is wasted, because nothing here is not already part of the one body, being passed from mouth to mouth like a story.
+
+And where the sap wells up at a node — a true seep, bright and pulsing and sweet-adjacent, the closest thing the world has to a watering hole — all of these small lives crowd in close, beetles and lice and mice and moths. Where small lives crowd, the liars come.
+
+## The liars
+
+The lantern-moth's art is the pulse-match. A seep's light swells and fades on a slow rhythm, sap-driven, and a good liar-moth has learned to breathe her light on the same rhythm, in the same color, at the height above the felt where a seep ought to be. What comes to feed on the seep feeds the moth. It is an old trick and it has never once stopped working.
+
+There are many lies. The seep-liars are the common ones. The wound-liars imitate the resin-bright shine of fresh splintered fiber, and take the scavengers that come to a broken strand. The great liar, with a wingspan the width of a hand, hangs her false seep at mouse-height and eats frost-mice at their errands. And there is one — the strandborn call her the sawyer — who lies in the other sense entirely: her wingbeats have been shaped, by whatever shapes such things, into the exact sawing pitch of a courting choir-beetle. The beetles come to the song, ardent, and are eaten. In the Weave, a light is a claim and a song is a claim, and most claims are false.
+
+Against this stand the true-moths, who gave up lying, or never learned. They dust the spores honestly, seep to growing-tip, and the Anchorless pays them — the persuaders will tell you this with a straight face — by pulsing its real seeps on a rhythm the true-moths can match and the liars cannot quite. A negotiation between a moth and a continent, conducted in light, over generations. It is the only trade agreement the Weave has.
+
+The kept moths, the lamp-moths, come from true lines, bred fat and dim and steady on tapped sap, in cages of woven splinter. A good lamp-line is an heirloom like a stone adze: named, biographed, traded at the fairs with the gravity of gossip about people. Every lamp in the Weave is a lie that agreed to keep honest hours. And around every platform's lamps, the wild liars gather anyway, to eat what the light draws in. Light breeds light. Lies breed lies. The moth-keepers say you can judge a family by the honesty of its lamps and the fatness of its liars, and no one has ever worked out whether this is a joke.
+
+## The bell-deer
+
+Six limbs means the footfall is a chord. A walking bell-deer plays a slow three-note phrase on the cable beneath it; a running one plays a ripple; a herd at ease plays something with a tempo you can read like weather from a day's walk off. The strandborn have been reading herd-mood through their boot soles since before their memory reaches.
+
+The fawns are born soft. For their first weeks their hooves have not hardened into the hollow resonators of their kind, and they make no sound at all — the soft weeks, the herders of memory call them, the one silent season of a deer's life. The hinds wrap them anyway, chewing felt to the right pliability and winding it against the grain of the hair, tucking with lip and forehoof, so that by the time the hoof rings true the fawn is already muffled, already practicing the central skill of being a deer: deciding, step by step, not to be heard.
+
+Because the ringing is not an accident the deer suffer. It is an instrument they carry. The hollow hoof throws a voice down the cable for kilometers, and the herd holds itself together in the dark by that voice — scattered across three strands in black air, every animal knowing where every other animal stands. The wrapping is craft laid over instinct, culture in an animal: the old re-wrap the clumsy young, felt is selected and tested and replaced, and a deer's wraps say as much about its carefulness as a strandborn's knot-work says about theirs. Who taught whom is a live dispute. The strandborn claim the deer learned wrapping by watching wrapped travelers. The old grandmothers claim it is obviously the other way around. Each side has evidence. Neither has proof.
+
+Then the Ringing Season comes, and the craft is deliberately laid down. The herds shed their wraps — you find them snagged on splinters along the migration strands, little abandoned silences — and the world reaches its loudest, tens of thousands of chords rolling down the great cables for weeks, the rut and the road and the aurora overhead. In the strand-fire, if it comes during the Ringing, the deer lift their heads and look at each other: it is the only light bright enough, some years, for a deer to see its whole herd at once. The rest of the year they are a song to each other.
+
+Everything eats at the Ringing's ragged edge, the people included. A herd's song tells a listener its count, its speed, and its sorrows, and the strandborn take the flat-ringers — the lame, whose notes drag off the beat — with something close to ceremony. No one keeps deer, though. You cannot keep a bell.
+
+The year is counted in Ringings. A child of eight Ringings. A marriage of forty.
+
+## The listeners that kill
+
+The threes are never one. That is the whole of what is known for certain and it is enough. Three gaunt hunters, spread across neighboring strands, still as splinter-knots for days at a time, talking to each other at a pitch below hearing, through the cables, in a register the strandborn cannot hear and cannot help but feel. When the strand underfoot feels wrong — when your soles go sour on a stretch of cable you have walked your whole life, when the children will not say why they want to turn back — go home by another way. The threes are talking. They take deer at the Ringing's edges. They take people rarely, and patiently, and a triad that has taken an interest in your strand can be waited out, in silence, for as many days as it takes. They are patient as the plant. Everything here is learning patience from the plant.
+
+The hushwings hunt the loud. They make no cry of their own — no click, no shriek, nothing to warn by except the wing-noise itself, soft felt tearing slowly in the dark — because they do not find their prey by asking but only by listening. Anything that makes a sound in their country is found. Hence the great silence when a swarm moves through: the moths folding, the deer frozen mid-step, the looms stopped, the children's mouths held gently shut. The strandborn keep a hand-speech for the swarm-days, palm to palm, no tapping, nothing through the cables at all, and children play hush-games from the age they can walk — the child who giggles is eaten, shrieking with delight, by a parent's hands.
+
+Between swarms the hushwings sleep alone, hung from the undersides of cables, wrapped in their own wings like seed-pods. Travelers find them sometimes. The taboo is absolute: never strike a sleeping hushwing. A hurt one screams, and the scream is at a pitch that calls the swarm. The softest thing in the world is the one thing you must not touch.
+
+When the swarm has passed, the opening of throats — and by custom the first voice is a child's, because children have the least practice at silence and the most at joy.
+
+And then there is the guest.
+
+It knocks. That is the horror of it, the whole shape of it: platforms have no doors to bar, only house-mouths grown of fused tendril, and families guard themselves the only way they can, with knock-patterns — a rhythm of arrival, changed season by season, taught to children alongside their name-rhythms, so that anyone whose approach you have not felt through the cable must announce themselves correctly in the dark. The guest knocks almost correctly. It knocks in last season's pattern, or in a pattern one beat wrong, or in your own family's rhythm played back at you from a stranger's hands. It knocks like something that has heard knocking all its life and has never once heard a door open.
+
+No two descriptions agree, because descriptions come only from those who did not open. The elders debate what it is — a leftover of whatever the Weave closed over, a thing come up the ropes from below, a hunter that learned speech the way the sawyer-moth learned song. The grandmothers say one thing clearly, in the low chord: its grammar is getting better. The knocks their own grandmothers described were clumsy, barely knocks at all. Each generation it lies a little better.
+
+Every child in the Weave knows the rule before they know their letters. Answer no knock you did not wait for.
+
+The threes you can wait out. The hushwings pass. The guest is learning, and learning does not pass.
+
+## The walking provinces
+
+Nothing hunts the fog-striders. Their flesh is antifreeze-bitter, their mass is platform-mass, and they have never in their kind's memory needed to flee anything, find anything, or hear anything coming — and so they are the only creatures in the Weave that have never once listened. You can feel it in them, the strandborn say: a calm with no listening in it, which the people find either holy or unbearable, depending on the person and the hour.
+
+They are born on the backs of the old, and the old are countries. An ancient strider brushing through the moss-curtains of the windward strands carries away seedlings, beetle nations, moth roosts, frost-mice burrows in the dust-felt of its own back — a traveling commons, a province that walks. The young walk across the backs of the old, and so do beetles, and so do spores, and so, it turns out, do people.
+
+The back-born are families who live aboard: no platform, no graft-song, no home-strand, sleeping in the moss-curtains that hang from an old one's flanks, going where the herd goes, steering nothing. They do not travel; they are traveled. They read the herd's drift the way Chord-keepers read pitch, as omen and archive both, and when they come out of the fog to a Ringing Fair they arrive like weather — unannounced, unhurried, half-wild and half-holy, with news of strands no one has walked in fifty Ringings.
+
+A strider's death is an event on the scale of weather too. A strider-fall feeds a region for years — the meat bitter, the ivory workable into the tools that stone is too precious for — and is grieved even by strangers, the way a landmark is grieved. If one goes over an edge, its fall can be heard for hours down the great cables, and the Chord-keepers enter it in the archive in the same hand they use for failed strands, because a province has been lost either way.
+
+## The strandborn
+
+They are pale as the felt, and their eyes are wide, and their eyes are not the point. The ear is the point, and the sole of the foot, which calluses over a lifetime into what the strandborn frankly call hearing-leather. A grown person standing still on a strand can tell you who is walking toward them three spans off, whose child, carrying what. They wrap their feet as the deer do. They learned it, say the grandmothers, from the deer.
+
+A strandborn child has a rhythm before it has a name. The mother taps it against her own belly in the last months, into the felt, over and over, until the unborn child is, by the only measure that matters here, already spoken to. The spoken name comes later and is a translation. Introductions are tapped. Lovers weave their name-rhythms together into a third rhythm, and a long marriage is one in which the third rhythm has drifted, over decades, into something neither would have chosen and both recognize.
+
+Their professions are all, at bottom, ways of listening. The chew-listeners walk the strands with ear-horns, hunting borer-jaws. The Chord-keepers keep the archive of pitches — the weather, the seasons, the health of every great strand, the cause of every long note, written in a notation of knots and carried in memory besides, because the world keeps its diary in pitch and someone must read it aloud. The Answer-tenders keep the quarry-shrines, recite the biographies of the named stones, and conduct the falling liturgy on the holy days; they alone listen for the Answer; they alone know, precisely, how much sooner it comes. The persuaders practice the strangest art of all: they sing to the plant. A platform is made by tapping the same encouraging phrase into young tendrils, day upon day, decade upon decade, because the Anchorless grows toward patient vibration — leans, over years, into a rhythm that does not give up. A platform is a frozen song. A house is planted by a grandmother and entered by a grandchild. And the persuaders say, lately, only among themselves, only in the low chord, that the plant is answering faster than it used to — that grafts take within one lifetime now, where the old songs took three.
+
+Their music is the art of agreeing with the Chord: you find the note the world is already playing, and you lean on it. Cable-harps are bowed with fiber; felt-drums are struck with wrapped hands; when the strand-fire comes, all the close work of the world gets done in the blue minutes — nets mended, splinters tweezed from children's feet, a first name-rhythm cut fresh into the home-strand. At the Ringing Season the fairs convene at the warm-knots, where the great veins of the Anchorless converge and the platforms never freeze, and stone changes hands, and moth-lines, and marriages, and gossip that has traveled three days along the cables and has the taste, like well-traveled water, of everywhere it has been.
+
+They eat worm-meal and wind-dried pond-pales and spore-flour and borer-grub and deer at the Ringing, and they season all of it with bitter sap, and they drink from the dew-nets and the rime and, by thirds, from the mice. They give their dead to the felt and the felt keeps them, cold and patient, and the families rewrap what the new growth exposes, and ask how things are going down there. A family's floor is its genealogy. The strandborn walk on their history, and their history, being well-kept, holds them up.
+
+## The Quiet
+
+The dead provinces are the exception to everything above, and the strandborn do not like to think about the size of that exception.
+
+Where the Anchorless sickened, the lattice petrified, and petrified fiber conducts nothing. Walk toward a dead province and you hear the world end by degrees — the beetles first, then the Chord itself, thinning, gone — until you stand in the one place in existence where the world's music does not reach. Nothing lives there. The borers refuse the dead wood. The spores land and do not sprout. Even the hushwings skirt the boundary, because a hunter that hunts sound by silence cannot hunt in a place where there is no sound at all. Even the silence-hunters cannot hunt silence itself.
+
+The strandborn leave their eldest platforms there to be swallowed, and they leave one other thing there too, though it is spoken of only as rumor. Break the great taboo — bring fire to a world of dry deep felt with nowhere to run — and the sentence is exile past the petrified boundary, because dead fiber will not burn. It is the only ground in the world where a flame cannot run. And so it is said that the fire-touched are out there, in the Quiet, keeping the world's only flame; and travelers who have strayed too far tell of a warm light where no light should be, and of shapes around it that did not look up. They are alive there, technically. It is the only life the Quiet has, and it is not speaking.
+
+## Below
+
+The descended come back soft-spoken. That is the first thing everyone notices and the last thing anyone explains.
+
+They go down on rope through the felt-holes, past the undersides of the lowest cables, into the warm dripping dark — and warmth is the first strangeness, because in the undersky the world's logic inverts: depth is warmth. The breath of the Anchorless condenses there and rains upward-country's water back down in drops that fall for minutes without landing. The wet returns. The smell returns — the underside is the only place the world has a smell, and it is the smell of the world digesting itself: rot and sap and damp fiber.
+
+The pale swimmers live in the soaked under-felt the way fish live in a sea, moving through saturated ancestor-fiber as if it were open water, and the descended fish for them bare-armed, reaching up to the shoulder into the wet felt and waiting, breathing slow, for something blind and cold to investigate the warmth of a hand. Between the under-cables the drip-spiders string their webs, and the webs sing — each drop striking the silk a note — so that a practiced descender navigates the dark below the world by web-song, the way topsiders navigate by the Chord. The root-grazers hang slow and blind in the rootlet-forests, cropping the hair-fine rootlets, going nowhere, consulted by no one.
+
+Deeper, the reports stop agreeing. There is a glow down there that is not the Bright Edge's crawl — diffuse, directionless — and the descended argue about whether it pulses, and whether pulse would mean sap, and what else it could mean. The deepest ropes have come back with their end-knots worked loose, and knots are language, and no one has decided what it means that something below unties them. No one has ever brought back a story from the deepest ropes that they told the same way twice.
+
+And over all of it, on the holy days, the Answer-tenders drop the named stones from the quarry-shrines, and the whole lattice waits, and the tone comes back up the cables like a rumor — sooner than it used to, higher than it used to, generation by generation. The Answer-tenders have stopped announcing the interval aloud. The holy days now end with the tone, and then silence, and no commentary, because commentary would mean saying one of two things: that the Anchorless is reaching its glowing roots down toward a floor at last — or that something down there, something that lives there too, something that may be the world's oldest tenant or its newest, is rising to meet the music.
+
+The Chord plays on. The beetles keep their blue weddings. Somewhere a hind chews felt and wraps a fawn, and the moths lie at the seeps, and the persuaders sing their decades-long songs to a plant that has begun, unmistakably, to lean in sooner. The guest practices its grammar. The stones fall a little less far every year.
+
+Everything that lives in the Weave lives by the ear. And every year, there is more to hear.

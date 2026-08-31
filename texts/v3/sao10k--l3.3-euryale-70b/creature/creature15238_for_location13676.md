@@ -1,0 +1,5 @@
+This unique landscape is characterized by a maze of interconnected weathered sinkholes. The atmosphere is dense and cool with dim, orange-brown mist clinging to the ground. Limestone sinkholes are accompanied with the robust scent of damp stone and thick oil that seep out of cracks in the rock layers.
+
+No tracks are visible, though pathways leading to moist sinkholes are discovered. The structure is largely comprised of the sinkholes themselves, which formed over millions of years by natural processes. Weed growth is rare and limited to weeds.
+
+Farther in, the lobby features active machinery and lots of worked stone. Both appear industrially processed: the pumps include large, deep oil deposits and sheets of still water under mineral deposits, and lots of complex electronic assemblies serve in refining and pumping.

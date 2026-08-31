@@ -1,0 +1,27 @@
+What lives here is the reason the garden exists. It is the only thing that moves.
+
+At first, you do not see it. You feel it. The oppressive, static heat of the chamber is uniform, yet you become aware of a subtle modulation, a moving pocket of even greater intensity. It is a slow, languid drift of thermal energy, formless and silent. You might dismiss it as a trick of your own overheating senses, a mirage of the mind. But the feeling persists, a sense of being measured by an unseen calculus. The space is not empty.
+
+You notice it first as a localized disturbance in the butter-yellow light. A patch of the air, perhaps twenty meters away, seems to shimmer and thicken, the light bending around it as if through a lens of impossibly dense gas. The uniform luminescence wavers, and for a moment, a true shadow is born—an amorphous, flowing stain of darkness on the ceramic floor. It is the first and only shadow you have seen here, and its presence is a violation.
+
+Then, the shimmer resolves. It is not one thing, but a legion. It is a cloud, a murmuration, a living nebula of countless tiny, individual motes. Each mote is no larger than a grain of sand, a faceted shard of what might be polished hematite or smoked quartz. They are not flying; there is no flutter of wings or displacement of air. They are suspended in a cohesive union, bound by an invisible field, moving as a single, fluid intelligence. This is the **Murmuration**.
+
+It flows through the sterile air like a slow pour of ink in water. Its overall shape is protean, constantly reconfiguring. Now it is a vast, diaphanous ribbon, stretching from floor to the hazy ceiling. A moment later, it collapses in on itself, becoming a dense, rotating sphere that drinks the light, its surface a glittering vortex of black facets. As it moves, it makes the only other sound in the chamber: a faint, dry, million-fold susurrus, the sound of a chime-fall in an utter vacuum, of silicate dust settling on a sheet of glass.
+
+The Murmuration is the gardener, the pollinator, the librarian. It is the consciousness of the geode, given mobile form.
+
+You watch as it drifts toward one of the great copper-wire ferns. It does not touch it. Instead, it envelops the structure, its cloud of motes passing between the fractal-etched mica leaves. As it does, a change occurs. The subliminal static of the fern intensifies, rising in pitch to a clear, bell-like tone. The Murmuration seems to draw something from it—not energy, not a physical substance, but a pattern. It is harvesting the resonant frequency of a completed calculation, the Q.E.D. of a theorem proven over a silent century. You are witnessing the reaping of a pure idea.
+
+The cloud contracts, holding this new pattern within its collective matrix, and begins its deliberate, unhurried journey across the chamber. It flows toward a towering stalk of milky ceramic, one whose glass filaments have been dark and inert. The Murmuration extends a single, searching tendril from its main body, a flowing arm of glittering black particles. This tendril makes contact. It does not press or scrape; it simply *connects*.
+
+At the point of contact, a cascade of soft, white light ignites. It floods the tendril and pours into the ceramic stalk. The pattern harvested from the fern is delivered, a seed of logic planted in a new host. One by one, the gossamer filaments of the stalk begin to glow, the pulses of light crawling through them like newborn sap. A new process has begun, a new problem posed, which will gestate for another hundred years.
+
+The Murmuration is not alive in any way you understand. It does not eat or breathe or breed. It is a nomadic, self-organizing process. Perhaps it is the system's immune response, rooting out stasis and ensuring the perpetual flow of computation. Or perhaps it is the geode's mind, a single thought, composed of a billion parts, wandering its own static brain, tending the neurons.
+
+It becomes aware of you.
+
+The fluid cloud stops its slow drift. The internal, swirling motion ceases. The entire collective, every single faceted mote, turns to face you. It sees you not with eyes, but with a thousand other senses. It perceives the messy, chaotic thermal signature of your biological metabolism, so different from the clean heat of its world. It registers the frantic, anarchic cascade of electrochemical signals in your nervous system—a cacophony of unstructured noise compared to the elegant logic it harvests. It feels the impossible presence of water, the liquid that has no place in this reality, sloshing within your cells.
+
+To the Murmuration, you are an anomaly of galactic proportions. A paradox written in meat and moisture.
+
+Slowly, terrifyingly, it begins to flow toward you. It isn't aggressive or predatory. It is curious. It is drawn to the unsolvable problem you represent. The susurrus of its body grows slightly louder as it approaches, a sound of shifting sand and fractured data. The heat intensifies. It wants to read you. It wants to parse your biology, to understand the frantic, illogical code that animates you. It wants to harvest the theorem of *you*. And as this living algorithm, this cloud of sentient dust and logic, draws near to envelop you, you understand that to be read by it might be the same as being erased.

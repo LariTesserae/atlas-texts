@@ -1,0 +1,15 @@
+In this place, there are beings that have evolved to exist between states, much like the copper that surrounds them. They are neither fully solid nor truly gaseous, manifesting as shifting masses of iridescent vapor that can condense into more coherent forms when needed. Their "bodies," such as they are, incorporate copper salts from their environment, giving them a luminescent blue-green tinge that mirrors the verdigris of their habitat.
+
+These entities don't so much live in the towers as they are part of the towers' ongoing transformation. They drift through the corroded matrices of their world, sometimes dispersing so thoroughly that they become indistinguishable from the fog that gathers in the early hours. They can seep into the crystalline structures of the verdigris itself, experiencing the slow chemical changes from within. When they gather together, their combined presence can accelerate or alter the patterns of corrosion, creating new formations in the ancient metal.
+
+They have no need for the bridges that span between towers, instead flowing through the air currents that create the city's endless music. Indeed, they are partially responsible for some of those tones - their movements through the warm air create additional resonances that weave through the existing sounds. They communicate through these vibrations, adding their own notes to the vast architectural instrument that surrounds them.
+
+In the deep chambers where copper salts saturate the air, they gather in greater numbers, becoming more concentrated and cohesive. Here, they form temporary collective entities that pulse with shared purpose, though what that purpose might be remains inscrutable. These congregations might last for years or centuries before dispersing again into the heights.
+
+They have no concept of individual identity as we would understand it. They split and merge freely, sharing their accumulated experiences through direct chemical exchange. Their memories are stored in the very patterns of their constituent particles, like complex molecular languages.
+
+Their consciousness, if it can be called that, operates on a timescale that matches their environment - they perceive the slow decay of the copper towers not as entropy but as a form of movement, like watching waves on an ocean. The falling of verdigris plates is, to them, a sudden event worthy of decades of contemplation.
+
+They may be the original inhabitants of this place, evolved beyond recognition, or perhaps they emerged from the interaction between the towers' materials and the environment. Or possibly they are the purpose of this vast machine-city, the intended product of some ancient chemical process set in motion by long-gone creators.
+
+Whatever their origin, they are now as much a part of this place as the copper and the corrosion, the wind and the rain. They are the living embodiment of transformation - not quite solid, not quite vapor, not quite alive in any way we would recognize, but undeniably present in the spaces between what was and what will be.

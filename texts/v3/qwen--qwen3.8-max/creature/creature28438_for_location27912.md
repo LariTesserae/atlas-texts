@@ -1,0 +1,15 @@
+What lives there is best understood not as a population settled upon a landscape, but as a set of living functions that have become bodies.
+
+Nothing in that warm dark is merely an inhabitant. The drifting lights are part of the air’s chemistry. The heavy ground-grazers are part of the stone’s maintenance. The pool creatures are part of the mineral water’s slow refining. Even the predators are not simply hunters; they are regulating pressures, moving checks and balances through a system too large to be seen all at once. Life there does not occupy the plateau. Life is how the plateau works.
+
+The first and most numerous living things are not animals at all, but the thin, patient communities that cover the rock.
+
+They are the true foundation. Black-green crusts spread over basalt in delicate maps, no thicker than a fingernail in most places, but sometimes accumulating in soft layered shelves where humidity lingers. Rust-colored filaments thread through pores and hairline cracks, drawing energy from iron, sulfur, heat, and the slow chemical breath of the planet. Pale mats form around fissures and vent mouths, fibrous and wet-looking even when they are not truly wet, feeding on gases that would poison most familiar life. These growths are dull in color: charcoal, olive, copper, ash, weak gold, sometimes a sickly amber where mineral water seeps through them. They do not rustle like grass. They do not sway like leaves. They simply adhere, metabolize, spread, recede, and spread again.
+
+They are eaten, scraped, breathed upon, and renewed. They are the productive floor of the whole dark industry. Without them, the fauna would have no basis. With them, even the bare stone becomes a living surface.
+
+Above these crusts, in the weak gray-brown pressure beneath the sealed haze, move the drifters.
+
+They are among the first things a traveler would notice, because they make the darkness seem inhabited at a distance. They are not birds, not insects, not balloons in any simple sense, though they share qualities with all three. Their bodies are gas-filled membranes, thin and tough, often translucent where the light catches them, veined with living tissues that glow faintly blue or green. Some are small enough to be taken for motes of luminous dust. Others are broad and slow, several meters across, trailing long sensory filaments that stir the air like fine roots searching for something invisible. They drift on thermal columns and chemical gradients, rising when the ground exhales warmth, sinking when the upper haze cools, spreading outward when the air becomes stable.
+
+They feed on what the plateau lifts into itself: airborne microbes, spores, mineral flocs, fine organic particles, charged droplets, volatile compounds condensed into mist. Their trailing filaments are not merely sensory; they are also feeding surfaces, combing the air with electrostatic attraction

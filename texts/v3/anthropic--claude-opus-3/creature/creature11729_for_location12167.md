@@ -1,0 +1,15 @@
+In this surreal abyss, a race of cephalopod-like beings dwell within the grown structures of their bioluminescent city. These creatures, known as the Lumicephali, have evolved to thrive in the crushing depths and frigid darkness of their aquatic realm.
+
+Each Lumicephalus possesses a bulbous, translucent head housing a complex brain that glows with patterns of eerie light—a language of mesmerizing motifs used to communicate with others of their kind. Beneath this hyper-intelligent dome of flesh extends a writhing mass of tentacles, studded with clusters of sensory organs and manipulating appendages. Their soft, gelatinous bodies are shot through with networks of light-emitting photophores, allowing them to signal in the darkness.
+
+The Lumicephali live in symbiosis with their city and its teeming ecosystem. They tend to the maintenance and expansion of their locomotive metropolis, weaving new structures from the secreted mucus and tissue of specialized pod-creatures. These chitinous building blocks, once shaped and seeded, grow into architectural organs of the city.
+
+Lumicephali drift dreamlike between the towers, gliding on currents with hypnotic grace as they collect drifting morsels, spores, and nutrients. Their tentacles constantly weave and sculpt the structures around them, shaping and cultivating the urban reef. Specialized castes filter-feed on clouds of microscopic life, while others harvest slow-growing, fungus-like organisms or herd the eyeless fish through coral-like gates and skeletal pens.
+
+The city itself is a meta-organism, a distributed network of tissues and metabolic processes of which the Lumicephali are the stewards and neurons. They are linked to the city through bioluminescent interfaces, communing with it via pulses of light transmitted through the structures themselves. 
+
+In the palace-like clusters at the city's heart, concentrations of Lumicephali gather in undulating congregations, flashing and swirling in mesmerizing displays as they engage in abstract communication and the telepathic fusing of minds. They contemplate the nature of their existence and their kinship with the void-dwelling leviathans they revere as deities—continent-sized creatures of dark matter and negative energy that swim between stars.
+
+Lumicephalic young are birthed from spherical, translucent eggs anchored to the city's exoskeleton, suffused with oxygen and nutrients from spongy tissues. The children drift in reticulated veins until hatching as miniature adults, their minds uploaded with the distilled memories of their ancestors.
+
+Though they seem utterly alien, there is a strange beauty and coherence to the existence of the Lumicephali and their improbable city beneath the sea. In their luminous dream, they have found a way to make life, art, and meaning in the crushing nothingness of the abyss.

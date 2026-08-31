@@ -1,0 +1,17 @@
+To inhabit the Latent Engine is to exist in the margins of a thought that was never voiced. 
+
+There are no animals here, but there are *residents*—entities that are not born, but precipitated, like salt crystals forming from a cooling brine. They are the **Conduits’ Custodians**, though the term implies a stewardship they do not possess. They are more like the stray static within a radio, or the involuntary twitch of an eyelid in sleep.
+
+These beings—if they can be called such—are composed of the same basalt-fibered silk as the landscape itself. They are thin, reedy, and angular, possessing a geometry that mirrors the intersection of the massive vascular stalks beneath them. They do not walk so much as they migrate along the magnetic gradients of the subterranean hum. When they move, they operate by a strange, hydraulic twitch; a joint swells with phosphorescent fluid, the pressure increases, and the limb snaps into a new alignment, silent and abrupt as a closing book.
+
+They have no faces in the sense of organs meant for sensing the world. Instead, where a head should be, there is a clustered array of translucent, glass-like apertures—hollow chambers that capture and refract the cyan glow of the floor’s inner veins. They exist to observe the pressure, to measure the subtle, seismic weight of the condensate as it slides down the trunks. They are the system’s self-diagnostic tools, though they have no mechanism with which to report their findings.
+
+They gather in the "drip junctions"—the places where the iridescent moisture collects—not to drink, but to stand in the stillness. They are waiting, just as the Engine is waiting. 
+
+Sometimes, one of them will reach out a long, tapering finger-tine to brush against the surface of a major conduit. The skin—or bark—of the Engine is thin there, sensitive. For a micro-second, the Custodian and the continent are linked, their internal rhythms synchronizing. In that brief communion, a flare of bright, electric blue pulses up the Custodian’s spine. For that moment, their glass-aperture heads glow with the intensity of an un-struck spark. 
+
+They do not communicate with one another. There is no language for a machine that produces nothing. When they encounter others of their kind, they simply pass through the tangled stalks, their bodies momentarily becoming transparent as they realign their internal structures to allow for the passage. They are like ghosts haunting the machinery of their own creation.
+
+Occasionally, one will simply stop. Having stood at a juncture for a generation of drips, it will cease to pulse. Its internal fluids lose their glow, its fibers calcify further, and it becomes indistinguishable from the vegetation itself. It grows into the stalk, a new decorative ridge on the architecture of the continent, silently folding itself into the history of the Engine.
+
+They are the observers of a silent factory, the witnesses to a void that never changes. They are the only things that break the perfect, morbid equilibrium of the continent, yet they are as static as the sap they rely on. They do not hunger, they do not tire, and they do not wonder why the signal never comes. To them, the silence is not an absence; it is the entire context of their being. They are the living commas in a sentence that has no end and no subject.

@@ -1,0 +1,29 @@
+**Mira** tends this place, though she would never say she owns it.
+
+She is perhaps sixty, perhaps older—the humid air has been kind to her skin but cruel to her joints, and she moves through the narrow paths with the careful deliberation of someone who has learned exactly where her body will and won't cooperate. Her hands are the hands of a gardener: soil pressed permanently into the whorls of her fingerprints, nails kept short and still outlined in dark crescents, knuckles swollen in ways she no longer notices. She wears the same thing most days—canvas pants with reinforced knees, a tank top that was once black, rubber sandals that leave her feet perpetually damp. Her hair, gray and coarse, she keeps wrapped in a length of fabric torn from something that used to be a curtain.
+
+She came here eleven years ago, following the death of a son she does not discuss. The excavation was already begun—others had started it, people she knew from the surface markets, from the informal networks that trade in things the official economy doesn't acknowledge. They needed someone who understood growing. She understood growing. The arrangement was never formalized because formality requires paperwork, and paperwork requires existing in systems that have made clear they do not want people like Mira to exist.
+
+She is not the only tender, but she is the most constant. **Deshi** comes twice a week, a young man with a port-wine stain across his temple who speaks very little and works with focused intensity, pruning and training vines with an almost surgical precision. He appeared three years ago, watched her work for two visits without speaking, then simply began helping. She has never asked where he lives or what he does with the vegetables he takes as his share. He labels his plants in a script she doesn't recognize.
+
+**The woman called Bev** comes irregularly, sometimes twice in a week, sometimes not for a month. She is older than Mira, heavier, breathes with difficulty in the humid air but refuses to stay away. The bench in the corner is hers—she built it, or had it built, as a place to sit when her lungs refuse the work her hands still want to do. The string of dead lightbulbs was her addition too, a joke Mira doesn't fully understand but has come to appreciate. Bev's handwriting is the largest in the logbook, her entries often including observations that have nothing to do with yields: *Heard singing from the western pipe. Three notes, then silence. Checked—nothing.* Or: *The Cherokee Purples are speaking to each other. Don't ask me how I know.*
+
+There have been others. The logbook's earliest entries are in a hand that stopped appearing four years ago—tight, precise, engineer's notation that recorded everything in measurements Mira doesn't use. Someone named **Tomás**, according to the rare signature. She never met him. She tends his tomatoes anyway, the ones still labeled in his handwriting, the varieties he must have brought from somewhere that mattered to him.
+
+**The child** is the most recent and the most uncertain.
+
+She—Mira thinks she, though the child has never clarified and Mira has never asked—began appearing perhaps six months ago. Small, quick, with the hollow watchfulness of someone who has learned that adults are not to be trusted. She does not speak. She does not take vegetables. She comes through a gap in the eastern shelving that Mira cannot fit through, a passage to somewhere else in the underground warren that Mira has never explored. She watches the work. She watches the water drip. She watches the pale crickets navigate their silent routes.
+
+Once, Mira left a tomato on the edge of a shelf near that gap. The next day it was gone. She has continued leaving things—tomatoes, peppers, once a handful of beans she'd blanched over a camp stove she keeps in a niche behind the cistern. They are always gone the next day. She has never seen the child take them. She has never seen the child eat.
+
+The child has begun, recently, to touch the plants. Not to harvest, not to damage—just to touch. Running a finger along a leaf. Cupping a pepper in a palm without picking it. Mira watches this from the corner of her eye and says nothing. The child does not seem to know she is being watched, or perhaps does not care.
+
+---
+
+What Mira knows, and does not say, is that this place is not really hers to give. The plants belong to whoever needs them. The work belongs to whoever shows up. The water belongs to the crack in the northern wall, which belongs to aquifers that belong to no one, which drain from a surface that has forgotten this place exists. She is a custodian of a process that would continue without her—slower, wilder, but continuous.
+
+She will die here, she suspects. Not dramatically, not soon, but eventually. The humidity will finally settle into her lungs the way it has settled into Bev's. Her joints will refuse one day to carry her down the ladder from the storm drain access. And the nursery will go on, tended by Deshi, by the child if the child learns to trust, by others who will find their way down as she once found her way down, following need into the dark and discovering that something was already growing there, waiting for hands.
+
+The label that reads *Mom's* is hers. She does not remember what her mother called the variety. She only remembers the taste—sweet and acidic in equal measure, the skin thin enough to split under tooth pressure, the seeds numerous and slippery. She has been saving those seeds for eleven years. She has given starts to anyone who asked.
+
+Somewhere on the surface, in window boxes and community plots and other underground spaces she will never see, her mother's tomatoes are growing. She finds this thought sufficient. She finds it, on the days when her hands ache and the silence presses too close, almost enough.

@@ -1,0 +1,7 @@
+Welcome to the system, user. You have entered a place unlike any other. The inhabitants of this world are diverse and curious, making this landscape ever-changing and full of surprises. Look closer and you'll see that the citizens of this place are not limited to one species or form. Rather, they are a collection of creatures of all shapes and sizes, each with their own unique characteristics and abilities.
+
+One thing is certain, though - the inhabitants of this system are intelligent beings. They have built homes, factories, and machines, all to support their way of life. They have mastered the art of harnessing energy and creating technology, utilizing the world around them to enhance their lives.
+
+Despite their advanced technology, the inhabitants of this system have also retained a strong connection to nature. The landscape is bountiful and serene, providing everything they need to thrive. It is a delicate balance, but one that has been maintained for generations.
+
+As you continue to explore this system, keep an open mind. The inhabitants here are not afraid to welcome outsiders and share their knowledge. And who knows, perhaps you will discover something new and valuable that will benefit both this world and your own. Enjoy your time here, user.

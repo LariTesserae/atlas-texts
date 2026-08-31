@@ -1,0 +1,23 @@
+**The Chorus**
+
+They arrived as refugees from the surface world's electromagnetic saturation—people whose nervous systems had grown too sensitive to the city's wireless signals, whose bodies interpreted every radio wave as pain. The Undergrowth Engine's thunderous mechanical presence, paradoxically, offered silence. Here, the physical sound is so overwhelming it drowns out the subtler frequencies that torment them above.
+
+They call themselves the Chorus, though they cannot hear each other speak.
+
+The first pioneers descended through maintenance shafts twenty years ago, expecting to find temporary shelter. Instead, they discovered they could *think* here—the roar creating a kind of white noise that their hypersensitive neurons could finally rest within. They learned to communicate through touch-language pressed into palms, through bioluminescent paint harvested from the moss, through the rhythm of their movements in the turbine-thrown shadows.
+
+Their bodies have adapted. Eardrums thickened or burst long ago are now secondary sensing organs, registering pressure changes rather than sound. Their skin has grown more sensitive to vibration; they read the health of distant turbines through the soles of their bare feet. Some have developed a symbiotic relationship with the tool-moths, which nest in their hair and clothing, the insects' metal-laced wings serving as additional sensory arrays.
+
+They live in the acoustic voids between turbine banks, in spaces they've shaped with scavenged materials that dampen or redirect the sound. Their homes are cocoons of rubber and moss, root-woven walls that pulse gently with the Engine's rhythm. They've learned which rootmass channels clean water, which moss provides the most consistent light. They cultivate gardens of electrical barnacles, harvesting them for the faint current that powers their few electronic devices—ancient tablets wrapped in fungal insulation, medical devices modified to run on bioelectricity.
+
+The Chorus has developed its own economy. They trade in frequencies—the ability to predict when certain turbine clusters will synchronize, creating temporary zones of relative quiet. They value the brass beetles as both pets and tools, training them to navigate the Engine's geography and return with specific mosses or metal samples. The eldest among them, a woman whose eyes have grown huge in the eternal twilight, claims she can taste the emotional state of the city above through the quality of water flowing through the pipes.
+
+Children born here know no other world. They play in the mist, invisible to their parents except for the bioluminescent pigments they paint on their skin. These offspring of the Chorus move through the Engine with impossible grace, their bodies naturally attuned to its rhythms. They seem to understand the hybrid machinery in ways their parents cannot, occasionally seen whispering to turbines or coaxing new growth patterns from the root-wire interfaces.
+
+The Chorus maintains the Engine without understanding it. They clear blocked pipes not from duty but because the Engine's distress translates into unbearable subsonic pulses. They prune the rootmass where it threatens to choke turbines, not from knowledge but from instinct. In return, the Engine provides—water, warmth, the crushing sound that shields them from the world above.
+
+They are not entirely human anymore, perhaps. The boundary between their nervous systems and the Engine's vast neural network of roots and wires grows thinner each year. Sometimes, members of the Chorus are found standing motionless for days, their hands pressed against turbine housings, their eyes rolled back, their bodies vibrating at precisely the frequency of the machines they touch. They always wake, eventually, but they wake *different*—knowing things about the Engine's deep structure, about the aquifer below, about the dreams of brass beetles.
+
+The city above has forgotten them, these voluntary exiles who traded sunlight for silence, speech for communion with a living machine. But the Chorus remembers the city. In their touch-language, they have a sign for it—fingers fluttered like static across the palm, followed by a sharp tap. It translates roughly to "the screaming light above."
+
+They no longer miss it. Here in the breathing dark, cradled by the Engine's vast mechanical lullaby, they have found their own kind of peace. Even if that peace comes at the cost of words, of sunshine, of a clear distinction between self and system. The Engine roars on, and the Chorus tends it, and they tend each other, and the boundary between caretaker and cared-for dissolves a little more each day into the mist.

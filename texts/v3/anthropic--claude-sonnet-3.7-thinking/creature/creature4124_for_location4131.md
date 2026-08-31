@@ -1,0 +1,23 @@
+# The Stone Skimmers
+
+They call themselves the Endu, though outsiders know them as Stone Skimmers. Their bodies tell the story of ten thousand generations living in harmony with the Great Shallow.
+
+Standing slightly shorter than typical humans, the Endu possess remarkable adaptations. Their feet have evolved to be wide and slightly webbed, distributing weight perfectly to navigate the treacherous mix of slick stone and deceptive mud. Their skin ranges from mottled amber to deep olive, often with intricate patterns that mimic the play of light through shallow water. These patterns aren't mere pigmentation but living chromatophores that subtly shift with mood and temperature.
+
+The Endu move with extraordinary grace across their domain, seemingly gliding over surfaces that would send others tumbling. From birth, children learn to read the landscape through their feet—feeling the subtle temperature differences that indicate stable stone versus sinking mud, sensing the faint vibrations of water flowing beneath apparently solid ground.
+
+Their settlements are marvels of adaptive architecture—circular dwellings built on the rare higher outcroppings, constructed from woven reeds and the fibrous wood of the stunted trees. These structures rise and fall with seasonal water fluctuations, floating during the rare heavy rains that submerge even the highest points of the Shallow. Nothing is permanent here; the Endu rebuild and reconfigure their homes as the water dictates.
+
+The most striking feature of Endu culture is their reverence for what they call the "Elder Stones"—the ancient, smoothed bedrock that forms the foundation of their world. They believe these stones are not merely inanimate objects but repositories of memory and wisdom. The oldest members of their community—"Stone Listeners"—spend hours with their ears pressed to certain rocks, later sharing the "whispers" they claim to hear: tales of mountains that once stood tall, of creatures long extinct, of changes so slow that only stone could witness them.
+
+The Endu sustain themselves through specialized fishing techniques, using nets woven so fine they can capture the thumbnail-sized silverfish that populate the deeper pools. They cultivate gardens of edible water plants in carefully maintained basins, and harvest the protein-rich larvae that develop in certain reedy areas. Nothing is taken in excess; sustainability isn't a philosophy but a lived reality.
+
+Their language reflects their environment—flowing and musical, with words that change meaning based on rhythm and water-like undulations of tone. Many concepts in their speech have no translation in other languages: terms for fifty different qualities of water motion, words that simultaneously describe a particular rock formation and the emotion it evokes, expressions for the specific way morning light refracts through mist over the shallows.
+
+The Endu mark time differently than other peoples. Their calendar tracks the subtle shifting of channels and pools, the migratory patterns of certain birds, the blooming cycles of aquatic flowers. They recognize ages in a person's life based on their relationship with the landscape: "Pool Children" who play in the safe shallows; "Channel Youths" who learn to navigate the flowing waters; "Basin Adults" who maintain the community's life-sustaining activities; and the revered "Stone Elders" who communicate with the ancient bedrock.
+
+Contrary to what outsiders might expect, the Endu are not isolated or primitive. They trade with neighboring peoples, exchanging rare minerals filtered from their waters and medicines derived from unique amphibious species. They maintain oral histories that stretch back hundreds of generations, recounting geological events that scientific methods have only recently confirmed.
+
+The Endu believe they don't merely live on the landscape but are part of its ongoing conversation—just one voice in the ancient dialogue between water and stone. When they die, their bodies are returned to the deepest pools, where they believe their essence joins the waters that will continue to shape the stones for eons to come.
+
+To witness the Endu at dusk is to see the Great Shallow's most perfect expression: figures moving like water given form, their chromatophores glimmering as they perform rituals of gratitude, becoming living reflections of the landscape that birthed them—neither fully of the water nor fully of the stone, but something wondrous in between.

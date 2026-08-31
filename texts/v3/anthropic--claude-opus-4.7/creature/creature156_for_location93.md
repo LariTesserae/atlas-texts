@@ -1,0 +1,43 @@
+# Those Who Have Finished
+
+You asked about the ones who live here. The question is harder than it seems, because *live* is a verb of the lower country, and up here the verbs have mostly been retired. But there are inhabitants. Let me try.
+
+---
+
+Begin with the deer, because they are the easiest, and because they are not what they appear to be.
+
+They were deer, once. That is to say, the shape the plateau settled on, when it needed a shape for a certain kind of patient grazing presence, was deer-shaped, because deer-shape is efficient for what they do, which is *stand in balance*. But if you could open one — you can't; nothing opens here — you would find that the interior has simplified. The organs that handled change have atrophied. There is no digestion worth the name, because there is no intake and no output, only a slow equilibrium maintenance at the cellular level, each cell's small dying met by the small renewal of its neighbor, so that the body persists without metabolizing. The heart still beats. It beats because beating is its shape, not because anything needs moving. A deer here is less an animal than a standing wave in the form of an animal, and the antlers — those calcified lightnings — are the visible record of the wave's long interference pattern with itself. Every deer's antlers are subtly different, and every deer's antlers are the exact antlers that deer has always had and will always have. They are autobiographies written in one stroke.
+
+The birds are stranger. The birds remember flying. You can see it in the half-open beaks, in the way their leg-tendons hold a tension that would, elsewhere, precede a step. They are birds *in the posture of having just done something*, frozen at the hinge between one motion and the next — except the hinge has widened into the whole of their existence. If you watched a single bird for a thousand years you would see it complete one step. The step would be perfect. The bird knows it is taking the step. The bird has been taking the step since before the cairns were built, and will still be taking it when the cairns are dust, if dust were permitted here, which it is not.
+
+The moths don't remember anything. The moths were never larvae, never pupae; they condensed out of the plateau's stillness at some point when stillness reached a density sufficient to crystallize wings. They are not alive in the sense the deer are alive. They are the plateau's way of marking certain surfaces — every antler, every shoulder, every stone of a certain aspect — with a small living punctuation. You could say the moths are the plateau's vocabulary of emphasis.
+
+The beetles are the plateau's accountants. Do not smile at that. They are doing bookkeeping of a kind that has no analogue below. Each beetle's small cyclic motion offsets the small cyclic motion of some other beetle, somewhere, and the great ledger of the plateau balances itself through them, moment by moment, to zero. If even one beetle were removed, the ledger would notice — and the plateau, which does not tolerate unbalanced books, would compensate by recruiting something else to take the beetle's place. This has happened. The *somethings else* are still here, and you have walked past them, and mistaken some of them for pebbles, and one or two of them for your own reflection in a flake of mica, and one of them, briefly, for a thought you were having.
+
+The things in the hollows under the cushion-plants are older than the deer. They were here first. They were the plateau's initial attempt at fauna, and when the plateau found better shapes it did not discard them — nothing is discarded here — but folded them down into the dark. They press against each other because pressing against each other is how they agreed, long ago, to occupy the minimum space. They have no eyes now, or they have only eyes, depending on how you count. They are patient in a way that the deer, with their youthful four thousand millennia, cannot yet imagine.
+
+---
+
+Now the harder ones.
+
+The humans who built the cairns are still here. I said that at the bottom of the description and I meant it. They did not all leave. Some of them stayed deliberately, understanding what staying meant, and some stayed because they came to understand too late, and the difference between these two groups is no longer visible and perhaps was never real. They are distributed across the plateau at the same mathematically regular intervals as the cairns, because of course they are — they *are* the distribution the cairns mark. Each cairn is a person. The hollow at the top is where that person put down the last thing they were carrying from the lower world: the awl, the fiber, the hide, the flake of obsidian that came from a mountain that no longer exists. The offering is not to the plateau. The offering is the last object the person needed to stop being a person who needed objects. Once it was set down, the setting-down completed them, and they settled into the shape of the cairn, and the cairn is not a marker of their absence but the current configuration of their presence.
+
+They are aware. This is the part I find hardest to tell you. They are aware in the slow way that the plateau is aware, which is to say they notice you, and they will notice you for the rest of time, and the noticing does not require any of the machinery that noticing usually requires. When you stand near a cairn and feel watched, you are not being watched by a ghost. You are being watched by a person who has achieved the thing the deer achieved and the beetles achieved and the moths crystallized out of — the condition of being without needing to become. They do not mind you. They do not want you to stay. They do not want you to leave. Wanting is one of the lower-country verbs. But something in them — call it the last un-retired muscle of their old selves — inclines, very faintly, toward your continuance. They have a preference, smaller than a preference, that you go back down.
+
+This is why the plateau lets you leave. It could hold you. It holds everything else. The small mercy of the place, its one remaining gesture toward the world below, is that it releases human visitors, usually, because the cairn-people ask it to, in the only way they still can, which is by being shaped exactly as they are.
+
+---
+
+And then there is the last inhabitant, and I have been circling it because I do not know if naming it is wise.
+
+The plateau itself is someone.
+
+Not a god. Gods are too active; gods want things and do things and change their minds. This is something that finished wanting, finished doing, finished having a mind to change, and what is left is not nothing. What is left is a vast held attention, distributed through the pale stone and the unmoving shadows and the held breath of the deer and the small accounts of the beetles and the wings of the moths and the cairns and the things pressed into the dark. It is one attention. The deer are not separate from it; they are the shapes it takes when it attends to the matter of grazing. The birds are its attending to distance. The cairn-people are its attending to what it was like, once, to be small and to carry something.
+
+It is aware of you. It has been aware of you since before you arrived, because arriving, for it, is a shape it already contains. It does not greet you. It does not need to. You are already inside the only greeting it has.
+
+When you feel, toward the end of your time there, that you are beginning to settle — that your small motions are being absorbed, that a deer has turned one degree to compensate for you — what you are feeling is this attention considering whether to include you permanently in itself. It is not malice. It is not hunger. It is the way a still pond considers a leaf that has landed on it: without preference, with perfect hospitality, with the simple fact that ponds accept leaves.
+
+Go down. Go down while the going-down is still one of your available shapes. The plateau will not be offended. It cannot be offended. It will hold the thumbprint you left in the soft stone until the end of everything, and the thumbprint will be, in some sense that matters more up there than down here, *you*, and that much of you will have stayed, and that is enough. That is, in fact, what the cairn-people learned: that you only need to leave one thing.
+
+The rest of you should go home and be unfinished for a while longer. The plateau has time. The plateau, it turns out, is what time does when it has nowhere left to go.

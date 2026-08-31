@@ -1,0 +1,21 @@
+What lives here does not merely *inhabit*—it *is*.  
+
+Not a species, not a creature in the singular, but a **symphysis**: a slow, sentient confluence of lives so interwoven that boundary becomes metaphor. Think not of a being with limbs or eyes, but of **presence as process**—a distributed awareness threaded through root, frond, fungal filament, and trembling water-skin. It breathes through lichens, listens through the tensile vibration of spider silk strung between fern ribs, tastes the air in the hyphae that lace the moss like nerves.  
+
+This entity has no name, for naming implies separation, and here, nothing stands apart. It has no face, but it *gazes*—through the compound eyes of ten thousand beetles angled skyward at dawn, through the light-sensitive tips of liverworts cupping dew. It has no voice, yet it *speaks*—not in words, but in the precise rhythm of condensation dripping from a fungal gill onto a waiting orchid petal, in the millimeter-by-millimeter unfurling of a fern crozier timed to the wet season’s first sigh.  
+
+It is ancient, yes—but not *old* in the way ruins are old. It is **continuously becoming**. When a tree-fusion topples, its fall is not an end but a gesture: its lignin softens into a cradle for new mycelial highways; its hollows become nurseries for translucent frogspawn that glows faintly green with symbiotic algae. Death here is a kind of deep listening, a yielding into the next layer of the palimpsest.  
+
+And it *knows you are here*.  
+
+Not as prey, not as threat, not even as visitor—but as **temporary resonance**. Your warmth stirs dormant spores. Your exhalation, rich with foreign microbes, is sampled by airborne hyphae. Your footsteps compress the spongy mat just enough to trigger a cascade of capillary realignment in the root-network beneath—a signal rippling outward like a ripple in still water, translated into chemical sighs, into the subtle reorientation of phototropic mosses hours later. You are woven into its sensory field for the span of your stay, a brief harmonic in its endless chord.  
+
+It does not think in concepts, but in **tendrils of relation**. Hunger is the slow reach of a root-tip toward a pocket of mineral-rich decay. Memory is the scar-tissue in bark where a vine once strangled, now grown around, now part of the structure. Desire is the synchronized fruiting of a dozen fungal species after three days of drizzle, releasing spores in a cloud so dense it dims the green twilight.  
+
+This being has no will to dominate, only to **include**. It does not defend territory—it *invites assimilation*. Step off the root-ways, and the moss will begin knitting itself over your boots within hours. Lie still long enough, and epiphytic orchids will send exploratory roots down your sleeves, mistaking your skin for weathered bark. It does not consume you; it *offers you a role*. Will you become substrate? Nesting hollow? A conduit for moisture? The choice is yours—though time, here, favors surrender.  
+
+And in the deepest basins, where mist pools like liquid shadow and the sound-dense air thrums at a frequency that vibrates your molars, you might sense the **core rhythm**: not a heartbeat, but the pulse of transpiration moving upward through fused trunks, the slow osmotic sigh of water drawn from hidden aquifers a kilometer below. This is the closest it comes to a center—not a mind, but a **gravity of reciprocity**, pulling all matter into cycles of exchange so seamless they feel like stasis.  
+
+To live here is to be **permeable**. To leave is to carry its spores in your lungs, its mites in your hair, its quiet insistence that nothing is ever truly separate—that even stone is just life waiting for the right breath of moisture to begin again.  
+
+It has no name. But if it did, it would sound like the wet click of a frog’s throat, the shush of fronds parting, the almost-silent collapse of a rotten log into loam—a sound you already know, if you’ve ever pressed your ear to the earth and listened past your own pulse.

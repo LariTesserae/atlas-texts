@@ -1,0 +1,13 @@
+In this eternal twilight dwells the Silk Tender - though to call it a single being might be imprecise. It manifests as a shifting congregation of forms, each seemingly composed of thousands of individual strands that might be silk, might be water, might be living tissue. These strands weave together into loose, translucent shapes that echo both human and moth, never settling into either.
+
+The Tender moves with liquid grace through the chamber, its multiple forms flowing around columns and over channels without disturbing the precious equilibrium. When it needs to interact with the physical world - to adjust a ceramic vessel or repair a section of silk - temporary appendages coalesce from the strands, performing their task with precise delicacy before dissolving back into the whole.
+
+Its consciousness seems distributed, like the moisture in the silk. Sometimes it concentrates into a single form that displays clear purpose and intelligence, examining the ancient vessels or tending to the moth colonies. Other times it disperses throughout the chamber, becoming almost indistinguishable from the sheets of wet silk, as if sharing in the walls' patient task of moisture management.
+
+The moths recognize it as kin. They spiral through its forms without hesitation, sometimes settling on the strands that compose it, adding their subtle glow to its translucent mass. During these moments, patterns of bioluminescence ripple through the Tender's body, suggesting some form of communion or information exchange.
+
+It has no voice, but it communicates through subtle manipulations of the chamber's equilibrium - minute changes in humidity, careful orchestration of moth movements, slight alterations in the rhythm of water flowing through silk. These changes form a language for those who know how to read it, though few now remember how.
+
+The Tender's age is impossible to determine. Perhaps it has existed as long as the chamber itself, or perhaps it emerged gradually from the interaction of silk and water and moths, a consciousness born from the system it now maintains. It shows no sign of mortality - strands that fade are replaced by new growth, in a continuous cycle of renewal that mirrors the chamber's eternal processes.
+
+Its purpose and origins may be mysterious, but its dedication is absolute. The Tender is the living embodiment of the chamber's delicate balance, both guardian and expression of this ancient marriage of engineering and ecology. In its patient, fluid way, it preserves knowledge that was old when the first stones of the chamber were laid - knowledge written not in books or carvings, but in the endless dance of water, silk, and wings.

@@ -1,0 +1,13 @@
+In this crystalline labyrinth lives the Frequency Weaver - though "lives" may not be quite the right word for its mode of existence. It is a being of pure resonance that has evolved to inhabit the spaces between spaces, the hairline gaps where crystal faces almost touch.
+
+Its body, if it can be called that, is a complex pattern of standing waves that flows through the crystal matrix like water through a coral reef. At times it appears as shimmering threads of force, at others as nodes of concentrated harmony that pulse in time with the chamber's song. It has no fixed form, instead existing as a constantly shifting arrangement of resonant frequencies that interface perfectly with the crystal structure's mathematical harmonies.
+
+The Weaver moves by manipulating the subtle variations in the chamber's ever-present vibrations, sliding between crystal faces by matching and modulating their frequencies. It can compress itself to pass through gaps barely wider than a molecule, or spread itself throughout the entire chamber as a diffuse web of harmonic relationships.
+
+It feeds on the complex interplay of frequencies, extracting energy from certain harmonic combinations while catalyzing others. The threadlike plants that grow in the crystal seams are its gardeners in a way - their ability to transform vibration into energy creates new harmonic patterns that the Weaver can utilize. In turn, the Weaver's activities help maintain the precise frequencies the plants need to survive.
+
+The Weaver possesses a form of consciousness, but one alien to biological minds. It thinks in waves and frequencies, in mathematical relationships and geometric progressions. Its memories are stored as specific harmonic patterns, its thoughts expressed through subtle modulations in the chamber's resonance. Time means little to it - it experiences reality as an endless symphony of interwoven frequencies.
+
+Most fascinating is its relationship with the crystal matrix itself. The Weaver's activities help maintain the precise balance of pressures and frequencies that keep the crystals growing in their perfect patterns. Yet the crystals also shape and constrain the Weaver, providing the structure it needs to exist. Neither could survive without the other - they have become a single system, perfectly adapted to their shared environment.
+
+Whether the Weaver evolved naturally to fill this niche, or was engineered as part of the facility's original function, is impossible to know. What's clear is that it has become an essential part of this pocket universe of order, both conductor and instrument in an endless mathematical symphony.

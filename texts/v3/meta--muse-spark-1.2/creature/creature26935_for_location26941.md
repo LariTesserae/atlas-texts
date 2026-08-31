@@ -1,0 +1,47 @@
+They don't live there the way anything used to live anywhere.
+
+At first you think nothing lives there at all.
+
+That's the trick of the spacing. In a place where everything is given room to be large and alone, you look for crowds and see emptiness. You look for a street and see a kilometer of warm basalt and a single tree. You look for a city and see thirty dark shapes breathing out of sync and think they're unoccupied. You could stand on that high terrace for an hour in the dim amber and be watched the whole time without knowing it.
+
+Then you see one move.
+
+Not fast. Nothing here moves fast - fast would be rude to the air, which has been politely asked to hold up those discs. On a balcony of one of the low, hovering discs, a figure uncrosses itself. You thought it was a shadow, or a fold in the swarm-surface. It was too still, too tall.
+
+That is the first inhabitant. And once you see one, you understand the scale wrong you had before.
+
+They are tall. Taller than anything should be that is still shaped like a person. Two and a half, three meters when they stand fully up - which they rarely do. They usually stand with a slight forward lean, or a crouch, or seated with legs folded entirely beneath them on a lip of swarm-material that grew itself into a seat because they wanted to sit. Their limbs are long out of all proportion, and not thin the way hunger is thin, but thin the way a strut is thin: economical.
+
+You don't settle on that image, though. Because the longer you watch, the less it holds.
+
+Their skin, at distance, looks dark. Up close, in the sourceless light, it isn't dark at all. It's heat-dark, like those broad leaves - a deep green-black, waxy, with a faint bloom on it that beads condensation the same way the leaves do. Sweat doesn't evaporate here, it collects and runs. They gloss with it. In the dimming, when the sky drops its two percent, you see their skin isn't skin. Or not only skin.
+
+At their edges - at the forearms, at the back of the neck, at the calves where the leg narrows to something that is barely an ankle - the waxy surface frays. Not wounded. Unresolved. The same fine dust that makes the towers makes the border of them. When they are still for a long time, the dust of the balcony and the dust of their arm trade places. You watch a vine root that has grown into the railing slowly interleave with filaments that are growing out of their wrist, and you can't say where plant stops and city stops and person stops. That's the second rule made flesh: things grow together.
+
+They face the dim sky more than they face each other. Their heads are narrow, long from chin to crown, and tilted back slightly even when they look forward. No hair. A smooth, warm plate of the same waxy material, sometimes beading with water that runs down in a single line. Their eyes - you expect eyes to be large here, to catch the rationed light. They are. But they are not forward-facing the way a predator's are. They are wide-set, slightly raised, dark amber, lidded with a translucent membrane that clicks shut sideways when the filament nets chime. They don't blink often. When they look at you, they don't turn their head so much as the light inside their head shifts, and you realize the seam-light you saw in the towers - that slow amber pulse - is also behind their eyes, under their skin. Out of sync from tower to tower, out of sync from person to person, each breathing its own slow interval.
+
+They don't walk. Not really. To walk would be to trust the young ground too much, and the ground is still learning to be ground. When they need to be somewhere else, the city offers. A walkway extrudes. A disc drifts three meters sideways without a sound, its cushion of bent air making the heat-shimmer, and they are there. If they must cross open basalt, they go on long, stilted strides, placing feet with care on the spider-roots of the solitary trees, never stepping on the black moss that glows when you're not looking. They move the way the white gliders do: long intervals of absolute stillness, then a single, efficient relocation. They can afford to be patient. Light is rationed, sound is rationed, water is rationed, but not ungenerously, and they have metabolisms that have learned to live on enough.
+
+There aren't many of them. There can't be. Crowding is a kind of failure here. Maybe a hundred in this basin, maybe three hundred across the whole valley system. They keep that number by never being in the same place. You will see one on that tower, and one half a kilometer away tending a cistern at the foot of a harp-net, and they are aware of each other without looking, because the swarm tells them. The city hums at the edge of hearing, and that hum is also how they speak when they need to.
+
+They don't have voices the way you are thinking of voice. Sound is rationed. To make a loud, sustained noise here would be like building a crowded house. So they don't. When two of them are near each other on the same balcony - which is rare enough to be an occasion - they stand a few meters apart, at least, and exchange light. The amber in their throats, their forearms, brightens and dims in slow pulses. Sometimes a faint pressure hum modulates with it, that you feel in your teeth more than hear. Information, acknowledgement, a little joke about how fast the reeds have come in this season along canal three. If a human throat tried to shout here, the air would swallow it. Their throat, instead, glows.
+
+What they do all day - because you eventually ask what an inhabitant *does* - is tend. Not rule, not build. The city is held, not built, and it mostly holds itself. They are gardeners of the interval. One will stand beside a filament net for an hour, running a too-long finger down a filament and collecting the beads into its palm, then carrying that palmful to pour into the canal where the pale eyeless things rise to sip. Another will kneel by a fresh fault terrace, where the rock still steams, and place both hands on the sharp edge until the swarm in its hands persuades the rock to dull slightly, to be less likely to cut an aerial root. Another will simply stand under one of those solitary trees in its cool circle and do nothing, while the tree does something for it - while its broad leaves tilt a little more to shade them both, while its shallow roots shift to share a little more captured heat. They lend mass, they lend shade, they lend attention. The city extends a lip to catch dew for you if you stand still long enough because it learned that from them.
+
+They are not alone in inhabiting, of course. They are just the most recent shape that inhabiting has taken here.
+
+The older inhabitants are still there beneath them.
+
+The white gliders that you mistook for shadow under the discs - those are inhabitants too, and far more numerous. When you finally see one up close, folded into a vine-bridge, you see it is not an animal that visits the city. It is part of the city's cleaning. Its many-jointed wings are the same matte, light-drinking material as the lattice towers, its belly is translucent and full of slow amber light, and it eats the fine black grit that would otherwise deaden the dew nets. It is shy because anything that flies here must be shy of the quiet. You are not supposed to hear wings.
+
+The pale things in the canals are inhabitants. They never needed eyes; the water is perfectly clear and there is nothing to see. They navigate by the tremor that passes before a new terrace shivers into existence. They keep the straight, narrow canals from skinning over with moss.
+
+The trees themselves are inhabitants, though you keep wanting to call them plants. Each solitary tree with its wide canopy and papery bark is an individual the way a person is - alone, large, given room. They are the same age as the basin, which is to say, very young and already old, and they remember being invited. They hold the soil down with their spider roots so the wind that makes the harp-nets chime doesn't take it all away in one warm gust.
+
+And then there is the one who makes the call.
+
+You hear it only when the sky dims - that high, glassy note, repeated at long intervals, moving slowly around the perimeter of the basin where the dark shoulders hold the low country in. It takes all night for it to complete a circuit. You never see it. The tall ones, when it calls, all turn their wide-set eyes very slightly toward the sound, and their amber pulses sync for two or three beats before falling out of rhythm again. It is larger than they are. It was here before the towers learned to hover. It was perhaps the reason the basin was opened at all - not for a city, but for a throat large enough to make that note, and flat warm air to carry it.
+
+If you stay long enough - and the place encourages you to stay, by shading you, by catching water for you - you will start to inhabit the same way. You will find your breathing slowing to match the amber. You will stop trying to fill the silence. You will take a step that is too long and then stand still for twenty minutes because moving again so soon would be crowded. Your skin will bead.
+
+And one of the tall ones, on a distant disc, will pulse its light once, slowly, not to you but with you, to say: *there is room.*

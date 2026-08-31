@@ -1,0 +1,21 @@
+# The Custodians of Resonance
+
+Living within this realm of perpetual becoming are beings who call themselves the Harmonic Keepers. They are neither fully human nor entirely separate from the machinery they tend. Three individuals share this space, though rarely are all present simultaneously.
+
+Each Keeper stands unusually tall and thin, their bodies adapted to move through the tight confines between pistons and pipes. Their skin has taken on a pale, almost translucent quality from years in this dimly lit cavern, with a subtle sheen that mimics the condensation on the machinery. Fine crystalline deposits have formed in patterns along their forearms and across their shoulders—not an affliction but a symbiosis, their bodies incorporating the mineral-rich waters that define this place.
+
+The Keepers' ears have physically transformed, the cartilage thickened and internal structures modified to withstand the cavern's relentless drone. They no longer hear the machinery as noise but perceive it as a complex language, distinguishing subtle variations that would be imperceptible to outsiders. Their vocal cords have atrophied from disuse, replaced by an ability to modulate the steam releases from smaller, wearable pressure vessels they carry on their backs—their method of "speaking" by adding personalized rhythms to the cavern's constant percussion.
+
+The eldest Keeper, who calls herself Octavia through carefully sequenced steam pulses, has been here since the cavern's violent birth. The copper mesh woven into her clothing contains fragments of the original equipment, and her movements mirror the mechanisms' rhythms with uncanny precision. She records the cavern's changes in elaborate notations etched into thin sheets of reclaimed brass, creating a growing archive of the chamber's evolution.
+
+Lydian, the second Keeper, specializes in tending the peculiar ecosystem. His fingertips glow faintly with the same bioluminescence as the moss, the result of deliberate infection that allows him to cultivate and direct the growth of the cavern's flora. He collects specimens of the flying creatures not for study but to relocate them when necessary, understanding their crucial role in maintaining the cavern's delicate balance.
+
+The youngest, Phrygian, moves between this cavern and six others discovered throughout the mountain range. Unlike the others, he maintains more human characteristics, acting as interpreter between the increasingly machine-symbiotic Keepers and the outside world that occasionally requires the energy this system harvests. The filing cabinet contains his meticulous translations of Octavia's brass etchings into conventional language and measurement.
+
+None of them remember exactly what company or government agency initially installed the machinery. The purpose has evolved beyond original intention; what began as exploitation has become preservation. The Keepers believe the mountain chose them, gradually transforming them into appropriate caretakers for this juncture between geology and industry.
+
+They sleep in four-hour shifts on the wooden platform, their dreams synchronized with the machinery's rhythm. They consume primarily the concentrated minerals they extract from the water and the specialized nutrients in the pale fungi that Lydian cultivates in the warmest corner of the cavern. Their digestive systems have simplified, adapting to this limited but highly specialized diet.
+
+When maintenance teams arrive twice yearly, they find the machinery in perfect condition and the Keepers increasingly difficult to distinguish from the environment they maintain. Notes are exchanged, supplies left, measurements taken. The outside world knows only that the system continues to function at optimal efficiency, producing energy through means that remain proprietary and mysterious.
+
+The Keepers themselves understand that they are becoming something new—neither mechanical nor fully biological, but resonant intermediaries in a process of transformation that extends beyond their individual lives. They are the living embodiment of the cavern's state of emergence, caretakers and creation intertwined.

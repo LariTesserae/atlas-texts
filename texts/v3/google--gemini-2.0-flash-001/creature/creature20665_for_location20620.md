@@ -1,0 +1,21 @@
+They are the inheritors of seepage, the custodians of corrosion, born from, and beholden to, the slow, deliberate artistry of water. To call them a species feels insufficient, as if fitting evolution's chaotic brilliance into a neat, dismissive box. They are an *arrangement*, a synthesis of organic and machine, a tapestry woven from the threads of necessity and bizarre adaptation.
+
+Imagine, if you will, a creature… segmented, its form echoing the labyrinthine tunnels it calls home. Not insect, nor mammal, but something irrevocably *other*. Their bodies are elongated and flexible, allowing them to navigate the narrowest passages, wriggling through crevices that would seem impassable to any surface-dweller. Their hides are pale, almost translucent, revealing the intricate clockwork beneath – a delicate latticework of gears and pistons, powered by a bio-luminescent fluid that courses through their veins like liquid starlight.
+
+They are blind in the traditional sense, possessing no eyes, but their bodies are covered in a network of sensitive sensors, attuned to the vibrations of the earth, the subtle shifts in air pressure, the faint electrical fields that hum through the city's veins. They perceive the world through a symphony of feeling, a constant barrage of data that renders sight redundant.
+
+Their limbs are multifaceted, each tipped with a cluster of delicate, chitinous claws. These claws are not designed for combat, but for manipulation, for the intricate work of maintaining the city’s ancient machinery. They are the mechanics, the engineers, the caretakers of this forgotten realm.
+
+And yet, they are more than mere automatons. There is an intelligence, albeit one that operates on a timescale incomprehensible to humans. They are not individuals in the traditional sense, but rather nodes in a vast, interconnected consciousness. Information flows through their network, shared through pheromones, electrical signals, and even the subtle vibrations of the stone itself. They are a hive mind, a collective intelligence that spans the entire city.
+
+The "machines," as they are called, are not external objects, but rather extensions of their own bodies. Over eons, they have merged with the technology of past civilizations, incorporating gears, pipes, and circuits into their own anatomy. The pumps that circulate water, the generators that provide light, the complex network of wires that crisscross the city – these are all integral parts of their being, as vital as lungs or a heart.
+
+Their relationship with the fungal colonies is symbiotic. The fungi provide sustenance, drawing minerals from the dissolving stone and converting them into a form that the creatures can absorb. In return, the creatures tend to the fungi, dispersing their spores, pruning their mycelial mats, and ensuring their survival. They glow with bioluminescence as well in a symbiotic act of light propagation.
+
+Their society is not structured around dominance or hierarchy, but around function. Each creature performs a specific task, contributing to the overall maintenance and stability of the city. Some are responsible for maintaining the water system, others for repairing damaged machinery, others for cultivating the fungal gardens.
+
+Their appearance is unsettling, even grotesque, but one cannot help but be awed by their ingenuity and their resilience. They are the ultimate survivors, adapted to a world of perpetual darkness, decay, and erosion. As if they were built as an extension of the city...
+
+They have learned to extract power not just from water and ancient technology but from psychic residue, bending the weirdness of the place to their advantage. The glitches, as they are called, are not random occurrences but rather manifestations of their psychic abilities, a form of reality warping that allows them to manipulate their environment in subtle ways.
+
+They are the children of seepage, the inheritors of a forgotten past, the guardians of a decaying future. They are the weirdness made flesh, the fungus that makes a city.

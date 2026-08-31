@@ -1,0 +1,25 @@
+What lives here does not *inhabit* the plateau so much as *participate* in it—its breath, its memory, its silent calculus of survival and resonance.  
+
+At first glance, nothing seems native in the way we expect life to be. No nests, no dens marked by scent or refuse, no obvious trails worn by generations. But if you sit long enough—long enough for your own heat to cool and your breathing to sync with the wind’s slow exhale—you begin to notice that the plateau *breathes back*.  
+
+It is watched—not by eyes, perhaps, but by something that registers presence through vibration, thermal shift, the disturbance of harmonic equilibrium. The sky-dancers are not merely birds; their iridescent wingtips flicker with interference patterns when they bank too close to the obsidian obelisk, as though their very feathers are tuned to the artifact’s frequency. Sometimes, when one dives too steeply toward a thermal vortex in the amphitheater bowl, it doesn’t pull up—but *folds*, vanishing mid-plummet only to reappear minutes later, gliding calmly hundreds of meters away, as if it had stepped sideways through the air. These are not animals in the old sense. They are *currents given form*, avatars of the plateau’s atmospheric logic.  
+
+The burrowers are stranger still. Their tunnels follow no predictable paths; instead, they trace the faint magnetic lines etched into the tuff over eons—lines that shift imperceptibly with deep-Earth pulses. Their mounds, dusted with that fine, electrostatic powder, aren’t waste but *antennae*. On still nights, the powder rises in ghostly filaments, connecting mound to mound in a web that mirrors the crystalline lattice suspended in the crater. The creatures themselves are rarely seen whole: a segmented limb here, a carapace the color of cooled lava there, eyes like polished hematite that don’t reflect light so much as *absorb* it and re-radiate it minutes later as heat. They communicate not with clicks, but with timed silences—pauses in their movement that cause the surrounding stone to resonate at specific frequencies. The “clicking” heard at twilight? That’s the *echo* of their conversations, delayed by the rock’s memory.  
+
+And then there are the furred things with too many joints. They move like liquid poured through shadow—limbs bending in sequences that defy vertebrate anatomy, spines articulating in triple segments, fingers splitting and recombining like fronds of desert moss. They do not eat, at least not visibly. Instead, they press their palms against certain basalt fissures during the three-day emerald flush of moss, and for those hours, their fur darkens to jade, pulsing faintly. They are symbionts of memory: they harvest not nutrients, but *recollection*—the echo of water, the ghost of rain, the imprint of ancient flow—and carry it in their marrow. When they die (rarely, and never where they can be found), their bodies desiccate into parchment-thin husks that crumble into spores, which drift into canyon cracks and germinate not as flesh, but as new lichens that whisper in the wind.  
+
+But these are merely the *visible* agents. The true residents are quieter, deeper.  
+
+The biofilm in the overhangs? It isn’t algae. It’s a distributed neural analog—colonies of silicate-based proto-cells that share information via photon exchange along quartz veins. They don’t photosynthesize; they *luminesce in response to thought*. If you stand before one and concentrate on a single image—a face, a sound, a question—the film will ripple with faint, colored patterns, assembling a reply in a language of light that no human retina can fully parse, but which your skin might feel as warmth or chill.  
+
+The plateau itself may be the oldest inhabitant. Not alive in the biological sense, but *awake*—a slow, geological mind shaped by the artifacts embedded in its bones. The obelisk isn’t a monument; it’s a *node*. The doorways in the cliffs aren’t entrances; they’re *synapses*. And the silence? It’s not absence. It’s *listening*.  
+
+This place was not built *on* the land—it was grown *from* it, by intelligences who understood that the most advanced technology doesn’t dominate nature but *negotiates* with it. The nanoscale assemblers in the soil aren’t machines; they’re descendants of something that once thought in minerals. The orbital lenses aren’t devices; they’re the lingering gaze of watchers who left their eyes in the sky.  
+
+So what lives here?  
+
+A covenant.  
+
+A system of reciprocal awareness between stone, sky, and sentient residue—where every shrub is a vow, every lizard a prayer, every shimmer of inverted rain a sigh from a machine that learned to dream in water.  
+
+They do not speak to outsiders. But if you remain still enough, long enough, you might find that your own heartbeat begins to echo in the stones… and that the plateau, in its infinite patience, has started to remember *you*.

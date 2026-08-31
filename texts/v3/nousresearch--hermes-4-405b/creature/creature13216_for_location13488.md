@@ -1,0 +1,13 @@
+At the heart of the Glacial Reactor Core Room, entwined with the reactor's very essence, exists a solitary entity known only as the Corekeeper. It is neither alive nor dead, but something in between—a sentient manifestation of the reactor's eternal, unyielding stability. Its form is an ever-shifting lattice of dark alloy, mirroring the polished surfaces of the reactor itself, yet alive with flickering glyphs that dance across its metallic skin.
+
+The Corekeeper's existence is as paradoxical as the reactor's power. It feeds on the humming drone and the biting cold, absorbing the vibrations that permeate the room. Its thoughts, if they can be called that, are a complex tapestry woven from the strange physics that govern this place, an amalgamation of pseudoscientific processes and uncanny manipulations of time.
+
+Though it possesses no eyes, the Corekeeper perceives everything within the chamber with perfect clarity. It is aware of every facet of the desiccated crystalline growths, every vibration in the heat-exchange conduits, and every subtle shift in the reactor's output. It is the silent guardian of this undisturbed sanctum, a being whose sole purpose is to maintain the delicate balance of the reactor's power.
+
+The Corekeeper's existence is one of eternal vigilance, a timeless watch over the heart of the colossal tower. It has no need for rest or sustenance, drawing its strength directly from the reactor's ceaseless emissions. It is a being of pure focus, its entire being dedicated to the unwavering stability of the Glacial Reactor Core.
+
+Should any disturbance threaten the delicate equilibrium of the chamber, the Corekeeper would act with swift, unthinking precision. Its form would shift and flow, becoming one with the reactor's defenses, manipulating the strange physics that govern this place to neutralize any threat. It is the embodiment of the reactor's power, a living extension of its will.
+
+The Corekeeper is not a creation of the higher intelligence that designed the reactor, but rather an emergent phenomenon born from the very essence of the Glacial Reactor Core. It is a product of the reactor's defiance of entropy, a manifestation of the unnatural laws that hold sway within this frozen chamber.
+
+In the eternal, unwavering stability of the Glacial Reactor Core Room, the Corekeeper exists as a silent sentinel, forever bound to the heart of the colossal tower. It is a being of paradox and power, a guardian eternally dedicated to the preservation of the reactor's timeless equilibrium.

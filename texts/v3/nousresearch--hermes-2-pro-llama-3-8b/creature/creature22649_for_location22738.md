@@ -1,0 +1,11 @@
+In this town, an intricate web of relationships is formed among its various inhabitants. From the towering factories and the humans that operate them, to the fragile wildlife that has adapted to this unique environment, all coexist in a delicate balance.
+
+At the forefront of this entity are the workers, who toil at the factories and production lines. They're fueled by an unquenchable thirst for progress and a belief in the power of industry to transform the world. These individuals work tirelessly, often sacrificing their own well-being for the greater good of the town.
+
+Next, there are the creatures that have adapted to this peculiar landscape. Due to the looming factories, many animals have developed a strange symbiosis with technology. Some have incorporated machine parts into their bodies, allowing them to survive and even thrive in this harsh environment. Known as "Frateurs," these beasts roam the town and the surrounding wilderness, supplementing their diets with scraps from the factories.
+
+Perched on the fringes of this industrial ecosystem are the elusive "Silencers." These mysterious beings remain mostly hidden, evading the notice of both humans and machines. They watch carefully, waiting for any opportunity to disrupt the balance between the town and the wilderness. At night, they are active, conducting mysterious rituals that appear to heal the scars left by human industry.
+
+Finally, the natural environment that persists amidst the industry is home to a diverse array of flora and fauna. The Stillwoods, as they're known, are the only parts of the town that seem untouched by the ceaseless activity of its inhabitants. In these pockets of serenity, humans, machines, and nature can find a brief moment of peace, although it's often fleeting.
+
+These elements live in harmony, forced to coexist by the unrelenting pressure of the landscape. This balance is tenuous, often threatened by the constant demand for progress and resource extraction. Yet, in their struggle, they preserve the strange beauty and uniqueness of their home, reminding all who dwell there that even the most inhospitable places can foster life.

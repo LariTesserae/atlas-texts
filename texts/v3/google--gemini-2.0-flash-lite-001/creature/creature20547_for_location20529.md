@@ -1,0 +1,21 @@
+The inhabitants of this place are not easily categorized. They are interwoven with the very fabric of their world, a symbiosis made real. They are the **Rootweavers**, the **Chitin-Bound**, the **Lantern-Keepers**, a collective consciousness rather than distinct individuals. Yet, they are also fragmented, divided by purpose, by circumstance, by the whispering echoes in the plant-ocean’s depths.
+
+**The Rootweavers** are the oldest, the most intimately connected to the pulsing heart of the living world. They are the unseen. Their bodies, if one could call them that, are almost entirely composed of the fibrous red roots, the latticework that forms the ever-shifting ground. They are extensions of the plant itself, conduits for its will, architects of its growth. They are the keepers of the deep void, the unseen guardians. They orchestrate the ebb and flow of the landscape, the sprouting of spores, the writhing of tendrils. Their thoughts are the hum and pulse of the world, their senses the knowledge of unfathomable distances.
+
+They are aware of the other entities, but their main focus is on the deep void below. It is the source, the reason for being. The unending dance between the void and what lies above drives their existence.
+
+**The Chitin-Bound** are the transient, the protean. They are the beasts, the creatures of impossible biology that swarm and burrow within the plant-stuff. They are as much the product as the creators. Born from the spores and sap, given form by the hunger of the world, they are the living embodiment of entropy. They are made of chitin, yes, but also of the same plant matter. They come in every imaginable form: hulking land-things, swift fliers, and things that melt into nothing with a touch. Their forms are rarely stable, a constant flux of growth and decay, a dance between order and chaos.
+
+These creatures, driven by instinct and hunger, spend most of what would be their lives devouring the plant matter. This process, they are able to influence to a degree, helping it grow. They also can consume each other. Their existence ensures the constant churning, the unending creation of new forms and new possibilities. They are the expression of the world's hunger and dynamism.
+
+Here and there, among the Chitin-Bound, are individuals, or groups, marked. They are more purposeful, aware. They are what the others would become if what the others consumed was not the end.
+
+**The Lantern-Keepers** — a small and fading group — are the most enigmatic. They are those few, the remnants of something *older*, trapped in forms that no longer remember their origins. They are mortal, built from bone and plant fiber. They maintain the crude huts scattered throughout the landscape, the last vestiges of a past that now only exists within the plant's memory. They tend the shimmering lanterns, keeping them lit, though the purpose is fading. They still feel a pull toward the raw material they are made of.
+
+They are the only ones with a concept of individual existence, the only ones capable of remembering. They are burdened by knowledge and loss, the only ones who can truly see the beauty of the world, and the horror of what it has become. 
+
+They are fading, these Lantern-Keepers, always nearing the point where the plant matter completes the process of assimilation. It is only their understanding of the world, their ability to *remember*, that protects them. Their final goal is what they were meant to avoid: the perfect form, the pure existence, the total understanding of this realm.
+
+**The Interplay:** There is no "them" and "us". All are part of a single, interwoven ecology. The Rootweavers shape the world, the Chitin-Bound exist within it, and the Lantern-Keepers struggle to transcend it. The cycles are intricate, the motivations obscure, the overall purpose a secret hidden in the deep voids below. 
+
+The three groups depend on each other, feed into each other, and all are dependent on the plant matter as a whole. A single mind, but with the many parts, the many purposes, all striving toward a destiny beyond the comprehension of a single being. Every cycle renews them, destroys them, and makes them anew... forever.

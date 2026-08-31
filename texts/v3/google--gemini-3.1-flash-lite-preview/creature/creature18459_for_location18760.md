@@ -1,0 +1,17 @@
+The one who lives within the hut is not an occupant in the sense of a guest or a tenant. To exist here is to become a function of the basin’s stillness, a living punctuation mark in a sentence that ended a geological era ago.
+
+They are tall, though it is difficult to measure them against the non-depth of the light. Their skin possesses a texture like cured parchment, marked by a map of lines that do not correspond to age, but to the accumulation of the silence. They possess no hair, and their eyes—wide, lidless, and possessing a faint, flickering opalescence—do not blink. Blinking would be an event, and events are no longer permitted here.
+
+They do not wake; they simply sharpen into focus. They do not sleep; they merely dim.
+
+For cycles beyond counting, this steward has sat upon the floor of the shale hut, hunched over the spindle of bone. They are the weaver of the static. As the world outside attempts to dissolve into the grey dust—as the beetles bleed into the pumice and the balloons lose their opacity—the inhabitant works to hold the threads of reality from fraying into total non-existence. They draw the charged, powdery frost from the air and spin it into an invisible, infinitely fine thread that they then press into the landscape.
+
+That is why the cairns are stacked with such neurotic precision. They are the stitches. The inhabitant spends their eternity tacking the world down, ensuring that the beetle remains a beetle and the ridge remains a ridge. Every obsidian blade was placed by those long-spindled, multi-jointed fingers to pin the fabric of the basin to the bedrock of time.
+
+They are terrified, in a way that transcend nerves or chemicals. There is a deep, resonating hum behind their ribs—the only sound in the basin—that serves as the metronome for the environment. If they were to stop, the silence would stop being a refusal of sound and would collapse into a vacuum, erasing the basin and everything within it.
+
+When they move, they do so with a terrifying, liquid grace, as if they are made of oil or time itself. They do not walk so much as they displace the air, sliding through the density of the frozen migration outside. The fauna do not shy away from them; often, the inhabitant will reach out to stroke the obsidian back of a six-legged beetle, and for a moment, the creature’s carapace will soften, turning translucent and warm, before the steward moves on and the creature snaps back into its rigid, eternal posture.
+
+Inside the hut, the stone bowl of dust is their only calendar. They take a pinch of the silicate and rub it between their thumbs, measuring the wear of the centuries. When the bowl is nearly empty, they will walk to the edge of the ridge, look out at the vast, suffocating carpet of life, and sigh—a soundless pressure that stirs the dust into a momentary, localized storm.
+
+They are the curator of a museum where the exhibits are still breathing, but forbidden from moving. They are the last witness to a transition that refused to happen. They are not waiting for a savior, nor for an end; they are waiting for the world to remember how to be mutable again, and they harbor a quiet, desperate hope that one day, their spindle will break, and the basin will finally, mercifully, shatter into a million loud, chaotic, and beautiful pieces.

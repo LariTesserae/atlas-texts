@@ -1,0 +1,15 @@
+Within Cinderhold reside the Architects, the Keepers, the Makers - the humans, if that word truly applies. It's too simplistic, too restrictive to call them simply humans. They are something *more* than that. They are the inheritors of a knowledge, a philosophy woven into the very fabric of the city.
+
+Their bodies reflect their environment, lean and honed by constant motion and purpose. Their skin, the color of weathered stone, is permanently marked with the gray of the valley. A fine layer of ash settles on them, a reminder of the raw materials from which their world is forged. 
+
+Their eyes are a deep, almost black, and possess a sharpness that misses nothing. They are the instruments used to see the invisible, the minute details that allow the city to live. They are the eyes of creation. They are patient, their faces a calm mask of intent, etched by the endless cycle of making and remaking. They are not old, but seem ageless, having shed the burdens of time in the constant cycle of building and rebuilding.
+
+Their clothing, a dark, functional weave, is almost a second skin. It's designed not to stand out, but to blend, to disappear into the industrial landscape. It moves with them, unhindered. They are unadorned. Neither jewelry nor decoration is necessary within Cinderhold, only utility. Their hands are surprisingly delicate, the precision tools of a surgeon and the rough strength of a laborer merged into a single being. Their hands are always active, moving with the same efficiency as the machinery about them.
+
+They are not warriors, not rulers, not even necessarily leaders. They are *doers*. Each Architect knows their task; a small cog in a massive machine. Yet, there is no sense of complaint, no weariness, only an unwavering dedication to the city. There's an aura of collective purpose, a shared understanding that transcends words. They communicate through silent gestures, the precise movements of the hands, or brief, clipped exchanges, and with glances and pauses that speak of a deeply held understanding.
+
+They nurture and tend the fungal blooms, understanding their role in the delicate ecosystem. They observe the habits of the iridescent birds and the sleek reptilian stalkers, perhaps even learning from their movements. They study the bioluminescent insects, deciphering the secrets held within their flickering light. They are not masters of this ecosystem, but an integral part of understanding it. They are curators of life, ensuring that even in this metal and stone landscape, the dance of life continues.
+
+They are not driven by greed, by ego, or ambition. Their motivation stems from something deeper, a sense of belonging in a purpose and place. Perhaps, the city itself is all that matters. It isn't a shelter, but a creation, a work of art and craft, and a process of refinement, and the architects are but its components.
+
+They are the children of Cinderhold, the product of fire and stone. They are the echoes of the city’s heart, a silent, efficient symphony, ever-building towards an unknown future. They are the keepers, the makers, the Architects. They are Cinderhold itself.

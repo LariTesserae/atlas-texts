@@ -1,0 +1,25 @@
+**The Inhabitants of the Verdant Spine**  
+
+The Verdant Spine is not a place so much as a living entity, its denizens inseparable from its breath and heartbeat. Here, life does not merely reside—it *collaborates*, weaving itself into the very fabric of root and stone. The inhabitants are those who have been shaped by the Spine’s slow, deliberate rhythms, becoming part of its pulse rather than observers of it.  
+
+### **The Hollowback Dwellers**  
+At the core of the Spine’s built environment are the hollowbacks—living cathedrals with chambers inhabited by a species of enigmatic, arboreal humanoids known as the *Symbionts*. These beings are born in the hollows of ancient trees, their bodies adapted to the velvety moss-lined walls that regulate their temperature and humidity. Their skin, a muted green like the lignum spires, is patterned with the same spiral etchings that adorn the trees, a trait that deepens with age as they absorb minerals from the surrounding moss. They live communally, their settlements shifting as the trees grow and fungi reshape the interiors. Communication occurs through a blend of bioluminescent signals (via the glowmoss integrated into their dwellings), low-frequency vibrations transmitted through the roots, and the rustling of leaves—a language that mimics the Spine’s own "speech."  
+
+The Symbionts are neither builders nor colonizers but *tenders*. They nurture the fungi that hollow their homes, pruning and inoculating them with spores to ensure the chambers remain hospitable. Their diet consists of the sweet, fermented berries produced by the echo leaves and the phosphorescent nectar of night-blooming vines. They are a patient people, measuring time in decades rather than seasons, and their rituals center around the slow growth of their environment. Births are rare and celebrated during the convergence of the Spine’s subterranean aquifers’ thrum, a phenomenon that occurs once every century.  
+
+### **The Mist Moth Swarm**  
+The mist moths, while not sentient, play a critical role in the Spine’s ecology. Their synchronized swarms act as living weather vanes, their flight patterns directing the dispersal of spores and seeds. The Symbionts interpret their movements as omens, believing the moths are the fragmented souls of ancestors, forever circling the canopy. During the twilight hours, the moths’ stained-glass wings catch the last light, casting prismatic shadows that the Symbionts view as messages from the earth itself.  
+
+### **The Rootskitterers**  
+Burrowing through the moss-lichen like aquatic serpents on land, the rootskitterers are the Spine’s unsung architects. These blind, eel-like creatures aerate the ground with their undulating motions, triggering chemical reactions that release nutrients into the soil. Their bodies secrete a mucus that accelerates the growth of anchorvines, ensuring the terraced hillsides remain stable. The Symbionts have domesticated certain rootskitterers, breeding them for specific mucus chemistries that enhance different plants. In return, the rootskitterers are guided through the moss networks via the Symbionts’ root-vibrations, a dance of mutualism that sustains the valley’s unnatural stability.  
+
+### **The Glowmoss Weavers**  
+In the Rootsea’s floating islands, another enigmatic group resides: the *Mycomorphs*, beings born from the fusion of fungal hyphae and humanoid consciousness. These entities have no fixed form, their bodies shifting between humanoid and fungal states depending on the moisture and light. They dwell in the peat islands, where they tend to the lilypads and their skittering inhabitants. Mycomorphs communicate through chemical signals released into the water, their thoughts rippling across the marsh like waves. They are the keepers of the Rootsea’s memory, storing centuries of ecological data in their mycelial networks.  
+
+### **The Echo Leaves’ Chorus**  
+Certain patches of the Spine are alive with the harmonic vibrations of the echo leaves, shrubs that resonate with the valley’s ambient sounds. These vibrations are harvested by the Symbionts, who believe the leaves’ songs are the earth’s way of sharing its dreams. During the annual Convergence—a period when the aquifers’ thrum aligns with the wind’s rhythm—the Symbionts gather in the Rootsea to listen to the leaves’ collective melody, interpreting its patterns for omens.  
+
+### **The Unseen Pulse**  
+Beneath all, the Spine itself is a hive mind. The lignum spires’ root networks channel not just nutrients but thoughts, their slow, subterranean conversations influencing everything from the growth of moss to the migrations of mist moths. The Symbionts tap into this network through their roots, experiencing flashes of ancient wisdom and distant sensations. They are as much a part of the Spine as its trees, their existence a testament to the absurd, beautiful logic of a world where life cannot be separated from the land that births it.  
+
+In the Verdant Spine, nothing is merely alive—it is *alive together*, a symphony of roots, water, and light that plays on forever in the green, humid dark.

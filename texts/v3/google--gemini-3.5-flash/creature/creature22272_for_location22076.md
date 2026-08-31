@@ -1,0 +1,29 @@
+To find what lives on this iron-hard plain, one must look closely at the seams where the great wooden plates meet, and where the silent, spinning runner-vines slide through their guides. Here, life does not exist *on* the plateau; it is a detached, mobile extension of the plateau itself. 
+
+There are no animals here in the sense of marrow and wet blood, yet the dark is full of scurrying, rolling, and ratcheting things. They are made of the same seasoned oak, ironwood, and black pitch as the landscape, born from the "graft-houses"—massive, bulbous burls that grow like cancers at the bases of the distillation towers.
+
+The most numerous of these denizens are the **Slickers**. 
+
+To the eye, they resemble flat, segmented shingles of polished book-matched boxwood, about the size of a shield. They have no legs. Instead, their undersides are fitted with rows of perfectly spherical wooden marbles—casters carved from *lignum vitae*, the densest oil-wood on the plateau—held in sockets of self-lubricating graphite-treated grain. The Slickers slide effortlessly across the hard plain, propelled by internal, high-tension fiber springs that they wind by hooking onto the fast-moving runner-vines as they pass.
+
+The task of the Slicker is simple, crucial, and entirely mindless. They are the oilers of the engine. Deep inside their hollow, shingle-like bodies is a bladder of boiled pine-resin and heavy vegetable oil. Guided by thermotaxis—the raw draw of heat—they roll toward the screaming, dry junctions where the great wooden shafts grind together. When a Slicker reaches a dry joint, it crawls beneath the friction-point, and the immense pressure of the machine crushes the Slicker’s bladder, releasing a jet of hot, black grease into the bearing. Often, the Slicker itself is crushed in the process, its flattened, oil-soaked body becoming part of the very lubrication it was sent to deliver, its wood-grain polished into the plateau’s eternal sheen.
+
+Above them, in the vaulted ceiling of black branches, live the **Tensioners**. 
+
+These are long, skeletal entities resembling jointed measuring sticks or segmented surveyor's transits, some thirty feet in length. They are composed of hollow, fire-hardened bamboo-reed plates joined by dense wood-knuckles. The Tensioners do not travel the ground; they cling to the overhead highways of braided runner-vines. They move like inchworms, but with the dry, rhythmic *clack-clack-clack* of wooden gears. 
+
+Each Tensioner possesses a pair of heavy, crescent-shaped jaws lined with teeth of petrified oak. They are living clamps. Their sole purpose is to monitor the high-tension fiber belts. When a belt begins to sag or fray, a Tensioner positions itself over the slack, clamps its jaws onto the moving line, and uses the momentum of the belt to wind its own internal wood-winch, pulling the fiber line taut again. If a belt snaps, dozens of Tensioners will descend from the darkness like falling scaffolding, locking themselves end-to-end to act as a temporary wooden splint, holding the line together under thousands of pounds of pressure while the self-healing black amber can flow down to seal the break.
+
+Deep within the ruins of the demolished sectors, where the acidic sap-flows have left mountains of splintered timber, the **Chippers** operate. 
+
+The Chippers are the decomposers of this world, though they carry no rot. They are heavy, rotating spheres—veritable barrels of dark, compressed cedar, six feet in diameter, covered in spiral rows of razor-sharp, heat-tempered thorns. They have no eyes, no sensors, and no steering. They are driven by the seismic rumble of the plateau. They roll blindly down the slopes of wood-debris, their weight and sharp thorns crushing and planing the splintered timber into a fine, dry powder—the wood-flour. 
+
+The Chippers do not eat this wood-flour. Behind them follow the **Suckers**: low, wide bellows made of cured, leathery gourd-skins that expand and contract using the thermal drafts of the plateau. They vacuum up the wood-flour from the plain and blow it down through hollow, vertical trunk-capillaries into the distillation towers below, where it is gasified into the hot nitrogen that drives the piston-gourds.
+
+There is no communication among these creatures that a human would recognize as thought, but they are bound by a complex, acoustic harmony. 
+
+Suspended from the ceilings are the **Resonators**. These are not mobile; they are vertical, hollow trunks of ancient yew, hundreds of feet tall, held under immense tension by roots anchored deep in the plateau. They are the nervous system of the factory. When a major structural failure occurs—such as the collapse of a piston-battery or the splitting of a main riser-trunk—the shockwave travels through the iron-hard ground. The Resonators catch this vibration, hum with a deep, bone-rattling bass, and begin to bleed a highly volatile, sweet-smelling terpene gas from pores along their length. 
+
+This scent-cloud drifting through the dark is the command signal. It triggers an automatic chemical reaction in the nearest graft-houses. The burls swell, ripen, and burst, releasing dozens of new Slickers, Tensioners, and Chippers into the dark, their wood-springs tightly wound, their oil-reservoirs full, their internal wooden gears set to the frequency of the crisis.
+
+They are born mature, dry, and tireless. They will roll, slide, clamp, and grind through the dark for months or years, their joints slowly wearing down, their graphite coatings turning to gray dust, until they are finally dry-rotted down by the targeted, acidic sap-flows of their parent roots, only to be woven once more into the next generation of the engine.

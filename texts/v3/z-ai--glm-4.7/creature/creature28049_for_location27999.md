@@ -1,0 +1,21 @@
+To say there is no fauna here is a mistake of observation, not of fact. The silence is not an absence of life, but a function of scale; you are listening for a chirp, while the life here speaks in the grinding of tectonic plates. The observer sees a "ziggurat," a static pile of cyclopean basalt blocks, but if one were to wait—watching for a geological epoch or perhaps merely a hour—the block would shift.
+
+What lives here is the architecture itself.
+
+The "structures" are not buildings. They are shells. They are the carapaces of the **Orogenic Colossi**.
+
+At first, they appear indistinguishable from the landscape. A nearby formation, a jagged step-pyramid of dark, glassy stone, seems merely another feature of this brutalist terrain. But look closely at the "mineral accretions" that spiral from its flanks. These are not mere crystalline fungi; they are fibrils, dense bundles of mineralized nerve endings that taste the heavy, wet air. They pulse with a faint, magnetic hum that vibrates in the teeth, detecting the subtle changes in pressure as the sky lowers. The creature is not a separate entity moving *through* the world; it is a node of the world, moving *with* it.
+
+The creature is vast. Its "head" is the uppermost plateau of the ziggurat, a flat, grinding surface of obsidian that slides against the low-hanging clouds. It has no face, only a intake vent—a spiraling borehole the size of a cathedral—that sucks in the thick, oxidized atmosphere. The sound of its respiration is the whistling moan of the wind through the canyons.
+
+Beneath the carapace of the "ziggurat," the beast is a hydraulic nightmare. It does not possess muscles in the biological sense. Its internal workings are exactly the "insultingly primitive" machinery described: colossal wooden levers made of petrified matter, bound by cables thick as rivers. These are its tendons. They are calcified lignin infused with conductive metals, acting as bio-mechanical ligaments that contract with the heat.
+
+The water that weeps from the rock face is not condensation; it is lubrication. A slick, oily gray secretion that coats the joints where the massive basalt plates rub together. When the creature decides to move—a decision that takes perhaps years of contemplation—the fluid pressure increases. The puddles on the floor begin to boil violently, roiling with the thermal exhaust of its waking. The "ghost momentum" is the creature's heartbeat, a slow, rhythmic contraction that sends shudders through the ground, mistakable for earthquakes.
+
+They are the architects of their own oblivion. To the west, where the mountains "un-build" and float upward, one is witnessing birth or ascension. The Colossi have a life cycle that mirrors the geology. They are born in the heat, grinding the raw, sharp earth into the rounded shapes of their shells. They consume the jagged edges of the world, the "just now" of geology, smoothing it into the geometry of their bodies.
+
+And eventually, they become too light. As they process the heavy metals and oxidize the iron in their diet, they generate a magnetic buoyancy. The vast, flat slabs seen drifting into the bruised sky are not escaping rock; they are the dying Colossi, their massive internal counter-gravity engines finally overmatching their weight. They shed their heavy limbs and basalt shells, leaving them behind as skeletal ruins, and ascend as pure, silent plateaus into the gloom, becoming part of the sky that once crushed them.
+
+The "ground ripples" to the east are not random physics. That is the mating dance of the juveniles—subterranean things, massive slugs of molten slag and magnetic slime, burrowing through the wet clay, heaving the crust into mesas and collapsing them in a display of strength, trying to attract the attention of the dormant, ziggurat-shaped elders waiting in the dim, wet light.
+
+You are an intruder not because you are soft, but because you are small. You are standing on the back of a sleeping god, mistaking its spine for a mountain range, and its sweat for the weather. The silence is profound because they are listening to the sound of the planet cooling, waiting for the moment when the heat fades, the levers seize, and they can finally ascend to join the floating islands in the bruised, iron sky.

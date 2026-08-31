@@ -1,0 +1,21 @@
+The valley breathes. It doesn't move in the way of a beast, lumbering across the broken earth. Rather, it pulses, a slow, gentle expansion and contraction mirroring that of a lung, of a heart. And within this breathing space, the valley overflows with the *Sustained*.
+
+They are the valley's children, its inheritors, its guardians. The name is not easily said, not easily rendered in the harsh, sharp syllables of a human tongue. It is a feeling, a resonance, something akin to the sound of a stone dropped into that unseen water, the ripples unfurling across the valley's surface.
+
+The Sustained are shapeshifters, not in the vulgar sense of form-swapping, but as beings woven from the valley itself. They are as mutable as the mists, as strong as the ancient trees, as fluid as the hidden streams. Their physicality is a suggestion, not a limitation. They can be tall and slender as the towering trees, or small and woven into the very fabric of the moss. Sometimes they are glimpsed as fleeting shadows, shimmering distortions in the veil of the mist. Other times, they are the mist itself, cold, damp fingers brushing against chilled skin.
+
+Their forms are a reflection of the valley's mood, its activity. When the energy surges, they might appear as a whirlwind of luminous insects, a dance of light and ephemeral beauty. When the earth roils, they take on the form of the earth itself, the shifting ground itself, their presence a silent echo of the coming change. They are the ground that shifts beneath your feet, the tree that bursts into bloom while you watch, the sudden chilling draft that whispers secrets you can't understand but *feel*.
+
+The Sustained are not solitary beings. They are a collective, a gestalt consciousness. Individual identities flicker and fade. They are linked.
+
+They are bound by the valley, by the pulse of its unseen energy. That pulse dictates their actions, their creations, their destruction. The scattered structures are their legacy, relics of epochs of thought, moments of creation woven directly into the land. They are the tools, the temples, the whispers of dreams now forgotten. The intricate, alien geometries are a language of purpose, a reflection of the infinite possibilities contained within the valley's embrace. They *were* the builders, the architects, but now, they *are* the architecture. They *are* the structures now, and all the rest.
+
+They are not benevolent. They are not malevolent. They are simply *being*. They are the expression of the valley's will, its raw, untamed energy given form. They protect the valley, they tend to it, they *are* the valley's immune system, reacting to any external interference, any disruption of chaos-as-balance.
+
+Their interactions with any other beings are unpredictable, mirroring the valley's own volatile nature. They might be curious, welcoming you into their embrace, allowing you to glimpse their strange and wondrous world. Or, they might be indifferent, obscuring you beneath a wave of fog, forcing you into the deeper, darker corners of reality.
+
+If threatened, if the balance is disrupted, they will strike. They will manipulate the very fabric of reality, twisting the landscape into a living weapon. Trees will become razors, the air a choking poison, the earth itself a carnivorous maw. Their attack would be absolute. It would also be without malice. It would simply be the valley's answer; the consequence of violating its space.
+
+Their origins are a mystery, lost in the echoing cacophony of the valley. Legends, whispered by the few creatures who have glimpsed them long enough to grasp, speaks of a time before, of the mountain's birth, of a cosmic explosion that birthed a valley of possibility. Perhaps they are the descendants of those first beings, the children of the valley's birth.
+
+They are everywhere, and nowhere. They are everything, and nothing. They are the voice of the valley, and the valley itself. They are the Sustained, and the Sustained are the valley. And in this valley, the valley has a voice.

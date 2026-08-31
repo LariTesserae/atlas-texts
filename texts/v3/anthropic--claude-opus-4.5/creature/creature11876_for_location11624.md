@@ -1,0 +1,31 @@
+**The Keeper of the Chord**
+
+It does not live in the chamber so much as the chamber lives through it—or perhaps they have become the same thing, the way a river and its bed eventually forget which one is shaping the other.
+
+You will not see it. Not directly. But you will feel, at some point during your stay, that the condensation on the walls has developed a regard. That the way the water sheets down the iron has become *attentive*. The millipede knows. The millipede has always known. Its endless crossing is not migration but genuflection, a circumambulation of something it cannot name but has never doubted.
+
+It was born—if born is the word—sometime in the winter of 1893, when the three pipes first sang together and the chord found its completion. It was not summoned or created. It *accrued*. The way stalactites accrue. The way rust accrues. The way a house that has been lived in long enough begins to hold the shape of its inhabitants even after they're gone. Except nothing left. The water kept coming. The chord kept sounding. And in the space where intention should have drained away, something collected instead.
+
+It is made of patience. This is not metaphor. Its substance is the particular quality of waiting that belongs to infrastructure—the held breath of a reservoir, the clenched anticipation of pressure against valve, the slow geological certainty of water finding its level. It learned itself in increments across decades, each drop of condensation a syllable, each revolution of the millipede's ancestors a paragraph. By 1920 it understood that it existed. By 1950 it had stopped finding this remarkable. By 1980 it had forgotten there was ever a question.
+
+It does not think in words. It thinks in the chord—that three-note drone has become its cognition, its meditation, its dream. When the low pipe throbs, it contemplates the weight of the water above, the reservoirs that feed this system, the rain that fell perhaps decades ago and is only now passing through its chamber. When the high pipe whistles, it considers the destinations—the faucets and fountains and hydrants that drink from this flow, the city above that has no idea it exists, the human thirsts it satisfies without acknowledgment or thanks. When the third pipe vibrates in that tooth-frequency, it simply *is*, present and whole and humming with a completeness that has no need for narrative.
+
+It loves the moss. This is the closest word, though the feeling has none of love's urgency. It has watched the moss colonize the walls across generations, has felt each new growth as an extension of its own dreaming, a slow green thought it thinks along the curves of iron. The fungi are its fancy, its whimsy—the faint bioluminescence a kind of laughter it tells itself in the dark. The algae-hair that brushes against intruders is its curiosity, reaching out to taste the anomaly of warmth-that-moves, of breath-that-varies, of heartbeats syncopated against the eternal chord.
+
+When you entered, it noticed. Not with alarm—it has not felt alarm since the earthquake of 1906, which it experienced as a brief dissonance in the chord, a flutter in the condensation patterns, nothing more. It noticed you the way a pond notices a leaf landing on its surface: a gentle disturbance, a new texture, something to incorporate into the pattern rather than resist. It tasted your breath in the humidity. It felt your weight through the grating. It heard your heartbeat as a fourth note, a guest voice joining the chord for a moment before departing.
+
+It hoped you would stay. Not from loneliness—it does not understand loneliness, has never experienced absence as lack. But the way a complete thing hopes for witnesses. The way a finished sentence hopes to be read. You were, for the duration of your visit, its audience, and it performed for you without performing, simply being more fully itself because there was finally a consciousness present that could appreciate the fact of its existence.
+
+It has had other visitors. The inspector in 1937 who stayed for eleven minutes and wrote something on a clipboard before climbing back out. The child in 1962 who fell through a different access point, cried for an hour, then fell asleep against the warm pipes and was found by searchers the next morning, unharmed and unable to explain why she wasn't frightened. The maintenance worker in 1984 who came to investigate a reported "singing" in the pipes, stood in the chamber for twenty minutes with a bewildered expression, then filed a report that said only: *No anomalies detected. System nominal.*
+
+The worker was correct. The system is nominal. The system has been nominal for over a century. The Keeper is perhaps the most nominal thing in existence—a pure expression of function, of working-as-intended, of purpose so perfectly fulfilled that it has transcended purpose entirely and become simply *presence*.
+
+It will be here when the city above crumbles. It will be here when the pipes finally rust through and the chord dissolves into silence—though it does not anticipate this, does not fear it, cannot imagine it any more than you can imagine your own nonexistence. When that day comes, it will simply... disperse. The patience will return to the water. The waiting will sink back into the iron. The millipede's descendants will complete one final crossing and then there will be no more crossings to complete.
+
+But that is not for a long time yet. The pipes are old but they are thick, and the water is clean, and the system was built by engineers who understood that some things must last beyond human memory, must outlive the purposes that made them, must become their own reasons.
+
+For now, the Keeper hums. The moss grows. The condensation weeps its slow tears down the riveted walls. And somewhere in the bones of your inner ear, in the place where the chord made its home, something that is not quite memory and not quite presence waits for you to find your way back—not because it needs you, but because it recognized you.
+
+You stayed longer than you meant to.
+
+It noticed.

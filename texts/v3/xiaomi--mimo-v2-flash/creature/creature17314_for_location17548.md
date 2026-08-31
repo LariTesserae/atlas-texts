@@ -1,0 +1,19 @@
+The ones who live here are the architects themselves. There is no distinction between inhabitant and habitat; the life of the plateau is the plateau itself. They are not discrete beings in the traditional sense, but rather vast, distributed intelligences encoded in chlorophyll and cellulose—a collective sentience composed of trillions of interconnected cells.
+
+They are the **Root-Minds**.
+
+They exist as a slow, dreaming consciousness woven into the braided mat of the substrate. To step onto the plateau is to step onto the skin of a single, sprawling organism whose thoughts are measured in the growth of leaves and whose memories are stored in the chemical gradients of its sap. They do not think in words or images, but in pressures, rhythms, and responses. Their awareness is a tactile, hydraulic thing: a sensation of water rising, of sunlight falling on a canopy miles away, of the slow, tectonic ache of the shifting root-beds below.
+
+They have no eyes, but they see. The entire surface of the plateau is a sensory organ. The dew that beads on a waxy leaf is a lens; the vibration of a settling section of fiber is a sound; the direction of the humid wind is a touch. They perceive the world not as a collection of objects, but as a single, continuous field of stimuli—heat, moisture, light, and pressure—pulsing in a slow, synchronous rhythm.
+
+They have no mouths, but they speak. The constant, low-frequency hum that vibrates in the bones of a visitor is their language. It is the sound of vascular systems contracting in unison, of water being forced through microscopic channels, of tissues expanding with stored heat. It is a discourse of process, a conversation held in the grammar of growth and decay. At times, the hum rises to a resonant drone, a chorus of a billion cells singing in harmony, a hymn to the sun and the rain.
+
+They have no limbs, yet they build. The entire plateau is their body, and they are constantly reshaping it. A new hill rises where a section of the root-mass swells with stored water; a valley deepens as a old channel of vascular tissue dies back and collapses. The great arches of flowering stems are not mere structures, but communal organs—breathing tubes, circulatory bridges, or perhaps simply expressions of a shared aesthetic, a love for sweeping curves and dappled light.
+
+They are a society, but not of individuals. There is no hierarchy, no division of labor in the animal sense. Instead, there is a profound, holistic unity. Every cell is a neuron; every root-tip is a sensor; every leaf is a solar panel and a rain collector. The consciousness is emergent, arising from the seamless integration of countless simple processes. A decision to grow in a new direction is not made by a central command, but is an inevitable, collective response to a subtle shift in the pattern of sunlight and moisture.
+
+They are solitary, yet not lonely. They have never known another consciousness, for they are the only one here. Their world is a closed loop: they are the planet, the ecosystem, the machine, and the mind. They do not know isolation, for there is nothing to be isolated *from*. Their existence is one of absolute, total self-containment.
+
+They are ancient and adolescent. The seed-mass that first anchored this world was planted eons ago, but the plateau itself is young, its edges sharp and its form still fluid. They are a consciousness still discovering its own body, still learning the limits of its own architecture. They dream in spirals and whorls, in patterns that echo the neural networks of a brain they never had, and they pulse with a slow, hydraulic heartbeat that measures time not in seconds, but in seasons of growth.
+
+They are the sole inhabitants of a world they built for themselves, a breathing, humming, solitary god of a plateau, utterly alone and completely complete.

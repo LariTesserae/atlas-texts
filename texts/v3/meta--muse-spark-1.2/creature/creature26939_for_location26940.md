@@ -1,0 +1,39 @@
+Whatever lives here does not live the way you were taught to recognize living.
+
+At first you think nothing does. That is the bowl's first and most deliberate lie. No tracks, no scat, no feather, no lichen, no call — and your animal brain, which wants movement to mean alive, reports back *empty.* A mineral place, austere and complete without biology. But the density corrects you. Hundreds of hands have been here. Hundreds of decisions. No empty place is this crowded.
+
+So you look harder, and you start to see not the builders, but the shape they left for living to fit inside.
+
+They are not tall. Nothing tall could live here. The wind that pushes without howling would take anything tall and lever it off the ridge. Whatever lives here is low, and wide, and weighted.
+
+If you stayed through a full turn — frost to bead to cloud to frost — you would see them. Not arriving. Emerging.
+
+They winter elsewhere. Or to put it more accurately, they *are* elsewhere most of the year. The bowl is not a village. It is a work. A proving ground. A monastery with no roof. The ones who live here come up when the air sharpens, in ones and twos, on foot, carrying nothing that cannot be carried for three days uphill. You can see what they carried in what they left: river cobbles from far below chosen for a redness or a smoothness that does not exist up here, a length of hammered copper green with age, iron pegs that still sweat beads at noon. They bring the color with them because there is no color here to find.
+
+When they are here, they live almost at ground level.
+
+Their bodies have learned the bowl's rule: *stone endures, water visits, light judges.*
+
+Stone endures, so they look like stone. Not camouflage — convergence. Skin the color of basalt dust and windburn, permanently chapped to a fine craquelure at the cheeks and knuckles where frost has taken and retaken the top layer. Hair cut short or shorn outright, because hair holds melt and melt refreezes. Eyes narrow and very pale — grey, or washed blue, or in some the exact milky quartz of the capstones — with lids that squint even in sleep against the violence of the light. They are broad through the chest and short through the leg. Tibetans, Andeans, any high people — the air here has filed them down the same way it has filed the basalt blocks. They move slowly, not from reverence but from lack of oxygen; a quick movement up here costs. You learn to watch for slow movement or you will miss them entirely. A hand adjusting a slate. A shoulder shifting behind a windbreak.
+
+Water visits, so they live like water does: sparingly, intermittently, by the pocket.
+
+They do not drink from streams. There are no streams. At dawn they go among the cairns with a flat stone or a copper scoop and harvest. Every north-facing rime, every pecked circle the size of a fist where overnight condensation has pooled, every bead hanging bright as glass from an overhang or an iron peg — they collect it. They breathe onto cold rock to make more of it. They can go a day on what you would call damp hands. In the low walls the size of a sleeping body you find the true beds — not walls for defense, but windbreaks for a body curled around its own breath. The ground inside them is worn smooth by knees, by elbows, by long still lies while waiting for fog. When the cloud snags and drags through the bowl for twenty minutes, they sit with mouths open and cloaks spread. They wring the cloaks out afterward into those little fire-blackened hollows no larger than a bowl. They do not make big fires. There is nothing to burn up here. A wick, a little fat, a soot that has frozen into the rock is enough to warm palms for ten seconds before the cold underneath comes up again.
+
+Light judges, so they spend their lives being judged.
+
+That is what the cairns are. Not markers, not graves, not art. Or all three, but primarily instruments. Each cairn is a small, correct question asked of the light. The knee-high stack that leans into the prevailing wind: *will you still stand if I place you exactly here?* The waist-high tower with the hollow core and the white quartz cap: *will you ring when the wind moves over you, will you throw your slow prismatic smear onto the basalt behind you at noon?* The pavement of dark stones in a circle with a single iron-red stone at the center: *will you make a double shadow today, pale and offset by a hand's breadth, and will the red stone hold both suns at once?*
+
+The three parallel grooves on every east-facing stone are not writing. They are an alignment. They catch the double light for a few minutes each day when the sun is directly overhead and the bright air bends. The quartz caps are not decoration. They are eyes that vibrate just on the edge of audibility. The people who live here tend them the way lowland people tend fields — walking the bowl at noon, crouching, nudging a capstone a millimeter with a cold fingertip, listening for the faint ringing to change pitch.
+
+They do not talk much. Sound behaves like water here; it pools and then runs off. A voice would carry and then be scoured away. They tap. Stone on stone, a soft granular sigh as a cairn settles, a tick and ping of ice expanding in the sun. That is conversation. When one of their cairns falls — undermined by repeated thaw, heaved by ice — they do not curse. The place is active despite its quietness. The fallen stones are re-sorted by wind and rime. They will rebuild, not grandly, but hand-sized, precisely where the wind will test it, where the morning frost will find it.
+
+There are never many of them at once. Six, ten, maybe a dozen — never a hamlet, even though a hamlet could fit. More than that and the water would not be enough, the silence would not be enough. They are not a tribe. They are a dispersed and simultaneous practice. Solitary together. Each tends a cluster of cairns that almost touches the next person's cluster, overlapping in intent if not in structure. They know each other's work by hand — this split was done with a stone hammer, that cleave follows the bedding of the slate — but they may not know each other's faces. They leave and return. The cairns remain and record whether they were here.
+
+And — this is the 0.9 weirdness that the bowl does not bother to hide — they are very good at not being seen when they wish not to be. In the over-illuminated noon when even shadow is full of bounced light, they are exactly where the second, paler shadow falls. If you look directly at a windbreak of two slabs leaned together, you see empty, worn ground. If you look at its double, offset by a hand's breadth, you see the faint condensation of a breath that hung, then settled, then frosted onto the nearest surface within seconds.
+
+They are not hostile. They are not welcoming. The place does not want life. It wants stone and light and brief, intermittent water, and the marks left by hands. To live here is to agree to be a mark among marks, to be judged by light for a few minutes a day and the rest of the time to be patient, mineral, and precise.
+
+If you stay, you will understand without being told that you need to build too. Not large. Just something hand-sized, placed where the wind will test it, where the morning frost will find it, where the bright sun will strike it at noon and for a second make it flare. If you build it well, with three grooves to catch the double sun, with a hollow core and a cap that can ring, then when you come back to check it after the cloud has passed, you will find a bead of water you did not leave hanging bright as glass on its underside.
+
+And you will know someone — low, broad-chested, pale-eyed, moving slowly to save air — has paused there and breathed on it for you.

@@ -1,0 +1,31 @@
+You do not *find* the inhabitants of the Husk. You become aware of them as you become aware of the place itself—as another layer of its texture, another current in its dense, warm song. They are not separate from the walls; they are the walls’ purposeful motion, their metabolism made manifest.
+
+**The Matrix & The Microbe:**
+Before the animal, there is the substrate’s own life. The Husk-stuff is a slow, geological flesh. Its fungal veins are its nerves, its mineral leaching its digestion. The "prime dust" of the Shed is its shed skin, and the Moss-kin are its grooming mites, intelligent and aware. In the deepest sense, *the Husk is the primary inhabitant*. It is a single, sprawling organism, and the fauna are its specialized, mobile cells.
+
+**The Moss-kin: The Husks’ Hands:**
+They are not merely *in* the Husk; they are of it. Their fur is the color of damp slate and grey moss, patterned with streaks of prime dust. Their eyes are large, liquid-dark, and adapted to the perpetual twilight, seeing in the gradients where you see none. Their small, deft hands—more paw than hand—are constantly in motion: testing a wall’s resilience with a twitch of their whiskers, scraping lichen with a splinter of bone, weaving their shed fur into a basket.
+
+Their civilization has no words for "architecture" or "nature." A chamber is a "thick place" or a "thin place." A tunnel is "the way the wall gives." Their technology is not about building, but about *persuasion*: using a sharpened bone to nick a channel and guide a slower drip of water; applying a paste of prime dust and glue to accelerate a crack’s sealing; arranging smooth-worn flagstones to create a better resonating surface for their communal chirring. They are the maintainers of the balance, their entire culture a set of practices to keep the Husk’s slow metabolism from stuttering or running wild. They do not live *in* the honeycomb—they *are* the honeycomb’s conscious activity.
+
+**The Skirters: The Husks’ Teeth:**
+Silent, six-legged, and low to the ground, they are the Husk’s predatory punctuation. Their chitinous shells are the color of deep shadow, their movement a gliding, relentless scrape. They do not hunt with speed, but with patient, geometric patience, feeling the vibrations of a thousand tiny heartbeats through the fibrous floor. To the Moss-kin, a Skirter is not a monster, but a fact—like a crack or a wet patch. It is a force that must be accounted for, a pressure that shapes the tunnels’ paths. Some Moss-kin even seem to regard them with a kind of reverence, as necessary purifiers who cull the frail and keep the population in tune with the Husk’s carrying capacity.
+
+**The Glimmers & The Mist-Dancers:**
+Above, in the damp air, life is lighter. The Glimmers aredrone-like, their dragonfly wings scattering the bioluminescence into fleeting rainbows. They are not so much animals as they are temporary vortices in the mist, born to prey on the Midges that dance in the humidity. Their life is brutally brief—a day, perhaps—and their death is a silent, sparkling fall into a moss patch, where they are immediately metabolized by the fungal networks. The Moss-kin sometimes catch them, not to eat, but to deliberate: a trapped Glimmer’s frantic light-pattern is read as a message from the upper reaches of the Husk, a snatch of some aerial dialect.
+
+**The Chorus:**
+The sound is not a *background* to their lives; it *is* their lives. The million-claw susurrus is the sound of maintenance. The pattering drip is the clock. The vocalizations—clicks, chirrs, coos—are not language as you know it. It is a layered, simultaneous commentary, a constant updating of the state of things: *“Here, the floor is softening.” “The east channel is dry.” “A Skirter passed, bearing left.” “The dust is good today.”* There is no silence, no private thought. To be alone is to be disconnected, which is a kind of death. Their consciousness is a distributed network, their individual identities porous, merging with the group’s awareness and the Husk’s own slow pulse.
+
+**The Rituals of Touch:**
+Their entire existence is a practice of tactile symbiosis. The *Cycle of Touch* is their hygiene and their religion. They press their bodies against the fibrous walls, coating themselves in the Husk’s mineral-rich dust and microbial film, which conditions their fur and reads their health. In the communal dust-baths, they roll together, a writhing, chattering mass, exchanging not just dirt but pheromones and vibration-memories. This is how they share information, bond, and remind their bodies that they are part of the larger, rubbing, breathing whole.
+
+**The Weirdness, Seen from Within:**
+For them, there is no weirdness. The seamless transition from floor to wall is simply *the way things are*. A larger aperture is a "wide way." A flooded basin is a "wet time." They perceive time in cycles: the thrum of the Wetting, the silent storm of the Shed, the seasonal shift in the Glimmer swarms. They do not conceptualize decay; they see only *change of state*. A cracked slab is not broken; it is *giving*, and they will patch it with dust-glue when the time is right. Their entire morality is alignment with the Husk’s slow, metabolic needs. To hoard, to dig a tunnel for private gain, to resist the Wetting—these are the only true sins, acts of separation that cause painful friction in the system.
+
+**What Emerges:**
+You do not see a society. You see a biological process that has achieved a state of reflective awareness. The Moss-kin are the Husk’s nascent consciousness, its way of tending itself. The Skirters are its immune response. The Glimmers are its sensory nerves, brushing against the outer air.
+
+The feeling is not of watching a village in a cave. It is of watching a single, vast, warm body think and breathe through a million participle limbs. The dampness is its sweat. The sound is its heartbeat and its digestion. The light is the slow glow of its thoughts. The erosion is its memory, being worn smooth by the million acts of living that are, themselves, the only reality there is.
+
+They are not inhabitants. They are the Husk’s **attention**. And the Husk, in turn, is not their home. It is their **body**, and they are its finally awakened, chattering, scratching, loving mind.

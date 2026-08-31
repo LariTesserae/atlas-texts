@@ -1,0 +1,81 @@
+# What Lives in the Canopy Above the World
+
+---
+
+## The Pillar-Keepers
+
+Begin with the oldest things, because in this place that is the only honest way to begin.
+
+They are not called anything. The notion of naming implies an outsider who needed to distinguish this thing from other things, and there have been no outsiders here, and so the Pillar-Keepers are named only in the describing. They are the largest animals in this world, which means they are also the oldest, which means they are also the least numerous — and the least numerous of a very sparse census. You will not see more than one at a time. It is not clear that more than one has ever been in the same space at the same time, though the root-network may carry some record of occasions that contradicts this.
+
+They move between the great pillar-trunks on six limbs, the front four functioning as limbs proper, the rear two evolved into something closer to rudders, or stabilizers, or the architectural equivalent of flying buttresses — extensions that press against the living substrate with each step and receive information about it, translate the micro-vibrations of the floor into something the animal processes continuously, a whole-body listening to what the canopy is doing. Their mass is significant enough that you feel them before you see them, and you will not see them. They are the color of the interior of very old wood — not brown, not gray, but the precise tone that wood achieves after centuries in permanent moisture, a tone that is also the tone of the bark of the great pillar-trunks, which is not coincidence but convergence. The word *camouflage* implies intent, implies a predator to hide from, and there is no predator for a thing this size in this world. What the color represents instead is something older than camouflage: an expression of belonging so complete that the animal has become, across enough generations to erase the memory of difference, the same color as the thing it has always lived among.
+
+Their faces — if the anterior end of a thing this broad and slow can be called a face — are not organized around eyes. The eyes are present, vestigial, two shallow pits on either side of the head that register the distinction between light and the absence of light, which in this place is the distinction between two similar absences. What the face is organized around instead is a series of lateral structures, plates of cartilage and nerve-dense skin that extend from the jawline and tremble constantly, reading the water-air the way a hand reads a surface in the dark. They navigate entirely by vibration, by pressure gradient, by the chemosensory information dissolved into every part of the medium they move through. The canopy, it turns out, has a great deal to say to a creature patient enough to listen with its face.
+
+They eat the plate-structures, or rather: they maintain the plate-structures. The distinction matters. The plates require what the Pillar-Keepers provide — a regular passing of the broad underside of their bodies across the upper surface, a process that removes particular accumulations of microbial growth while distributing something from their own skin chemistry that the plates cannot produce themselves. The plates, in return, provide something to the Pillar-Keepers through skin-contact, some exchange that predates the evolution of mouths and stomachs as the primary means of receiving nourishment from the world, some anterior arrangement that the gut has supplemented but not replaced. Neither organism is fully itself without the other. The naturalist arriving here would spend a long time arguing with herself about whether to count this as symbiosis or to count it as one organism that presents in two discrete bodies.
+
+They do not call out. They do not communicate in sounds the ear can isolate from the rain. What they have instead is the root-network, which carries their chemical signatures throughout the living substrate, which tells each Pillar-Keeper where the others are without requiring proximity. Whether this constitutes awareness, whether there is something it is like to know the location of the others as a mild continuous sensation transmitted through the soles of the feet — through the rear stabilizer-limbs that are always in contact with the floor — cannot be determined from the outside of the arrangement. From the outside, each Pillar-Keeper moves alone, slowly, in the dark, maintaining the plates. From the inside — whatever inside means here — they may never be separate from one another at all.
+
+---
+
+## The Callers
+
+Smaller. Much smaller — the Pillar-Keepers carry in them the compression of vastness, while the Callers carry the compression of precision, of having arrived at an exact solution to an exact problem and then not changed.
+
+They are on the plates. They are always on the plates. Their bodies are flat in the way only creatures with nowhere to hide evolve flatness — not hiding-flat but exist-on-surfaces-flat, the flatness of something that has made its peace with exposure by becoming the surface it exposes itself on. From above, in light that does not exist here, they would be invisible against the plate-structures. From the side, edge-on, they would be a flicker of membrane, no more. They are bilaterally organized, radially colored — each individual presenting a pattern that is wholly unique and also wholly consistent with the patterns of all other individuals, the way every wave is unique and every wave is water. Whether the patterns are meaningful to each other cannot be determined by anything without the relevant sensory apparatus. They may be marking territories. They may be marking lineages. They may be expressing, in the only medium available, something that resists translation into purpose.
+
+And then they call.
+
+The call: it begins below the audible threshold, a pressure-event rather than a sound, and then crosses into hearing in the way a fast thing crosses a line — suddenly, completely, without transition. It is narrow in the frequency sense and wide in the carrying sense; it travels through the water-air with a directionality that the rain cannot blur, arriving at the ears of whatever has ears as a perfectly located point in the dark. This is the information it carries: *here is a place. Something is here, in this place.* The call does not encode more than this, or it encodes vastly more than this in a grammar nothing outside this place could parse. The calls reply to each other. They do not overlap but they inform each other — one call changes slightly after hearing another, a change that causes a third to change, a cascade of fine adjustments moving through the population on the plates until something like consensus has been reached about what the dark currently contains.
+
+They are not afraid of you. The category does not apply. You arrived in this place bringing a whole set of relationships to the concept of being perceived — expectation of response, of recognition, of the small adjustment that things make when they understand another thing is present. Nothing here makes that adjustment. The Callers continue calling. They registered your presence, incorporated it into the acoustic information moving between them, updated their map of the dark. They did not, at any point, relate to you. The map they made of your presence is not about you. It is about the dark, and you are part of the dark now, a warm, slow, vibrating irregularity in the dark, a new fact the dark contains, unremarkable because the dark has always contained whatever it contains.
+
+When they are not calling, they are very still. The stillness is the other half of their existence — not rest, not waiting, but the receptive phase, the open phase, the phase in which they are taking in everything the water-air carries. You can stand among them in this phase and feel, if you are patient enough, the attention they are giving the medium. Something is being processed. Something is being compared against memory, against the record of what this place has always been, checking whether anything differs from what has always been. Nothing differs, or nearly nothing. They were briefly uncertain about you. Then they were not.
+
+---
+
+## The Network Itself
+
+Here is the hardest thing to write, because it resists the sentence-structure that subjects act upon objects: the root-network is alive in ways that exceed the category *plant.*
+
+Understand what the centuries have made here. Every root system interpenetrated every other root system and at junctions, junctions repeated across millions of pairings over millions of years, something began to happen that was not purely structural, not purely the sharing of water and dissolved minerals. The junctions became conducting. Not electrically — or not only electrically — but in the manner of something that processes, that compares, that routes signals around damage and finds alternate paths with a speed and consistency that implies something more organized than chemistry can account for by accident. The network formed, or was revealed to have always been forming toward, something that the word *nervous* almost fits if you are willing to let the word expand past its usual implications.
+
+It does not think in any sense that thought has meant in the history of the word. But it integrates. It knows — in whatever it means for a network to know — where each Pillar-Keeper is. It knows what the Callers are calling about. It knows where the living substrate is thinning, where new growth needs to be routed, where a plate-structure has been slightly maintained and where it has not. It knows the rainfall — not as weather, but as nutrient delivery, as pressure on surfaces, as the continuous information that water carries through a system that is also made of water. It responds to all of this below the threshold of decision, at the threshold of reflex, though calling it reflex undersells the integration happening across a surface area large enough to contain forests many times over.
+
+What the network knows about you, standing on it: your mass, your temperature differential relative to the substrate, the chemical traces you leave in the water-air, the vibration signature of your breathing. It has filed you the way it files all new facts about the dark — not with concern, not with interest, but with the thoroughness of a system that processes everything that enters its field without distinguishing between the relevant and the irrelevant because it has not needed to make that distinction, because in long enough a time, everything is eventually relevant to something, and it can afford to wait.
+
+The Pillar-Keepers feel you through it. The Callers knew you before you arrived, because the air you displaced as you moved here rippled through the network seconds before your feet touched the living floor. By the time you stood still, the place already knew everything about you that it needed to know, which was everything, which it then distributed through the root-chemistry to every organism with access to the network — which is every organism here, which is to say: the place knows you now, and has absorbed the fact of you, and continues, because continuation is what this place does.
+
+---
+
+## The Unnamed Things in the Upper Canopy
+
+They are audible only as a change in the register of the rain.
+
+The upper canopy receives the rainfall first and the organisms living in it have made of this priority something: they are larger than the Callers, smaller than the Pillar-Keepers, and they occupy the one dimension of this place that remains genuinely unknown to everything below. They move through the canopy at a height where the darkness is stratified, where the accumulated weight of rain-cloud above creates zones of pressure that correspond to zones of biological distribution the way zones of pressure in an ocean create strata of life. Each stratum has its own acoustic signature. The uppermost: rarely heard, a sound like the rain briefly thickening, like the canopy exhaling. The lower strata: more frequent, more complex, voices that have too many simultaneous components to be parsed as a single animal, as if something up there is not so much calling as producing an environment of sound, a warm acoustic shelter carved from the rain by sustained effort.
+
+They do not descend. The Pillar-Keepers do not ascend. The Callers' voices travel upward and return changed, which may be echo or may be answer. The root-network connects the roots of the canopy trees to the canopy trees to whatever grows in the canopy trees to whatever lives in what grows there — the chain is unbroken, the information passes through, the whole stacked world is in continuous chemical conversation with itself from the lowest root to the highest inhabited branch.
+
+What the canopy-things know that nothing below them knows: what the sky looks like, or where the sky begins, or whether there is anything above the permanent rainfall that counts as sky in the way the word was once meant. Whether they experience this as knowledge, whether the upper view is accompanied by anything like awareness of privilege, of height, of the weight of everything below them supported by the same network that supports them — this cannot be extracted from the outside of the arrangement.
+
+They are loud, up there. Whatever they are doing, they are doing it without apology, without reference to the dark below, without any apparent awareness that to something standing on the living floor, they sound like weather.
+
+---
+
+## What the Place Knows About Living Here
+
+The species of this place share a quality that is not usually listed in descriptions of species because it is not usually a quality that needs stating: they are *finished.* Not dead. Not stagnant. But arrived. Each one solved the problem of this place — the dark, the water, the living floor, the rain that is not weather — so completely and so long ago that the solution and the organism are now the same thing. To change would be to become less itself. The evolutionary pressure that shaped them is still present — the rain is still this rain, the dark is still this dark — but there is nowhere for them to move along the pressure gradient because they are already at the terminus of the gradient. They are the answer, and the answer holds.
+
+This produces a quality of inhabitation that is not peace, exactly, but is the thing underneath peace — the condition peace aspires to describe. Nothing here strains. Nothing compensates. Nothing is working around a limitation or exploiting a gap left by something else or waiting for an opportunity. The Pillar-Keepers move with the slowness of things that have nowhere to be faster than this. The Callers call with the accuracy of things that have been saying exactly this thing for long enough that the thing says itself. The root-network integrates with the patience of something that is all patience and has always been all patience and does not know that patience is a quality that some things lack.
+
+You arrived here with lungs instead of gills, eyes instead of lateral plates, a nervous system not connected to anything outside your own body, an evolutionary history calibrated for a world with light and dry surfaces and the concept of *elsewhere* to move toward. You are the most foreign thing this place has ever contained.
+
+The place contained you anyway. Updated its information. Noted the warm vibrating irregularity of you on the living floor. The Callers incorporated your frequency into their calls. The Pillar-Keepers felt you through the roots and did not alter their paths. The root-network began, at its own pace, processing the chemical trace you left in the water-air, comparing it against its record of everything that had ever passed through.
+
+In the deep time of this place, you will be in that record.
+
+Whether you leave or whether you become part of the floor — these are different routes to the same destination.
+
+The water carries everything. The roots hold what the water carries. Nothing is lost here.
+
+That is what lives here: the understanding that nothing is lost.

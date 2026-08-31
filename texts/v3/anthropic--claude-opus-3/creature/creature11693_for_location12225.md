@@ -1,0 +1,13 @@
+In this lush, mist-shrouded garden city, a quiet and reclusive people dwell in harmonious symbiosis with the dense vegetation that envelops their home. Known as the Verdant Ones, they are a slender, willowy folk with skin in shades of pale green and hair like wisps of moss or trailing vines. 
+
+The Verdant Ones move through their city with a slow, almost meditative grace, each step carefully placed to avoid disturbing the delicate balance of plant life. They spend their days tending the gardens that are both their livelihood and their purpose, coaxing forth vibrant fruits and vegetables from every inch of arable space. With great patience and skill, they shape the living wood and vines into intricate dwellings and walkways, never taking more than the plants can readily give.
+
+In manner, the Verdant Ones are reserved and soft-spoken, with voices that blend into the whispering of leaves and dripping of water. They communicate as much through gesture and expression as through words. Their eyes - deep brown or mossy green - hold a tranquil wisdom born of long attunement to natural cycles.
+
+The Verdant Ones live by an ethic of stewardship and minimal consumption. They gather fallen wood for small cook fires, collect rainwater and dew for drinking, and use every part of the plants they harvest, returning what they cannot use to nourish the soil. Their culture revolves around rituals of planting and gathering, seeking to maintain the lush abundance of their valley.
+
+Though their existence may seem simple, the Verdant Ones harbor deep knowledge of the medicinal and spiritual properties of plants. Certain members serve as healers and visionaries, crafting tinctures and teas to mend body and mind. In the bioluminescent glow of secluded groves, they commune with the spirits of the valley's ancient trees and pools, seeking guidance and insight.
+
+Over generations, the Verdant Ones have grown so attuned to their environment that they can sense subtle changes in humidity, temperature, and the health of the vegetation. They adjust their practices and movements through the city accordingly, always striving to maintain equilibrium. Even their reproduction is tied to the cycles of certain plants, keeping their population stable.
+
+To outsiders, the Verdant Ones can seem almost a part of the landscape, their camouflaged clothing and verdant skin blending into the greenery. Some say they have the ability to vanish into the foliage at will. Whether this is truth or legend, they are a people profoundly shaped by and intertwined with their lush and misty domain, living expressions of its primordial essence.

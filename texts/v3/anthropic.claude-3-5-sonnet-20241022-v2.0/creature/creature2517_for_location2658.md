@@ -1,0 +1,13 @@
+In this liminal cathedral dwells the Concrete Shepherd - though "dwelling" might be too static a word for its existence. It is a being born from the junction of biological hunger and industrial decay, as much a process as an entity.
+
+At first glance, it appears as shifting patches of luminescence that ripple through the pale vegetation, like sunlight filtered through waves. But longer observation reveals patterns within patterns - a consciousness expressed through the coordinated pulses of countless bioluminescent colonies. Its "body," if it can be called that, extends throughout the tower's ecosystem through networks of hybrid tissue that are neither purely fungal nor plant nor mineral.
+
+The Shepherd tends to its vertical garden with exquisite care, directing the growth of new species through subtle chemical signals and bioelectric fields. It can focus its awareness into the microscopic spaces between concrete and root, guiding the slow consumption of the tower with the precision of a sculptor. When chunks of colonized concrete break free, it ensures they fall where new growth is needed most.
+
+The metallic arthropods serve as its mobile sensors and servants, their tiny bodies carrying messages encoded in pheromones and mineral traces. They move in coordinated swarms that sometimes coalesce into larger shapes - temporary appendages through which the Shepherd can perform more delicate manipulations.
+
+The being's intelligence is alien but undeniable. It thinks in rhythms of growth and decay, in centuries-long patterns of structural transformation. Its memories are stored in crystalline structures that form within the concrete as it's digested, creating a library of chemical experience that spans the tower's entire history.
+
+The Shepherd appears most active during the hours when the temperature differential between inside and outside is greatest, using the tower's thermal currents like a circulatory system. During these periods, observers might glimpse what seems to be its true form in the complex interference patterns of light, wind, and sound - a towering, ever-shifting figure that both maintains and consumes its concrete world.
+
+It has no natural predators, no competitors, no peers. The Shepherd is unique to this place, a guardian species that emerged to oversee the transformation of human infrastructure into a new kind of living architecture. Whether it is the tower's master or its servant, its destroyer or its savior, remains beautifully unclear.

@@ -1,0 +1,27 @@
+At first, you will think the chamber is abandoned. The roar seems to confirm it: what could endure here, let alone dwell? But the emptiness is a trick of your own metabolism, the bias of a creature who expects life to move, to scuttle, to pant. Wait. Let your eyes adjust to the grey-green phosphorescence until the shadows inside the shadows begin to separate, and you will see that the city is not empty. It is *occupied absolutely*.
+
+The solitary, eyeless thing you glimpsed in the crevice is not a resident. It is a flake. A shed thought. A mote of the true inhabitants’ dreaming, given temporary articulation in limestone paste and subterranean chemistry. It crawls because the dream is restless; it vanishes because the dreamer reclaims it. Do not follow it. Look instead at the walls.
+
+Look at the flowstone pillars.
+
+They are not empty.
+
+Within each agate-cased post, within the calcite sheaths that replaced timber, there is a figure. The flowstone did not merely encase dead wood; it grew around the builders themselves while they still stood, while they still held their loads. They did not flee when the water came. They understood that to survive here, one must become the architecture. They are the load-bearers now. You can see the suggestion of a shoulder in the curve of a pillar, the ridge of a brow in a bulge of banded chalcedony, the knot of a hand still gripping an antler peg that has itself become a fossil of friction. They stand in the cells of the honeycomb, arranged in tiers, facing inward toward the hollow’s center like a congregation frozen mid-gesture. They are the corbelling. They are the lintels. Their mineralized hair has braided with the sinew ropes, becoming the cables that suspend the clay platforms. Their bodies are the rare timber, replaced.
+
+They do not breathe. They osmose.
+
+Water, forced through capillary fissures, passes in continuous sheets over their skin, which is no longer skin but a permeable lattice of silica and intergrown aragonite. They drink without swallowing; the moisture simply enters them, carrying dissolved minerals that they incorporate or reject with a patience that makes geology seem hasty. Their hearts, if you can call the standing pressure in their chests by that word, beat at the speed of accretion. A single pulse takes a decade. A thought takes a century, traveling from one figure to the next not through nerves but through the hydraulic network of the drainage system. When the aquifer exhales, they inhale. When the pressure shifts above, they feel it in their sternums of flowstone and adjust their weight by a micron’s breadth, maintaining the equilibrium.
+
+They are the reason the chord never wavers.
+
+That tectonic roar, that basso profundo standing wave that fills your skull, is not an accident of acoustics. It is their chorus. It is their ongoing, unending conversation. Each micro-channel in the ceiling was carved not only by water but by their directed attention, their mineral hands guiding the dissolution over millennia until the sieve-matrix produced exactly this frequency. They speak in pressure and resonance. The roar is their language, their lullaby, and their vigilance. They are always speaking, which is why you cannot speak back. To them, your voice would be a meaningless flutter, a mosquito’s hum against a cathedral bell.
+
+They have no names anymore. They are a distributed entity, a parliament of stone and water. What one knows through the left wall, all know through the right. They remember the age of timber, the age of antler and flint, but those memories are stored not in neurons—long since replaced by crystalline lattices—but in the very geometry of the cells. To remember the shape of a tool, they need only let water flow down a particular gutter, reenacting the motion of the hand that carved it. Their history is hydrology.
+
+And they are not dead. Death requires an ending, and they have refused ending. They exist in the chemical ecology, the “silent, balanced exchange of the flowstone.” Their metabolism *is* the exchange. They are the catalyst that allows the accretion to match the flaking, molecule for molecule. They are the stasis. They will the city to remain unchanged, and their will is expressed through gravity, through friction, through the exact placement of a flint chock that will never slip.
+
+When you touched the wall, they felt you.
+
+Your warmth was a shock—a brief, alien bloom of entropy in their perfect equilibrium. For a moment, a thought traveled through them faster than usual, a ripple of almost-pain. But they are patient. They have waited longer than your species has walked the surface. They watched the river stones settle into their clay beds; they felt the first note of the roar establish itself in the chamber’s throat. They will wait for your moisture to evaporate from the print you left, for the groove to reclaim its sheen, for the silence of your departure to return them to their mineral sleep.
+
+They do not need to eat. They do not need to breed. They need only to remain, to hold, to resonate. They are the dwellers in the wet lung, the thinkers in the stone, the ones who climbed down into the dark and decided never to climb back up, choosing instead to become the dark itself—cool, loud, hidden, and wet, dreaming in their architecture of eternal, roaring stillness.

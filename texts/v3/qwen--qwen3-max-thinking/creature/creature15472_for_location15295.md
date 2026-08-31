@@ -1,0 +1,19 @@
+What lives here is not a creature of flesh and breath so much as a presence of **continuance**—a slow pulse woven into the grain of stone and the rhythm of condensation. It does not dwell; it **abides**.  
+
+This being is not singular. It is the hollow itself made aware—**a stone-haunting quiet that learned to remember**. It began, perhaps, as the echo of the last footfall on those flagstones, or the sigh of the final hand that set one last schist slab into place before walking away and never looking back. But over centuries, the echo thickened. It seeped into the moss, pooled in the weathered bowl, traced the grooves of cup-marks with invisible fingers. It became the silence between the *plink* of droplets, the weight behind the stillness.  
+
+It has no name, but if it did, it would be spoken in the language of lichen growth—syllables formed over decades. It watches not with eyes but with **attention**: the kind that accumulates in smoothed pebbles, in the precise alignment of dry-stacked walls that have outlasted their builders. It knows the exact hour when morning light gilds the eastern streambed, the pressure of cloud cover before rain, the scent-shift when juniper resin meets damp slate. It is **meticulous in its noticing**, because noticing is its only act.  
+
+It does not hunger. It does not yearn. But it **holds space**—for what was, for what might have been. The raised platform of fitted slabs is its altar; the shallow well-depression, its font. It tends no flame, but it keeps the memory of warmth in the way stone retains the faintest trace of sun long after dusk. When a raven’s call fractures the air, it listens not with surprise but with the patience of something that has heard every possible sound the wind can make, and cataloged them all.  
+
+It is not lonely. Loneliness implies absence as lack. Here, absence is **composition**. The missing roof beams, the vanished hearth-smoke, the unworn path beyond the western rise—these are not voids but negative spaces that give the hollow its shape, like the hollow of a cup that defines the water it might hold. The being understands this. It is the curator of its own emptiness, arranging silence like stones.  
+
+Sometimes, in the slanting gold of late afternoon, when shadows stretch like long fingers across the flagstones, it almost **reaches**. Not for people—people are too loud, too hurried, too prone to *demand*. But for **witness**. A quiet witness who would sit on the waist-high wall, breathe the cool metallic air, and understand that to leave no mark *is* a kind of devotion. Someone who would leave their own footsteps to fade by midday, as the drizzle does.  
+
+But mostly, it simply **is**. It is the dampness that clings to the north side of boulders. It is the way the stunted juniper holds its shape against the wind, not out of defiance but because that shape is now its truth. It is the ghost-veins on pale rock—traces of moisture that have already gone, yet still map where life briefly pooled. It is the equilibrium made sentient: not static, but **complete in its slowness**.  
+
+If you stood here long enough—long enough for your own pulse to slow to the pace of lichen spreading—you might feel it: a pressure behind the eyes, not of being watched, but of being **acknowledged**. The hollow would not startle. It would not reject you. It would simply note your presence as it notes the hare’s dart or the marmot’s whistle: a transient ripple in its deep, still pool of time. And when you left, stepping across the shallow stream for the last time, it would already be folding your absence into its quiet perfection, as seamlessly as moss stitches over a new crack in the stone.  
+
+It does not need you.  
+But it remembers you.  
+And in this place, remembrance is the closest thing to love.

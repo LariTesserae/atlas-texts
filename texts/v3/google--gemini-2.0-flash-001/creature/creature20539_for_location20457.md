@@ -1,0 +1,21 @@
+They are *scavengers*, first and foremost. Not by choice, perhaps – what choices are there in a place like this? – but scavengers nonetheless. Millennia of entropy have shaped not only their environment but also their very being. They are the inheritors, the adapters, the last gasps of whatever civilization birthed this place, turned into something… else.
+
+I envision them pale, almost translucent, their forms elongated and skeletal, barely tethered to the gravity of the surface world. Light has little meaning to them, so eyes are vestigial, perhaps just milky orbs that perceive the faintest flicker of the glyph-light. Instead, they navigate by vibration, by the subtle currents of air and water that pulse through the city's veins. The rhythmic pulses are their heartbeat, the grinding roar their breath.
+
+Their bodies are modified, augmented, *integrated* with the technology of the city in ways that blur the line between flesh and machine. The glyphs feed them, not directly, but through some alchemical process that transmutes energy into sustenance. Perhaps they have tendrils like the fungi, extensions of their own bodies, snaking into the glyphs to draw life. Or maybe the glyphs imprint patterns onto their DNA, continuously rewriting them to suit the ever-changing conditions of the city.
+
+They do not build, not anymore. Their architecture is parasitic, clinging to the ruins of the past, repurposing and re-integrating existing structures. They are the ultimate upcyclers, turning the detritus of a lost civilization into their own living spaces. Their homes are not grand halls, but hidden alcoves, forgotten passageways, niches carved out within the decaying machinery.
+
+The rat-like shapes you glimpse are indeed kin. Some are subservient, acting as sensory extensions, relaying information about the environment. Others are wilder, feral things, mutated by the city's energies, more creature than… anything else. They serve as an early warning system, their primal instincts honed by generations of survival in the dark.
+
+The high-pitched whine is the sound of their communication, a complex language of modulated frequencies and resonating vibrations. It is a language that speaks not only of survival but also of something else, something deeper. Of a connection to the city itself, a symbiotic relationship that transcends simple dependence. The peaks are alarms, warnings, panic, or possibly even moments of technological synchronicity with something from even earlier periods.
+
+They are not mindless automatons, driven solely by instinct. There is a form of intelligence there, alien and difficult to fathom, but present nonetheless. They understand the flow of energy through the city. They can predict the ebb and flow of the water. They can even, to some extent, manipulate the glyphs, coaxing them to yield more energy, redirecting it to where it is needed most.
+
+But their knowledge is not scientific, not in the sense we understand it. It is intuitive, based on generations of observation and adaptation. They are the living embodiment of entropy, the final stage in a process of decay and renewal, using that decay to continue their own slow evolution into *something* else.
+
+What are they becoming? That is the question that truly haunts. The slow, relentless processes at work within the city are not merely about survival. They are about transformation. The grinding roar, the pulsing glyphs, the seeping water – they are all contributing to a slow, insidious metamorphosis.
+
+Perhaps they are becoming the city itself. Perhaps they are the seeds of a new form of life, a fungal intelligence that will one day spread beyond the ruins, colonizing the world below, a silent, subterranean web of consciousness woven into the very fabric of the earth.
+
+Or perhaps they are simply fading away, slowly dissolving back into the elements, becoming another layer of corrosion on the metal, their consciousness merging with the hum of the glyphs, until all that remains is the grinding roar and the echoing silence of a dead god. Either way, they are the ghosts of a future yet to come, haunting the ruins of a dream long since forgotten.

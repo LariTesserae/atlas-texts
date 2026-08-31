@@ -1,0 +1,15 @@
+In the depths of this alien forest, a strange and wondrous form of life has evolved to thrive in the perpetual twilight. These beings are the Chlorovores, a species of sentient plant-creatures that have become the dominant inhabitants of this world.
+
+At first glance, the Chlorovores are difficult to distinguish from the surrounding vegetation. Their bodies are composed of a dense matrix of interwoven vines, leaves, and bark, forming a roughly humanoid shape that blends seamlessly into the forest. Their skin is a mottled green and brown, covered in a layer of moss and lichen that helps them absorb moisture and nutrients from the air.
+
+The Chlorovores move through the forest with a slow, deliberate grace, their root-like feet sinking into the spongy ground with each step. They communicate with each other through a complex language of chemical signals and bioluminescent flashes, their thoughts and emotions rippling through the interconnected web of the forest like waves on a pond.
+
+Despite their plant-like appearance, the Chlorovores possess a keen intelligence and a deep connection to the world around them. They are able to sense the subtle changes in the forest's ecosystem, reading the ebb and flow of nutrients and energy like a vast, living tapestry. They use this knowledge to nurture and maintain the delicate balance of the forest, pruning back overgrowth and encouraging new growth where needed.
+
+The Chlorovores have a complex society built around the cycles of the forest. They gather in large communal groves to exchange information and resources, their bodies merging together in a symbiotic embrace. They have no need for tools or technology, as their own bodies provide everything they need to survive and thrive.
+
+In times of stress or danger, the Chlorovores are able to merge their consciousness with the forest itself, becoming one with the vast network of roots and vines. In this state, they are virtually immortal, their minds preserved within the living memory of the planet. Only the most ancient and revered of the Chlorovores choose this path, becoming eternal guardians of the forest.
+
+To the Chlorovores, the remnants of the ancient civilization that once inhabited this world are little more than curiosities, artifacts of a bygone age. They have no need for the rusting machines or crumbling structures, and instead have woven them into the fabric of the forest, creating new and strange growth patterns around the decaying metal and concrete.
+
+As the Chlorovores continue to evolve and adapt to their world, they become ever more deeply entwined with the forest that sustains them. They are a manifestation of the raw power and potential of life in the universe, a reminder that even in the darkest and most inhospitable of places, the spark of consciousness can find a way to flourish.

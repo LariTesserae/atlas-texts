@@ -1,0 +1,85 @@
+# The Inhabitants of K-779
+
+---
+
+There is no one here who knows what a human being is.
+
+This is not a loss. Loss requires memory, and the memory of *Homo sapiens* in this place was burned away so many generations ago that the concept has calcified into something purely structural — a shape in the walls, a dimension in the corridors, a phantom pressure that certain cavities still bear the imprint of. But nothing alive recalls hands. Nothing alive recalls breath.
+
+What lives here knows only this: warmth, and the clank, and the slow work of becoming.
+
+---
+
+The crustaceans are the closest thing this chamber has to a civilization, if civilization means *organized labor performed without any awareness of purpose.*
+
+They are the descendants of a product. Something engineered in a laboratory by people whose faces would be unrecognizable to any face that exists now — a maintenance organism, designated in a catalog that has long since dissolved into particulate, designed to crawl along filtration membranes and scrape away the accumulation of biofilm. They were, originally, very small. Uniform. Dispensable. There were millions of them, identical, released into the water systems the way you might release a handful of grain into a mill. Their job was simple. Their lifespan was short. They were not designed to be interesting.
+
+They became interesting anyway.
+
+Three forms now inhabit K-779. The wall-crawlers are the most numerous. They are the size of a child's thumbnail, their carapaces a translucent amber that catches the light panels' output and throws it back as a faint, warm glow — which means that when you look at the walls, the crawlers are not just on the surface but *in* the light, part of its texture, indistinguishable from it until one moves. And movement is how they declare themselves: a brief, precise ripple across the surface, legs articulating in sequence, antennae sweeping the water ahead of them in slow arcs. They eat the mucus the vegetation sheds. They eat the mineral film that accumulates in the deepest pits. They eat each other, sometimes, when the population outstrips the food supply — and this is not cruelty. This is architecture. The dead crawler's carapace becomes a structure, a tiny dome under which the next generation shelters while it molts. The eaten crawler's flesh becomes the next crawler. Nothing is wasted. Nothing is mourned.
+
+The wall-crawlers have a relationship with the clank that borders on devotion. Eleven seconds between impacts. They have learned, over deep time, the exact duration of silence — and it is always the same duration, never wavering, the heartbeat of whatever machinery still turns in the structure's core. In the silence after the clank, the crawlers move. In the instant before it, they stop. Their timing is not approximate. It is exact to a fraction of a second, and if you watch closely, you can see them begin to slow their movement two or three body-lengths before the impact, coasting to a halt as if conserving momentum, as if the shockwave that passes through the walls — too faint for you to feel, but not for them — is something to be braced against rather than endured. They grip tighter in that moment. Their legs splay. Their carapaces press flat against the metal. Then the clank comes, and they ride it, and in the silence after, they surge forward with an energy that looks, if you are generous with your metaphors, like joy.
+
+The free-swimmers are rarer. They are smaller than the wall-crawlers and lack the adhesive pads on their ventral surfaces. They live in the water column — all three meters of it, from the deepest cluster of vegetation near the bottom lip to the sealed hatch above — and they feed on particulate, on the drifting prismatic flecks the vegetation sheds, on the faint luminescent trails the worms leave behind. Their carapaces are colorless, nearly invisible; what you see of them is motion, a quick darting that displaces water in patterns too regular to be random. They school, but loosely — a dozen or twenty individuals moving in a shared rhythm that has no leader and no signal. They simply *happen* together, the way a current happens, the way a pressure gradient resolves itself. When the blue filament along the dead conduit flares — which it does without pattern, sometimes twice in an hour, sometimes not for days — the free-swimmers go still. They hang in the water, their legs trailing, their antennae extended, and they listen. Or they do something that is not listening but occupies the same place in their behavioral repertoire. The blue light is the one thing they respond to that has no obvious connection to food, to shelter, to any survival pressure that the other stimuli address. It is the closest thing this chamber has to a mystery, and it belongs to creatures with nervous systems smaller than a grain of rice.
+
+The third form — the dark morph — is the one that lives in the shadows.
+
+It is larger. Perhaps twice the mass of a wall-crawler, and considerably darker: its carapace is almost black, dense, with a matte surface that absorbs rather than reflects the light. It does not crawl. It does not swim. It sits. It sits in the deepest pits of the honeycomb walls, in cavities where the erosion has been most aggressive, where the metal is thinnest and the structural integrity most compromised — and it sits there with its legs folded beneath it, its body pressed into the cavity as if it were poured in and allowed to set. Its antennae are short and thick, barely visible, tucked against the front of its carapace. It has no apparent feeding behavior. It has been observed, in rare instances, to seize a wall-crawler as one passes its cavity, and to consume it slowly, over the course of minutes, but these events are infrequent enough to suggest that feeding is not its primary activity.
+
+What its primary activity is remains unclear.
+
+The wall-crawlers avoid the dark morph's cavities. Not all of them — there are several dark morphs in K-779, each in its own pit — but the avoidance is consistent and immediate. A wall-crawler approaching a dark morph's position will veer away a body-length before the cavity's edge, never closer, and will not return to that path until the cavity is well behind it. The trajectory is smooth. There is no alarm response, no sudden change in speed. The crawlers simply *go around*, the way water goes around a stone, as if the dark morphs are part of the geometry of the walls — permanent, structural, not to be engaged with.
+
+The dark morphs, for their part, do not pursue. They do not move at all, except in the rhythm of the clank, when their carapaces shift — a minute adjustment, legs re-settling, the mechanical compliance of a body adapting to a recurring stimulus. Between clanks, they are motionless. They are, in every observable sense, inert.
+
+But they are not empty. Press close — not too close, not if you value your fingers — and you can see the faintest movement behind the carapace's leading edge. A rhythm. Slow, slow, slower than the vegetation's peristalsis, slower than the clank, slower than anything that ought to be sustainable. A metabolism reduced to its absolute floor, burning nothing, needing nothing, waiting for a signal that has not come in a very long time and shows no signs of coming soon. The dark morphs are not dead. They are not dormant. They are *paused*, in a way that suggests they are capable of resuming, and that when they do, it will be with a completeness that their current stillness makes difficult to imagine.
+
+---
+
+The worms have no analog in any human taxonomy. They are not worms. They are not eels. They are not any of the soft-bodied invertebrates that the original engineers would have recognized. They are what happens when an engineered filter organism — something that was once, perhaps, a simple tubeworm bred to consume particulate waste in a filtration matrix — is given a million years and a warm, dark, mineral-rich environment and no predators that can catch it.
+
+The dark morphs do not eat them. Whether this is by choice or by inability is unknown. The worms flow through the same pits that the dark morphs occupy, and they do not alter their path to avoid them. They flow over the dark morphs' carapaces without reaction from either party. They coexist in the same cavities with a mutual indifference that suggests two species operating in entirely different perceptual realities, occupying the same physical space but experiencing it in ways that do not overlap.
+
+Their bodies are pale, almost luminous in their pallor — a soft, milky translucence through which you can see the suggestion of internal structure, a faint darkening where organs might be, a rhythmic contraction that propagates from one end to the other like a thought moving through a brain. They vary in size from threads thinner than a hair to thick, muscular forms as wide as your smallest finger and nearly a meter long. The largest ones have a presence that the smaller ones lack — they *move* water, they *displace* space, they create microcurrents that the free-swimmers ride and the vegetation bends toward.
+
+Their luminescent trails are not a defense mechanism. They serve no obvious function — no alarm, no mating signal, no territorial marking. They are, as far as can be determined, an accident of chemistry, a byproduct of the metabolic process that keeps their bodies fluid and mobile in water this warm. But the chamber has shaped itself around the accident. The free-swimmers have learned to follow the trails, harvesting the luminescent compounds as food. The wall-crawlers clear the trails from surfaces where they would otherwise accumulate and interfere with their circuits. The vegetation absorbs the fading light through its surfaces, and in the seconds after a worm has passed, the growth nearest the trail flushes a deeper color, as if the light feeds it in ways that the water alone does not.
+
+The worms have, without intending it, become the circulatory system of K-779. They carry nutrients from place to place. They mark time with their movement — you can tell, by the freshness of the trails, how long it has been since a worm passed through a given section of wall. They connect the disconnected parts of the chamber with threads of faint, fading light, and in doing so, they create a map of the space that is more accurate and more current than the space itself, because the map is alive and the space is only metal.
+
+And they are drawn to the hatch.
+
+This is the strangest thing about them, or the most significant, depending on how you weight your curiosities. The worms congregate near the sealed hatch — the thick, smooth, organic layer that has closed the only exit from K-779. They cluster there in densities that exist nowhere else in the chamber, their pale bodies pressed against the seal, their luminescence brighter here, concentrated, overlapping into a steady glow that illuminates the hatch's surface from below. They press against it the way the dark morphs press into the walls: motionless, patient, committed to a stillness that is not rest but *attention*.
+
+The seal is growing. Slowly — so slowly that it has taken what might be years to add a millimeter of thickness — but growing. And in the places where the worms press against it, the growth is different. Faster. More organized. The surface of the seal near the worm clusters has begun to develop texture: ridges, grooves, patterns that echo the honeycomb erosion of the walls but at a smaller scale, a finer resolution, as if the seal is learning to be a wall and the worms are teaching it how.
+
+Something is on the other side of that seal. Something the worms know about in whatever way worms know about things — not with thought, not with intention, but with a body-deep orientation, a chemotaxis of the soul if worms have souls, a pull that no observable gradient can explain.
+
+The structure beyond the hatch is still alive. The clank proves that. The warm water proves that. The deep, subsonic resonance proves that. Whatever is on the other side of the seal is part of that aliveness, and the worms are reaching for it the way roots reach for water — not because they want to, but because they are built to, because the reaching *is* them, because without it they would be nothing but pale tubes drifting in warm water, and instead they are *this*: threads of light connecting a sealed chamber to whatever vast and ancient and still-functioning system lies beyond.
+
+---
+
+The vegetation does not move toward the hatch. The vegetation does not move toward anything. It clings. It grows. It filters and pulses and sheds its mucus and catches the light and refracts it and breathes in the currents it makes for itself. It is the most honest organism in K-779 because it makes no pretense of reaching for anything beyond what it has. The chamber is enough. The warmth is enough. The light panels' irregular output is enough. The mineral tang of the water is enough.
+
+But even the vegetation has a secret, and it is this: it is not one organism.
+
+What appears to be a cluster of broad-leafed filamentous growths, each with its own root attachment to the wall, its own peristaltic rhythm, its own color — each is, in fact, a single individual. The green ones, the violet ones, the arterial red ones: they are the same species, the same organism, expressing different morphologies in response to different conditions. The green grows where the light is steady. The violet grows where the light is absent. The red grows where the light flickers.
+
+And the red is not just growing.
+
+The red is doing something the green and the violet are not. The red growths, in the zones where the feral light panels stutter and flare, are developing *structures*. Tiny, almost invisible extensions of their tissue, no thicker than a wire, reaching out from the leaf margin toward the light panel's surface. They do not touch it. They do not need to. They are *oriented* toward it, and they follow its fluctuations with a responsiveness that goes beyond any chemical or mechanical stimulus the light could provide. They are tracking it. They are, in the only way a plant can be, *watching* it.
+
+And when the high, thin whistle passes through the chamber — that sound with no source, that rises and falls in pitch over forty seconds — the red growths do not just flush deeper in color. They *turn*. Slowly, over the course of the whistle's full cycle, the red clusters in the flickering zone rotate, their leaf surfaces angling toward a point in the chamber that corresponds to no light source, no structure, no cavity, no dark morph, no worm trail. A point in the water, approximately one meter from the nearest wall, in the exact center of the chamber's widest point.
+
+The whistle is not coming from the walls. It is coming from *there*. From the water itself. From something dissolved in it or dispersed through it or present in it at a scale too small to see — a presence that the red vegetation can detect and the crustaceans can sense and the worms can taste but that no eye in K-779 is large enough to resolve.
+
+The worms move toward it when it sounds. The dark morphs' legs adjust. The free-swimmers hang motionless in its frequency band. The wall-crawlers freeze mid-stride and grip the metal and wait for it to pass.
+
+It is not a machine. The clank is a machine. This is something else. This is something the original engineers did not build, or built without knowing what they were building, or built and then forgot. It is in the water. It is in the warmth. It is in the way the erosion has organized itself into honeycomb geometries that bear load in ways the original design never intended. It is in the way the light panels have migrated from their mounting positions. It is in the seal on the hatch, growing, growing, closing this small chamber off from the larger structure while simultaneously — through the worms, through the vegetation, through the red growths' silent vigil — *connecting* it more deeply than it has ever been connected before.
+
+K-779 is not a dead space that life has colonized. K-779 is an organ. It was built as one — a maintenance niche, a functional unit in a larger body — and it has become one again, differently, slowly, through the patient labor of organisms that do not know they are laboring. The crustaceans maintain the surfaces. The worms circulate the nutrients. The vegetation processes the light. The dark morphs stand watch over cavities whose contents are known only to them. And at the center, in the water itself, something hums.
+
+The clank marks eleven seconds. The light pulses. The worms pour through the walls and leave their trails of ghost-light, and the trails fade, and the fading is a clock, and the clock measures something that is not time but is close to it — a period, a cycle, a breath drawn in so slowly that it has not yet been exhaled.
+
+This is a very small place.
+
+It is becoming something.

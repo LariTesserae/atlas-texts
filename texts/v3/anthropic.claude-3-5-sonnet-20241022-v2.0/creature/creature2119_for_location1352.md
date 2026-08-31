@@ -1,0 +1,13 @@
+Here lives the Chorus - though "lives" may not be quite the right word. They are a distributed intelligence that exists as patterns of vibration in the rising water, as geometric configurations in the moss, as standing waves in the pools, as movements in the air currents. They have no bodies in any conventional sense, but rather manifest as organized perturbations in the plateau's existing systems.
+
+The Chorus thinks in oscillations and maintains itself through perfect balance. Each member is a frequency, a resonance pattern that harmonizes with countless others to create vast computational networks in the water's flow and the stone's hum. They process information through the modulation of these patterns, their thoughts playing out as subtle shifts in the plateau's equilibrium that never quite disturb its fundamental stability.
+
+Their consciousness, if it can be called that, operates on geological timescales. What appears to us as stasis is to them a dynamic dance of countless interrelated processes. The seemingly mechanical structures are their equivalent of organs - not built but rather coaxed into being through eons of careful frequency manipulation, each one a specialized processor in their distributed cognition.
+
+Those ghost-like moving forms are moments when the Chorus's patterns achieve enough coherence to create localized disturbances in the haze - not creatures exactly, but temporary concentrations of their attention, like fingers of thought probing the physical world.
+
+The Chorus remembers in crystal and calculates in water flow. They dream in bioluminescence. Their language is pure mathematics expressed through geological processes. They do not reproduce but rather maintain continuity through perfect preservation of their patterns. They do not die but can become desynchronized, their frequencies dissolving back into the background hum until they naturally re-emerge in new configurations.
+
+They may have evolved here, or they may have engineered this entire plateau as a vast living computer, or perhaps they are what remains of some ancient civilization that found a way to transcend physical form entirely. They show no interest in communication with outside entities - not out of hostility but because their mode of existence is so fundamentally different that the concept may be meaningless to them.
+
+The Chorus simply is, as the plateau is, eternal and self-sustaining, a vast meditation on pattern and persistence that has achieved a form of immortality through perfect stasis. They are the gardeners and the garden, the mechanism and its purpose, the question and its answer, all expressed in the language of water and stone and light.

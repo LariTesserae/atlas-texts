@@ -1,0 +1,23 @@
+The thing that lives here, primarily, is the cathedral itself.
+
+Not the building — there is no building anymore. The building is gone the way a husk is gone when the thing inside it has finished using it: absorbed, digested, incorporated, made part of a larger body. What stands in the bowl of the hills is a single living organism, continuous, two hundred years into its growth, with no name because the taxonomists who came for it ran out of roadmaps and specimen jars somewhere around the third generation of its expansion. They had named it one thing. By the time they came back it was another. By the time they came back again it had no analogue in any cabinet they owned.
+
+It is a plant the way a city is a building. It has circulation. It has rhythm. It has pulse. The rootplate, which has consumed the old mill floor and the cellars beneath it, is its chest cavity — the place where its working fluids collect and from which they are sent. The walls are its body. The vaulted ceiling is its skin, and its skin listens: every leaf is a tympanum, and the organism is constantly reorienting its surfaces to track the sun, producing that slow, papery, deck-of-cards shuffle that runs through the dome. It is not paying attention to you. It is paying attention to the light, and to the moisture in the air, and to the slow hydraulic balance of itself.
+
+Its breath comes out of the chimney. The brick smokestack it has not climbed — the brick holds — and the hollow goes all the way up, and out of the top of the stack, in cool weather, a thin, nearly transparent plume rises vertically and disperses at three hundred feet. The chimney is its nostril. The cathedral is its lung. The thousand small openings in the wall are its bronchioles: not holes but interruptions in the weave, each one a different diameter, each one exhaling a faintly sweet, mineral dampness that you can taste on the back of your teeth. The air inside the cathedral is not still. It is being drawn, continuously, toward the stack.
+
+The flywheel is its pacemaker. The great cast-iron flywheel of the mill's original steam engine stands upright in the lake, half-submerged, draped in a thick pelt of dark wet root, and the plant has begun, very slowly, to rotate it. It turns one full revolution every eleven minutes. You can hear it turning — a low, slow, metallic groan, like a ship in a calm sea — and the plant has incorporated its rhythm into its own hydraulic pulse, which you feel in the soles of your feet before you hear it. The lake is its blood, more or less: brown, iron-sweet, perpetually refilled by condensation, perpetually turning over, three inches deep, cupped and held in a basin the rootplate made for itself.
+
+It does not extend beyond the bowl of the hills. It could, presumably. It does not. It is using all of itself for what it is doing here, and what it is doing here is, as far as anyone can tell, the work of being one single body in one single place for as long as it can hold the shape. Beyond the rim the soil is just soil. The grass is just grass. The organism is not interested in the rest of the world. The rest of the world is not interested in it.
+
+It is old. It is patient. It is the oldest living thing for a mile in any direction, and the only vertical one, and it is completely uninterested in you. You may come and go. It will be here.
+
+Inside it, other things live.
+
+---
+
+The swifts, first, because they are the loudest.
+
+There are perhaps three hundred of them. They are forked — forked tails, forked voices — and pale-bellied, and they have the long curved wings of birds that have eaten only the small insects that live exclusively in this cathedral. They are not, technically, swifts. They are swifts the way the cathedral is a building: a working approximation, a name that fits well enough. They have been inside this organism so long that their lineage and the organism's lineage have negotiated a kind of truce, and the swifts are now what they have eaten, and what they have eaten is what the cathedral grows.
+
+They wheel in tight, looping circuits around the inside of the dome. They do not roost on the ceiling — the ceiling is listening, and would not tolerate it — but in the wall, in the cavities the plant has made for them or permitted, dark pockets in the weave, each one warmed by a small family. They shriek. The shrieks are the upper register of the place's sound: a high, bright, tearing note that runs in waves around the circumference as one group passes another.

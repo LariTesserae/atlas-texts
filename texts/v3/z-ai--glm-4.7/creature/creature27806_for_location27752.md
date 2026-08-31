@@ -1,0 +1,23 @@
+At first glance, the Green Foundry appears to be a place of absolute solitude, a grand mechanical mausoleum abandoned by all but the moss. But this is an illusion cast by the sheer volume of noise and the density of the gloom. Life is here, but it has learned to move only when the machinery allows it, and to look like nothing so much as the detritus of the factory itself.
+
+What lives here are the **Ferro-Lattice Tenders**.
+
+They are not animals in any conventional sense. They possess no fur, no feathers, and no eyes that reflect the light. They are entities of camouflage, evolved—or perhaps engineered—to be indistinguishable from the industrial forest they inhabit. To the unobservant traveler, a Tender is merely a stationary cluster of rusted pipes wrapped in kudzu, or a peculiar mossy boulder leaning against a silo.
+
+It is only when the great pistons shudder to a halt in their cycle—during that brief, suffocating pause between *thrum* and *thrum*—that they move.
+
+The anatomy of a Tenders is a chimera of iron and chlorophyll. Their internal structure is a skeleton of corroded rebar and old drive shafts, likely salvaged from the wreckage of the early days. But where bone would knit together, thick, ropey vines have grown, fusing the metal into a flexible, articulated carapace. Their "muscles" are bundles of lianas that contract with hydraulic power, pulling against the metal frame. They do not bleed; if cut, they weep a thick, viscous dark sap that smells of creosote and wet earth.
+
+They stand roughly the height of a man, though they are often hunched, elongated, and spindly to navigate the catwalks. Their limbs end in specialized digits: on the left hand, three fingers that resemble heavy iron pincers; on the right, a cluster of prehensile, sensitive fronds that can uncoil into the darkness.
+
+The Tenders are mute, for the roar of the foundry makes hearing useless. They communicate through a complex language of vibration. By scraping their iron claws against the brickwork or tapping on the hollow pipes, they send signals through the very bones of the building. To a human observer, the deep *clack* or *shudder* in the floorboards is just the settling of the old factory. To the Tenders, it is a warning that a pressure valve is failing, or that a patch of roof requires patching with new woven leaves.
+
+They are the custodians of the equilibrium mentioned in the air. They do not just live in the Green Foundry; they operate it. You can spot them high in the rafters, clinging to the underside of a massive, turning flywheel. As the wheel spins, a Tender scuttles along it with terrifying speed, using its iron pincers to scrape away the choking algae that threatens to throw the machine off-balance, while its frond-hand smears a fresh layer of lubricating grease derived from crushed seed-pods into the axle.
+
+They are obsessive about the water. When a steam vent begins to hiss with a pitch that suggests a blockage, a Tenders will descend from the canopy, tearing away the overgrowth to clear the nozzle. They seem to understand that the steam is the breath of the world, and the water is its blood. They can be seen standing waist-deep in the marshy loam, motionless for hours, acting as living filters, allowing the iron-rich water to pass through their root-like feet before returning it, purified, to the system.
+
+There is no aggression in them, only a profound, industrial indifference. If you were to stand still, a Tender might walk right over you, mistaking your boots for part of the terrain. They are solitary creatures, each maintaining a specific sector of the foundry—a particular boiler, a length of pipe, a roof gutter. Yet, their work is perfectly synchronized. When the sun sets and the emerald gloom turns to black, the Tenders all stop simultaneously, retreating into the hollow cavities of the brick silos to coil up and sleep, dreaming in the vibrations of the cooling metal.
+
+Deep within the darkest silos, where the machinery is oldest, there are hints of something larger. The "Grandmothers," perhaps—immobile, tree-sized masses of iron and bark that have fused permanently with the main generators. Their root systems penetrate deep into the water table, and from their bark, new Tenders are occasionally "harvested"—small, pale, twitching bundles of vines clinging to the rust, ready to be trained to work the gears.
+
+These are the ghosts of the Green Foundry, not spirits of the dead, but spirits of the re-purposed. They are the forest that has learned to hold a wrench, the machine that has learned to photosynthesize. They are the guardians of the warm, wet dark, ensuring that the heavy breathing of the foundry never ceases.

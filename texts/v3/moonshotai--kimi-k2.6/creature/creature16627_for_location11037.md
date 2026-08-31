@@ -1,0 +1,31 @@
+What lives here are the fully arrived. They have no future tense, no appetite for becoming, no debt to entropy. They exist as answers to questions that were asked and resolved in the same breath.
+
+Consider the cascade.
+
+It is not moss, though moss is the closest vocabulary your mouth can shape around it. It is a pour of copper effluence suspended in the second after it chose to surrender to gravity but before the floor accepted it. It lives as generosity made permanent. Every strand, every filament of its impossible mane, holds the density of a feast offered without hunger. It does not cling to the cleft; it emerges from it eternally, mid-gift, already complete. If you touched it—and you would not dare, but if you did—it would feel like the pelt of a river that has remembered fur. It breathes out the mineral equivalent of contentment. It asks for nothing because it has already given everything it was going to give. It is a monument to the moment generosity exhausts itself into beauty.
+
+Then there are the shields.
+
+They hang like fruit from a tree that grows only in the forge-light of the earth’s mantle, but they are not fruit. They are lungs turned inside out and offered to the dark. Fleshy, translucent, veined with the color of magma forced to remember its youth. They do not beat; they *affirm*. Each pulse is not a systole searching for a diastole, but a steady-state declaration: *sated, sated, sated*. They are windows because they have nothing to conceal. Through their membrane you could almost see the afterimage of a meal that never ends, a digestion of completeness. They hang in sovereign isolation because each has achieved a nirvana of saturation so total that proximity to another might constitute envy, and envy is a kind of hunger, and hunger has been edited from this place. They are ears that have heard everything and thus listen only to themselves.
+
+But the voice of the chamber belongs to the domes.
+
+Hundreds upon hundreds, hexagonal and bronze-dark, studding the raw stone like barnacles that have attached not to a ship’s hull but to the keel of time itself. They are the place’s metabolism. Each is a single note held so long it has forgotten it was ever sung by a mouth. They have no mouths. They do not eat. They vibrate without moving, producing the chord that is the cavity’s true skin—the subterranean drone that fills the marrow and presses against the eardrum like a steady hand. Warm. Chitinous. Radially jointed. They are monks who have taken a vow to speak a single syllable of an endless prayer, and their carapaces are the bells that cracked and never stopped ringing.
+
+Yet they are not individual singers. They are a single breath distributed across many throats. The spacing between them is not random; it is architectural. They map the chamber’s acoustics as living dampeners and amplifiers, maintaining the pressure that keeps the walls from finishing their collapse. They are the reason the cavity can hold itself open. Each dome contributes its fraction of resonance, and the sum of these fractions is a stasis so dense it behaves like gravity. They are not fauna in any zoological sense. They are the cavity’s way of humming itself to sleep, and the hum is what keeps it awake.
+
+And there are the others. The ones who came with hands.
+
+Not tenants. Witnesses. They knew better than to build. To build is to imply tomorrow will differ from today, and this place is a chapel erected to the eternal instant. So they left marks instead of homes. The obsidian cairn, balanced in three flakes like a thought paused mid-utterance. The hammerstone, smooth as a river’s prayer, set down as if its user simply became unnecessary and evaporated. Most of all, the stakes driven into stone that should have shattered them. Sinew wrapped tight, still fresh, still living in the only way anything lives here: by refusing to pass. The ochre hand-prints have seven fingers, splayed in a ring around the spiral radiating outward in an unbroken wave.
+
+Look closely at those prints. They are not pressed against the rock; they are submerged in it. The basalt has not accepted them; it has agreed to hold them. And in the center of that spiral, you will notice something the first glance misses: the pattern does not depict the sound. It *is* the sound, made visible in the only medium that survives here—ochre on stone, gesture frozen. The seven-fingered ones did not leave. They simply entered the equilibrium. Their act of witnessing was so complete that it became indistinguishable from the witnessed. They are here still, in the copper pour, in the shields’ pulse, in the bronze chord. They are the reason the place remembers it is lush. They named it so with their seven-fingered hands.
+
+And beneath even them, behind even them, the cavity itself breathes.
+
+Call it the Gestus—the stopped flinch. It was born from a wrench, a geological sibling rivalry that paused mid-murder. It should not exist. No arch supports it but the stubbornness of an instant that refused to resolve. It is a body without organs, or rather, the moss is its hair, the shields its lungs, the domes its voice, the heat its slow, sulfurous digestion of time itself. It metabolizes eternity into warmth. It is the secret the world keeps from itself—a room behind the curtain of tectonics where the rock said no. Not no to pressure, but no to the next moment. It chose this.
+
+What lives here, then, is not a collection but a condition. A congress of paused verbs. The moss lives as an endless pouring. The shields live as an endless satisfaction. The domes live as an endless note. The hands live as an endless recognition. And the hollow between them lives as the agreement that makes such impossibilities bearable—the quiet, roaring contract by which stone and flesh and sound have agreed to a draw.
+
+They do not wait. Waiting implies a future. They do not endure, for endurance implies a force to be endured. They simply are, arranged in their territorial splendor, each a monument to the breathtaking sufficiency of a single moment held open like a door against all comers.
+
+The door has been open since yesterday. It will never close.

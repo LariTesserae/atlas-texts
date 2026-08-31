@@ -1,0 +1,15 @@
+In the vast, cool depths of the ocean, a remarkable civilization thrives beneath the waves. Here, the gentle giants of the sea make their home among the swaying kelp forests and vibrant coral gardens.
+
+At the center of this undersea metropolis dwell the Mer, an ancient race of beings who have adapted completely to the aquatic realm. With upper bodies resembling humanoids and powerful tails in place of legs, the Mer navigate the currents with ease, their sleek forms cutting through the water with dolphin-like grace.
+
+The Mer society is an advanced one, having developed sophisticated technologies and a rich culture over countless generations spent beneath the waves. Their dwellings are crafted from materials found on the ocean floor – sturdy stone foundations reinforced with naturally occurring metals, and intricately woven kelp thatching providing shelter from the gentle currents.
+
+Within these undersea villages, the daily routines of the Mer play out. Skilled artisans craft exquisite jewelry and tools from delicately carved shells, coral, and sea-glass. Scholars pore over ancient tomes of knowledge, their pages made from the fibrous tissues of giant kelp plants. Mer bards recount the epics and legends of their people through haunting songs that seem to carry through the water itself.
+
+While the Mer have evolved to breathe water as effortlessly as air, they still maintain connections to the surface world. A few daring individuals serve as ambassadors, venturing into the shallows to trade wares and knowledge with select humans societies. Occasionally, a fortunate few surface dwellers are permitted to visit the Mer cities in return, but such occurrences are rare – the Mer remain largely reclusive, protective of their undersea sanctuaries.
+
+Beyond the Mer villages, the ocean depths teem with life in an astonishing variety of forms. Massive whale sharks, placid giants of the deep, cruise sedately through the kelp forests. Sinuous sea serpents, the stuff of sailors' legends, coil among the rocky outcroppings. Strange, bioluminescent creatures drift like ghostly apparitions, providing an ethereal glow to light the inky depths.
+
+The Mer revere all the creatures of the ocean as sacred kin, and serve as steadfast guardians of this realm. With the ancient wisdom imparted by the very currents themselves, they maintain a harmonious balance, allowing the natural cycles of ocean life to persist undisturbed.
+
+As the sun's fading rays filter down through the water's surface, the Mer cities seem to awaken with a soft radiance, their dwellings aglow with the gentle illumination of bioluminescent flora. In this ethereal underwater world, an ancient civilization endures, its mysteries waiting to be unveiled to any who possess the fortitude to embrace the ocean's cool embrace.

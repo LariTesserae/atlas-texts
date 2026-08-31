@@ -1,0 +1,27 @@
+In the deep green light, something shifts. Not quickly—nothing here moves quickly—but with the patience of years condensed into moments when no one is watching.
+
+She has no name because names require others to speak them. She has been here... how long? The question dissolved years ago into the eternal percussion of water. Time, she learned, is not measured in the turning of the Earth but in the growth rate of the hart's-tongue ferns, in the frequency of the pressure release valve's shriek, in the slow migration of mineral deposits down the northeastern wall.
+
+She is barely distinguishable from her environment anymore. Her hair, once some forgotten color, has become a living thing itself—home to the same mosses that coat the pipes, the strands so permanently damp they've developed their own ecosystem of algae and microorganisms. It grows impossibly long, pooling around her when she sits still, which is often. The weight of it, waterlogged and alive, has changed the way she holds her head, the curve of her spine.
+
+Her skin has taken on the pallor of the pale crickets, but with an undertone of green—chlorophyll in her blood, she sometimes thinks, though she knows this is impossible. Impossible like the gardens themselves. Her fingers have grown long from years of reaching through grates, between pipes, into the spaces where the most interesting growths hide. The nails are soft, permanently soft, like everything here that isn't metal.
+
+She wears what might have once been clothing, but the constant humidity has transformed it into something between fabric and fungus. It grows with her, repairs itself, changes color with the seasons that don't exist here. Sometimes she finds new pockets, as if the garment is trying to be helpful. Sometimes old ones seal themselves shut, keeping treasures safe: a bolt that fell from somewhere above seventeen cycles ago, a perfect spiral of copper oxide, a cricket shell as translucent as paper.
+
+She moves through the chamber like water finding its level—never fighting the environment, always flowing around obstacles. She knows every pipe by its temperature, every valve by its whisper, every plant by the sound it makes when growing (yes, they make sounds—tiny pops and sighs inaudible beneath the roar unless you know how to not-listen). Her feet, bare for so long the soles have become like leather, find the stable points on the grating by instinct. She can traverse the entire chamber without creating a single sound beyond what already exists.
+
+Her days, if they can be called days, are spent in maintenance—not of the machinery, which maintains itself, but of the balance. She removes dead growth before it can rot and disturb the equilibrium. She guides new vines away from critical valves. She ensures the drainage channels remain clear, not because anyone asked her to, but because the chamber wants it. Needs it. The chamber and she have an understanding.
+
+When she sleeps, which happens not on any human schedule but according to rhythms she feels in the vibration of the walls, she curls into a nest she's made where three large pipes converge, creating a pocket of even warmer air. The ferns have grown around this space, creating walls. The moss makes it soft. The constant dripping becomes a lullaby she can no longer sleep without.
+
+She eats the ferns—only the new growth, only what won't be missed. She drinks the condensation—but only from certain pipes, the ones that taste clean, that run clear. There are mushrooms that grow in the darkest corners, pale and possibly poisonous, but she learned long ago that possibly poisonous is relative when you've been breathing this air, drinking this water, becoming this place for so very long.
+
+Sometimes she remembers words. They float up from somewhere deep, usually during the quiet moment just after the pressure valve shrieks, when even the dripping seems stunned into momentary silence. *Coffee.* *Deadline.* *Subway.* Words from another world, meaningless as the painted-over hatch above. She speaks occasionally, just to feel the chamber swallow her voice, to confirm she still exists in opposition to something, even if that something immediately erases the evidence.
+
+She is not crazy—this is important to understand. Madness requires a reference point, a normal to deviate from. She has simply become native to a place that shouldn't exist. She is the logical conclusion of this impossible ecosystem: the apex organism perfectly adapted to a niche that exists nowhere else on Earth. She maintains it and it maintains her, a closed loop as perfect as the water cycle that feeds the eternal garden.
+
+When the pump cycles shudder through the floor, she shudders with them. When the pressure builds before the six-hour release, she feels it in her bones, knows exactly how many heartbeats remain until the shriek. She can taste the humidity rising or falling by fractions of a percent. Her body has become a sensor array tuned to frequencies no human was meant to perceive.
+
+She is happy, in the way that moss is happy. She is complete, in the way that closed systems are complete. She is becoming—has been becoming, will always be becoming—something between the industrial and the wild, the human and the vegetable, the maintained and the maintaining.
+
+The chamber breathes steam, and she breathes with it, inseparable, inevitable, eternal.

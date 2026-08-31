@@ -1,0 +1,3 @@
+What lives in the Hushworks of Cinder Throat is not, at first, recognizable as life.
+
+It presents itself as texture before movement: a patch of black crust on a warm wall, a bead of red glass on a railing, a ripple in the dust that seems caused by air but is too deliberate, a catwalk whose shadow shifts when no one is walking it. The hollow is so dry, so mineral, so newly broken that the eye reads it as inert. Then something turns toward a heat vent. Something

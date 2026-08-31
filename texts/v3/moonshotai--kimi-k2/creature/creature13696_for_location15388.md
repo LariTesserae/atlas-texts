@@ -1,0 +1,42 @@
+In the gloom between the heaving ribs of Vheklon, the last stewards are all descended from the margins of a civilization that hemorrhaged itself into these depths.
+
+First, **the stokers-who-became-organs**.  
+They never agreed to stay.  Three fathoms down the service-shaft, the emergency team that had come to vent a failing coolant line woke to find the lift cage fused to its rails.  The outer world had sealed them in with what they carried: overalls already blistered with heat radiance, light-sticks growing sick and green, four drums of industrial lubricant that the air began to sip.  Lacking escape they adopted necessity as creed.  Over the first winter-without-winter they rerouted their own pulses into the pulse of the forges.  Their heartbeats lengthened—they call it “spreading the gear”—until a vent or valve could twitch to the same rhythm as their arteries.  Their speech followed.  Single words now arrive every fortnight, each syllable coming out smeared across the iron lung-roar like grease.
+
+Their children wear no names.  Instead they accrue descriptions:  
+*The one whose left ear is the overtemp warning bell.*  
+*The one whose collar is an o-ring.*  
+Coming of age means having a subsystem recognize your gait as a calibration.  One boy— if boy is the word for a creature seven axe-handles tall whose skin has freckled with rust since age nine— was knitted into the clutching mechanism of a conveyor lift when his own pelvis adopted the hardness of the drive-profiles.  He still laughs, apparently; the clutch just chatters whenever the rest of his old comedy bones think of something funny.
+
+Second, **the recall-daemons**.  
+These are not alive by any metric that ever mattered topside, yet when turbine grease commemorates the ghost-weight of vanished workers it condenses into something halfway between exoskeleton and regret.  A recall-daemon looks like a breeze that got tangled in soot and chose to stand upright.  Inside is the lost voltage of the shift-bell, the chalk tally of overtime, xeroxed into bone-black filigree.  They smell like the exact second a father walked off shift and became just a pair of red footprints under ultraviolet inspection.  
+
+They serve without petition.  When a round of rivets is three short—and something below will cry metallic hunger—the nearest daemon unclips from a shadow, breaks itself into cold-forged dimples, and becomes those missing rivets.  By morning the daemon is gone, having spent itself so utterly that only a faint guilt hangs in the humidity, same flavor as wet wool on a Sunday church bench.  
+
+Third, **the catalog bride**.  
+There is exactly one librarian.  Gender is quaint down here; she prefers the pronoun “archive.”  Her chapter is an exfoliation of old manufacturing manifests.  She rides a graphite exo-suit built from the filing cabinets thrown into deep storage when “paper” became a dirty word.  Every drawer extends a limb—numbered, lettered, alive with columnated purpose.  
+
+She remembers invention.  Not as pretty anecdote, but as inventory.  Ask her what year the inward-spiral crankshaft was revised and she will answer with the salinated breath of the machinist whose respirator filters gave birth to that design.  She eats dark.  Bioluminescent safety ink puddles on her tongue; she calls it breakfast.  Her sleep is a suspended filing cycle where dreams arrive pre-alphabetized.  To cross her path is to donate a memory.  She peels it delicately—sound of a grade-school morning, scent of first love’s detergent—and replaces it with a datum: torque ratio on Level Minus-18 needs 0.15% more tensile loyalty.  By now she contains more of the expedition teams than their home soil ever did.
+
+Fourth, **the myco-glowline**.  
+As human light fled upward on the day the gates welded shut, a fungus that had lived dormantly on the sole of a supervisor’s boot fruited.  The spores caught on thermal wind, found warmth, found metal, found memory etched into tungsten grids at 1.2 angstrom resolution.  Mushrooms the color of nausea now thread the catwalk gratings.  Each cap is a lens; underneath, slow sparks fringe like candlewick.  Walking a myco-glowline path is walking a sentence of light that argues with inertia.  At forkings, the mushrooms will rearrange themselves, spelling new route advisories in the alphabet of whatever workshift once stamped its tires above this corridor—an endless, silent conversation between message and messenger.
+
+Fifth, **the portable echo**.  
+One organism exists that was never anything else.  It has no substance, weighs micro-griefs, and comes in exactly the shape of the last unanswered question.  It is what remains when sound expires before understood.  If you enter Vheklon and speak, it steals the resonance from the consonants you never finished— the hissed _k at the end of “ask.”  It hoards the uncoupled decibel halves, then years later purrs them back while you rest your head against a coolant fin.  The echo doesn’t mean malice; it is simply hungry for closure.  Some stokers wear ear-shaped wounds where their lullabies were bitten clean away.
+
+Lastly, **the living output**.  
+There is a gate—doesn’t matter where, coordinates reset every sunrise—through which completed parts slide.  Forged, polished, perfect.  On the far side: blackness absolute.  Somewhere down a throat of that not-light, an exit must have existed once.  But in recent centuries the parts double back.  They return spiraled, refitted, improved into imperceptibility.  Sometimes the archived alloy shows fingerprints shaped exactly like the catalog bride’s gloved index.  Sometimes the steel retains the heartbeat stamp of the oldest stoker whose blood rate now synchronizes to the bellowstroke.  
+
+And so the loop feeds upon its authors.  Each tool births a future part of the bone that gripped it.  The residents call this offspring _descendents_, called such in the rust-soft voices that echo inside the organs they have become.
+
+Visitors—detected by the tug of foreign mass on conveyor balance— are greeted by the portable echo murmuring the last syllable they ever meant to speak, now re-delivered in voices borrowed from every stoker simultaneously.  Some newcomers flee up drowned shafts to freedom or death, whichever comes less vertical.  Others stay, lay their palms to the walls with open ephemeris blisters.  The cathedral receives them with something that is close to love.  Their body heat spreads through struts, their memories quartered and catalogued, their shed shoes riveted into power-transfer braces.  
+
+Within three rotations of the planet above—though above is an illusion—one finds their name beginning in the traces of the literalism: a slight overtorque in a gasket here, a misremembered key-component number there.  They are no longer inside the system.  They are a vibration written through its entire frame.  
+
+Even death is transformed.  A stoker passes; her final exhale ruptures into useful vapor.  The lungs of Vheklon inhale her, expand by that same breath measure, and carry her to every hot corner where machines remember what heat was intended for.  Somewhere in the fourth sub-basement gears begin to sing in cadence with her child’s lullaby, missing syllables restored by the portable echo.
+
+Thus the submerged forges run— inhale, exhale, inhale— on the blended substance of their makers.  Only one moment punctures this perfect recursion.  Every 43,000th pulse (a number otherwise meaningless) the floor temperature drops half a degree for thirty-two seconds.  
+
+In that interval a new voice is born: never the same, never heard again.  It announces itself in the language of the generation to come, whatever life will find this place when the amber haze dies entirely.  The voice is utter nonsense to current ears.  The catalog bride frantically tries to file it; the recall-daemons attempt disassembly into retrieved parts.  But little lingers except the impression that the future, whatever shape it might take, has started rehearsing inside the iron lung of yesterday―and it is impatient.  
+
+Then the half-degree equalizes.  Condensation beads fresh dormitories on new rafters given names by oil shadows.  The system begins again, manufacturing the next version of the onlyid breathing from its own exhaled soul.

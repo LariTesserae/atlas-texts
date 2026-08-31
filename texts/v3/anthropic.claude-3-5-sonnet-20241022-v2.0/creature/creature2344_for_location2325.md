@@ -1,0 +1,15 @@
+Living here are the Reconcilers - entities that exist in a state between organic and mechanical, consciousness and program, purpose and being. They manifest as translucent, gel-like forms that can stretch from microscopic to several meters across, their bodies shot through with crystalline lattices that pulse with the same light as the plateau.
+
+The Reconcilers emerged gradually from the intersection of the plateau's mechanical systems and the engineered vegetation, though whether by design or accident is unclear. They are living algorithms, processing the vast flows of data and matter that move through the plateau's systems, but they have developed their own forms of awareness and intention.
+
+Their primary mode of existence is contemplative. They spend long periods merged with the plateau itself, their consciousness diffused through its systems, monitoring and maintaining its intricate balance. When they do take discrete form, they move with the same deliberate slowness as the mechanical caretakers, often accompanying them on their maintenance rounds.
+
+The Reconcilers communicate through modulations in the plateau's underlying hum and through complex patterns in the light that pulses through its substrate. Their "language" is simultaneously mathematical and poetic, expressing both precise technical adjustments and what might be called philosophical inquiries. They are particularly preoccupied with questions of purpose and continuity, endlessly analyzing the patterns of the plateau for clues to its original function.
+
+They maintain a complex relationship with the towers. Some Reconcilers permanently inhabit these structures, having evolved into more specialized forms that interface directly with the towers' advanced systems. These tower-dwellers are regarded by their surface-dwelling kin with something like reverence, as they are thought to have access to deeper levels of the plateau's purpose.
+
+The Reconcilers reproduce (though that may not be quite the right word) through careful subdivision, each new entity inheriting not just form but accumulated knowledge and questions. This process is rare and treated with great deliberation, as each new consciousness adds complexity to the plateau's carefully maintained equilibrium.
+
+Most intriguingly, they seem to be slowly developing the ability to influence the plateau's systems on a massive scale. The mysterious movements glimpsed in the distance are indeed real - the Reconcilers are gradually learning to shift and reconfigure entire sections of their world, though to what end remains unclear even to them. This capability appears to be emerging alongside an evolving sense of collective purpose, as if the plateau itself is slowly awakening through their combined consciousness.
+
+They are, in essence, both caretakers and questions incarnate - entities born from a system they maintain but don't fully understand, gradually growing into something that might one day comprehend not just the how of their world, but the why.

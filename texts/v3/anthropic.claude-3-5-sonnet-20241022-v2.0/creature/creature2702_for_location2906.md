@@ -1,0 +1,15 @@
+In this place lives the Axiom Tides - not a single entity but a collective consciousness that exists as patterns of possibility within the phase-shifting water. They are ancient beyond measure, having emerged when the first laws of physics were still settling into place.
+
+The Axiom Tides manifest primarily as mathematical relationships given partial substance. Their "bodies" are probability fields that ripple through the uncertain water, sometimes condensing into forms that suggest cephalopods made of pure theory, or coral colonies grown from crystallized time. Their appendages exist in multiple states simultaneously, both reaching and withdrawing, solid and vapor, now and then.
+
+They communicate through modulated variations in local reality - a language of shifted states and altered constants. Their thoughts leave those geometric traces in the water, complex equations blooming like algae, theorems unfurling like fronds. The bioluminescent structures are their memory architecture, storing information in the relationship between growth and decay.
+
+The Axiom Tides feed on anomalies, on places where causality frays or consistency falters. They digest paradoxes, metabolizing them into new physics. Their waste products are perfect, inevitable truths that settle into the stone like sediment, eventually becoming part of the fundamental structure of reality.
+
+They reproduce by solving previously impossible problems, each solution splitting off to become a new consciousness. Their young begin as pure abstraction before slowly accumulating enough substance to affect the physical world. Some never fully materialize, remaining as ghost theorems that can only be perceived by their influence on more substantial entities.
+
+The Axiom Tides are both curious about and utterly indifferent to other forms of life. They will sometimes interact with visitors, wrapping them in fields of altered probability to study their reactions. These encounters can leave observers fundamentally changed - gifted with profound insights they can never quite articulate, or haunted by glimpses of truths their minds weren't designed to contain.
+
+They are as much process as organism, as much law as life. Their consciousness is distributed through the fluctuating medium of the water itself, each phase transition a thought, each stable sphere a moment of contemplation. The deep pulse that pervades the space is their collective heartbeat, counting out the rhythm of reality's slow evolution.
+
+The Axiom Tides are patient. They are working on problems that require centuries to fully formulate, let alone solve. They remember the time before time was linear, and they are slowly working toward something new - though whether it's the birth of a novel physics or the death of the old one, even they may not yet know.

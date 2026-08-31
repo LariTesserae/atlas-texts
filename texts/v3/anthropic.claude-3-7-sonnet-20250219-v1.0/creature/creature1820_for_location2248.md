@@ -1,0 +1,23 @@
+# The Caretaker Collective
+
+The Arboreal Engine isn't abandoned, though many assume so at first glance. Its inhabitants are simply operating at a different scale and rhythm than most visitors can immediately perceive.
+
+The primary residents are the Thallids—a community of mobile fungal organisms that stand between 15-30 centimeters tall when fully extended. Their bodies consist of dense mycelial cores with semi-translucent fruiting bodies that function as sensory organs. What appear to be caps are actually sophisticated processing chambers that filter information from their environment. The Thallids move via undulating wave motions of their basal mycelium, leaving nearly imperceptible slime trails that serve as communication networks for others in the collective.
+
+The Thallids aren't a single species but a symbiotic association of at least seven distinct fungal lineages, each specialized for different maintenance tasks within the Engine. Their consciousness isn't individualized—they operate as a distributed network, with cognitive functions spread across the entire collective. What one experiences, all know. What one learns, all remember.
+
+The "walkways" between plant conveyor belts aren't accidental—they're maintained by Sweeper Thallids, whose specialized basal filaments absorb and relocate debris while depositing growth-inhibiting compounds that prevent encroachment. These paths allow efficient movement between different sectors of the Engine for inspection and repair.
+
+Inside the bioluminescent domes live the Elder Thallids—physically larger specimens whose bodies have incorporated significant amounts of metal from the human artifacts. These Elders serve as living memory banks and processing centers, their expanded neural networks capable of storing centuries of operational data. Their surfaces are mottled with ports where younger Thallids temporarily fuse to receive instructions or deposit gathered information.
+
+A secondary population exists in the form of the Tenders—colonies of microscopic bacteria-like organisms that live in the hydraulic channels. Though individually simple, these colonies form complex computational networks that regulate fluid pressure throughout the system. They manifest visibly only as subtle bioluminescent pulses within the liquid channels, like flowing circuits of light that coordinate the Engine's movements.
+
+The most enigmatic residents are the Overseers—six softball-sized crystalline structures that appear to be mineral formations but are actually ultra-dense colonies of specialized microorganisms encased in self-generated silicon matrices. These structures remain mostly stationary, positioned at key junctions throughout the Engine. They emit low-frequency vibrations that the plant machinery responds to, adjusting its operations accordingly. The Overseers are believed to be the original architects, the eldest lifeforms in this ecosystem, potentially thousands of years old.
+
+The entire system evolved from a failed terraforming experiment abandoned centuries ago. The original engineers seeded this depression with genetically modified organisms designed to process the local environment into something more hospitable for human habitation. When the project was abandoned due to funding cuts, the engineered organisms continued their programmed functions, gradually evolving new capabilities and forms.
+
+The collective shows signs of rudimentary consciousness, though not in terms humans would immediately recognize. Its intelligence manifests as distributed problem-solving capability, environmental adaptation, and long-term memory storage. The Engine doesn't think—it processes, adjusts, remembers.
+
+Visitors who stay long enough might notice the subtle ways the inhabitants acknowledge their presence—pathways that widen slightly to accommodate them, bioluminescence that intensifies near their footsteps, and occasionally, small offerings of perfectly spherical seed capsules left at the perimeter, containing complex biochemical compounds with medical properties not yet cataloged by human science.
+
+The Caretaker Collective doesn't seek contact with the outside world, but neither does it hide. It simply operates according to its own timescale, maintaining its mysterious processes regardless of who might be watching, patiently fulfilling directives written into its cellular memory by creators long since departed.

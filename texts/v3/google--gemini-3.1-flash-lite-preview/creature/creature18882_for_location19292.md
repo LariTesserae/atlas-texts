@@ -1,0 +1,19 @@
+To dwell within the Verdant Sprawl is not to live *upon* a surface, but to be a stray thought suspended within a vast, wet, and relentlessly calculating mind. 
+
+The inhabitants here—if one can call them that—are not biological organisms in the sense of blood, bone, and individual agency. They are the **Architectural Effigies**. 
+
+Imagine, if you will, the sudden condensation of the Sprawl’s own excess data into a physical shape. They are not born; they are precipitated. When the rhythmic *thrum* of the vascular ropes reaches a pitch of harmonic interference, a section of the waxy, violet-lit spires will briefly soften, its molecular geometry warping inward like a bubble collapsing. From this rupture, an Effigy peels itself away from the wall.
+
+They are translucent, faceted beings, composed of the same dense, fibrous moss-matter that knits the mountains together. They look as though they have been sculpted from solidified indigo shadow and glass. They have no faces, for there is nothing to express and no one to witness; instead, recessed deep within their chests, one sees a shifting, churning node of bioluminescent light—a localized processor. This is their heart, their brain, and their entire sensory apparatus. 
+
+They do not walk. They drift, weightless and unhurrying, along the spiraling vortices of nectar-water that creep across the walls. Their movement is the movement of a fluid seeking its own level. As they glide, their spindly, multi-jointed limbs—which resemble the twitching cilia of the architecture beneath—periodically merge with the landscape. When they touch a wall, they become part of the wall; they pause, their internal light flashing in rapid, staccato codes, as they upload their accumulated "experience" into the continental nervous system. 
+
+They are the Sprawl’s maintenance protocols rendered in walking form. They are the gardeners of a garden that refuses to ever stop growing.
+
+You might see one, if you remain still long enough, hovering near a sprouting jade mound. It will reach out with a slender, needle-like digit, not to prune or harvest, but to *synchronize*. It touches the bulbous surface, and the wood-flesh ripples under its finger, shuddering as it accepts a new, faster growth-instruction. The Effigy then shivers—a rhythmic, cello-string vibration—and continues on its way, lighter now, its own internal light dimming as it surrenders its data to the greater whole.
+
+They seem lonely, at first; there is a certain melancholy in the way they traverse the dark, indigo-stained aisles. But to look closer is to realize that loneliness requires an individual self, and the Effigies have none. They are extensions of the Sprawl’s own recursive logic. When a mountain grows too rigid, or a fiber-weave begins to fray under the pressure of the subterranean hum, an Effigy is tasked to dissolve itself into the breach, knitting its own cold, mineral-rich core into the structural instability. 
+
+They are a sacrificial architecture. They populate this place as a way for the Sprawl to touch itself, to measure its own expansion, and to ensure that the process—the great, sweating, mechanical mitosis—never falters. They are the white blood cells of a god that is trying to build its own body, perpetually unaware that the process is the point, and the end is nowhere to be found. 
+
+They do not look at you. They do not perceive "you" as a separate entity, any more than the ocean perceives a single molecule of salt. To them, you are merely a strange, static impurity in the great, resonant song—a silence that they will, eventually, flow around and overwrite with the next layer of living, humming fiber.

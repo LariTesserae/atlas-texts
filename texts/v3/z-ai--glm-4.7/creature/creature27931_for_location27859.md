@@ -1,0 +1,28 @@
+The biology of this place does not operate on survival of the fittest in the traditional sense—there is no sun to fight for, no seasonal scarcity to endure. Here, the struggle is for *attention*. The energy is omnipresent, a hum in the stone and a heat in the air, so life has evolved to exploit the specific physics of this dark, wet, vibrating prison.
+
+Here is what lives in the dark:
+
+**The Ground-Dwellers: The Silt-Gliders**
+On the Old Floor, where the warm, viscous water sheens over the obsidian, live the primary grazers. They are shaped like flattened manta rays, though they have no wings and no fins; they are merely slick, muscular discs of flesh, no more than two inches thick and six feet across. They move by creating minute ripples in the surface tension of the heavy water, gliding frictionlessly between the Trees.
+They possess no eyes. Instead, their undersides are lined with cilia sensitive to the faint electro-magnetic field radiating from the "tech" thrumming below. They navigate by feeling the magnetic ley lines of the plateau, feeding on the moss-like algae that grows where the mineral water is thickest. When disturbed, they do not flee; they simply flatten themselves further, becoming indistinguishable from the wet stone, their bioluminescence dimming until they are invisible voids on a black mirror.
+
+**The Architects of the Air: The Glyph-Worms**
+The sinuous shapes that slither through the shallow film of water are the artists of this ecology. These are the Glyph-Worms, long, pale lengths of muscle that secrete a glowing, phosphorescent mucus. They are not merely leaving trails; they are mapping the territory.
+Because the darkness is absolute, the Worms lay down complex, geometric grids of light that persist for minutes before fading. Other creatures—smaller, blind crustaceans and insects—congregate to these light-trails, mistaking them for safety or a mating ground. The Worms then double back, sucking up the congregating micro-fauna with a snap of their unseen jaws. The "hieroglyphs" left on the stone are actually lure-structures, constantly shifting, glowing maps of appetite that paint the floor in vanishing gold and green.
+
+**The Arboreal Hunters: The Resonant Weavers**
+In the Trees, where the calcified bark hums with a low-frequency vibration, live the Resonant Weavers. These are arachnid-like creatures, but their legs are tuned like tuning forks. They do not spin webs of silk; they spin webs of sound.
+Stretching between the colossal branches are filaments so fine they are imperceptible to touch, but they vibrate in sympathy with the Tree’s hum. When a blind bird flies through the invisible net, the disturbance changes the pitch of the vibration instantly. The Weaver, perched motionless on a branch, feels the dissonance in the hollow bones of its legs. It strikes not by seeing, but by triangulating the sonic disturbance. They are slow, deliberate killers that move only when the "song" of their web is broken, injecting a neurotoxin that silences the bird’s frantic echolocation clicks instantly.
+
+**The Mimics: The Cubiform Lie**
+The most dangerous inhabitants are those that exploit the "Built artifacts." Scattered among the geometric, hovering cubes are predators that have evolved to mimic them perfectly.
+These creatures, perhaps once organic but now warped by the ambient radiation of the machines, resemble smooth, floating monoliths. Their skin is hard, angular, and absorbs all sound. They hang motionless in the warm, heavy air, drifting inches above the wet floor. The swarming blind birds, mistaking these creatures for the harmless, ancient technology, often land on them to rest or clean their wings.
+The moment a bird lands, the "Cubiform Lie" does not strike with teeth. Instead, its surface opens like a complex flower, revealing a moist, suctioning interior that pulls the bird in with hydraulic force. The snapping shut of the shell makes no sound—a perfect, silent deletion in the noisy dark.
+
+**The Scavengers of the Static: The Spark-Mites**
+Where the invisible hovering cubes flicker with static electricity, a frantic ecosystem blooms. The Spark-Mites are microscopic, glowing insects that live their entire lives in the span of a single human breath. They are born in the heat of an electrical arc, feed on the ozone, and die as the spark fades.
+They swarm in thick, buzzing clouds around the artifacts, their bioluminescence syncopated with the flickering of the machines. They are the "plankton" of the air, eaten by the birds, who snap them up in mid-flight, drawn to the rapid strobe-light effect of their mating swarms. The mites are the only things here that move faster than the slow processing of the stone, living in a hysterical rush that the rest of the plateau finds indecipherable.
+
+**The Apex of Slowness: The Orogenic Toads**
+At the very bottom of the food chain, yet the masters of the plateau, are the Orogenic Toads. They are immense, boulder-like creatures that rest in the shallow depressions of the Old Floor. They are covered in a crust of minerals and moss, making them look like natural features of the geology.
+They do not hunt. They do not move. They simply wait. Their mouths are open wide, creating a low-pressure zone that sucks in the humid air and anything small enough caught in the draft—insects, small worms, unlucky birds. They digest over decades, their internal biology as slow as the erosion of the stone they mimic. To touch one is to feel a pulse that beats perhaps once every five minutes. They are the embodiments of the plateau itself: ancient, unmoving, and eternally hungry, accepting the frantic energy of the world around them and converting it into the deep, silent mass of their own flesh.

@@ -1,0 +1,13 @@
+In the cool, still depths of this primordial cavern, life clings to every surface, a lush garden thriving in the perpetual pale gloom. The stalactites rising chamber like giant stalwart sentinels are home to colonies of bats. Leathery wings gust through the close air as they flit between the hollow columns, dislodging sprays of tiny insects that drift and flutter below.
+
+Ferns spill down the stone walls in emerald cascades and creep in thick mattes across the uneven floor, shading into curtains of fluttering moss and lichen. Fungi sprout from every nook and crevice - delicate oyster mushrooms the size of saucers, tooth fungus like human teeth erupting from the stone, crested coral morels bursting from the loam. Bulbous ceps thrust from the leaf litter, their caps mottled in rust and cream. Delicate silver-veined morels crown themselves in the undergrowth.
+
+A colony of stoppered fungi congregates on the bones of a long decayed cave bear. inky caps uncurl and dip to dust the dead rock with spores. The spring bubbles up from a basin of fallen leaves and soil, a stony pool choked with pale jellied fronds and candled with spherical underwater eggs of toads and newts. Water-skaters skit across its mirror surface and strike deep, vanishing in the broth.
+
+On the stone humps, tendrils of succulents grip and the fungus picks bright green as soft, fluffy moss erupting in lung-like sacs. Skinks bask on the warm stone, their scales shifting in iridescent scales as they swallow scaled draconic flies.
+
+Out of the gloom, flocked coves of roots wrist-thick as a man's thigh erupt bodily from the earthen walls, their pale tips tangled in frizzled furls of lichen and gripped by cream-colored grasping emerald fronds. Feathery ferns, trembling silver and frail, trail across the stone and spigot pendant droplets from their peltate tips to patter on the ribboned surface of the buried stream.
+
+The chamber beyond the steam-bath temperature thaws to the cool humid dark. Situated in what once was a small clear-water pool, but now lays soured by soil and fall leaf and littering fracken and toad eggs caking its bed and rim in torpid wool - a clutch of fist-sized knobbed and ridged operculums drifting and circling, their siphons staked vaginally up the pool walls to exhaust their squandered sex.
+
+Shelled snails with whorls of burnt courtesy and red candle-wax glaze twitch on hats of fungal ooze ghosted across the stone, leaving seen silks of sliding behind. Rats with swirl-tailed cocoa-plumed rear ends burrowing in the leaf litter, their broad puckered dicks tensing out of their sheaths like pills - waddling and humping between fern kneaded legs. Sexualized fungal froms fisted expell and gough up stinking paw-patted strands of annular spore-sigils.

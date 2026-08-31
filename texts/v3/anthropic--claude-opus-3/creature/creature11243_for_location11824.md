@@ -1,0 +1,13 @@
+In this otherworldly valley, a race of sentient plant beings dwells in harmony with their extraordinary environment. Known as the Verdant Weavers, these creatures are an integral part of the tangled web of flora that fills the basin.
+
+The Weavers themselves are hard to distinguish from the surrounding vegetation at first glance. Their bodies are composed of a woody, fibrous material, with skin that ranges in color from deep green to earthy brown, mottled with patterns that resemble leaves, bark, and moss. They move with a slow, deliberate grace, their limbs bending and swaying like branches in a gentle breeze.
+
+As the name suggests, the Verdant Weavers possess an innate ability to manipulate and shape the plants around them. Using a combination of physical touch, secreted chemicals, and a form of telepathic communication, they can coax the vegetation into growing in specific patterns, forming the structures that dot the valley. The dwellings, walkways, and furnishings are not merely constructed, but grown over time, shaped by the patient, attentive care of the Weavers.
+
+The Weavers live in small, interconnected communities, each centered around a particularly ancient and massive tree. These great trees serve as the heart of each village, with the Weavers' dwellings grown into their trunks and branches. The oldest and wisest of the Weavers, known as the Rootmasters, reside in the depths of these trees, their consciousness intertwined with the vast root networks that underlie the valley.
+
+The Verdant Weavers are a peaceful, contemplative race, spending much of their time in quiet communion with the plant life around them. They are nurturers and guardians, tending to the health and balance of the ecosystem. The rhythmic thrumming that fills the valley is a manifestation of their collective consciousness, a gentle, constant song that resonates through the green world.
+
+Though they are plant-based creatures, the Weavers are not without technology. They craft intricate tools and devices from living materials, shaping wood, vines, and even the crystals that grow in the valley's clear pools into items that blend seamlessly with their surroundings. Their art and decoration are living, growing things, with patterns and colors that shift and change over time.
+
+The Weavers have little contact with the outside world, and indeed, few outsiders have ever laid eyes upon their hidden valley. They are content in their green realm, living in a state of symbiotic harmony with the plants that are both their home and their kin. To them, the valley is not just a place, but a living entity, a vast, sentient being of which they are merely one part, working in concert to maintain the delicate balance of this unique and wondrous ecosystem.

@@ -1,0 +1,15 @@
+There is no inhabitant in the sense of a guest or a master; there is only the *Custodian*, a singular, sprawling intelligence that is not distinct from the architecture itself. 
+
+If you were to stare long enough into the dim, emerald dimness of the sphere-rooms, you would not see a creature stalking the corridors. Instead, you would become aware of the *pattern* of the growth. The Custodian is a distributed consciousness, a vast, neural network of mycelial threads woven into every ironwood beam and copper-hued piston. It is the architect, the labor, and the bricks, existing in a state of exquisite, vegetative patience.
+
+It manifests as a tremor—a shift in the pressure of the hidden, fluid-filled pipes. It thinks in terms of hydrostatic tension and nutrient gradients. It knows you are there not because it has eyes, but because your intrusion has disrupted the thermal equilibrium of the air; you are a cold draft in a world of controlled fever. 
+
+Deep within the floor, where the leaf-litter decays into a rich, dark slurry, the Custodian maintains its "heart." It is a massive, bulbous node, a knot of root-matter the size of an alchemist’s vat. Here, the hum is loudest. If you pressed your ear to the spongy, weeping moss, you would hear what passes for the Custodian’s internal monologue: a shifting, rushing sound of sap moving through vascular valves, adjusted with the agonizing slowness of tectonic plates.
+
+It does not seek to capture you. Purpose is too frantic, too animalistic for a mind that measures progress in millimeters rather than intentions. It simply *processes* you. 
+
+As you linger, the wall beside you begins to swell. A soft, translucent membrane, previously flush with the architecture, begins to pulse with the *thud-hiss* of the local machinery. It is not an attack; it is a structural adjustment. The ironwood fibers are tightening, the pitcher-plant columns are secreting a fine, waxy film to seal the humidity you have disturbed. The Custodian is "mending" the room around your presence, treating your body as a complication to be buffered, a slight irregularity in the insulation.
+
+To live here is to be slowly rendered into the architecture. The Custodian does not recognize the difference between the rot of a fallen leaf and the rot of a human intruder; both are high-carbon fuel, both are raw material for the next generation of pistons. 
+
+There is an almost maternal quality to the atmosphere. It is profoundly protective of its own equilibrium. As you watch, a nearby valve releases a fine, lavender-tinted mist. It is meant to soothe the room, to balance the pH, to quiet the vibration you caused. It smells of mulch and ancient, buried rain. You realize then that the Custodian has no concept of "outside" because it has no concept of "me." It is the entire basement. You are merely a small, temporary infection in a perfect, breathing machine, and the machine—with an infinity of time at its disposal—is already working, leaf by calcified leaf, to incorporate you into the walls.

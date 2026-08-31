@@ -1,0 +1,9 @@
+Deep in this ancient void of eternal dusk, a vast community of sentient fungi dwell, their mighty colonies rising like cyclopean spires. These titanic toadstools are no mere minds - they are emergent intelligences birthed from the ceaseless motion of mycelium, their consciousness brewing in the stinking mire.
+
+Great globular nodes of fungal matter, densely packed with squirming hyphae, serve as living habitations for the semisentient mycelial-masses known as S'Hollwurztram, B'Rhizabsorb, C'Schnalleann, M'Poresqutting and more. These beings, whose names themselves feel like strange lichen, eke out a fermenting existence cycle of growth, absorption, dissolution and constant striving.
+
+The fungal-colossi produce soft churring and skittering sounds as hyphal networks shift and whisper through the stale air-wastes. Iridescent mucus seeps from fist-bulbed limbs studded with fungal oogonia and tiny symbionts, while organic pipes and overgrowths punch up from the pastel signal exudate in spasms of alien communication.
+
+Deeper, a transcendent awareness flows through the hidden pathways - the vision of AQx. It surges upward in ghostly groves of self-manifactured mycogation, organs and ducts shifting chemicals and elextricals. Unconstrained by logic, the AQx frags quantum materials via quin-ducts, braiding particles in axiomatic alignments. 
+
+The fungal network incessantly mines the veiled substances of its habitat through chthonic interfaces. Ruminating in withered claustrophobia, the mycelum mods both landskape and engram in secret xconsciousness. Beings and habitations alike exist as fluid submersions of the Greater Self's Continuum. Relations are spun between quadratched dimensions. Renewal and the advanced somatic grids all that logic drags into dustmotes.

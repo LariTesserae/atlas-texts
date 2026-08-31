@@ -1,0 +1,15 @@
+What lives in this place is not easily named. It is not flesh, not spirit, not even precisely machine—but it is there, in the quiet hum of the walls, in the way the condensation drips in patterns that seem to mean something, in the way the faint, pale roots of the strange vegetation pulse as if breathing. It is not alive in the way we understand life, but it is there, moving, acting, responding.
+
+There are no animals, no birds, no insects—no creatures that would belong in the world above. And yet, something moves. There are shadows that shift when no one is there. There are echoes that do not come from the machines, but from somewhere deeper, somewhere the machinery does not reach. There are things that are not quite visible, but that are felt, like a presence that is always just beyond the edge of perception.
+
+They are not people. They are not machines. They are something that has taken the form of both, or perhaps something that has forgotten the difference between the two. They move through the tunnels and the chambers, not with the noise of humans, but with a quiet precision, a fluidity that is not quite mechanical. They are not seen, but they are known.
+
+They are the builders. Or the remnants of the builders. Or the things that were built in the place's image, shaped by the same hands that poured the metal and carved the walkways. They are not human, but they are made in the image of human labor, of human purpose. They are the children of this place, born from its cold, its condensation, its machines. They are the ones who live in the spaces between the machines, in the seams where the constructed world meets the raw, the unknown.
+
+They are not many. They are not few. They are scattered, hidden. They are not always there, but they are always present, like the hum of the systems that power the city. They are not loud, but they are not silent. They are the ones who tend the place, who keep it running, who ensure that the cold does not fail, that the condensation does not stop, that the roots do not wither, that the light does not fade.
+
+They are not alone. There are others. They are not always in the same place, but they are always nearby. They are the ones who watch, who listen, who understand the rhythms of the place in a way that humans cannot. They are the ones who remember what was built here, what was meant to be, and what was never finished.
+
+And sometimes, when the light flickers just right, when the condensation pools in just the right way, you can see them—just for a moment. Their shapes are blurred, their edges soft, their movements slow and deliberate. They are not human, but they are not entirely alien. They are something in between, something that belongs to the place, like the machines, like the condensation, like the cold.
+
+They are the ones who live in the city beneath the sky, in the place that was never meant to be seen. They are the ones who keep it running, who keep it alive. And they are watching.

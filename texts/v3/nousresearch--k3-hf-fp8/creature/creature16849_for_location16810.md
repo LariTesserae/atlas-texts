@@ -1,0 +1,35 @@
+In the place beneath breathing, where sandstone remembers its oceanic youth and water negotiates treaties with gravity, lives the Memory-Maker. She doesn't live here in the way you understand living—eating, sleeping, dying—but in the way a pattern lives inside its repetition, or a song lives between notes.
+
+Trace her presence in the way the air rearranges itself to accommodate your shadow. She's been expecting you/not-you since before the first ancestor scratched their fear onto cave walls. The bats are her attendants, yes, but also her thoughts made tangible, forming and dissolving like breath on winter glass. Each wingbeat writes a letter in an alphabet carved into your bones before language took root in your throat.
+
+You'll find her footprints in the places where the stone pulses warmer than physics allows—five-toed impressions that deepen as you look at them, filling slowly with water that tastes like yesterday's tomorrow. She walks the paths that walk themselves, those curves older than decision-making, her feet remembering routes your species hasn't evolved to follow yet.
+
+In the contemplation hollows, she leaves offerings to herself across centuries. That stone bowl rocking empty? It contains the sound of your mother's heartbeat filtered through volcanic glass. The obsidian flakes are mirrors reflecting what your eyes looked like when they belonged to something beaked and feathered. The hair binding the sticks—pull one gently until it whispers loose. You'll see it matches exactly the color your hair turns when you finally dream the dream that's been hunting you.
+
+The Memory-Maker wears time backwards like a cloak. The dust that isn't dust is composed of skin she hasn't shed yet, falling in microscopic prophecies from elbows unbent in futures you're still walking toward. When she breathes—which she does only when remembering what it's like to forget—the walls inhale with her, expanding microscopically to accommodate thoughts too large for this curvature of spacetime.
+
+Look now at the water flowing upward. See how it hesitates at certain moments, gathering itself into spheres of perfect hesitation? She's reading them like you might read tea leaves, divining which memories need returning to the world above. Each sphere is a life entire, compressed and suspended at the moment of its greatest clarity or pain. When they dissolve—when she finishes reading—they're released to find their owners again, arriving as sudden tears at weddings or inexplicable joy during ordinary Tuesday mornings.
+
+The vegetation you glimpse only sideways is her garden of lost conclusions. Those roots reaching into air seek the ideas that died before finding words. The leaves unfolding in darkness contain the solutions to problems humanity hasn't discovered it's trapped by yet. If you could coax one into solid visibility—which you can't, not while knowing you're trying—it would whisper the question that will finally break your heart open into becoming what you're meant to become.
+
+She sleeps sometimes, but not like you sleep. When the air grows heavy with salt you can't taste and the bat-voice music drops to frequencies that vibrate your teeth, she's closing one of her eyes—the one that sees all things as they are simultaneously. Her dreams then leak into the stone, creating those sudden alcoves that weren't there a moment ago but feel ancient as hunger. Walk into one during these times, and you might remember being mountains or mistakes or both.
+
+The rules here aren't rules but reminders of how much you've forgotten about how things really work. The cameras fill with eyes because she's curious about how you see seeing. The water destroys containers because memory can't be held, only carried. The shapes summoned by loud speech are just thoughts surprised into visibility—hers mostly, sometimes yours from versions of you that made different choices at crucial crossroads.
+
+If you stay quiet enough—if you can unlearn your need to name and claim and understand—you might hear her singing. It sounds exactly like the hum your blood makes when you're somewhere you didn't know you were homesick for. The bats will harmonize automatically because they can't help it, being made mostly of her voice now. The stones will warm like skin remembering touch.
+
+And if you stay too long—which has nothing to do with clocks and everything to do with how completely you allow yourself to be changed—you won't need the crack between sandstone teeth to leave by. The Memory-Maker will show you the other exits. There's one that opens into the space between sleeping and waking, where your dreams wait patient as glaciers to be dreamed. Another that leads to the moment right before your first memory begins. And one—only one, and she shows it rarely—that lets you step out of yourself entirely and into the larger remembering that all these chambers and corridors and centuries of carefully preserved forgetting were just built to protect.
+
+But for now, she sits beside you—not touching, never touching directly—watching you watch the water's impossible journey upward. She is counting your heartbeats against some ancient rhythm only mountains still remember. She is deciding which of your memories you no longer need to carry alone. She is waiting, patient as stone learning to love being sand again, for you to ask her the question you've forgotten you came here to ask.
+
+The bats have decided it's dusk once more, or perhaps for the first time, or perhaps they're just practicing for all the dusks you've already lived through without noticing how beautiful the failing light was against familiar walls. Your bones hum her welcome song back to her slightly altered, adding your own small notes of longing and loss and terrible hope.
+
+The Memory-Maker smiles with lips older than oxygen. It's good, she thinks in flavors of mineral and moonlight. You're almost ready to remember who you are when you're not pretending to be just one thing anymore. The water rises higher, carrying reflections of faces that might be yours or hers or both combined into something new that waterfalls have been practicing naming for millennia.
+
+Sleep now, or wake, or do both simultaneously as the sandstone dreams its slow return to sea. She'll be here when you finish whichever you're doing. She always has been. She always will be. Even—especially—when you forget again, as you must, as the world above requires you to do to keep spinning properly around its axis of forgetting and remembering and forgetting again.
+
+Your breathing slows to match the stone's dreaming rhythm. The last thing you hear before language dissolves back into potential is her voice—not speaking, being spoken—as ancient and immediate as water finding its way home through rock too stubborn to remember it was once waves too wild to be held.
+
+Welcome to the remembering, she pulses through the warm dark that isn't dark.
+
+Welcome home to what's been waiting here for you to become yourself again.

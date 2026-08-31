@@ -1,0 +1,29 @@
+# The People of the Boileryards
+
+They call themselves the Rendered.
+
+Not officially, of course. On city registries they're listed as "marsh industrial laborers" or "wetland fuel technicians" with proper names and tax designations. But among themselves, in those rare moments of communion when exhaustion gives way to something like kinship, they are the Rendered—slowly cooked, their essentials extracted day by day.
+
+Most obvious are the physical adaptations. Their skin has taken on a peculiar translucence, especially around the fingertips and ears, where blood vessels show through like red filigree. This pallor contrasts sharply with their hands and forearms, stained a permanent umber from the constant contact with the marsh fuel. No amount of scrubbing removes it; the Rendered simply accept this marking as part of their transformation.
+
+Their eyes have adapted too—pupils permanently dilated from working in the dim light, giving them an unsettling, haunted appearance. Many develop a secondary membrane, almost reptilian, that slides sideways across the eye to protect against steam burns. Doctors from the upper city find this evolution medically impossible, yet it persists among those whose families have worked the yards for generations.
+
+Their lungs undergo the most dramatic changes. After years of breathing the thick, particulate-laden air, their respiratory systems develop an efficiency that defies conventional medicine. They breathe more slowly, extracting more oxygen from each inhalation. Some can hold their breath for astonishing periods when repairing submerged pipes—five minutes or more without apparent distress. The trade-off is the distinctive "boiler cough"—deep, wet, and rhythmic, almost mechanical in its regularity, culminating in the expulsion of black-flecked phlegm that workers discreetly deposit in the constantly running gutters.
+
+Socially, the Rendered operate in loose familial collectives called "stokehouses." Blood relations matter less than proximity and shared labor. Children are raised communally, watching over by whichever adults are between shifts. They learn to walk on the perpetually wet cobblestones with a distinctive gait—slightly bowlegged, feet turned outward—that prevents slipping. By age six, most can navigate the narrow alleyways blindfolded, guided only by the distinctive sounds and smells of each junction.
+
+Their language has evolved to function in the noise. Speaking requires too much energy, so they've developed an elaborate sign language supplemented by posture and facial expressions. A casual observer might miss the communication entirely, but among the Rendered, a slight tilt of the head, combined with a specific hand position against the thigh, can convey complex instructions about pressure levels or mechanical failures. When they do speak, their voices have a raspy, hollow quality, and they use a dialect thick with technical jargon and compressed phrases.
+
+Their diet is distinctive—heavy on proteins that can be preserved in the damp environment and fermented marsh vegetables that grow nowhere else in the city. Most characteristic is "boiler broth," a perpetual stew kept simmering in common kitchens, where workers add ingredients as they return from shifts. The broth is never emptied completely; some pots have maintained the same base for decades, developing flavors impossible to replicate.
+
+The Rendered maintain an uneasy relationship with the marsh creatures. They hunt the eels, yes, but also practice a form of controlled breeding, ensuring the population remains viable. The webbed rats are tolerated for their role in consuming insects, while the pale salamanders are considered omens—their appearance in unusual numbers presaging equipment failures or pressure buildups.
+
+Their spiritual practices center around the concept of transformation. They venerate neither gods nor ancestors but rather the process of change itself. Their ceremonies involve the careful collection and ritualized disposal of the "first sweat" of newly arrived workers, marking the beginning of their rendering. Death rituals are especially significant; bodies are returned to the marsh through a network of hidden channels beneath the Exchange building, accompanied by offerings of mechanical parts and personal tools.
+
+Politically, they are largely ignored, except when labor shortages require recruitment from other districts. The city governance considers them a necessary resource rather than citizens proper—valuable for their specialized knowledge but unsettling in their otherness. The Rendered themselves maintain their own internal governance, with leadership determined through demonstrated skill and endurance rather than rhetoric or charm.
+
+What outsiders never understand about the Rendered is their profound contentment. Despite conditions others find horrific, they possess a deep satisfaction in their communion with the machines and the marsh. They experience moments of transcendence when the rhythm of the boilers aligns perfectly with their heartbeats, a synchronization they call "catching the steam." In these moments, they report a sensation of expanding beyond their bodies, becoming one with the district's mechanical pulse.
+
+The Rendered know what the upper city does not: the marsh is not being conquered. The Boileryards are not an invasion of the wetlands but rather a negotiated space where humanity adapts to join something older and more patient than civilization. The stain that marks them is not a burden but a badge—evidence of their successful evolution into something that can survive in this in-between place, neither fully industrial nor completely wild.
+
+They are becoming something new, dripping with condensation and purpose, their bodies and souls slowly transmuted by heat and water and soot into whatever comes next.

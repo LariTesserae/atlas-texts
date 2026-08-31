@@ -1,0 +1,23 @@
+In this suspended moment between ice and eternity, **she** tends the impossible garden.
+
+She is small—necessarily so in this compressed paradise—standing perhaps four feet when she draws herself to full height, though she rarely does. Her frame is compact and efficient, built for moving through spaces where knee-high spruces form canopies and moss cushions offer both pathway and resting place. Her limbs are sturdy, her hands broad and capable, fingers stained permanently green from working among the lichens and ferns.
+
+Her hair grows wild and thick, the color of granite dust shot through with silver threads that catch the alpine light like the crystalline mist itself. She keeps it long and unbound, letting it tangle with small twigs, dried flowers, fragments of moss that cling there as she moves through her dense domain. Sometimes tiny insects nest briefly in those tangles, and she lets them stay until they choose to leave.
+
+Her skin bears the particular weathering of high places—bronzed by fierce sun, lined early by wind and the intensity of unfiltered light. Her eyes are the pale gray-blue of glacier ice, but warm with a patience that seems to flow from the stones themselves. She moves with deliberate care, each step considered, each gesture economical. In a place where every surface teems with delicate life, carelessness could devastate entire miniature ecosystems.
+
+She dresses in layers of her own weaving—rough wool dyed with the scarlet lichens and green mosses that surround her, creating garments that shift between gray and rust and deep forest hues depending on the light. Her clothes are practical: thick-soled boots crafted to grip polished granite, a wide belt hung with small tools made from worked stone and twisted root, a hooded cloak that sheds the crystalline mist while allowing her to move through it.
+
+But she is not quite human, not anymore—if she ever was entirely.
+
+Her breath mingles visibly with the nourishing mist, and sometimes she seems to feed on it directly, standing still for long minutes with her face turned upward, mouth slightly open, as if drinking light itself. Her movements have taken on some quality of the vegetation she tends—the patient unfurling of ferns, the slow but persistent spread of moss across stone. She can remain motionless for hours, watching a lichen pattern develop, sensing the microscopic adjustments as the rocks continue their settling.
+
+The small creatures know her as part of the landscape. Pikas dash across her shoulders when she sits still. The tiny birds nest in her hair when she sleeps curled against the stone shelter. She has learned their languages—the chittering warnings of the pikas when stones shift, the musical calls of the rosy-finches that indicate changes in the mist's density. She responds with her own soft sounds, humming tunes that seem to encourage growth, whispering to the newest fern shoots in a voice like wind through needles.
+
+She tends the cairns with ritual care, adjusting stones that have shifted, adding new markers where the pathways require them. Her touch has grown sensitive to the granite's moods—which surfaces will hold, which stones want to roll, how the light will fall across a newly-placed marker throughout the day. The craftsmanship that appears elementary is actually profound, each placement the result of deep understanding.
+
+At night, when the fierce light softens to star-glow, she retreats to the stone shelter that has grown to accommodate her exactly—walls shaped to her sleeping form, roof thick with moss that glows faintly in the darkness. She dreams of ice and stone and the slow patience of mountains, of root systems spreading through granite dust, of the crystalline mist that carries whatever force sustains this impossible abundance.
+
+In the morning, she wakes to find the garden slightly changed—new growth here, a stone resettled there, the mist carrying different prismatic patterns. She rises and begins again her work of guidance and protection, moving through the miniature forest with the care of someone who understands that she is both gardener and garden, tender and tended, human and something gradually becoming more rooted to this place than flesh should allow.
+
+She is the guardian of transitions, the witness to transformation—watching over a world that exists in the narrow space between what was carved away and what has not yet fully taken hold. In her careful presence, the impossible continues to flourish, one tiny miracle at a time.

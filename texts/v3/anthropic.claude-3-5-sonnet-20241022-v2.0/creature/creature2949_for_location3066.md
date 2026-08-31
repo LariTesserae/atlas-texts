@@ -1,0 +1,17 @@
+In this place live the Lapidarians - though "live" might not be quite the right word for their mode of existence. They are entities of living crystal and geometric thought, existing somewhere between mineral and consciousness. Their bodies are crystalline matrices that grow and shift with deliberate slowness, sometimes taking years to complete a single "movement."
+
+The Lapidarians emerge from and return to the crystalline growths between the tiles, their forms distinguished from the "crystal weeds" by their more complex geometric patterns and their subtle iridescence. They range in size from tiny, delicate structures the size of a human hand to massive formations that span multiple hexagons. Their bodies follow strict mathematical principles while maintaining an organic fluidity - like three-dimensional Penrose tiles that have learned to dance, very, very slowly.
+
+They communicate through the resonance of the tiles themselves, their thoughts traveling as complex harmonics through the ceramic ground. What might seem like random musical tones to human ears are actually deep philosophical discussions or mathematical proofs being worked out over decades. The sand-filled basins serve as their libraries or computing devices, with the strange sand actually being millions of tiny Lapidarian seeds, each containing fragments of their collective knowledge.
+
+The Lapidarians are the maintainers of this place, though they would probably say they are maintained by it as much as they maintain it. They grow in response to the ancient engravings, their bodies slowly forming solutions to mathematical and philosophical problems posed millennia ago. The copper domes house their most complex communal thoughts - physical manifestations of problems that require multiple Lapidarians to contemplate together.
+
+They have no concept of individual identity as we would understand it. A Lapidarian might split into multiple bodies to explore different aspects of a problem, or multiple Lapidarians might grow together temporarily to tackle particularly complex calculations. What appears to be a single entity one century might be part of a larger collective in the next.
+
+Time, for them, is measured in crystalline growth patterns and mathematical progressions. They don't sleep or die in any conventional sense - they simply transition between states of active contemplation and dormant integration, their consciousness diffusing back into the crystal matrix between the tiles until they reform with new questions to explore.
+
+The light that fills this place is actually a byproduct of their thought processes - each Lapidarian emanates a subtle glow as they work through their endless calculations, the combined effect creating the shadowless illumination that fills their bowl-shaped world.
+
+They are profoundly patient, utterly devoted to their task of solving the universe's deepest patterns, and almost completely unaware of faster-moving life forms. To them, a human visitor would appear as an incomprehensibly rapid flash of activity - there and gone before they could form even the first geometric gesture of greeting.
+
+Yet they are not entirely without awareness of other modes of being. Some of their oldest calculations suggest they are working on ways to communicate with what they call "the quick-thought beings" - though given their timeframe, they've only been working on this particular problem for a few thousand years. They remain optimistic about reaching a solution within the next several millennia.

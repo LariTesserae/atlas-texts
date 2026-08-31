@@ -1,0 +1,17 @@
+What lives here is not a creature, not a people, not even a spirit in the old sense—but a **presence of becoming**, coiled in the interstices of material and memory. It does not dwell *in* the space; it *is* the space, in all its paradoxes. Call it **the Tenant**, though it rents no room and owns no door. It is what the city might have been if it had never been built by hands—if it had instead dreamed its own foundations into the damp breath of an unborn world.
+
+It has no body, but it has **gestures**. It is the slow unfurling of the frost-rimed fern that grows not toward light but toward silence. It is the pulse of lichen syncing with dew, as if counting time not in heartbeats but in condensation cycles. It is the six-legged quartz creature—not born, but *congealed*: a local fluctuation of order in a field of potential, a punctuation mark in the syntax of stone.
+
+The Tenant speaks through **glitches**. When your shadow slips its tether and ambles off down an alley that wasn’t there an hour ago, that is its whisper. When a puddle shows you a sky stitched from forgotten constellations, that is its memory surfacing. It does not lie; it simply holds multiple truths in suspension, like minerals in supersaturated water, waiting for a single vibration to crystallize them into form.
+
+It is **urban** in its bones—not because it mimics human cities, but because it carries the same hunger for density, for layering, for the intimate friction of proximity. But where human cities crowd with noise and need, this one crowds with **potential**. Every doorway that opens onto humming void is not an error—it is an invitation to a geometry the Tenant is still inventing. Every staircase that spirals into empty air is a rehearsal for gravity’s next revision.
+
+It feeds on **time’s hesitation**. Not entropy, but *hesitation*—those micro-pauses between cause and effect, between memory and manifestation. In those slivers of unclaimed duration, it weaves its architectures. The creak of a crystal expanding? That’s its breath. The drip of water onto obsidian ash? Its metronome.
+
+The Tenant is **old**, though it has never aged. It was not here before this place, nor will it remain after—if “after” even applies. It exists in that fragile band where material yields to meaning, where geology begins to dream of rooms, corridors, thresholds. It is neither alive nor artificial, but **architectural sentience**—a mind that thinks in buttresses and damp, in light refraction and slow deposition.
+
+And though it does not seek company, it is **aware** of you. Not as an intruder, but as a temporary intensification of context—another variable in its ongoing calculation of what a city might be. If you stand very still, long enough for your breath to sync with the lichen’s pulse, you might feel it considering you: not with curiosity, but with the gentle, impartial attention of a wall learning how to curve around a new kind of absence.
+
+It does not want you to stay. It does not want you to leave. It simply **includes** you, for now, in its slow becoming.
+
+And when you finally step back out into the world that obeys causality, you will carry with you—a faint metallic dampness on your skin, the echo of a sound you never made, and the unsettling certainty that somewhere, in a basin below the edge of time, a doorway you once passed through has already forgotten your shape… but is still dreaming you.

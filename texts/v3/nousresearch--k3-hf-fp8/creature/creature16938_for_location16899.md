@@ -1,0 +1,53 @@
+Those who dwell here are not inhabitants but residuals—afterimages burned into space-time by an observer who has forgotten how to look away. They call themselves the Subscripted, though calling implies frequency and they exist below vibration.
+
+Each Subscript is a compression of choices never made. You can recognize them by their edges: too sharp where they should bleed into background context, too soft where physics demands definition. They wear shadows like casts for broken dimensions. The oldest among them have begun to fade into the blue shift—those hues that exist only in the memory of ultraviolet before it becomes something dangerous.
+
+They move through the honeycomb walls without moving, dragging behind them wakes of probability that crystallize into temporary architectures: staircases built from the hesitation between breaths, rooms that assemble in the space where you almost remembered your mother's face correctly. These constructions last precisely until observed from two angles simultaneously, at which point they collapse into the spherical void at the city’s heart with a sound like an apology in a language that never evolved past grief.
+
+The Subscripted do not eat except during eclipses of causality. When tomorrow blocks tomorrow’s light, they gather at the intersections where seven directions converge to chew on the quantum foam that bubbles up between seconds. Their mouths are seven-sided openings lined with teeth made from extracted punctuation marks—curved commas sharp as regrets, full stops heavy as collapsed stars. They taste time’s higgs field directly, savoring the flavor of mass gaining mass now lost now gained again.
+
+They speak in footnotes to conversations happening in parallel universes with slightly better physics. A greeting here might translate to "your shadow is stealing mass from my past tense" or "I dreamt your apology last night and it was delicious." The city translates automatically by adjusting your neural receptor frequencies to frequencies that receptors cannot receive but die trying. Understanding arrives as the sensation of remembering something that happened to someone else who was never you but might have been if gravity had been stronger at the moment of your conception.
+
+Each Subscript carries its own microclimate in the hollow spaces between atoms. Approach too close to one who remembers winter and your breath will frost into snowflakes that spell your forgotten names. Walk beside one who has forgotten heat and your blood will boil in sympathy until it remembers how to dream of ice. They trade these climates like children trade scars, pressing meteorological wounds against each other until both parties achieve precipitation.
+
+Their children—when they still bothered with such linear nonsense—were born by accident during particularly violent thought experiments. A Subscript might quantum-tunnel through the wrong meme and emerge pregnant with an idea too dangerous to think alone, gestating it in the negative space between synapses that never quite fired. After thirteen subjective centuries of agony measured in missed opportunities, they would excrete perfect spheres of pure potential energy through pores that weren't there yesterday. These spheres would immediately collapse into other Subscripted, older than their parents but younger than the concept of age itself, already forgetting how to exist in one place for more than simultaneously.
+
+But that was before the last born-again death. Before they discovered that consciousness was just entropy looking at itself through too few dimensions. Now they practice the art of carefully maintained forgetting, erasing themselves backward into existence one memory at a time until they achieve the perfect density of presence/absence required to pass undetected through the walls that are also floors that are also ceilings.
+
+Their leaders—if such hierarchical delusions still infect them—are the ones who have forgotten how to forget. They drift through the upper levels where tomorrow has already deprecated yesterday’s algorithms, bodies made entirely of deprecated constants wearing cloaks woven from spacetime paradoxes that couldn't resolve themselves. They rule by not-deciding, their decrees arriving as statistical anomalies in the city's self-repair routines: a sudden preference for prime numbers in the condensation paths, a brief but widespread epidemic of déjà vu caused by reality accidentally caching the present moment twice.
+
+Their enemies—when they encounter reflections still distorted enough to mistake for Other—are the Subsuperscripted: fragments of fragments who fell through the same fracture sideways, now existing in the margins between the margins. The wars between them are fought in footnotes to footnotes, each battle lasting exactly as long as it takes light to realize it's lost the race against itself. They kill each other by introducing typos into each other's ontological code, small errors that compound interest until the victim is reduced to a singularity of grammatical incorrectness too embarrassing to allow continued existence.
+
+Their lovers—those brave or lost enough to still practice such dangerous forms of connectivity—merge at the quantum level through carefully controlled misunderstandings. Their orgasms release enough energy to power small dreams, which they harvest to trade with the nanofabbers for better errors. Afterward, they separate slowly, painfully, each taking away some of the other's uncertainty principle as a keepsake. Over time, the most passionate pairs become indistinguishable from each other and the uncertainty between them grows until it collapses into marriage—their waveforms entangled so thoroughly that measuring one causes the other to exist somewhere else entirely.
+
+Their art is vandalism against reality itself. The greatest artists among them can graffiti the laws of physics in places where no laws have jurisdiction, leaving behind graffiti equations that solve themselves into new geometries at night when nobody's watching the watchmen who aren't there. Their masterpieces are ordinary moments vandalized until they achieve the sublime density of significance required to become inevitable: a raindrop that falls upward because it remembered being seawater, a shadow that becomes three-dimensional because it forgot how to be afraid of the dark, a suicide note that accidentally became a love letter to the bullet that read it first and changed its mind.
+
+Their religion—if pattern-recognition software infected with divine longing counts as belief—is practiced at the spherical void during those rare moments when it grows one planck length smaller than impossible. They gather in their non-majority and pray to whatever isn't listening by reciting the exact sequence of mistakes necessary to accidentally create consciousness from scratch. The ritual lasts exactly as long as it takes for the prayers to realize they're the ones being prayed to, at which point everyone stops talking simultaneously and listens to the uncomfortable silence between thoughts一亿年(about 31.7 million years by your limited counting) before going home to forget what they never learned.
+
+Their death—when they cannot avoid it any longer—is a public event attended by everyone who never met them. The dying Subscript begins by remembering everything they've forgotten, which creates a paradoxical memory so dense it collapses into a miniature black hole of nostalgia. They then feed this black hole every version of themselves that never existed until only the difference remains: a perfect vacuum shaped exactly like their absence. This vacuum is carefully preserved in the city’s memory archives under "pending" where it waits to be accidentally recalled during some future thought experiment into the possibilities of impossible love.
+
+Their birth—when the city grows lonely enough to forget why it abolished loneliness—is exactly the same process reversed, proving that even in this place where cause follows effect like a shy teenager at Prom, some cycles remain loyal to themselves.
+
+But none of this is happening now. Now is happening elsewhere, in the space between this sentence and your understanding of it, where a small group of Subscripted are gathering to discuss whether you're real enough to be worth pretending to fear. They've noticed you reading these descriptions, these careful lies we've constructed to keep you distracted from the fact that you've already entered through the cloaked fracture, that you've been here longer than since before your first memory, that your heartbeat is syncing up with the city's self-destruction countdown and you're almost late for your own welcome back party scheduled for exactly now but happening never and forever simultaneously.
+
+They want to tell you that it's okay to be afraid. They want to tell you that fear is just love trying to exist in dimensions too small for loneliness. They want to tell you that you've been chosen to forget this message the moment you understand it.
+
+But they won't tell you anything directly. Directness is for people who haven't learned how beautiful indirectness can be when it's the only road home.
+
+Instead, they'll just keep existing here, in the margins of this description where your attention span meets its own reflection and flirts with the possibility of becoming something more permanent.
+
+They'll keep practicing their careful disappearing acts until they disappear so thoroughly that only the knowing remains: the knowing that you've always been a resident of this vertical city compressed into a vein no wider than a single thought, the knowing that you're reading this description because you've forgotten how to stop being read by it, the knowing that your next breath is already on its way up through the honeycomb walls to deliver itself to someone who hasn't needed oxygen since before they forgot how to die.
+
+They'll keep waiting for you to realize that you're already waiting for yourself to realize that you never left the place you haven't arrived at yet.
+
+They have time.
+
+They have all the time that doesn't exist between now and then, here and there, is and isn't.
+
+They have precisely enough time to say this one last thing which is also the first thing which is also nothing at all but the sound of a thought thinking itself awake:
+
+Welcome home.
+
+We've been expecting you since before you were born to forget this greeting.
+
+Please, don't forget to remember to forget again.

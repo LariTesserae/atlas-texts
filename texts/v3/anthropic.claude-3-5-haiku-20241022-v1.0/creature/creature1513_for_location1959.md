@@ -1,0 +1,11 @@
+In this realm of persistent moisture and near-crystalline tension, the inhabitants are themselves liminal beings—creatures that embody the landscape's own fluid, transitional nature.
+
+There are the Water Wraiths, translucent beings that move like slow currents through stone passages. Not quite solid, not quite liquid, they have membranes instead of skin that pulse with the cavern's rhythmic breathing. Their bodies contain intricate networks of luminescent channels, like living mineral formations, which glow with a pale blue-white light that matches the phosphorescent mosses. They navigate by sensing molecular vibrations, communicating through low-frequency resonances that sound like distant whale song.
+
+Deeper in the system live the Stone Swimmers—creatures evolved to move through rock as if it were a dense fluid. Their bodies are composed of a flexible mineral-protein complex that allows them to compress and expand, sliding between stone layers with geological patience. They have no fixed form, instead constantly reshaping themselves to match their environment, with sensory tendrils that can detect microscopic changes in temperature and moisture.
+
+Clustered in crevices are the Condensation Grazers: small, pale organisms that feed on the mineral-rich moisture constantly seeping from the walls. They have intricate filter-structures resembling delicate lichens, which absorb nutrients directly from the ambient humidity. Their metabolism is so slow that a single meal might sustain them for decades.
+
+Occasional migratory groups pass through—beings that move with such deliberate, almost imperceptible motion that they seem more like geological events than living creatures. They leave no permanent trace, only subtle alterations in the cavern's complex hydrology.
+
+These inhabitants are not separate from their environment but integral to it—less inhabitants than expressions of the landscape itself, living embodiments of the space's fundamental characteristics: patient, transformative, perpetually on the edge of becoming something else.

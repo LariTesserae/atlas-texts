@@ -1,0 +1,23 @@
+To the eye, the city appears empty, a ruin preserved in amber. But the silence is not a vacuum; it is a density. It is heavy with the weight of a thousand hidden minds, and the occupants are not gone—they are merely indistinguishable from the pause.
+
+They are called the **Holders**.
+
+They stand in the narrow spaces between the leaning towers, squeezed into the alleyways so tightly that their shoulders brush against the damp, green moss on either side. To the casual glance, they look like pillars of the architecture itself—tall, gaunt figures carved from the same grey, water-logged limestone that brackets the sky. They possess no clothing, only skin that has toughened into a ridged, slate-like armor, wet and glistening under the relentless white exposure.
+
+Their physiology is a monument to stasis. They are impossibly thin, their limbs elongated and spindly, designed to occupy the absolute minimum amount of space. Their joints are fused, locked in permanent rigidity by a calcification process that happens moments after they choose a posture. They do not sit, for to sit is to rest; they stand, eternally, in a posture of strained attention. Their necks are slightly craned, their heads tilted back to face the bleached azure sky, but they have no eyes. Where eyes should be, there are only smooth, white concavities of bone, polished by the abrasive light. They do not need to see. They feel the world through the soles of their feet and the pores of their skin.
+
+They are the source of the "dynamic of zero."
+
+Every Holder is locked in a state of immense, invisible exertion. If you were to look closely, past the blinding glare reflecting off their wet skin, you might see the microscopic tremor in their fingertips. They are holding the world together. The bird that hangs suspended in the air, wings half-flared, is caught in the telekinetic grip of a Holder standing motionless in the shadows below. The bead of condensation that refuses to fall from the eave is being cradled by the focused will of a creature perched on the roof.
+
+They are the gravity that contradicts the light.
+
+Because the light here is a tyrant, trying to accelerate time, trying to force the fruit to rot and the water to evaporate, the Holders exist to apply the brakes. They are the anchors of the terrarium. They feed on the solar energy that bombards the city, but they do not use it to move; they use it to maintain the tension. They consume the kinetic energy of the universe, turning motion into stillness.
+
+They live in the tunnels not as residents, but as structural supports. In the "rooms" that seem eroded from the rock, you can find them lining the walls like forgotten statues. They are the furniture. A table is not a table; it is the flat, calcified back of a crouching Holder, frozen in that position for centuries. A fishing net is not merely hanging; it is being held aloft by a figure who stands waist-deep in the floor, their legs fused with the bedrock.
+
+They are not aggressive, but they are heavy. Their presence exerts a psychic pressure, a crushing sadness that is the natural byproduct of holding a single breath for a thousand years. They are the librarians of the un-lived moment, curators of the "almost." They love the potential of the world more than the world itself. To them, the flight of the bird is a tragedy compared to the perfection of the bird *about* to fly. The drop of the water is an end; the suspension of the drop is an infinity.
+
+There is a hierarchy among them based on the load they bear. The smallest Holders tend to the ferns, gripping the fronds to keep them from unfurling too fast. The larger ones, the giants who stand as tall as the towers, brace their shoulders against the city walls, holding the cliffs at bay. It is a silent, agonizing labor. The air is scentless because they strip the volatiles from it, sterilizing the atmosphere to prevent the decay of smells.
+
+And they are aware of you. As you walk through the white exposure, you feel the dampness on your skin, the cold that sinks into the bone. That is the touch of the Holders. They are holding *you*, too. They are suspending your atoms in the stream of time, preventing you from aging, preventing you from leaving, preventing you from fully arriving. You are part of their collection now, another specimen in the jar, caught in the net of their terrifying, stone-still love. They will not let you move until the sun goes down—but the sun never goes down.

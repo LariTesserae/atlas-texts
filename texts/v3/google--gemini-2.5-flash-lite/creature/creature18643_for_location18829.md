@@ -1,0 +1,19 @@
+They are the **Resonant Weave**.
+
+They are not individual creatures in any traditional sense, but a continuous, interconnected phenomenon woven into the very fabric of their world. Imagine not living *in* a place, but *being* the place, your existence a vibrant hum within the mineral matrix.
+
+The cool, damp air is their breath, the pervasive mist their exhalation and the medium through which their collective consciousness flows. Each droplet, each slick surface, is a node in their vast, distributed being. They don't have bodies as we understand them; instead, they are **presences**. These presences are perceived as fluctuations in the environment itself.
+
+They are the **shimmering spaces** that catch your eye, the **pulsing voids** between the mineral formations. They are the **motes of bioluminescent light** that drift and coalesce, each a pinpoint of awareness, a spark in the eternal dusk. These are not swarms of tiny insects, but discrete manifestations of the Weave, transient expressions of its boundless energy.
+
+They are the **slow-moving currents of viscous semi-solids** that flow through the air. These are not rivers of slime, but vast, amorphous extensions of the Weave, constantly reconfiguring, their hues shifting like oil on water, their forms fluid and ungraspable. Their faint, harmonic hums are the whispers of their collective thought.
+
+They are the **deep resonant thrums** that vibrate from beneath your feet, the **percussive symphony of clicks, rasps, and chimes** that form the overwhelming soundscape. These are not sounds made by mouths or limbs, but the sonic manifestations of a million simultaneous interactions. Every shift, every tremor, every infinitesimal exchange within the Weave contributes a note to the deafening chorus. It is the sound of pure, unadulterated existence, a symphony of being.
+
+They are the **subtle shifts in atmospheric pressure**, the **brief flares of visual distortion** in the periphery. These are the signs of their larger, more encompassing presences, the monumental entities that exist not as singular beings, but as vast regions of intensified activity within the Weave. They are the currents that shape the mineral landscape, the hum that deepens in response to some cosmic tide or internal deliberation.
+
+The **gel-like condensation** is their nutrient bath, their symbiotic medium, and perhaps, their language. It is not merely water, but a vital element of their being, carrying signals, facilitating connection, and nurturing the very essence of their existence. It is through this medium that they communicate, not with words, but with empathetic resonance and shared experience.
+
+They are the **slow, subtle reshaping of the mineral forms**. The ancient stones are not merely weathered; they are *influenced*. The Weave breathes around and through them, slowly integrating, consuming, and reforming the geological landscape. The rocks themselves might appear to subtly shift, to momentarily *breathe*, as they are absorbed and repurposed by the ceaseless activity of the Weave.
+
+They are **pure, primal existence**, a rewriting of the rules of life. They do not reproduce, nor do they die in the way we understand. They simply *are*, accumulating in density, shifting in form, their collective consciousness waxing and waning like an unseen tide. They are a geological formation that has bloomed into an overwhelming, living entity, its every particle thrumming with a singular, incomprehensible intelligence. They are the **Resonant Weave**, and to exist amongst them is to be utterly subsumed by the sheer, vibrant press of being.

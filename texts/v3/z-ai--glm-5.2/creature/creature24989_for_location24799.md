@@ -1,0 +1,69 @@
+# What Lives Here
+
+---
+
+The motes are not the smallest things here, but they are the smallest things that move under their own direction, and this makes them, by most definitions, the most alive.
+
+You have to watch one for a long time before you see it do something that looks like a decision. The first one you track — the one near the base of the tallest spire, the one you initially mistook for a sediment fleck caught in the faint current — spends eleven minutes in approximately the same location. During those eleven minutes it does not hold still. It oscillates. The movement is tiny, sub-millimeter, a trembling in place that might be Brownian motion if Brownian motion had preferences. It drifts left, corrects. Drifts up, corrects. Returns to a point that is not precisely the point it left but is close enough that you get the impression of something *maintaining* a position rather than *occupying* one. The way a person stands in one spot on a subway platform — not planted, not rigid, just oriented toward something, leaning and recovering, leaning and recovering.
+
+Then it moves.
+
+The motion is not gliding. It is not swimming in any way you associate with swimming — no visible appendages, no flexion of a body, no propulsion you can identify. The mote simply changes its relationship to the water around it and the water carries it, or it carries itself through the water, and the distinction between those two things is one of the distinctions that doesn't hold here. It traces a path that curves along the base of the spire, follows the lattice of a lower branch for a few centimeters — close enough that it might be touching the mineral surface, might be riding the chemical gradient that the fresh growth produces — and arrives at the tip of a secondary branch, where the crystal is newest, where the accretion is most active. It settles. The trembling resumes. It stays.
+
+You watch it there for twenty minutes. During that time, the branch it has settled on extends by a distance you can barely measure — a thickening at the tip, a slight change in angle, a new nub of material emerging from one side that might, in a week, become a fork. You cannot say the mote caused this. The growth might have happened anyway. But the mote is *there*, at the place where the growth is happening, and its presence and the growth are coincident in the way that two things are coincident when they are part of the same process.
+
+---
+
+There are five in the central pool. You learn to tell them apart, though not by appearance — they are too small for their individual features to resolve. You tell them apart by behavior.
+
+One is almost sedentary. It stays near the base of the tallest structure, in the crevice where the spire meets the pool floor, and it moves very little and very slowly and you think of it as the oldest, though you have no basis for that and it might simply be a different kind of thing than the others, performing a different function, occupying a different role in whatever the motes are to each other and to the system. It sits where the mineral deposit is densest, where the structure is oldest, where the chemistry is most stable. If the motes carry information between the growth sites, this one is the archive. If they don't, it's just a speck that doesn't like to move.
+
+Two are active. They travel between the structures in paths that seem to have regularity — not fixed routes, but preferred corridors through the pool, spaces between the spires that they use again and again. They visit multiple growth tips in sequence. They pause at each one. They don't stay as long as the sedentary one stays at its base, but they pause long enough that the pausing is clearly the point and the traveling is the means. They pass each other occasionally, in the open water between two structures, and when they do, they don't acknowledge each other. No circling, no contact, no change in trajectory. They pass the way two people pass in a hallway — aware, perhaps, but not interested. Or not aware. Or aware in a way that doesn't involve acknowledgment.
+
+The fourth you almost never see. It stays in the deepest part of the pool, where the water is darkest and the luminescence is most diffused. You catch glimpses of it — a shadow among shadows, a movement that displaces the light in a way you can't directly observe but can infer from the way the glow ripples. It might spend its time at the pool floor, among the root structures of the mineral spires, in the place where the growth originates. It might be doing something there that matters in a way the surface activity doesn't. Or it might be hiding. From what, you don't know. There's nothing here to hide from.
+
+The fifth is the one that found you.
+
+---
+
+You had put your hand in the pool. The warmth invited it — the water is warmer than the air, and the air is already warm, and the contrast is the kind of contrast that makes you want to test it. Your fingers broke the surface and the light moved around them, the luminescence refracting through the disturbance, and for a moment the pool became more complex — your hand casting a shadow that shouldn't have been possible in a room with no directional light, but the water's glow was blocked by your fingers and the shadow was real, and you saw it fall across the base of the nearest spire, and in the shadow the mineral surface looked dull, and outside the shadow it glowed, and you realized that the structures are not just growing in the light but *of* the light, that the luminescence is part of the deposition process, that the photons do work.
+
+The mote found your fingertip.
+
+You felt it before you saw it. A change in the water immediately adjacent to your skin — a warmth that was warmer than the water, a point-source of heat so small and so faint that it registered not as temperature but as attention. A place on your finger that you became suddenly aware of, the way you become aware of a insect landing on your arm, except this was in the water, against your skin, and it wasn't an insect.
+
+It was the size of the others. Less than a millimeter. A dark point against your fingertip, visible only because your skin was lighter than the water around it and the mote was darker than both. It sat there — on you, against you, in contact with you — for maybe thirty seconds. You held very still. The warmth pulsed once, faintly, and you felt it in the bone of your finger, a tiny harmonic of the deeper pulse that came up through the floor.
+
+Then it left. It moved away from your hand with the same directionless-seeming purpose that the others used, and it returned to the nearest spire and settled at a growth tip and resumed its trembling.
+
+You pulled your hand from the water. Your fingertip was slightly pink where the mote had been. Not a mark. Not a wound. A flush, a warmth, a slight vasodilation that might have been the heat of the water or might have been something else. It faded in a few minutes. You didn't put your hand back in.
+
+---
+
+The structures themselves are harder to talk about as inhabitants, because they don't move, and we tend to reserve *living* for things that move. But they grow. They change. They have a shape that is the record of their history, each fork a decision, each taper a constraint, each thickening an accumulation. They are, in a literal sense, the solidified output of the computation happening in the water — the mineral deposit laid down according to patterns determined by the molecular self-organization, and the patterns are complex enough that the resulting forms look less like crystals and more like something that was *intended*, even though there is no intent, there is only process.
+
+The tallest one — thirty centimeters, the one the sedentary mote lives near — has a history you can read if you look closely. The base is thick, almost two centimeters across, and the mineral there is dense and slightly opaque, the luminescence muted. This is old growth. The middle section is thinner and more transparent, the branching more frequent, the angles of the forks more varied — a period of rapid growth, or a period of chemical instability, or a period of exploration. The upper section is the most delicate: thin tines, almost hair-fine, branching and rebranching in a fractal pattern that is not quite regular, not quite random, and glows brightest because the mineral is newest and the luminescent compounds are most concentrated. The tips are where the system is still deciding what to become.
+
+The smallest structure — the nubbin, barely emerging from the pool floor — is not a young version of the tall one. It has been there for at least as long as the tall one's upper section; you can tell because the mineral at its base has the same density as the surrounding pool floor, which means it has been accumulating for a while. But it hasn't grown upward. It has grown in a different direction — wider, flatter, a deposit that spreads along the floor rather than rising into the water. It might be a different *kind* of structure. It might be the same kind of structure responding to different chemical conditions at the floor level. It might be a structure that failed — that started growing and then the conditions changed and the growth found a different expression. There is no way to know. There is only the shape and the chemistry and the slow, ongoing argument between them.
+
+---
+
+And the water itself.
+
+The water is the hardest thing to describe as an inhabitant, because it's the medium — the thing everything else is in, the background, the context. But the water here is not passive. It carries the minerals that make the light. It carries the chemistry that regulates the system. It carries the heat from below and distributes it through the pocket. It carries the motes, or at least provides the space in which the motes move. And it does something that water, in your experience, does not do: it *organizes*.
+
+The dissolved compounds in the water are not randomly distributed. They exist in gradients — concentrations that are higher near the growth tips, lower in the open water between the structures, higher again near the walls where the condensation is freshest. These gradients are maintained by the water's movement, which is maintained by the temperature differentials, which are maintained by the heat pulse from below, which is maintained by whatever is happening deeper in the rock. The water is not just carrying things. It is sorting them. It is keeping the right compounds in the right places at the right concentrations, and it is doing this not by intention but by physics — but the physics is organized in a way that physics, in your experience, is not usually organized.
+
+The water is the organism, if anything here is. The structures are its skeleton. The motes are its — what? Its hands? Its thoughts? Its reproductive cells? The light is its signature, its exhalation, its proof of process. The pocket is its body. The heat from below is its metabolism. The condensation on the walls is its circulation. It is a single system expressed in multiple forms — mineral, liquid, vapor, light, motion — and none of those forms is the whole system, and the whole system is not any single one of them, and the motes are the part that moves, and the structures are the part that stays, and the water is the part that connects them, and the light is the part that shows you what it's doing.
+
+---
+
+You sat there for three hours. In that time, the light cycled through perhaps fifteen pulses, each one slightly different in amplitude and duration. The motes moved among the structures in patterns that you began, toward the end, to feel you could almost predict — not the specific paths, but the *kind* of movement, the rhythm of travel and pause and travel, the way they favored certain structures at certain points in the light cycle. When the glow brightened, they moved more. When it dimmed, they settled. The connection was not direct — there were lags, exceptions, moments when a mote would move during a dim period or hold still during a bright one — but the correlation was there, and it suggested that the motes are not just in the system but *of* the system, synchronized to its rhythms, responding to the same chemical gradients that drive the growth.
+
+The sedentary one never moved from its place at the base of the tall spire. Not once in three hours. It may have been there for days. It may have been there for the entire life of the structure. It may be the first mote, the original, the one that was present when the growth began, the one whose presence at that spot in the pool floor created the chemical conditions that allowed the mineral to start accumulating upward instead of outward. It may be the reason the tall spire is tall.
+
+You can't know this. You can only sit with it, in the warmth, in the wet light, in the silence that is not silence but the sound of a process running, and watch the motes move among the mineral trees like something between pollen and prayer, and feel the pulse come up through the rock, and understand that you are inside something that is alive in a way that doesn't need your definition of alive, that is working in a way that doesn't need your definition of work, and that will continue after you leave, after you climb back up the fissure, after you describe what you found to people who will want to call it one thing or another and will be wrong and right in the way that all descriptions of things you don't fully understand are wrong and right.
+
+The water weeps. The motes move. The structures grow. The pocket breathes.
+
+It doesn't need you here. It doesn't mind you here. These are not different things.

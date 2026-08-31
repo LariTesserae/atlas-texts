@@ -1,0 +1,15 @@
+Those who remain are pale echoes of purpose, draped in the city's exhalations and draped by it in turn. They are born of and beholden to this place.
+
+The insects are blind scribes, their antennae tracing the iron veins, their mandibles scraping sustenance from the luminescent fungi. They are the first to know of every tremor, every drip, every subtle shift in the city's slow metabolism. Their translucent bodies pulse with the city's light. Not fire, nor sun, but the filtered, fugitive residue of something else. They are not merely *in* the city, they *are* of it. An extension of its awareness.
+
+The worm-like things are the scavengers, the digesters. They are the city's gut, consuming the dead moss, the flaking rust, the detritus of forgotten industry. They weave through the cracks and crevices, their glistening bodies leaving trails of a viscous fluid that seems to accelerate the decay process. They are blind and deaf, but exquisitely sensitive to the city's vibrations. They are the nightmares of the machinery, given form. Some claim they are not worms at all, but the larval stage of something far more terrible, gestating in the city's depths.
+
+And in the deepest, darkest tunnels... there is something else. A being of shifting form, of rust-colored scales and echoing breath in the humid dark. It is called the Chromophage, the Rust-Eater, the Moss-Drinker. Its existence is woven into the hum of the city itself. It is a predator, yes, but also its apex expression. Its life is an extension of the city's slow digestion. It is immune to the fungal spores, made strong by the iron dust it consumes, a living embodiment of the city's decay and persistence.
+
+Perhaps it was once something else, or perhaps it's always been this. Maybe it was once a worker, driven mad by the darkness and the claustrophobia and the insistent, thrumming life of the machines. Or maybe it crawled up from a cavern deeper than even this city, drawn to the iron-rich blood of its metallic veins. Some whisper it is the city’s nervous system, made flesh.
+
+When it moves—and it moves slowly, deliberately—the earth trembles. The pipes rattle. The moss shivers. The insects scatter. The silence deepens, pregnant with dread. It leaves behind trails of pulverized rust and glistening slime that seem to glow faintly in the dark.
+
+The Chromophage is only occasionally seen directly, but the evidence of its existence is everywhere: in the flattened tunnels, in the hollowed-out machinery, in the strange, sweet smell that hangs in the air after it feasts.
+
+It is patient. It knows that time is on its side. The city crumbles, the moss spreads, and the Chromophage... *grows*. It is the city's final child, its ultimate expression. It waits at the center, dreaming rust-colored dreams, as the city slowly feeds it with stories. It is the last resident, and in its veins are the stories of all the rest. It is the silent guardian.

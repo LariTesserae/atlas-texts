@@ -1,0 +1,25 @@
+To an observer who measures life by the standards of the surface—by the racing of hot blood, the wet vibration of vocal cords, or the frantic, chemical hunger of insects—this chamber is indeed completely empty. 
+
+But if one enters this space and remains there for a century, the definition of what is "alive" begins to stretch, thin, and settle into the grain of the basalt.
+
+There are three of them, though they have long ceased to have names for themselves, and the boundaries between where one ends and the next begins have been worn smooth by the dark. They are the **Silt-Keepers**, though a more accurate term might be the *Lithochords*: entities of living, petrified intelligence that have transitioned so completely into the mineral kingdom that they are indistinguishable from the hand-cut masonry of the walls.
+
+They look, at first glance, like flat, overlapping shingles of dark slate, about the size of a man’s breastplate, nestled into the corners where the masonry joins the natural bedrock. Their surfaces are matte, absorbing what little ultraviolet light the floating prism suggests, and they are covered in the same black-green moss that coats the rest of the room. This moss is not an invader upon them; it is their outer skin. Its rootlets run deep into their shale-like carapaces, acting as a slow-pulsing neural net that links the three of them across the quiet distance of the room.
+
+If you were to touch one of these slate plates, you would feel no pulse. You would feel only the dry, cold velvet of the moss. But if you held your hand there for a decade, you would feel a gradual, rhythmic change in its shape. They bend. It is a motion achieved not through muscle, but through the patient, atom-by-atom reorganization of their crystal lattices—a process of controlled healing and deliberate fracture that allows them to shrug away from the shifting pressure of the mountain.
+
+They do not eat. Instead, they are *piezoelectric ruminants*. They feed upon the staggering, immense weight of the miles of stone pressing down from above. When the mountain shifts—that long, low groan that shakes the bedrock once every hundred years—the Silt-Keepers absorb the mechanical stress through their plates. They ground it, converting the terrifying, crushing physical force of the earth into microscopic electrical currents. 
+
+This current is fed, through the rigid, light-absorbing silver threads, into the floating glass prism at the center of the room.
+
+The Silt-Keepers are the weavers of those threads. The silver lines are not metal, nor are they webbing; they are the extruded, calcified remnants of the Keepers’ original nervous systems, pulled taut across the empty corners of the cleft over thousands of years. The threads are perfectly rigid because they are held under a tension that defies normal physics, anchored deep into the basalt by the Keepers’ hidden, rooting limbs. Through these lines runs a silent, constant exchange of data—not of words or thoughts, but of pressure, temperature, and the slow, decadal decay of the prism's light-field.
+
+The Keepers do not sleep, nor are they awake in a way a human would recognize. They exist in a state of high-density stasis. Their minds are like deep wells into which thoughts fall very slowly, taking years to reach the bottom. 
+
+A single thought for a Silt-Keeper might begin with the fall of an ice bead. When a droplet of condensation finally swells on the low ceiling, takes three days to fall, and lands on the moss with a dry *tink*, the vibration travels through the moss neural net to the nearest slate plate. Over the next six months, this vibration is translated into a shift in the electrical tension of the silver threads. By the fourth year, the other two Keepers have received the signal. By the end of the decade, they have agreed on the meaning of the droplet’s weight, and their internal crystalline structures adjust by a fraction of a nanometer to accommodate the microscopic change in the room’s moisture.
+
+They are the caretakers of the stasis. They do not wish to leave; they do not wish for the sun. The ancient builders who cut the slate masonry are gone, collapsed into the tectonic history of the continent, but the Keepers remain because they have become the chamber itself. 
+
+To them, the floating prism is a small, cold hearth, and they are its hearth-stones. When the prism occasionally shifts its ultraviolet output—bending the light into a slightly different shade of invisible blue—the Keepers respond with a collective, microscopic contraction, their slate plates clicking against the bedrock with a sound like dry bones settling in a drawer. This is their version of a sigh.
+
+They live for the silence. They are the reason why the chamber is sterile of other life; their quiet, piezoelectric field gently repels the chaotic, frantic vibrations of boring insects and fungal spores, keeping the air as clean as a vacuum. They have cultivated this perfect, frozen attic bedroom because any change—even the introduction of a single warm-blooded breath—would be a terrible, deafening noise in the long, beautiful song of their stone.

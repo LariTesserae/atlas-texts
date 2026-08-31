@@ -1,0 +1,25 @@
+# The Dwellers
+
+They are known to themselves as the Tsu'mok, though few from the world above have ever heard this name spoken. Descended from humans who sought refuge in these depths centuries ago, they have become something neither fully human nor entirely other—caretakers and expressions of the Hollow itself.
+
+Standing slightly shorter than surface dwellers, their bodies have adapted to life in perpetual twilight. Their skin is alabaster-pale with faint blue undertones where veins run close to the surface, and in certain light appears nearly translucent at the extremities. Dark patterns resembling the mineral stains of the pools mark their skin in unique, familial designs—natural birthmarks that have become ritualized identifiers among their kind.
+
+The Tsu'mok's most striking feature is their eyes—enlarged and entirely black, with no discernible iris or sclera. These eyes cannot endure direct sunlight but can perceive minute variations in the dim illumination of their home. They navigate primarily through a heightened sense of touch and extraordinary hearing that detects the subtlest changes in air pressure and the resonant frequencies of the cavern itself.
+
+Hair grows sparsely on their bodies, replaced instead by small, symbiotic filaments—not quite fungal, not quite hair—that sense changes in temperature, humidity, and air movement. These living sensors cluster most densely at the back of the neck and along the spine, gently undulating in response to environmental shifts too subtle for outsiders to perceive.
+
+Their society centers around the thermal pools, which they call the "Wombs of Remembering." Each of the seven family lines tends to a specific pool, maintaining its balance through practices passed down through generations. They communicate in two languages simultaneously—a spoken tongue of soft clicks and elongated vowels that carries peculiarly well in the acoustics of the cavern, and a secondary language of gentle hand gestures illuminated by bioluminescent pigments they cultivate and apply to their fingertips.
+
+The Tsu'mok live in close symbiosis with the Hollow's ecosystem. They cultivate the transparent ferns for food and medicine, harvesting them according to cycles timed to the changing angles of light that penetrate through the skylights across seasons. They maintain a delicate relationship with the luminous cave fish, which they never consume but instead feed with carefully fermented moss preparations that enhance the fishes' bioluminescence—their primary source of light for deeper explorations.
+
+Their dwellings are organic extensions of the cavern itself—recessed chambers excavated over generations and lined with living moss that purifies the air. Thin curtains of cultivated fungal strands provide privacy while allowing air circulation. Their few possessions are primarily ceremonial or practical: tools fashioned from bone and stone, musical instruments made from hollow stalactites, and intricate recording devices created from interwoven transparent fibers that somehow capture and store information through knot patterns.
+
+The ancient altar is still very much in use. The Tsu'mok maintain it as the "Listening Place," where their eldest members spend long hours in a state between meditation and communion. They believe—with evidence outsiders might find difficult to dismiss—that the Hollow itself possesses a slow consciousness that communicates through subtle vibrations, temperature changes, and the movement patterns of its indigenous life. The pictographs are not relics but an evolving record, added to with natural pigments in nearly microscopic increments each year.
+
+Their concept of time differs profoundly from surface dwellers. The Tsu'mok measure existence in "pool cycles"—subtle but predictable fluctuations in mineral composition that occur approximately every seventy surface years. Their oral histories speak of surviving seventeen cycles since the "Great Descent," when their ancestors fled some unnamed catastrophe above.
+
+They are neither hostile nor particularly welcoming to outsiders, viewing unexpected visitors with a cautious curiosity. Those who approach with respect may be tolerated as observers but never fully integrated. The Tsu'mok believe that the balance of their world depends on limitation—of population, of consumption, of change—and outside influence threatens this equilibrium.
+
+Most curiously, they seem to age differently. No member appears elderly, yet their movements suggest profound age—deliberate, efficient, and possessed of a patience that seems almost geological in its timeframe. Whether this is evolutionary adaptation or something imparted by the unique properties of the thermal pools remains their most closely guarded secret.
+
+They are guardians, chroniclers, and expressions of a place that has become as much a part of them as they are of it—the living embodiment of adaptation and symbiosis, neither trapped nor seeking escape, but perfectly attuned to the eternal present of their subterranean world.

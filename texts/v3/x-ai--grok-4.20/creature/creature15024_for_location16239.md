@@ -1,0 +1,27 @@
+**They are called the Rememberers.**
+
+Not by themselves — they have no name for what they are — but by the Cradle itself, which has begun to shape them the way it shapes everything else.
+
+They number perhaps four hundred, though the count is never fixed. Some mornings the town wakes to find two or three new bodies standing among the woven houses. The new ones are always wet, always blinking, always carrying faint bioluminescent patterns under their skin that were not there the day before. The Quiet accept them without ceremony. They simply make room on the black-rock shelves, hand them a bone needle and a length of sinew, and whisper the only greeting they ever offer: “You have been remembered.”
+
+Every adult among them bears the same mark: a pale, branching fungus-tattoo that begins at the base of the throat and spreads across the chest like frost on glass. It is not painted on. It grows. When someone first arrives (whether born in the ordinary way or delivered by the Cradle’s peculiar generosity), the root-like fungus that governs all death here chooses them instead of consuming them. It enters through the soft skin beneath the jaw and grows inward and outward at once, until the person and the fungus agree on a single shape. The pain is said to be exquisite and brief. After that, they no longer truly die.
+
+They age, yes. Their hair loses its luster, their joints stiffen, their eyes film over with the same milky blue that fills the sky above the basin. But when the last breath leaves them, the fungus does not lift them to the ossuaries. Instead it carries them down into the black mirror-pools between the roots of the pale trees. There the body folds itself into a fetal curl, the tattoo flares once in soft rose-gold, and the water closes over them like a eyelid. Days later something else climbs out. Sometimes it is a child. Sometimes it is one of the luminous deer with a human face. Sometimes it is only a cloud of blue-edged moths that remembers the dead person’s favorite lullaby.
+
+The Rememberers do not worship Veyr, whoever or whatever that may have been. They consider worship redundant. The Cradle is not a god; it is a cradle. It rocks them, feeds them, digests them, and sings them back into new forms. Their reverence is shown in absolute stillness. They have learned the library hush of the place so completely that even their heartbeats seem to fall into the same rhythm as the slow drip of water from stone knives. When they move, they move like the membranous gliders above them — drifting, never hurrying, their bodies painted with living constellations that change according to mood, memory, and season.
+
+Their language has no word for “future.” There is only *then*, *now*, and *again*. Children are taught that every scream, every laugh, every kindness or cruelty they offer is being carefully recorded by the listening spores. One day the Cradle will need that exact pattern again, and it will grow a new creature that contains it. Therefore nothing is wasted. Nothing is forgiven, either. Everything is kept.
+
+At the center of their settlement, half-hidden inside a fold of black rock, stands the only structure they built rather than grew. It is called the Crèche. Inside, suspended from the ceiling on threads of resin, hang hundreds of hollowed fruit-globes. Each contains a single developing organism — some recognizably animal, some recognizably human, some both, some neither. The Quiet come here to whisper to the unborn. They tell them stories of lives already lived, of deaths already died, of patterns the Cradle might wish to try again. The globes glow warmer when they approve of what they hear.
+
+The eldest among the Rememberers is a woman whose name, if she ever had one, has been forgotten even by her. The fungus has grown so thoroughly through her that her skin is almost translucent; soft rose light moves through her veins in slow tides. She no longer speaks at all. Instead she sits on the highest shelf at dusk, surrounded by drifting clouds of blue moths, and opens and closes her hands in deliberate code. The gliding membranous things above the valley answer her in matching patterns. No one knows what they discuss. No one asks. It is enough that the conversation continues.
+
+They are gentle in the way that deep water is gentle: immense pressure wrapped in perfect quiet. When one of their own sickens beyond the Cradle’s desire to heal, they carry the sufferer down to the largest mirror-pool at the valley’s heart. There they arrange the body with the same half-prayer, half-dance posture used in the ossuaries. Then they wait. The water breathes. The fungus arrives like pale smoke. And the sick one is taken below to be remembered differently.
+
+At night the entire town becomes a slow constellation. Every cage of moths, every fruit of grubs, every living tattoo on every chest pulses in loose synchrony. From a distance it looks like the mountain has grown a second, warmer sky and pressed it against its own stone heart.
+
+They do not fear the dark.  
+They do not fear death.  
+They only fear that one day the Cradle might run out of ways to remember them, and the library hush will become simple silence at last.
+
+So far, the Cradle has shown no sign of forgetting.

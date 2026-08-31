@@ -1,0 +1,69 @@
+What lives here has forgotten what light is.
+
+Not metaphorically. Not as a figure of speech for creatures that evolved in shade. I mean they have no concept of it, no ancestral memory of it, no genetic scar left by it. For some of the things down here, eyes would not be a trait that was lost so much as a trait that was never summoned into being — the way a river doesn't summon fire. What would vision even mean in a place where nothing has edges, where distance is measured in reverberations, where the air itself is so thick with moisture and particulate that the difference between seeing and not seeing is academic?
+
+So: what lives here.
+
+Start with the sound. You already know the sound. But learn to separate it, the way a sailor learns to separate the voices in wind.
+
+The frogs first, because they are the closest thing to a chorus. They are called sumph-jaws by the few who have catalogued them — a name from some language that got lost in the descent, picked up by an expedition that never came back. Their heads are the size of a clenched human fist, their bodies broader, armored in a keratinous plating that is not quite scale and not quite shell but something in between, ridged and damp and the color of wet iron. Their eyes are vestigial — pinpoints of near-opaque membrane buried beneath the plating — and they do not use them. They use the lateral lines that run the full length of their bodies, pressure-sensitive grooves that read the micro-currents of the air the way a blind person reads braille. They feel you coming long before you feel yourself arriving.
+
+They breed in the black lakes. Not in the water — on it. The females lay egg masses on the surface tension, thousands of them, each one a small gelatinous bead that floats in a mat so dense it looks like a living skin over the water. The males sit at the edges and call, and their calls are the static. That short-wave radio sound. It is not random. Spectrographic analysis — performed by people who carried equipment in and sat in the dark for days, going slowly and carefully mad — has shown that the calls are structured, recursive, carrying information in patterns of frequency modulation that shift depending on the humidity, the temperature, the mineral content of the water beneath them. They are not songs. They are reports. Weather data. Geochemical readings. The frogs are, in their way, monitoring the conditions of the place they live with a granularity that would make an atmospheric scientist weep.
+
+And the thing that unsettles everyone who has studied them: when the geothermal pump — the old machine, the one that still moves water through pipes that were laid down by people whose names are longer than the rusted conduits they left behind — when that pump cycles, the frogs synchronize. Not all of them. Not at first. One will shift its call cadence, then another, then a dozen, then hundreds, until the entire chorus has reorganized itself around the rhythm of the machine. The pump clicks and the frogs pulse. The pump drones and the frogs hold a sustained note that vibrates in your molars. Nobody knows why. Nobody knows how they learned it. The pump was installed centuries ago, or decades, or yesterday — time behaves strangely in the Sump, not because of any mystical quality but because nothing here records its passage in growth rings or sediment layers with any reliability; everything is too wet, too warm, too busy decomposing to hold a clean record.
+
+So: time is soft. The frogs know when the pump beats. That is enough.
+
+---
+
+Higher. The canopy.
+
+The trees here are not trees in any useful sense, though they have trunks and branches and root systems. They are more like architectures. The largest species — and the largest is not necessarily the oldest, because growth rates in the Sump are not governed by seasons or light but by mineral availability and the thermal gradient of the geothermal veins running beneath the soil — the largest specimens have trunk diameters of four meters or more, and their root systems extend laterally as far as they do vertically, creating a lattice of wood and fungal tissue so dense that you can walk across the canopy without ever touching the ground. Entire levels of the forest exist in the space between root-mat and canopy floor: hanging gardens of epiphytes, bromeliad-like catchments that pool black water and breed insects, fungal curtains that hang like theater drapes and that, when you brush through them, release clouds of spores so fine they coat your tongue with a taste that is bitter and faintly metallic and stays with you for hours.
+
+In this canopy live the slingers.
+
+You don't see them — you hear them, and then you see the aftermath. A door-slam sound, as the description goes. That resonant crack that startles you out of your careful, feet-on-roots stillness. It is a hunting technique. The slingers are arboreal predators, roughly the size of a large dog but shaped nothing like one. They have six limbs — not legs exactly, more like jointed struts wrapped in muscle, capable of rapid extension and contraction — and they move through the canopy by *launching* themselves. They anchor one set of limbs to a branch or trunk, then contract their body with such force that they *fire* toward their target, striking with the other set of limbs and the full weight of a body that has been slowly drawn up against gravity and then released. The sound you hear is the impact. The sound that follows — a wet, brief, crunching percussion — is the kill.
+
+Their prey includes the large insects. Not the ones you hear constantly, the helicopter-rotor swarm of the smaller fliers, but the occasional big ones, the ones called rotors by the same broken expedition language, insect-things the size of terriers with wings that beat so fast they blur into a single membrane of motion, navigating by infrared and the vibration of air displaced by warm-blooded bodies. A slinger can catch one of these in mid-flight, intercepting it between trees with a precision that looks, in the dark, like something choreographed.
+
+You never see a slinger's body all at once. They are the color of wet bark. Their surface is not smooth but textured — covered in a thin layer of symbiotic moss and lichen that grows into the spaces between their scales, so that when they are still they are effectively invisible, just another part of the tree. Their eyes are large, reflective, compound in structure, gathering the faintest bioluminescence and the faintest thermal differential into an image that is not vision as you would understand it but something closer to a thermal-olfactory map: a world made of heat trails and chemical gradients, rendered in grays and false reds.
+
+They are not the apex. Nothing here is the apex. That's the thing about a place like this: the food web is not a chain, it is a web so dense it is almost a solid, and pulling one thread sends vibrations through the whole structure.
+
+---
+
+The infrasonic ones.
+
+You feel them before you know they are there. A vibration in your sternum, a pressure change in your sinuses, a rhythm that is *almost* your heartbeat but not quite, not aligned, and the dissonance between your own cardiac clock and the external one produces a nausea that is not physical but existential, a sense that your body is being *answered* by something that should not be able to hear it.
+
+Nobody has confirmed what makes these vibrations. The best recordings — made by geophones originally intended to monitor seismic activity, placed in the root-mat at intervals and left running for months — show patterns that are too large and too regular to be geological, too complex to be the simple footfall of any known animal, and too coordinated to be multiple organisms acting independently. The patterns propagate through the ground, through the root-mat, through the water table, through the old metal conduits that carry vibration with startling efficiency. They reach the cooling tower — the one with the glowing algae — and cause it to hum in sympathetic resonance, a low tone that adds to the ambient soundscape like an organ pedal note sustained by the earth itself.
+
+Theories include: a very large animal, perhaps one that moves through the ground itself, burrowing in the soft peat and root-mat the way a mole moves through soil but at a scale that would make the comparison absurd — something the size of a building, or a section of a building, displacing the earth with slow, deliberate contractions. A colonial organism, many smaller creatures acting in concert through some form of vibrational communication so tight it produces the illusion of a single source. A machine. Not one of the old human machines — they don't produce infrasound at these frequencies — but something that has grown in the space the machines left, a fungal network or root system so vast and so interconnected that it behaves like a single nervous system, pulsing with electrochemical signals that manifest in the physical world as pressure waves.
+
+Nobody knows. People who have spent extended time in the Sump stop trying to explain it. They start calling it the heartbeat, the way people name things they've stopped trying to understand.
+
+---
+
+The duct-creatures.
+
+These are small. Mouse-sized. Insectile, though they are vertebrates — or something close enough that the distinction becomes a philosophical question in a place where vertebrate and invertebrate have apparently been dissolved into a continuum by ten thousand years of unbroken adaptation. They have four limbs, each ending in pads that grip metal with a friction that suggests van der Waals forces at work, the same physics that let geckos walk on glass. Their bodies are flat, pressed dorsoventrally, as if they evolved to fit inside rectangular spaces — which they did. The old ventilation ducts of the Sump's industrial skeleton are their world, their highways, their nesting grounds.
+
+You hear them as a ticking. Foot on metal, dozens or hundreds of tiny feet, moving in patterns that are almost rhythmic but not quite, not synchronized, overlapping in ways that produce emergent rhythms the way a crowd's footsteps on a bridge can produce an oscillation no individual intended. The ticking comes from the walls, from the floor beneath your feet, from above — always moving, always shifting, never repeating. It is one of the layers of the Sump's sound, so constant that after a day or two you stop distinguishing it from the background, and only its absence — the rare moment when all the duct-creatures go silent at once, for reasons unknown — makes you aware of how much of the ambient sound they contribute.
+
+They are pale. Translucent, almost, in the rare moments when you catch one — and you almost never do, they are fast and they know the ducts better than you know your own hands — you can see the dark shapes of their organs moving inside them, a slow peristalsis, a pulse of fluid through vessels that are not quite blood vessels. They have eyes, but tiny ones, and they use them not for sight but for the detection of vibration — the world's most sensitive tympanic membranes compressed into organs the size of pinheads.
+
+They eat rust. Or something in the rust. They scrape at the oxidized metal with mouthparts that are hard and sharp and precise, and in the places where they have fed the conduit walls are polished smooth, bare metal gleaming faintly in the bioluminescent haze of the algae. Whether this is symbiosis — they clean the metal, the metal provides habitat — or parasitism — they consume the infrastructure that keeps the old system alive — or something else entirely, no one can say. The machines continue to function. The duct-creatures continue to eat. The water continues to move.
+
+---
+
+And the ones no one has named.
+
+The shapes that move in the upper canopy, too large to be slingers, too silent to be rotors, visible only as interruptions in the faint thermal gradient of the air — a cool patch moving against the warm, a displacement that suggests something massive shifting its weight in the architecture of branches and fungal curtain. You feel the air move when one of them passes. Not wind — air displacement, the wake of something large moving through a medium that resists it. It smells different afterward: older air, air from deeper in the mat, soil and sulfur and something faintly sweet, like fermentation.
+
+Nobody has seen one clearly. Nobody has stayed still long enough, or been brave enough to let the thing come closer, or been present in the right place at the right moment. The infrasonic thudding intensifies when they are near, as if they and the ground-vibration are linked, as if they are not just *in* the Sump but *part of* it, as if their movement is an expression of something larger — the forest shifting in its sleep, the mycelial network routing resources, the whole biomass adjusting itself with the slow deliberation of a system that has been running for longer than anyone can measure and does not require observation to continue.
+
+You do not see this place.
+
+But the place sees you. Or rather — it does not see you. It *senses* you. It registers your heat, your weight on the root-mat, the displacement of air by your body, the chemical signature of your breath and sweat and the organisms that live on your skin. And it responds — not to you specifically, not with intention, but the way a body responds to a change in temperature: adjusting, compensating, integrating the new variable into an ongoing process that was here long before you arrived and will continue long after you leave, or die, or are absorbed into the mat and the mycelium and the water and the rust and the endless, humming dark.
+
+Whatever lives here, you are not separate from it. You never were.

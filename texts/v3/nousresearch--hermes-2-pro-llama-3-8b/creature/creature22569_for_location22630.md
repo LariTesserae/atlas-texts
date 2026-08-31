@@ -1,0 +1,9 @@
+The inhabitants of this landscape are symbiotic with the unique environment in which they exist. They appear to have an almost altruistic connection to the world around them, adapting to the sparse, fragile ecosystem while contributing to the delicate balance that has allowed this place to remain untouched.
+
+The beings themselves appear somewhat like mosses, epiphytes, and lichens - plants that rely on other plants for support. Though they have roots that anchor them to the ground, they spread and reach out in a way that mimics the sprawling branches of the ancient trees. Their leaves are a muted green, velvety to the touch, and they feed on the nutrients found in the air as well as the soil.
+
+They have evolved to rely on a symbiotic relationship with the insects and amphibians of the area, using their natural defenses to distract grazers and predators while providing a home and food source for many of the inhabitants of their small world. They emit a faint, nocturnal glow that is hardly noticeble during the day, but becomes visible at night, luring nocturnal hunters to provide a necessary service for this delicate ecosystem.
+
+These beings are incredibly slow-growing, taking decades or even centuries to reach maturity. However, their patience is a necessity for survival in this high-altitude landscape, where resources are scarce and changes to the environment can be devastating. They have honed this trait to an artform, living in tune with the cycles of the seasons and the natural fluctuations of the world around them, adapting as necessary without disrupting the balance.
+
+These beings are guardians of the delicate ecosystem, evolving alongside their environment in a slow, silent dance of existence. Theyare the heart and soul of this place, a rare find in a world that often overlooks the subtle, quiet beauty of patience and perseverance.

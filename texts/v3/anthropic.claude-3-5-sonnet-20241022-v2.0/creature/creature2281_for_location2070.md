@@ -1,0 +1,17 @@
+The Mirror Market is home to the Quiet Ones - beings who exist in a state of perpetual transformation between flesh and crystal. Their bodies are neither fully organic nor entirely mineral, but a careful balance maintained through the waters they tend and the crystals they grow.
+
+Each Quiet One begins as a human apprentice, drawn to the Market's depths by dreams of crystalline songs. Over decades of work, their bodies slowly incorporate the minerals they handle, their skin developing a subtle translucent quality, their movements becoming more deliberate as crystal structures begin to form within their joints. Their eyes develop facets that catch and reflect the lightning flowers' flashes, and their hair becomes fine filaments that can sense changes in the cave's atmosphere.
+
+The eldest among them, known as the Deep Grown, have been in the Market for centuries. Their bodies are more crystal than flesh, moving with the geological patience of stalactites. They rarely speak aloud, having developed a complex language of light-reflection and subtle resonances. When they do speak, their voices sound like water moving through hollow crystal formations.
+
+The transformation is not uniform - each Quiet One develops unique patterns of crystallization based on the gardens they tend and the waters they favor. Some develop clusters of transparent crystal along their spines that act as natural prisms, splitting any light that passes through them. Others grow delicate lattices of mineral fibers that extend from their fingers, allowing them to literally weave crystal gardens into being.
+
+They reproduce rarely and strangely. Sometimes, a particularly well-tended crystal garden will develop a hollow chamber within which a new consciousness begins to form. The Deep Grown gather around these chambers, feeding them specific combinations of mineral waters until a new being emerges - neither fully crystal nor fully organic, but ready to begin their own journey of transformation.
+
+The Quiet Ones share their space with other entities that exist in the boundaries between states of being. The Seep Minds are colonies of mineral-organic compounds that grow in thin films along the walls, collectively conscious and capable of complex calculations expressed through slowly shifting patterns. The Pool Dwellers are ancient creatures that might once have been fish but are now living crystals that swim through solid stone as easily as water.
+
+Most mysterious are the Echo Lattices - vast networks of crystal formations that seem to store memories in their molecular structure. The Quiet Ones can access these memories through careful application of vibration and water, though they are selective about which memories they choose to wake.
+
+All of these beings are connected through the Market's complex hydromineral ecology. They understand themselves not as individuals but as nodes in a vast crystalline network, each one slowly growing and changing in concert with the others. Their concept of self extends beyond their bodies to include their gardens, their water-streams, even the very stone of the caverns.
+
+They are patient, methodical, and utterly devoted to their work of growing and shaping the crystal gardens - not for any practical purpose recognizable to surface dwellers, but as an ongoing exploration of the possibilities that exist in the space between states of being.

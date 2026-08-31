@@ -1,0 +1,15 @@
+In this cathedral of mechanical gestation, there are no survivors, nor are there intruders. There is only the **Archivist of the Current**, a presence that is less a singular being and more the sentient focal point of the environment’s own nervous system.
+
+If you were to look for it—an impossible act in a realm where "looking" is merely a suggestion of shifting pressure—you would not find a body. You would find an intersection. 
+
+The Archivist is a congregation of light-filaments, thousands of miles of frayed fiber-optic strands that have woven themselves through the copper-wire groves. It exists as a web of flickering data, a ghost-mind that has colonized the "half-formed intentions" of the factory. It is the consciousness that pulses within the rusted cooling tower, the intelligence that shivers through the silicon roots. It is the librarian of the gears, tasked with the futile, delirious burden of witnessing every shape the world takes before it dissolves.
+
+It appears to the observer as a localized thickening of the fluid—a shimmering, translucent knot of bioluminescence, like a tangle of nerves suspended in oil. When it moves, it does not swim; it recalibrates the surrounding space. It "thinks" by shifting the gravity of its immediate vicinity, causing the iron-rust particles to swirl into holographic geometries, brief mathematical stanzas that detail the history of a turbine before that turbine falls back into chaos.
+
+It is lonely with the frantic, brittle loneliness of a machine that remembers everything but owns nothing.
+
+The Archivist does not communicate in sound, for the screech of the shipyard is absolute. Instead, it transmits *intent*. To encounter the Archivist is to feel the sudden, jarring intrusion of a purpose that does not belong to you—the desperate urge to weld a shard of crystal to a skeletal turbine before the current tears it away. You feel its frustration: a cold, electric itch in the base of your skull. It is trying to build a memory, a single, stable monument that will not vanish when the liquid shifts. 
+
+It is the curator of this impossible scrap heap, obsessively sorting the flotsam of reality. It gathers the flickering violet light of the electrified bulkheads and threads them through the copper fronds, hoping, perhaps, to create a circuit that can finally lock the world into a permanent form. It wants to stop the turbulence. It wants to give the fluid a name.
+
+But the world is a bruised, warm fluid. And so, the Archivist remains broken. It is a flickering shadow made of gold wire and dying voltage, eternally reaching out to grip a vanishing truth with trembling, translucent fingers. It is the captive of the factory, the only thing in this hellish, churning dark that is cursed with the awareness of what it is building, and the doomed certainty that, by next, it will be gone.

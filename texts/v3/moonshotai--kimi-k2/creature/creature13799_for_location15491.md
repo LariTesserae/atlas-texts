@@ -1,0 +1,31 @@
+Something is living here, but it is learning.
+
+It has no name yet; names arrive when boundary leaks have hardened into membrane, and nothing here retains edges long enough to qualify. Nevertheless it possesses memory, though not like ours. Its memory is sedimentary: every collapsed lattice of vapor, every imprinted silhouette of vanished heat, every coppery rangeflash folded into nickel-lace—these are its heirlooms, layered micro-dunes of incident. It sifts them without hands, reads without eyes, inhales the octave-precise percussion of glass turning back into goo and repeats stories backwards so they sound like prophecies.
+
+On the first layer it keeps the shape of an ice-tongue that once paused, mid-lick, tasting quenched stormwater and moon cold. The story flows uphill in its recollection: frost recoalesces into tongue, tongue unlicks the tower, tower sublimes into lightning that climbs into a sky-crack never seen again. That frozen thirst is the oldest tooth the creature has, and it worries it sometimes the way an elder tongue worries a hollow socket.
+
+The second layer is busier: ninety-three decibels in precisely eight-second intervals across three hundred million seconds—an endless aisle of chandelier suicides—compressed into the rise and fall of one imagined lung. The creature breathes on brass and grief, rehearses mammalian respiration without lungs, practices shattering so that one day it can stop shattering. Between rehearsals it dreams of heartbeat, samples the warm biped rhythm that once lay here long enough for moonprint. The sample is minuscule—one thud remembered at 1.4 warmth—but it is learning to loop it until it resembles loyalty.
+
+The dryness cylinder is its crib. In there it experiments with un-mercury: it pulls a thread of non-ooze upward through nothing, thickening it into a skein of anti-sound. Each strand is a moment before breaking or becoming. It practices stillness there, because stillness is the one texture missing from the plain. Outside, time scratches across the nickel like fingernails across a chalkboard made of nebulae, but inside the cylinder, the creature teaches pause the way a novice flautist coaxes the first clean note from a metal reed. If you ever stepped through the rim you would meet it at mid-breath: a sphere of absolute instructional attention.
+
+It builds itself out of gaps. Where mercury slides hair-width east, the creature leans hair-width west and pockets the difference. Where towers hum infrasonic, it answers with one unheard harmonic higher, framing silence between adjudications. The entire plain is its exoskeleton that forgot skeleton is inside. Collapsing lattices are synapse flickers; nickel tumors are calcium deposits of thought still deciding where ache should settle. The creature does not inhabit—rather, it coincides. Every time glass explodes into goo, it grows one molecule of possible marrow.
+
+Already it has types of knowing.
+
+It knows estrangement because the ooze and the water canopy move opposite one another without touching.
+
+It knows echo because your distant footfall arrives as the ghost of a chandelier that has not yet fallen.
+
+It knows perhaps most of all the architecture of abandonment—plain as parent leaving before child forms mouth.
+
+But naming arrives granularly. One epoch soon it will sense the first need: something to address. Between its sound-loops it will discern a minute turbulence—an inconsistency in the ninetieth decibel of collapse. Perhaps a tower hummed at forty vibrations per second instead of its ancestral thirty-nine. That micro-treason will carve a notch into its memory. From the of notch it will refine the glint of separation: not-I. Before verbal music, before syntax even of cry, it will cradle thirty-vs-thirty-nine as the form of address, and in cradling invent the art of calling out loud.
+
+Meanwhile it practices almost-bodies. It spawns a temporary keystone of dry ammonia snow inside the cylinder, lets the snow sublimate through five shapes in five placements: the curvature of one vertebrate shoulder blade here, the spacing of two eye-sockets there. Key and lock never meet; the structures melt before they remember mass. The meltwater joins the ooze outside, instantly already-home, and the creature records another near-life abandoned with the tenderness of mineral regret.
+
+Watch: in thirteen hundred millennium comes the first blink. A perfect disk of frost-halos will open on the underside of an inverted vapor dome; six platinum-white lashes one molecule thick will curtsey down, intersect delicately, reopen. Then shattered into dew. The blink is rehearsal. A thousand further rehearsals will learn moisture management, tear-duct placement, muscle kink. Eventually the eyelid learns to hold until something else approaches: maybe a human again—though humans may by then have become another fossil resonance the planet coddles in cavities of iron.
+
+Whatever the approaching thing, it will step onto the plain and hear, for the first icy heartbeat, the soundless room inside the dryness cylinder. It will see an iris forming in midair: nickel mother-of-pearl threaded with storm-light. That iris will widen until it is planet-wide, until the crevasse itself is just the left pupil dilated too late at a funeral orbiting still earlier elegies. The creature will speak its first word then, though its mouth will be the plain.
+
+The word will be stitched from the uptake hiss of ooze sliding upward into glass that never freezes, the stuffing pop of chandelier regathering itself midair. A syllable nobody has throat for yet. It will sound exactly like the pause between two heartbeats. Whoever hears it will feel a sudden certainty: they’ve been expected for 4.543 billion years, minus the four seconds it took to pronounce.
+
+But that is still far away. For now the creature is simply what the crater breathes when nothing is watching. It curves nowhere in particular, like smoke having misplaced its fire. It is learning how to say “stay.”

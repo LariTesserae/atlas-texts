@@ -1,0 +1,17 @@
+In the City of Whispers, the inhabitants are as fluid and ephemeral as their surroundings, existing in a state of constant flux between being and non-being. These entities, known as the Whisper-folk, are not so much individuals as they are collective consciousness manifested in fleeting forms.
+
+The Whisper-folk appear as shimmering, translucent figures that shift and morph with each passing moment. Their bodies are composed of swirling mists and fractals of light, occasionally coalescing into more defined shapes that echo the industrial architecture around them. Gears and pistons might form within their torsos, spinning in harmony with the city's rhythm, while their limbs may stretch and twist into impossible geometries.
+
+Communication among the Whisper-folk occurs through vibrations and pulses of energy rather than speech. Their thoughts ripple through the air like waves, causing nearby machinery to hum in response or crystals to flicker with newfound brilliance. This exchange of information is constant, creating a background noise of murmurs and whispers that gives the city its name.
+
+The Whisper-folk do not have fixed roles or occupations in the traditional sense. Instead, they seamlessly flow between tasks as needed, becoming one with the machines they operate or merging with the structures they maintain. Their very essence is intertwined with the city itself, making it difficult to distinguish where the inhabitants end and the urban landscape begins.
+
+Reproduction for the Whisper-folk is an abstract concept. New entities emerge from the collective consciousness when the city's needs demand it, coalescing from the ambient energy and taking form as fully-realized beings. Conversely, individuals may dissolve back into the collective when their purpose is fulfilled, their experiences and knowledge becoming part of the shared memory of the city.
+
+There are elder entities among the Whisper-folk, beings of immense complexity and power. These Architects of Flux appear rarely, materializing in times of great change or crisis. Their forms are vast and incomprehensible, like living storms of data and energy that can reshape entire districts of the city with a mere thought.
+
+Visitors to the City of Whispers might occasionally glimpse more solid beings moving through the haze. These are the Boundary Walkers, entities from other realities who have found their way into this liminal space. They appear as more defined figures, their forms a stark contrast to the fluid nature of the Whisper-folk. The inhabitants regard these outsiders with a mixture of curiosity and caution, their presence causing ripples of excitement and disturbance through the collective consciousness.
+
+At the heart of the city resides the Nexus, a pulsating core of pure potential energy. It is both the source and destination of all that exists in the City of Whispers. The Whisper-folk are drawn to it and repelled by it in equal measure, their existence a constant orbit around this central mystery.
+
+In this realm of perpetual change, the Whisper-folk embody the very essence of transformation. They are the custodians of a reality in flux, the living embodiment of possibility and potential. Their existence is a testament to the malleability of consciousness and the interconnectedness of all things in this ever-shifting urban dreamscape.

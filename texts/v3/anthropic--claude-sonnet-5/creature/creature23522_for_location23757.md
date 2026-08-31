@@ -1,0 +1,31 @@
+## The Resonant — what the sound is *for*
+
+You will be told, if you find anyone who has spent real time on the flats, that the segmented things at the plate-joints are the only fauna worth naming, and that the long-bodied silhouette in the mist is a trick of fatigue and bad light. This is not true. It is simply that the thing which actually lives here — the thing the whole basin is, in some sense, *built around* — does not want to be seen, and is good enough at not being seen that most visitors leave certain it doesn't exist.
+
+It does. Call it, as the old evidence half-suggests, the **Resonant**, though that's a visitor's word, not its own — if it has one, no one alive has heard it.
+
+### Body
+
+What moves through the mist-lanes is long, low, and built less like an animal than like an instrument that learned to walk. The silhouette is accurate as far as it goes: many-legged, segmented, but the legs are not for speed — they're spaced and weighted to step *between* resonant frequencies, placed with a precision that, if you ever saw it in daylight (you won't), would look less like locomotion and more like someone tuning a hammered dulcimer with their feet. The body itself is hollow-chambered, plated rather than skinned, built from the same dark, weeping mineral as the stacks — not covered in it, *made* of it, grown the same way the formations are grown, accreted thin layer over thin layer across a lifespan that may be measured in centuries rather than years.
+
+It has no eyes that anyone has confirmed. It doesn't need them. Where an eye would go, there is instead a cluster of fine, hair-thin spines, angled outward like a fan of tuning forks, which is exactly what they are.
+
+### What it eats
+
+Not the mineral film — that's for the slow pale things at the joints, the easy grazers, the basin's plankton. The Resonant feeds on *vibration itself*, or near enough: it positions its body at the base of a swelling chord, lets the accumulating resonance run through its plated chambers, and metabolizes something out of the standing wave — heat, structure, some chemical product of sympathetic vibration shaking loose minerals it can use. This is, as far as anyone has worked out, why it never strays from a cluster mid-swell, and why it is never seen at all when a basin-region has gone quiet and dry-voiced. It isn't hiding then. It's elsewhere, following the slow migrating tide of sound across the flats, always at the crest of the building chord, never at the trough.
+
+This also explains the absence of remains. It does not die and rot and leave bones, because its body is not really separate from the stone it's built from — when it dies, wherever that happens, it simply stops being distinguishable from a stack. Geologists who'd never seen one would call the result a formation. It returns to the inventory of plates. There is some suggestion — unconfirmed, the kind of thing told around the idea of a fire rather than an actual one — that the stacks said to mature and shatter all at once, the rare percussive crack amid the soft chiming, are not purely mineral events. That something inside has, after a very long life, finally let go.
+
+### Behavior
+
+It is solitary, or appears to be — though "appears to be" carries a lot of weight in a basin where visibility past thirty meters is a courtesy of the terrain rather than a given. It moves at the speed of the chord's migration, which is to say imperceptibly, a few meters a day, following resonance the way a tide-feeder follows the tide. It does not approach built things. Every account, every secondhand account of an account, agrees on this one detail: it will cross an open lane, thread through a stack-cluster, take the long way around a hand-width gap rather than walk near the old circular foundations. Whether this is avoidance, reverence, or simple physics — the ruin-stone is untuned, dead to vibration, maybe genuinely uncomfortable to something that perceives the world as a sounding board — no one has settled.
+
+It has never been recorded making a sound of its own. It is, in this single respect, the quietest thing in a basin that is otherwise never silent: a listening shape moving through a ringing world, taking what it needs from the chord and contributing nothing back to it, the one true silence the place contains, walking.
+
+### What it has to do with the ruins
+
+The temptation is to make it the builders' descendant — to say the knee-high foundations were raised by something with hands, and that hands, given enough fused and accreting centuries in a place like this, might slough into legs, might trade tool-use for tuning-spines, might forget doorways the way it forgot speech. The stacks grew up *around* the ruins, after all; whatever built them came first. It is a clean story and probably wrong, or at least unprovable — there is no bridge of evidence between a foundation stone and a living plate-backed thing, only the basin's appetite for letting one kind of silence imply another.
+
+What can be said is narrower and stranger: the Resonant is not native to before the singing started. It could not have lived here in the dry, unfused, pre-stack ground, because there would have been nothing to feed it. It belongs entirely to the chord — born from the same slow seep that grows the towers, sustained by the same drip that rings them, indistinguishable in death from the stone that made it possible. If the builders left descendants, this isn't proof of it. It's something else: the basin's first true native, arriving only once the ground itself had learned, after long enough weeping and resonating and fusing, how to keep something alive on sound alone.
+
+It is, in other words, the singing ground's only confirmed listener — and very possibly its only true inhabitant, in any sense the word usually means. Everything else here — the joint-clingers, the grit, the mist, even the old foundations — is geology, or memory of geology. The Resonant alone moves *through* the place rather than simply being part of its slow accretion, and it does so by holding itself, always, at the exact pitch of wherever the basin is currently singing loudest — chasing a chord across a basin too vast and too patient to ever finish the song, never catching it, never needing to.

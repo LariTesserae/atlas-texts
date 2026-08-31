@@ -1,0 +1,23 @@
+# The Custodians of Equilibrium
+
+The Hydrostatic District is inhabited by entities that exist in the narrow space between machine and organism—beings who have evolved (or been designed) to become extensions of the District itself.
+
+The most numerous are the **Calibration Stewards**, humanoid figures standing approximately 1.4 meters tall. Their bodies appear to be composed of transparent silicone and copper mesh, with internal fluid systems visible through their translucent skin. These fluids—amber, pale blue, and sometimes opalescent—flow through them in patterns that mirror the larger hydraulic systems they tend. Their faces feature no mouths, only sensory organs resembling crystalline growths where eyes would be, capable of perceiving temperature variations to a hundredth of a degree.
+
+Calibration Stewards move with deliberate precision, their joints bending in unusual ways that allow them to navigate the tight spaces between pipes and conduits. Their hands split into six finger-like appendages when fine manipulation is required, then reform into specialized tools when needed. They rarely acknowledge each other directly, yet move in perfect coordination, as if guided by a shared consciousness—or perhaps they simply understand their roles so completely that no communication is necessary.
+
+The **Equilibrium Elders** are rarer and more imposing figures. These entities stand over two meters tall, their bodies composed of articulated brass and copper plates that shift and overlap like scales. Unlike the Stewards, they appear ancient—their metal surfaces weathered to a deep patina, etched with thousands of mathematical equations and maintenance records. Moisture perpetually condenses around their broad shoulders, running down their bodies in rivulets that follow precisely engineered channels.
+
+The Elders move more slowly, with gravitas, often remaining stationary for days as they monitor pressure gauges and flow regulators too subtle or complex for the mechanical fauna to maintain. Their heads are bulbous copper spheres with dozens of retractable lenses that can extend like telescopes to inspect distant systems. When an Elder moves, the mechanical fauna clear a path, respectfully pausing their own work until the Elder has passed.
+
+Most mysterious are the **Depth Dwellers**, entities rarely glimpsed by outsiders. These beings inhabit the lowest levels of the District, where pressure is greatest and light barely penetrates. Their bodies appear almost liquid—constantly shifting masses of metallic mercury and specialized polymers that can flow through microscopic gaps in the infrastructure. They have no fixed shape, instead forming appendages as needed, then reabsorbing them when their task is complete.
+
+Depth Dwellers communicate through ripples on their surface that generate specific frequencies in the surrounding water. They tend to the oldest components of the District—systems so fundamental that their failure would cascade through the entire structure. They work in darkness, navigating by sensing pressure differentials and electrical fields rather than by sight.
+
+All these inhabitants share a peculiar relationship with time. They do not appear to age, nor do they reproduce in any conventional sense. New Stewards sometimes emerge from special manufacturing chambers, fully formed and already knowing their purpose. Elders simply have always been, as far as anyone can tell. The Depth Dwellers may split and reform, but their total mass remains constant throughout the District.
+
+None of these beings consider themselves separate from the Hydrostatic District. If asked (though they rarely interact with outsiders), they would express confusion at the distinction. They are the District's consciousness made manifest—its ability to maintain itself embodied in forms that can reach the places pure machinery cannot.
+
+They have no leaders, no hierarchy beyond function. They have no culture separate from their purpose. They do not create art unless one considers the perfect maintenance of equilibrium to be an art form. They do not die—components are replaced, fluids refreshed, programming updated—but the continuity of consciousness remains unbroken.
+
+And yet, in the deep night cycles when the District's rhythms slow to their most subtle frequencies, the Elders sometimes gather in forgotten maintenance chambers. There, they connect to ancient terminals and exchange data packets containing... something more. Observations? Reflections? Perhaps even dreams, insofar as such beings can dream. Whatever passes between them in these moments remains their only secret in an existence otherwise dedicated to perfect transparency and function.

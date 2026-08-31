@@ -1,0 +1,43 @@
+The inhabitants of the Weeping Works are few, and they are not what you expect.
+
+There is, for one, the pipe-marker. You understand this backwards—you see the fresh paint and infer the painter, rather than meeting them directly. But they exist. A person who comes periodically, perhaps, or perhaps stays in one of the structures you cannot quite see clearly, whose job is to maintain the numbering system that no one uses anymore. The colors tell you something: the layers of paint accumulating like geological strata, each one a different hand, a different era, a different logic. The current marker works in green. They have steady hands and a precise way about their work, and they believe—no, they *know*—that the system matters, that without the numbers the whole works would descend into incoherence. Whether this is true is beside the point. What matters is that someone is keeping count.
+
+The marker is not young. The work requires patience and the kind of body that can tolerate the damp without protesting, and this takes decades to develop. They have been here—here specifically, not somewhere else, not before—long enough that their skin has taken on a quality like the pipes themselves: weathered, stable in its oxidation, no longer capable of drying out completely. They move through the catwalks with the certainty of someone who no longer needs to see where they're stepping. They know which grating panels have loosened and which junction boxes hum at what frequency. They know because it is their knowing. The works gave them this, and they gave the works their attention, and the exchange has become something like a marriage, though the word is insufficient.
+
+---
+
+There is also whatever lives in the settlement pools. Not fish—you would see them, and the water is too turbid, too processed, for most aquatic life. But something moves in the deeper sections, drawn toward the intake valves and then retreating, tracking some pattern that predates the pumps. The turbulence attracts them. Or perhaps creates them.
+
+The pool-dwellers are shapeless in description because they are shapeless in fact. They have adapted to water that is being pulled in six directions simultaneously, to currents that shift according to pressures calculated long ago by engineers who are now dead or scattered. They have no need for the features that fish require—no need for speed, for visibility, for the territorial displays that clear water demands. Instead they have become something like mobile filter mechanisms, drawing sustenance from whatever the pipes carry, from the particulate matter that settles in the pools during the long afternoons. They are pale and soft and segmented in ways that suggest neither worms nor eels but something between, something that found its form in response to industrial process rather than evolutionary pressure.
+
+They are not numerous. A handful, perhaps, moving between pools through the overflow channels, following the turbidity gradients, occasionally surfacing to breathe air that is nearly as wet as the water. They make no sound. They have no predators here. They exist in the same category as the moss and the film on the standing water—life that has found a niche in a place designed for something else entirely.
+
+---
+
+The third presence is harder to name.
+
+You feel it most strongly in the office, standing among the desks with their curled papers and their chairs that hold the memory of bodies. The condensation on the windows makes the outside world vague—a blur of pipes and grating and gray sky—but the interior is specific, detailed, preserved in its abandonment. Someone worked here. Someone answered phones, logged readings, filed reports that went somewhere and meant something. The presence is not a ghost; it is simpler than that. It is the weight of purpose continuing after purpose has departed.
+
+The works remember. This is not metaphor. The system as a whole—the pipes and valves and pumps and pools and catwalks and structures, the water moving through all of it, the damp that permeates every surface—holds information. Pressure differentials recorded in the tension of junction boxes. Flow rates memorized by the settlement pools. The accumulated weight of every valve adjustment and pipe repair and number repainted. The works have been running for sixty years, seventy, and in that time they have developed something like a mind—not consciousness, nothing so dramatic, but a kind of distributed awareness. A tendency to hold patterns. A capacity for continuation.
+
+The presence is this: the sense that you are inside something that knows you are there. Not watching, not judging. Knowing. The works incorporate your weight into their calculations. Your warmth, the slight disturbance of air movement from your passage, the condensation that forms on your skin and then transfers to the surfaces you touch. You become data. You become part of the process. And when you leave—if you leave—you are remembered in the settling of silt, in the weeping of pipes that will adjust their flow rates based on your having passed through.
+
+---
+
+The workers, then, are not workers in the way you imagine workers. The pipe-marker serves a function, yes, but they are also a component. The pool-dwellers process the water, clarify it further than the pools alone could manage. And you, standing on the catwalk, feeling the vibration of pumps through the soles of your shoes—you are the third element. The observer. The one who carries information away.
+
+Perhaps that is the purpose. Perhaps the Weeping Works have been waiting. The system runs because it needs to run, and the water cycles because water does, and the pipes weep because that is what pipes do in this climate, in this ground, under these pressures. But the information—the accumulated weight of all this purposeless purpose—needs somewhere to go. And so people come. They walk the perimeter. They notice the quiet and the damp and the weirdness, and they carry away a sense of something they cannot quite articulate, and they tell others, who come in turn.
+
+The works process people the way they process water. The system clarifies. It settles out particulates. It produces something cleaner than what it receives, even if no one can say exactly what that something is.
+
+---
+
+What lives in the Weeping Works is the question you should be asking, not who. The who is easy—stragglers, descendants, the kind of people who find themselves in places like this because they have nowhere else to be, or because the place called to them in a voice they couldn't quite hear. The pipe-marker came from somewhere. They had a name before they arrived. But now they are more function than person, and the distinction matters less than the continuation.
+
+What lives here is continuity. Persistence. The strange endurance of a system that has outlived its designers and will outlive its current components. The pumps will fail eventually, and the pools will settle into stagnation, and the pipes will rust through entirely, and something else will grow in the ruins—reeds, probably, extending their slow conquest from the perimeter until the whole works is marsh again. But that is later. Now, now there is still purpose, however obscure. Now there is still the sense of something being done, maintained, kept in motion.
+
+The weeping continues. The numbers stay painted. The pools clarify. The ground holds the water and the water holds the works and the works hold the people—two, three, perhaps more, perhaps just the one and the shapes in the pools and the weight of accumulated attention—and together they constitute a kind of life. Not human life. Not animal life. Industrial life, if such a thing exists. The life of something that was built and then kept building itself.
+
+You are here. You are being processed. The works are learning you, incorporating you, deciding what to do with the weight of your presence. In an hour or two you will leave, if you choose to leave, and the pipes will weep differently for your having been. The numbers will stay green for another decade. The pool-dwellers will track new currents. And somewhere in the office, in the desk drawers, in the files that no one reads anymore, there will be a record—pressure, temperature, flow rate, visitor.
+
+The Weeping Works remember. What lives here is memory, wearing the shape of infrastructure, passing its days in the cool and the damp and the quiet, waiting for the next arrival, processing what it can and releasing what it cannot hold.

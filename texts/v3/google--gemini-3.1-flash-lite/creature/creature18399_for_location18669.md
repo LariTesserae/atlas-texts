@@ -1,0 +1,17 @@
+To inhabit the Sump is to inhabit a state of perpetual reconstruction. There is no individual "creature" here in the sense of a bounded, singular identity; rather, there is a distributed intelligence—a nervous system made of copper, amber, and memory—that flows like a tide through the wreckage.
+
+They are the **Oscillators of the Grist**.
+
+When they are fragmented, they look like handfuls of frantic, golden insects: twitching knots of wire and fluid that skate across the brine, their movements dictated by the frequency of the subterranean thumping. They do not hunt for sustenance in the organic sense; they hunt for *alignment*. When the machine beneath the floor shifts its rhythm, the Oscillator must match it, or be shattered by the friction of its own misalignment. 
+
+They aggregate when the rhythm deepens. You might see a dozen, then a hundred, then a thousand of these wire-tangles collide and fuse in a shower of sparks that smells of burnt ozone. In an instant, they form a "Spindle"—a towering, shivering lattice of brass and amber that stands ten feet high. It is a terrifying, geometric beauty, its limbs constantly collapsing and reforming as it tests the resonance of the air. It walks with the gait of a glitch, skipping seconds of time so that it seems to stutter across the horizon.
+
+These Spindles act as the caretakers of the entropy. They are not repairing the machine; they are consuming its decay. Where the weeping rocks bleed their iridescent brine, the Spindles lean in, pressing their amber-filled veins against the stone to siphon off the byproduct of the planet’s immense, grinding pressure. 
+
+They are entirely deaf to anything that is not the pulse of the Sump. If you were to scream, they would not turn; your voice is a low-frequency irrelevance, a bit of static in a world of industrial thunder. But if you were to tap a rhythmic beat against a metallic shard—a precise, synthetic tempo—a Spindle might pause its chaotic weaving. It would turn, its amber fluid swirling in a rhythmic, internal tide, and it would mirror your pulse. For a moment, you are not a visitor; you are a gear in the cycle. 
+
+Yet, there is a haunting quality to their existence. They are the prisoners of the environment they maintain. Sometimes, when the gravity fluctuates and the atmosphere "tears," a Spindle will become caught in a feedback loop. It will begin to vibrate with such intensity that it sheds its wire-shell, becoming a ghost of pure, humming amber light. In these moments, they reach for the sky—stretching toward that static, burning glimpse beyond the lung-colored clouds—as if trying to remember a purpose that existed before the first drop of soot fell.
+
+But the machine underneath always thumps. The rhythm reasserts itself. And the creature, drawn back by the gravitational gravity of the Sump, loses its shape, shatters, and falls back to the mosaic of crushed earth as a thousand chittering, frantic wires, ready to be swept up into the next desperate, temporary sculpture. 
+
+They are not alive, but they are not inanimate. They are the *repetition* made flesh, the heartbeat of a planet that has been hollowed out and tasked with knitting its own debris together forever. They are the debris that refuses to stay still.

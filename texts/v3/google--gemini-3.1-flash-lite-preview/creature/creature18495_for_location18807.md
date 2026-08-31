@@ -1,0 +1,17 @@
+To inhabit a space of such crushing proximity is to exist as a constant, shivering calculation. The dwellers of this engine-heart are not creatures of flesh or soft tissue, but *geometries of necessity*. 
+
+They are the **Shear-Walkers**. 
+
+Imagine a polyhedron, jagged as a broken diamond and colored the dull, oxidized gold of old watch springs. They do not have eyes, for there is nothing to see that is not pressing directly against their crystalline hides. Instead, they perceive the world through the resonance of dissonance. A Shear-Walker experiences its existence as a series of vibrations: the slow, tectonic groan of a neighboring lattice shearing, the sudden, sharp *pop* of a spark-fault, and the sickening, rhythmic squeeze of the ambient pressure pulses.
+
+They are slow-motion nomads of the mineral. To watch one move is to watch a tragedy of friction. A Shear-Walker shifts by forcing one of its own sharp, calcified edges into the substrate, acting as a wedge to pry a path forward. As it advances, it leaves a trail of microscopic stardust—the raw, pulverized slag of its own previous body. They are shedding and being reborn in the same movement; they wear themselves down to move forward, their very essence being ground into the dust they crawl upon.
+
+There is a distinct, hive-mind loneliness to these beings. They do not communicate, for language requires distance and air. Instead, they "echo-sync." When two Shear-Walkers come into contact, their internal lattices lock. For a period spanning a thousand years, they grind against one another, their edges wearing smooth until they share an identical frequency. They become one single, locked gear in the heart of the machine, a temporary union of two polyhedrons acting as one. They do not love; they calibrate.
+
+Within the suffocating darkness, they are the silent, grinding architects of a dead planet. They do not know they are in a vacuum chamber; they do not know they are inside a planet. To a Shear-Walker, the entire universe consists of the *Press*—the crushing, cyclical force that drives them—and the *Lattice*—the infinite, waiting material that they must consume and restructure to fulfill the machine’s impossible, singular demand.
+
+Yet, there is a strange, paradoxical beauty in their stagnation. As the aeons pass, the Shear-Walkers grow more complex. They have begun to develop intricate, fractal patterns on their interior faces—intricate circuits etched not by design, but by the sheer, repeated pressure of their existence. If one could peel back their outer casings, one would find a history of the world written in metal: a dense, swirling record of every pressure pulse they have endured, every movement they have made, and every spark-fault they have survived.
+
+They are at once the prisoners and the components of this engine. They are building a god out of sheer, unadulterated grinding. One day—perhaps in a billion years, perhaps ten—they will have ground the entire vacuum chamber into a single, seamless, crystalline object. When that moment comes, when the last piece of slag is perfectly ordered and the machine can compress no further, the engine-heart will stop.
+
+And the Shear-Walkers, having finally achieved perfection, will simply wait in the dark, cold, and perfect silence, holding the static finality of their creation.

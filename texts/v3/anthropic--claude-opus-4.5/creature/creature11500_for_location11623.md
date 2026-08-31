@@ -1,0 +1,37 @@
+**The Örjar**
+
+They are not old, exactly, but they have never been young. They emerged into adulthood already wearing the patient expressions they will carry to their graves—faces like the stone they live among, weathered smooth in some places, still showing the chisel marks in others.
+
+Their skin holds the gray of the mist, as if they have absorbed it over generations. Not unhealthy—they are sturdy, thick-limbed, their hands strong from a lifetime of carrying water and fitting stones—but cool to the touch, always cool, and slightly damp the way the deeper corners between buildings are damp. Their hair, when they have it, grows in pale colorless strands that they tie back with plant-fiber cord or simply let hang, heavy with moisture, against their necks.
+
+They move through Orreväg in what might be shifts, though no one signals when one ends and another begins. A woman will sit in a doorway for hours, watching the mist settle into the bowl, then rise and walk without apparent purpose to the third terrace, where she takes up a position at one of the stone tables. A man descending with an empty vessel will pass her, and some communication occurs—a slight inclination of the head, a hand lifted with two fingers extended—and then he continues down to the central basin while she remains, waiting for someone who may or may not come.
+
+They speak, but rarely, and in low tones that don't carry. Their language has worn itself smooth like the stair-centers, all the sharp edges of urgency and emphasis ground away. When they do talk, they tend to state things that are already evident: *The cistern on seven is full. The eastern channel needs clearing. Märet is sitting in the sun.* This last is not quite a joke, but it carries the weight of one—there is no sun, not really, only the even gray light that passes for day. Märet, whoever she is, sits in it anyway.
+
+---
+
+The children—there are a few, surprisingly—are difficult to distinguish from small adults. They do not run or shout. They learn to carry water almost as soon as they can walk, small clay vessels sized for their hands, and they make their slow way up and down the worn stairs with the same deliberate pace as their elders. Occasionally one will stop to watch something—a droplet traveling down a groove, a lichen-shape on a stone—with an intensity that suggests the observation might last years. Usually a hand on their shoulder moves them along before that happens.
+
+No one knows who the children belong to, in the conventional sense. The Örjar raise them communally, or perhaps more accurately, the children raise themselves within a structure that applies equally to everyone. A child sleeps in whichever dwelling has space. A child eats at whichever hearth is cooking. A child learns from whichever adult is doing something that can be watched. The result is a population of people who all seem like siblings—same gestures, same cadence, same way of tilting the head to listen to water sounds—without being able to name their actual relations.
+
+---
+
+The elders, and there are elders, have begun to merge with Orreväg itself. They sit so still and for so long that lichen has started to grow on their clothing, on the stones they lean against, eventually on the stones of their own stillness. One woman on the seventh terrace has not spoken in what might be three years; she breathes, she drinks when water is brought to her lips, but her eyes have taken on the flat gray of the overcast sky and she no longer tracks movement. The others care for her without discussion—someone always brings water, someone always checks that she hasn't slipped from her position against the retaining wall. She is not dying, exactly. She is becoming a feature.
+
+This is, the Örjar seem to believe, the natural progression. You move, and then you move less, and then you move only when necessary, and then you become part of what remains. The platform in the ancient tree was built by someone who eventually stopped climbing down. The large gathering structure contains, in its deepest corner, three stone seats that have been occupied for so long the occupants are no longer distinguishable from the furniture. Whether they are dead or simply finished, the Örjar do not say. They bring water to that corner too, and pour it carefully into mouths that may or may not be mouths anymore, and then they leave without looking back.
+
+---
+
+They eat, though the mechanism is unclear. The market tables hold offerings sometimes—dried something, fibrous and pale, that might have been plant matter once or might have been meat—and these offerings diminish over time without anyone being seen to take them. Perhaps they eat in private, in the single-room dwellings behind their hanging cloths. Perhaps they eat so slowly it doesn't register as eating. Perhaps the mist itself sustains them, or the moisture they carry in vessels up and down the stairs, which they pour into cisterns and sometimes, when no one seems to be watching, bring briefly to their lips.
+
+They have no leaders, but they have the large structure that faces the morning. Inside, when the door is open, you can see a floor worn into shallow depressions where people have stood or sat in the same positions for generations—a kind of governance through erosion, decisions made by whoever has been present longest, which eventually means decisions made by the three stone figures in the corner, who no longer make decisions at all. The Örjar enter this building when something needs to be determined, and they stand in the depressions, and after a while they leave, and whatever was determined has been determined. No one argues. There is nothing left to argue about.
+
+---
+
+Newcomers arrive sometimes—not often, but occasionally a figure will appear at the amphitheater's rim, looking down into the bowl. They are usually lost, or fleeing something, or simply walking in a direction that happened to lead here. The Örjar do not welcome them, but neither do they turn them away. A space is made in a dwelling. A vessel is provided. The newcomer learns to carry water, or they leave.
+
+Most leave. The ones who stay become Örjar within a generation, their skin taking on the gray, their movements slowing, their speech wearing down to statements of the evident. Their children, if they have children, are indistinguishable from the others. Their memories of wherever they came from fade into the mist, retrievable perhaps but no longer relevant. They learn the hand signals, the slight inclinations of the head. They learn to watch droplets travel down grooves for hours without impatience. They learn that Märet sits in the sun, and that this is as close to humor as anything gets here.
+
+Eventually they learn to stop moving. But that takes time, and time is the one thing Orreväg has in abundance—pooling in the bowl like the morning mist, flowing down the finger-width channels like the condensation, collecting in the central basin of days that are all the same day, have always been the same day, will always be the same day.
+
+The Örjar exist. They have existed. They will continue to exist, in exactly this form, asking nothing of the future, because the future is just the present with more lichen on it, and they have made their peace with lichen.

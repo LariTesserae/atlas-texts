@@ -1,0 +1,29 @@
+# The Dwellers of the Drowned Quarter
+
+The people of the Drowned Quarter call themselves the Immersed. They appear human from a distance—slender figures moving with deliberate grace along the slick pathways—but closer inspection reveals their true nature. Their skin has the faint translucence of alabaster with subtle patterns like watermarks flowing beneath the surface. Their eyes are large and pale, with irises that catch the omnipresent light in prismatic displays.
+
+The Immersed stand slightly taller than average humans, with elongated limbs that move with fluid economy. They've evolved webbed fingers and toes, not conspicuous like a frog's, but elegant extensions between digits that they display with pride. Their hair grows in variations of white, silver, and the palest blue—colors that seem to absorb and refract the Quarter's perpetual light. Many wear it long and loose, where it floats behind them in the moisture-laden air.
+
+These beings breathe both air and water through filaments that line their necks—not quite gills, but living jewelry that pulses gently with their respiration. The filaments normally lie flat against the skin in delicate patterns, but unfurl when they submerge, which they do frequently and with evident pleasure.
+
+The Immersed wear clothing woven from the silk-like secretions of the wing-creatures they call *lumenavi*. These garments shimmer with subtle iridescence and change texture depending on whether they're wet or dry. Their clothing drapes in geometrical folds that echo the architecture around them—angular when dry, flowing when wet. Nothing they wear ever seems truly soaked or truly dry, existing in a perpetual in-between state like everything else in the Quarter.
+
+They live in symbiotic harmony with the lumenavi, the flying creatures that dominate the Quarter's skies and waters. The Immersed harvest only abandoned nests for building materials, and in return, they cultivate the unique carbonates that the lumenavi require for their egg casings. Watching an Immersed communicate with these creatures is witnessing a complex language of whistles, hand gestures, and postures developed over centuries of cohabitation.
+
+The small creatures darting through the waters are called *tessela* by the Immersed. Each family group tends particular swarms of these many-legged beings, guiding their meticulous work. The tessela constantly repair and reshape the stonework, simultaneously breaking down and rebuilding the Quarter in its slow transformation. The Immersed can direct their work through intricate tapping patterns on the stone, which the tessela feel through their sensitive legs.
+
+The society of the Immersed functions without visible hierarchy. Age determines one's role, with the eldest—some rumored to be several centuries old—serving as memory-keepers. These elders have skin so translucent that the slow circulation of their pearlescent blood is visible beneath. They spend most of their time partially submerged in the deepest pools, where they communicate with something the others call the Beneath—perhaps some entity or consciousness in the waters below.
+
+Young Immersed learn the arts of stone-speaking—the practice of listening to and communicating with the buildings themselves. They press their ears to walls, learning to distinguish between sounds of stability and pending collapse. The most talented become resonators, who can produce specific tones from their elongated vocal cords that strengthen weakening structures or encourage the growth of new formations.
+
+The Immersed eat very little in conventional terms. They absorb minerals directly through their skin when submerged and practice a form of photosynthesis through the filaments at their necks. On special occasions, they consume a gelatinous substance harvested from specific pools, which they shape into geometric patterns mirroring the architecture before consumption.
+
+Their language sounds like water moving over stone—fluid but with hard edges. It incorporates the periodic deep resonant tones of their surroundings, as if the Quarter itself participates in their conversations. When they wish to communicate complex concepts quickly, they employ a form of touch-language, pressing fingertips to another's wrist to share impressions and memories.
+
+They mark time not by days but by "tides"—subtle shifts in water level that only they can perceive. Their calendar follows the crystalline growth patterns rather than any celestial movement. Major ceremonies occur when particular formations reach completion, events that might happen only once in an outsider's lifetime.
+
+The Immersed create art by guiding the growth of the unique carbonates. Over decades, they produce sculptures of extraordinary complexity—living art that continues to grow and change. Music comes from instruments carved from the same carbonates, producing tones that carry differently through air and water simultaneously.
+
+Visitors describe the Immersed as neither friendly nor hostile, but simply present—like the water itself. They acknowledge outsiders with formal courtesy but seem perpetually distracted, as if listening to conversations others cannot hear. They freely answer questions about their present but deflect inquiries about their origins or the Quarter's beginnings.
+
+Some scholars believe the Immersed are the descendants of the city's original architects, who chose to adapt rather than abandon their slowly drowning creation. Others suggest they arrived later, drawn by some quality in the waters that sustains their unusual biology. The Immersed themselves offer only one explanation when pressed about their history: "We are the conversation between stone and water. We are what remains when something refuses to end."

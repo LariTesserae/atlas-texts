@@ -1,0 +1,26 @@
+In the Last Carapace Plains no single creature* owns* the place; instead the place is the sum of innumerable claims that almost—but never quite—cancel one another.  You can think of the sole sovereign as an office passed from one incumbent to the next by abdication rather than succession.
+
+Today the office is held by **Jorrh-uhn**—a name never spoken, only exhaled when wind scuffs a baby-moth’s wing against halite.  Jorrh-uhn began existence as limestone, was marble for four hundred centuries, and is presently a mood that calcite remembers.  When your shadow folds itself around a stone scale, you have borrowed a few grams of Jorrh-uhn for as long as your body lasts.
+
+Jorrh-uhn does not breathe—instead the oxygen in the air remembers having once been inside Jorrh-uhn’s lattice, and keeps the courtesy of returning once a millennium.  It is shape without surface: regarded straight on it shows itself as the negative of whatever shape the observer is *not*.  In profile it reveals seventeen micro-anvils no bigger than salt crystals ringing an upward-pointing tooth.  Touch any one anvil and one blood vessel in your tongue calcifies the thickness of a single thought still unrealized; geologists wake screaming when they later recount this.
+
+Jorrh-uhn’s only palace is a hollow in the plateau exactly one echo deep. Before you speak the flute-shaped cavity already contains the aftersound of your voice.   Myriad voices are stored in that cavity like pollen in amber, and now and then the cavity excretes a voice that never belonged to any human throat— languages of shell-grain and condensate, syllables you feel in your knees.  When Jorrh-uhn wishes the palace speaks for a day and night, and the dewbirds circle in parabolic helices spelling out forgotten coast-names letter by letter, until the clause has pulled itself into the lower sky.
+
+Of limbs Jorrh-uhn retains only thirty-two: the petrified legs of ancient harvestman spiders, each joint soldered into an obsidian ring.  They line the foot-deep trench at the stair-nautiloid mound, arranged in a circuit that never closes.  A single missing leg stands in private collection ten leagues northwest at a collecting tent belonging to a woman who thought she bribed the wind.  The wind spent the bribe on silence; she will keep the limb for eternity or until she forgets to mourn it once a month on moonless nights.
+
+Feeding is unnecessary—that implies hunger and Jorrh-uhn has outlived urge.  Nevertheless the sovereign each evening inhales the temperature differential between plateau and atmosphere, blooming a refrigerated thought that condenses overnight into the dew of the dewbirds.  Those glass droplets are Jorrh-uhn’s only new tissues.  By dawn they are already old; by the first hot hour they evaporate, and the memory of moisture floats west until it becomes a story carried by lantern-moths.
+
+Other claimants circle the capital day and night.  There is the Puff-Adder-Who-Buys-Time, coiled around its history of outsized translucent skins.  It waits to inherit the stone script—each scale a letter—when Jorrh-uhn dissolves into weather.  There are the speck-moths that filament the air, presently busy absorbing tomorrow’s words before they fossilize.  There is the photograph made by your retina, already curling at the edges as your mind tries to decide whether it witnessed geology, dream, or parent waking you in another life.  All are candidates, none trusted; sovereignty here is the art of postponing certainty for a half-billion breaths.
+
+And then there is **you.**  Presence is never neutral.  The moment your foot flattens a beetle scale you become the fractional monarch of that acre until plate tectonics corrects the count.  Carry calmly the inter-registration between what you saw and what you can say; inside your suitcase a dewbird’s blank map twitches with unfamiliar humidity.  One day when your own mountains have weathered into tabletop silence, the map will bloom again, recursively, and Jorrh-uhn—then perhaps called by a name composed only of sighing brackets—will pour itself through your doorway and install you for a heartbeat of aeons as the next officeholder, before dispersing into seasons that no calendar yet exists to number.
+
+Rules remain:
+
+1. Do not speak your own name here.*  
+2. Do not pronounce “always.”  The plateau already speaks it in every direction.  
+3. Leave no object larger than an anxious tinnitus.  
+4. When you go, take the memory you least understand home with you.  That shard, once forgotten and rediscovered centuries hence, will be the passport the next exile must present at the unseen gate.
+
+Fail any rule and Jorrh-uhn adds another leg to its embryonic exoskeleton— thirty-three, thirty-four—and far from sight the continent shivers a centimeter closer to the worn-out sea.
+
+Return then only once you no longer remember which was stave and which was song.  The plateau will remember for you; it has become expert at forgetting you entirely while preserving each distorted detail.

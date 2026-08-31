@@ -1,0 +1,69 @@
+# The Inhabitants of the Still-Becoming
+
+## The Pale Many-Legged Thing That Walks the Ceiling
+
+It is the color of skim milk that has been left out a long time, or of the inside of a shell that no living creature has occupied for some seasons. Its body is long for its width and narrow for its length, the proportions of something that has spent its entire ancestry living in places where every dimension is a negotiation. It has more legs than you would expect — twelve, you think, and then fifteen, and then you stop counting because the number seems to be in flux, as if the creature is still conferring with itself about how many limbs are appropriate for the conditions.
+
+The legs are fine. They are fine the way wire is fine, or the way the threads of mold are fine across the floor — they exist at the edge of what you can resolve, and when you look closely you can see that each one is ringed, segmented, a tiny articulated architecture of pale chitin. They make almost no sound. The tips of them are slightly sticky, and it is the stickiness that allows the creature to hang from the ceiling in defiance of every physical intuition you brought down the crack with you. It does not seem to be defying anything. It is simply where it lives. The ceiling is its floor. The floor is its ceiling. It does not appear to make this distinction, or any distinction, between up and down that would interest you.
+
+It moves in a slow, deliberate way. Not hurried — nothing here is hurried, nothing here could afford to be — but with a kind of patient purpose, the way a thought moves across a mind. It pauses at intervals. It lowers its head, which is also its front, which is also, you realize after watching it for a while, a mouth that opens sideways, and it eats something from the ceiling that you cannot see. The mineral surface, perhaps. The faint bloom of whatever is growing on the rock in this bright damp place. It eats, and resumes, and the silver track it leaves behind is the only evidence of its passage: a wet calligraphy across the stone that catches the light and holds it, so that for a few minutes the ceiling has a small bright constellation trailing behind the walker, and then the track dries, and the light goes out of it, and the constellation is gone.
+
+It is not alone. There are several of them, you realize — three, four, more — each on its own slow track across the ceiling, each leaving its own fading scripture. They do not seem to know each other. They do not seem to avoid each other. They are simply many individuals doing the same patient work in the same small room, and their tracks cross without ceremony, and the crossings are the only places where the ceiling is brightest, before everything fades together.
+
+## The Uncertain Worm, or Worms
+
+In the shallow thumbprint dishes of water on the floor, the worm — or the worms — lives in a way that makes the distinction between singular and plural feel inadequate.
+
+It is white the way the inside of a peach pit is white, or the way the first frost looks before it has decided to commit. It has the consistency of something between a thought and a thing: when it moves it is more solid than when it rests, as if its body is mostly negotiation with the water it lives in. It folds itself into shapes that are not quite knots and not quite coils — closer to the way a sentence folds back on itself when the speaker is unsure what they meant. It uncurls. It re-curls. It is sometimes longer than the dish it occupies, and then sometimes shorter, and the difference is not, you eventually understand, growth or shrinkage but the worm's own decision about how much of itself it wants to be at the moment.
+
+You cannot tell if it is one. You cannot tell if it is several. You cannot tell if the distinction is one the worm — or worms — would even recognize. There are times when two of the shapes in the same dish seem to lean toward each other, and then to merge, and then to be one shape that is larger than either was, and then later to separate again into two shapes that appear, in the light, to be the same shape they were before. You watch this for a long time. You do not arrive at a conclusion. The worm — or worms — does not arrive at a conclusion either, because arriving is not what it does. It continues. It is what continuing looks like in a body this small.
+
+It feeds, if it feeds, by lying still in the dish and letting the water move through it. Or so you imagine. You cannot see its mouth, if it has one. You cannot see anything about it that is a discrete organ. It is a soft pale length that the water holds, and the holding is enough.
+
+## The One With Many Eyes, or The Many That Share
+
+The thing on the ledge by the soft wall is the first creature here that watches you back, and the watching is the most unsettling part of being in the chamber at all.
+
+It is low. It is wider than it is tall. Its skin is the same damp, milky white as the ceiling-walker, but its skin has something the others do not: a faint, mottled texture, like the surface of a stone that has been underwater for a long time. It is the color of nothing in particular. It is the texture of having been here for a while.
+
+The eyes are the problem. They are too many for its head, if it has a head discrete from its body. They are arranged across what you would call its face in a configuration that does not commit to bilateral symmetry, or to radial symmetry, or to any of the arrangements you would recognize as an arrangement. There are at least nine. Possibly more. Several of them are on short stalks that lift them slightly above the surface of the body, the way periscopes lift above a sea, and these stalks swivel independently, each eye taking its own quiet survey of a different piece of the chamber. One of them, you notice, is trained on you. It has been trained on you since you came down the crack. It has not moved from you.
+
+It does not blink. Nothing here blinks. You understand after a while that this is not rudeness or vigilance but a simple absence: there is no need to close an eye against light here, because the light is always the same kind of light, the same even distribution, the same brightness without a sun to defend against. The eye simply stays open. It is the only way an eye can be here.
+
+You are not sure it is one creature. There are moments when the eye-stalks seem to be in slightly different positions of attention — one tracking you, one tracking the ceiling-walker, one tilted vaguely toward the cairns — and the coordination between them is not the coordination of a single mind but something looser, more like the coordination of several minds that have agreed to share a body, or several bodies that have agreed to share eyes. You cannot tell. The thing on the ledge does not clarify. It watches. It is watched by itself, perhaps, from many angles at once.
+
+You suspect it of arranging the cairns. Then you suspect something else. Then you suspect that the suspicion is part of what the chamber is doing.
+
+## The Cairn-Maker
+
+There is something in this room that lifts stones and places them on top of other stones.
+
+You do not see it. You suspect it is the many-eyed creature, but the many-eyed creature is on the ledge, and the cairns are in different parts of the chamber, and the stones of which they are made are the same grit that is shedding off the soft wall — the material of the unfinished place itself, lifted up and arranged with a care that is not, you eventually understand, deliberate in any way you would recognize as deliberate.
+
+The cairns are not tall. They are finger-height, sometimes two fingers. They are balanced with a patience that implies many small adjustments, each stone settled against its neighbor at an angle that distributes the weight so that the whole small pile can stand for a long time without falling. There are five of them, when you count. There are six, when you count again. There is one in a different part of the chamber when you look a third time, and you are certain it was not there before.
+
+You try to catch the cairn-maker at work. You cannot. You sit for a long time with your back against the soft wall, and you watch the cairns, and they do not change while you are watching. You look away, and then you look back, and one of them is slightly different. A stone has been added, or removed, or rearranged. The patience implied is the patience of something that does not mind being watched, or something that can wait for you to look away. You suspect, eventually, that it is something that uses your looking as a kind of cover — that arranges when your attention is elsewhere, and that the chamber itself is the cover, the way the mist covers the light, the way the brightness covers the absence of a sun.
+
+The cairn-maker has no thumbs. This you are certain of, because thumbs are the kind of tool that takes a long time to develop, and the cairn-maker has not had long, the chamber has not had long, and the cairn-maker works anyway. It works with whatever it has. The cairns stand. They are not built. They are *placed*, one stone at a time, by something with patience and no hands you would recognize as hands.
+
+## The Pale Lichen and the Patient Mold
+
+The lichen fans climb the western curve of the wall in a way that is almost architectural. They are gray-green, almost translucent at the rims, and they breathe — you can see them breathe, if you watch long enough, because the surface of them moves in slow undulations that are not wind, because there is no wind here, and are not growth, because the breathing is rhythmic. They breathe. They take in the bright damp air and they let it out, and the letting-out is what makes the mist slightly more substantial near the wall, slightly more luminous. They are part of the light. They are part of the dampness. They are part of the room's slow assembly of itself out of what is available.
+
+The mold — or the plant that has not decided whether to be a plant — bridges the gaps between stones in the floor in single trembling strands, each strand holding its one drop of moisture at its lowest point, the way a spider holds its web at the points of attachment. The strands are very fine. They are not yet a network. They are the beginnings of a network, the first threads of something that will, in another ten thousand years, perhaps be a mat, and in another ten thousand, perhaps, be a small community of living things with roots and habits and a slow collective memory of the dampness that made them possible. For now they are single strands. They are enough.
+
+The fern that is not quite a fern is near the back of the chamber. It has one leaf. The leaf is the color of an old bruise — purple-green, yellow at the edges, the color of something that has been alive long enough to have been damaged, and to have continued past the damage. It trembles when the air moves. It is the only piece of green in the chamber that has any conviction to it. The lichen is gray-green and translucent; the mold is almost colorless; the fern is the bruised violet of a thing that has decided to be a plant and is holding on to the decision with its single leaf, in the bright damp, in the small pocket of the world that is still finishing itself.
+
+## What They Are Together
+
+They are not a community. A community implies choices, and these creatures have made no choices about each other. They are simply many kinds of life that have found the same unfinished place and have made it their home in the only way available: by continuing to be alive in it, by moving through it, by eating what it offers, by leaving tracks and trails and silver mucus constellations across its surfaces, by watching each other without deciding what the watching means.
+
+They are pale. Almost all of them. The cool of the stone and the bright mist and the absence of a sun that would distinguish colors have made paleness the only viable strategy for being seen, or for not being seen, or for simply being here without being singled out. They are the color of the chamber. They are the chamber's own slow way of populating itself with things that move.
+
+They are patient. They have to be. The chamber is patient. The chamber is still finishing itself. The chamber is going to be finishing itself for longer than any of them will be here, and they know this — not with knowledge, not with intention, but with the simple fact of their bodies, which are scaled to the time it takes the soft wall to shed a single grain of itself, which are tuned to the rhythm of the ceiling's slow re-dewing, which have evolved, if evolution is the right word for something that has only had the brief history of this small pocket to develop, in proportion to a place that is taking its time.
+
+When you finally climb back up through the fold, the creatures continue. The many-legged thing on the ceiling continues its slow upside-down walk. The worm — or worms — continues its folding and unfolding in the thumbprint dishes. The many-eyed creature continues its patient surveillance of a chamber that includes you for a little while longer, and then does not. The lichen continues to breathe. The mold holds its single drops. The fern holds its single leaf, bruised and violet and trembling slightly in the air that is moving, always moving, in the bright damp of a place that is still becoming what it is.
+
+They do not notice you leaving. They will not remember you were here. They will continue, after you are gone, the way they continued before you came, in a place that has not finished assembling itself, surrounded by light that has no source, breathing air that is mostly the memory of water, leaving their small tracks and their silver constellations across the stone that is younger than the stone above and older than the stone it will, eventually, become.
+
+They are early for it too.

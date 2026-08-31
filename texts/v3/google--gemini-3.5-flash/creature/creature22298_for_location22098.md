@@ -1,0 +1,37 @@
+The people who live in this glass hive have no name for themselves, for they have no name for anything else. In a world where there is only one kind of person, one kind of city, and one kind of sky, nouns of distinction are useless. 
+
+To look at them is to see the Basin itself given a slow, thick limb. 
+
+They are shorter than humans of the upper sunlit worlds, their bodies dense and squat, built with heavy, barrel-shaped rib cages to house lungs that must constantly strain oxygen from hot, sulfur-heavy steam. They are entirely hairless. Their skin is the leaden grey of wet basalt, but you can rarely see its true color, for it is permanently coated in a thick, semi-translucent oil. This grease is secreted from specialized pores along their flanks, shoulders, and thighs—a dense, lard-like tallow that smells of cold iron and sour tallow. 
+
+Without this grease, they would not survive a single day. It is their armor. When they slide through the narrow, razor-backed alleys of the hive, or when they tumble down the vertical shafts of their stacked cells, their tallow-slick skin slides harmlessly over the razor edges of the obsidian. It also seals them against the acidic, mineral-bite of the water, preventing the constant warm moisture from melting their flesh into raw, weeping sores. Because of this grease, they do not touch each other with the dry warmth of hand-to-hand contact; instead, they slide past one another in the narrow streets chest-to-chest, stomach-to-back, in a silent, lubricated friction, their bodies yielding to the squeeze of the crowd like wet river-clay.
+
+Their feet are large, flat, and splayed, with no distinct toes. Instead, the underside of the foot is a single, thick pad of yellowed horn, like the hoof of a goat but soft enough to grip the wet, glassy planes of the basalt without slipping. 
+
+But it is their hands that reveal them as the builders of this scab-city. A Basin citizen’s hand is a tool of pure leverage. The fingers are short, thick as thumbs, and lack the delicate fingernails of primates. Instead, each digit ends in a claw of hard, black keratin—not sharp like a cat’s, but wide, flat, and spade-like, designed for scooping. With these spades, they dig the grey volcanic clay from the hissing vents. Their palms are massive and calloused to the density of wood, allowing them to slap the wet clay against the obsidian blocks, smoothing it down with the flats of their forearms in long, rhythmic strokes that mimic the sliding of their own bodies.
+
+They do not see the world; they feel its weight. 
+
+Their eyes are vestigial, small and milk-white, buried deep beneath heavy, bone-brow ridges that protect them from flying glass-shards. They cannot resolve details or horizons. To them, the world is a map of warm and cold, wet and dry, soft and hard. They can tell the direction of a steam vent three miles away by the tilt of the heat against their left cheek. 
+
+Because the air is filled with the perpetual, mechanical roar of the trilobite-grind and the glider-shriek, their ears have evolved to ignore high-frequency noise entirely. They are deaf to the clicking of the crabs. Instead, their hearing is tuned to the deep, low-frequency thrum of the earth itself. They communicate through the basalt. 
+
+They do not possess a spoken language of words. Instead, they produce a low, resonant vibration in their chests—a deep, wet rattle that bypasses the air entirely. To speak, a citizen presses their forehead, chest, or palms against the obsidian walls of their cell, or directly against the body of another. The vibration travels through the dense stone, carrying complex meanings: the location of a rich new bed of red bacterial slime, the structural failure of a lower-level terrace, or the simple, communal presence of another body. In the depths of the hive, the stone does not just shelter them; it sings with the collective, muffled humming of a million throats, a vibration that never ceases, shaking the very mud of their walls.
+
+In their domestic lives, there is no privacy, and no concept of it. A cell is not a home for a family; it is a pocket of warmth where whoever is tired crawls in to yield. 
+
+When a citizen’s body fails from exhaustion—which happens without warning, as they have no sun or clocks to partition their time into days—they simply drop where they are, or creep into the nearest empty cell. They curl into tight, fetal spirals, tucking their heads between their knees. Often, they sleep in stacks, three or four bodies piled atop one another in a single stone niche, their waxy skin keeping them from sticking together, sharing their damp, heavy warmth.
+
+Their diet is as simple as the stones. They are grazers of the vertical walls. With their spade-like fingers, they scrape the greasy, mustard-yellow and blood-red bacterial mats from the wet masonry, stuffing the rubbery sheets into their mouths. It is a slow, mechanical process of ingestion; they do not chew so much as crush. They have no individual teeth, but rather two continuous plates of bone—one upper, one lower—that act like millstones, grinding the gritty, mineral-rich slime and the hard shells of trilobites into a paste. They eat the trilobites whole, their stomach acids strong enough to dissolve the calcium-carbonate carapaces.
+
+There are no marriages, no weddings, and no burials. 
+
+When a female is ready to give birth, she does not seek private sanctuary. She retreats to the deepest, warmest rooms of the lower levels, where the steam is thickest and the clay is softest. There, she deposits a small, round, rubbery sac into the warm mud near a steam vent. The child inside is not born with bones; it is a creature of cartilage and skin, soft as a doll of lard. 
+
+For the first year of its life, the infant is kept in the mud-nurseries, where communal elders—those whose limbs have grown too stiff to climb the high terraces—watch over them. These elders do not teach them songs or stories. They spend their days molding the child's soft, cartilaginous bones with their hands, manually stretching the fingers into spade-shapes, flattening the forehead, and pushing the hips wide, literally shaping the child’s body to fit the geometry of the stone city before the bones can calcify. It is a second birth, executed by the hands of the community, turning raw biological matter into a citizen of the black glass.
+
+And when they die, they do not leave the city. 
+
+A corpse is not feared or revered. In a land with no soil, graves cannot be dug. Instead, when a citizen ceases to hum and their skin turns the dry, chalky white of cold ash, they are carried down to the cracks between the basalt slabs where the deepest, hottest steam vents rise. The body is wedged deep into the crevice. Within days, the hissing, mineral-rich water and the insatiable red bacterial mats dissolve the wax, the flesh, and the cartilage. 
+
+The minerals of their bones are taken up by the water, re-deposited as white crust on the obsidian blocks, only to be scraped off and eaten by the generation that follows. Nothing is lost. They do not leave behind monuments, or graves, or names. They are simply re-absorbed into the wet, black floor of the world, leaving only another layer of clay for the living to slather onto the walls.

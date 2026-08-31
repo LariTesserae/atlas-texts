@@ -1,0 +1,17 @@
+Living within the Endless Cavern of Whispering Roots are the **Rootwardens**, beings of both flesh and fibrous sinew, born of the cavern’s ancient, slow pulse. They are not creatures of haste or chaos, but of patience and purpose, their existence intertwined with the eons-old rhythms of the cavern.  
+
+The Rootwardens are tall and slender, their bodies a mosaic of bark-like skin and root tendrils that spill from their limbs like living vines. Their faces are smooth, nearly featureless, save for deep-set eyes that glow faintly with the same bioluminescence as the fungi clinging to the cavern walls. Their mouths are not for speaking but for absorbing—tiny, hair-like roots fringing their lips sip moisture and nutrients from the air, drawing sustenance directly from the damp, mineral-rich atmosphere.  
+
+They move with a fluid grace, their limbs bending unnaturally as they navigate the labyrinth of roots, their feet barely touching the ground. Instead, the roots themselves seem to cradle them, shifting subtly to accommodate their passage. When they pause, the cavern’s whispers grow louder, as if the roots recognize their presence and respond in kind.  
+
+The Rootwardens are neither malevolent nor benevolent; they are stewards, caretakers of the cavern’s balance. Their role is to maintain the fragile ecosystem, ensuring that the roots continue to grow, the fungi flourish, and the creatures of the dark thrive in their slow, deliberate dance. They do not intervene unless the cavern’s equilibrium is threatened, and even then, their actions are measured and unhurried.  
+
+They communicate through the roots, pressing their hands or tendrils against the fibrous network to send vibrations that ripple through the cavern. These vibrations carry meaning, though not in any language comprehensible to outsiders. To the Rootwardens, they are a symphony of understanding, a shared awareness of the cavern’s needs and rhythms.  
+
+In the deeper shadows, near the ruins of fused root and stone, the Rootwardens gather in quiet ceremonies. They surround the ancient pillars, their tendrils intertwining with the patterns etched into the surface. During these gatherings, the cavern’s whispers grow into a resonant hum, and the air crackles faintly with energy. What they do in these moments is unclear, but it feels sacred, as if they are communing with something far older and greater than themselves.  
+
+The Rootwardens have no concept of time as outsiders understand it. They measure the passage of centuries in the growth of roots, the erosion of stone, the cycles of life and decay within the cavern. They are timeless, ageless, their lives stretching back into the cavern’s murky history and forward into its endless future.  
+
+They are not hostile to intruders, but they are disinterested. Unless a visitor threatens the cavern’s delicate balance, the Rootwardens will simply watch from the shadows, their luminous eyes reflecting the faint glow of fungi. They are as much a part of the cavern as the roots themselves, inseparable from the whispering darkness that defines their home.  
+
+In their stillness, they exude a quiet wisdom, a profound understanding of the cavern’s slow, eternal existence. They are the keepers of its secrets, the guardians of its whispers, and the embodiment of its ancient, pulsing life.

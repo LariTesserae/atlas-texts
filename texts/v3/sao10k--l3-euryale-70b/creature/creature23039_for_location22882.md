@@ -1,0 +1,9 @@
+Something sinister, something unholy dwells at the bottom of this tainted pool. Countless souls, long expired, are entombed in those human bones, the flesh long since rotted away, leaving naught but eerie white ribs and femurs protruding macabrely from the subterranean spring. The massive stone sarcophagus at the depths, engraved with those night-black runes, holds some unfathomable purpose known only to the Lost Ones who forged this sepulcher millenia ago. 
+
+Avian screams echo through the cavern as the swallow birds make their gelatinous nests, pouring mud and leaves into pockets of the rocks, so many amorphous inundations alongside the human bones and detritus in the spring. The crude lattice covering the well, purposefully built at human height, belies no savory intentions. Why such an implement barriers only the top of this esoteric reservoir? What abomination is kept beneath? 
+
+A greasy light descends over the water's surface, globs of ominous bioluminescence spiraling in the stale air. The competing susurrus of waters, wings, and uncanny presence is maddening, the very sounds echoing across skull. 
+
+This unholy site reeks of pestilence and formless blasphemies from beyond the veil. What malevolent deity impelled pilgrims to this site, a place never meant to be uncovered? Clearly the emergency was never rescinded and the ghastly instruments entombed here were never released. Madness prattles: put something back instead. Repay the balance. The sick turd in your unwashed palm has to account for a missing skull, a dubious trust. 
+
+The wrongness is so palpable, so disorienting, the mind grapples to understand what malevolent tallying goes on when the eyes are not upon you. What foul entity would ingress this repositry to restore this blighted place? The pieces don't add up right, and every residue is wrongside out and wastes your thoughts in a churning narwhlicate of upside down.

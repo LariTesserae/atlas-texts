@@ -1,0 +1,9 @@
+In this submerged realm, the primary inhabitants are the lush, kelplike forests that thrive at these depths. Their amber fronds and emerald vines sway gently in the currents, reaching towards the filtered light from above. These underwater trees stretch their roots deep into the volcanic rock and basalt slopes, intertwining and anchoring themselves to one another.
+
+The tree trunks are riddled with crevices that provide shelter for minuscule glowing fry. The fry weave and dance through the narrow channels and canyons carved over time into the steep mountainsides, their soft bioluminescence resembling a living constellation against the deep blue-green backdrop.
+
+Drifting lazily on the currents are vast flocks of translucent moon jellies, their gelatinous bells pulsing with slow intent. Other small creatures also abound in this underwater paradise - luminous anemones wave from every crevice like sentient hands, while delicate glass-crabs scuttle along the slopes like living amber jewels. 
+
+Symbiotic worm-things curl and release in slow pulses around the tree roots, extracting nutrients from the water to nourish the great forests. They and the other small fauna are the dominant animal life, existing in a delicate balance with the towering vegetation.
+
+This place has never known the touch of civilization or technology, evolving over eons into an alien landscape of dramatic contours and wild, subtle beauty. The rare larger creatures that venture here are no more than temporary visitors passing through. For now, the sharp peaks and endless forests remain the domain of the small, the many, and the patient, who continue their unhurried conquest of the deep blue.

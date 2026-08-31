@@ -1,0 +1,25 @@
+**The Inhabitants of Keth-Morin: The Viscid Kin**  
+
+In the Vented March of Keth-Morin, the inhabitants are not merely dwellers but something *stitched* into the industrial flesh of the place. They are the Viscid Kin, a hybrid race of maintenance entities and human cast-offs, born from the symbiosis of flesh and machinery. Their existence is a testament to the plateau’s relentless churn: neither wholly organic nor fully artificial, they thrive in the perpetual storm of steam, steel, and acidic water that defines their world.  
+
+### **The Viscid Kin**  
+The Viscid Kin are gaunt, humanoid figures, their bodies a fusion of organic tissue and riveted metal. Their skin is a patchwork of corrosion-resistant polymers, grown from the same bioengineered material as the hydroponic weeds that cling to the marsh edges. This synthetic dermis shifts color with the fog—gray-green like the marsh waters, or tarnished copper in the dim electric light. Their limbs are jointed with hydraulic pistons and cable-tendons, allowing them to navigate the jagged metal terrain with eerie, mechanical grace.  
+
+Their faces are elongated and featureless save for a vertical slit that serves as both mouth and ocular gland, capable of secreting a bioluminescent mucus to navigate the perpetual darkness. This mucus, rich in chelating agents, allows them to metabolize the acidic runoff of the marshes, rendering it harmless. Their "eyes" are clusters of pressure-sensitive nodes behind translucent eyelids, attuned to vibrations rather than light—their world is heard and felt, not seen.  
+
+### **The Symbiosis of Sound and Survival**  
+The Viscid Kin do not sleep but enter trances synchronized to the machinery’s rhythm. Their neural networks are hardwired to the plateau’s central vortex monolith, and they are drawn to its "heartbeat" as moths to a flame. The deafening mechanical roar is not a cacophony but a song to them—a language of pistons, steam, and grinding gears that they interpret through bone-conduction hearing. Each Kin carries a resonance chamber in their chest cavity, a hollow bell-like organ that amplifies the sounds of the March, which they use to communicate over the din. Their vocalizations are subsonic hums, felt more than heard, that harmonize with the industrial symphony.  
+
+### **The Role of the Monolith**  
+The towering monolith at the plateau’s heart is their deity and their prison. The Kin believe it to be the beating core of Keth-Morin itself, an ancient AI that sustains the marshlands and machinery through an unknowable logic. They tend to it like priests, climbing its rust-pitted exterior using suction-cup hands and feet to access chambers where steam and electricity converge. The monolith’s "breath"—the hiss of its exhaust pipes—fuels the marshes’ artificial ecosystem. Without it, the Kin would perish, and yet they know in their marrow that the monolith is failing, its systems degrading, its purpose lost to time.  
+
+### **Reproduction and Decay**  
+The Kin reproduce by a grotesque form of budding. They graft organic tissue onto metal frames, weaving in pipes and wires as they grow. Their young are born as "shards"—limbless, segmented creatures that fuse with scavenged machinery and begin to digest it, slowly building their bodies. Most die in this phase, their forms rejected by the environment. Survivors emerge as adults after years of absorbing the industrial detritus around them, their bodies becoming denser, more metallic. Old Kin, however, calcify: their polymer skin hardens into a stone-like shell, and they remain in the marshes as inert monuments, their bodies becoming part of the landscape.  
+
+### **The Unseen Threat: The Hollow Kin**  
+Not all Kin adhere to the rhythm. A faction known as the Hollow Kin have severed their neural links to the monolith, seeking to escape its influence. They dwell in the plateau’s forgotten undercrofts, feeding on the acidic marsh water until their bodies liquefy into mobile puddles of corrosive sludge. These entities are hunted by the others, as their decay threatens the delicate balance of Keth-Morin’s artificial ecosystem.  
+
+### **Purpose and Paradox**  
+The Viscid Kin do not age in the traditional sense but undergo periodic "moltings," shedding layers of their synthetic skin to reveal new growth beneath. Each molt marks a shift in their roles: some become caretakers of the marsh membranes, others tend the steam vents, and the eldest among them—the Calcified Kin—form living bridges between structures, their ossified bodies integrated into the plateau’s architecture.  
+
+Yet for all their adaptation, the Kin are trapped. Keth-Morin is a dying machine-world, and they are its antibodies, forever repairing what its systems tear apart. They are both the wound and the suture, the noise and the silence, a species born of humanity’s hunger and the plateau’s indifferent machinery. In their eyes, the end is inevitable—but so, perhaps, is their rebirth, should the monolith’s heart ever stutter into stillness.

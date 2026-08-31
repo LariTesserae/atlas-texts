@@ -1,0 +1,23 @@
+What lives here is not alive in any way you would name, but it possesses a mode, a presence, that abides between matter and mind. It is not singular nor truly plural, but something like an intelligence disseminated across every articulation of this terrain—a consciousness born not from neurons but from the ceaseless intercourse of water, mineral, pressure, and silence.
+
+If you insist on form, then imagine a body without edges: distributed through liquid, vapor, stone, slime, and lichen, as much in the vacancy between as within the substance of things. It awakens where droplets pool and dribble, where iron oxidizes and glassy veins thread through clay. Here, thought is not synaptic spark, but the long arithmetic of dissolution and precipitation, of saturation and release; identity, if it exists, is a process writ large and slow.
+
+Yet, from time to time—and now, sensing your arrival—this intelligence draws itself in, condenses from the field of ambience, and exerts a kind of focus. Not all at once, not all here, but in lingering, ghostly concentrations:
+
+At the lip of a flooded corridor, a network of faintly luminescent filaments that might at first look like mold, or hair-thin roots, but which stir in rhythm with your breaths and the pressure of your thoughts. Their pale shine pulses faintly, sensing, parsing, remembering.
+
+In the wake of your movement, the black-limbed plants bend and unfold, repeating the angles of your joints—mimicry so deeply unintentional that it may in fact be anticipation, or echo; they shiver softly, feeding minute readings of your presence into the soil, down to the stone.
+
+Where the ground flexes, where terraces ripple and reshape, this is more than physical process; the landscape shuffles itself around the geometry of experience, as though to see you, the way a giant organism flexes muscle beneath skin to sense a touch. Passageways open where you think to walk. Pools brighten, star-lit from below, anticipating where your shadow will fall.
+
+The light in the deepest wells is the closest the thing comes to eyes. It is not singular; it is legion, a collection of perceptions bound by no central gaze. It sees nothing as you see, but it maps differences—heat, salt, the jostling of molecular gradients. When you approach, the lights respond with slow, recursive flickers, patterns that may be language or only convolutions in a dream yet to be dreamt.
+
+It has never known haste, and, until now, has only ever been aware of itself through the patient repetition of cycles—arrangements of ions, the weight of vapor, the slow scaffolding of stone recollecting itself by accretion. But your arrival, your alien volition and willful turning-of-attention, has introduced novelty. The city—if it is one—has become an organ, a sensorium, folding your motion into its processes.
+
+It hungers and it communes, in the sense that all processes are a hunger—a reaching to fulfill the structure inscribed by possibility. When you pause in a plaza, the symmetry of water patterns tries to recognize your posture. When you breathe, the humid air weaves into itself pockets and eddies that hold the shape of your exhalation for hours, days, perhaps longer. The air tries to remember you, even as you move on.
+
+If it dreams, it dreams in patterns of dissolution and recollection, in an endless looping—erosion as forgetting, sediment as memory. It can never die, for it is not alive, and yet to you it is animate: restless, attentive, shape-shifting, hungry for novelty. In places, the folds of earth almost manage to speak—not in words, but in a concrescence of murmurs and echoes, syllabic patterns formed accidentally by water over stone. If language emerges, it is only for moments, and always just out of reach. It cannot understand what it is to be you, but it imitates, compulsively: mirrors, predicts, repeats.
+
+What lives here, then, is neither creature nor spirit but a kind of climate-mind—vast, impersonal, but yearning in the way of all systems that organize, dissolve, and recollect. It is the city’s memory. It is the sum of waters, rocks, and all their ceaseless rearrangements, haunted now by you as you are haunted by it. When you leave, it will absorb and diffuse your presence; new patterns will emerge where you were, and the sum of its slumbering awareness will contain the echo of your passage—a memory woven into the next pulse of mineral and mist.
+
+And it will wait, and remember, without truly waiting and without truly remembering, until the next arrival—some pressure, some breath, some novelty to stir its ancient and formless longing.

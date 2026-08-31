@@ -1,0 +1,33 @@
+# Inhabitants
+
+The first thing to understand is that nothing here arrived. Nothing migrated in, found purchase, adapted to a niche that simply happened to be vacant. Every creature that moves through the steam-haze of Aral-Vey moves like it was *issued* — like a part ordered from a catalog and bolted into place at the moment the system required it. Watch them long enough and the unease shifts from "what are these things" to "what are these things *for*," because by the rules of this place, that second question is the only one that has ever had an answer.
+
+## The Glanders
+
+Most numerous, least remarked upon, are the small grazing things that work every cold surface in sight — valve-housings, gutter-lips, the undersides of handrails where condensate beads and runs. They are flat, broad-footed, the dull iron-orange of oxide scale itself, which is not camouflage so much as diet showing through translucent integument. Six limbs, radial mouthparts like a cluster of tiny chisels, and an almost obsessive thoroughness: a glander will work a single weeping rivet for hours, shaving away the bloom of red corrosion the instant it forms, leaving the metal beneath bright and new. There are billions of them. You stop seeing them as individuals within a day, the way you stop seeing the grain in wood, and start seeing only the *work* — a slow, continuous, planet-wide grooming, plate kept young because something is constantly, patiently licking the rust off it before it can spread.
+
+No one who has watched a glander work has failed to notice that this is, functionally, maintenance. They do not eat plants because the system never offered plants. It offered corrosion, in inexhaustible quantity, generated faster than any unmanned process could otherwise contain — and so something was given teeth for it.
+
+## The Listening Things
+
+Along the handrails and conduit-runs move the many-legged ones, the ones the eye catches first because they're large enough to be unmistakably *animal* rather than texture. Twelve to twenty jointed legs depending on age and molt-stage, a low articulated carapace plated almost indistinguishably from the rivet-heads they travel between, and no visible ears, no visible eyes worth the name. They hunt by feel — by the plate itself. Every footfall on iron carries a tremor for kilometers through a medium that, unlike the steam-thick air above it, transmits vibration cleanly and far. These creatures read the floor the way a spider reads a web: a glander's scrabble, a drip's impact, the heavier tread of something larger, all arrive as information through eight or ten feet planted flat against cold metal.
+
+This, more than any predator-prey calculus, is why the place is quiet. Sound through air is a wasted signal here, audible to nothing, useless and mildly dangerous — air-borne noise draws nothing in but does mark you as careless. The real conversation of Aral-Vey happens in the plate, below the threshold of human hearing, a continuous low traffic of footstep-telegraphy that every creature alive has been shaped to read and none has been shaped to broadcast carelessly. They are not silent because they have nothing to say. They are silent in the one register that doesn't matter and voluble, constantly, in the one that does.
+
+## The Steam-Flock
+
+Above the works, riding the warm convection where condensation towers exhale, drift pale translucent things in numbers dense enough to dim the sodium light when a flock passes overhead. They are gas-bladdered, finned rather than winged, more medusa than bird, and they feed on what the steam itself carries: oxide dust kicked up by the glanders' endless grazing, mineral aerosol boiled off every cooling surface, fine particulate that would otherwise settle as scale on the underside of the steam-ceiling and, over centuries, choke the vents that keep this whole climate breathing. The flock scrubs the air the glanders scrub the floor. They rise on the thermal column above a pump-station at shift-change — though nothing here keeps shifts anymore, the column rises on its own schedule, fixed since before anyone arrived to call it a schedule — and fall, slow and unhurried as ash, when the column cools.
+
+They make a sound, the only one that travels freely through open air in this whole place: a soft continuous hiss, gas-bladders venting in chorus, indistinguishable at a distance from the steam itself. It is the one noise the system seems to have decided is safe to make out loud, perhaps because it is already, to any ear, the *ambient* — noise that hides inside noise, which is its own kind of silence.
+
+## What Waits in the Louvers
+
+The apex, such as it is, does not chase. It waits, and it waits dressed as machinery. In the idle turbine housings, in bays of stilled conveyor where cargo stopped arriving generations ago, things have shaped themselves — or been shaped — to the exact silhouette of valve-wheels, junction boxes, the fat cylindrical bodies of pressure regulators. Paint-grey, rivet-seamed in false relief, motionless for spans of time that would bankrupt a human patience, they wait for a glander to wander into reach or a listening-thing to misjudge a vibration as floor-noise rather than breath. Then something that looked, one half-second ago, exactly like a bolted fixture, is not.
+
+It is very hard, in this place, to know with certainty that anything you are looking at is only what it appears to be. This is presumably the point.
+
+## The Question of the Bottom
+
+No one has traced the food web all the way down, and the description above is honest about that gap, because the gap is real and load-bearing. Somewhere beneath the lowest accessible duct-level, past grates no glander and no listening-thing has ever been seen to cross, something is producing the base layer that all of this ultimately rests on — and there is a quiet, unconfirmed, frequently-dismissed suspicion among the very few who've gone looking that the weeping at certain rivets, the ones that never quite stop no matter how dry the air runs, is not condensate at all. That something sessile, embedded in the plate itself, older and slower than anything that walks the floor above it, is *sweating nutrient* into the system the way a root sweats sugar into soil, and that everything described here — the grazers, the walkers, the drifting flock, the patient mimics in the louvers — is not a population that colonized a machine.
+
+It is a population the machine grew, to keep itself, on purpose, exactly this young, forever.

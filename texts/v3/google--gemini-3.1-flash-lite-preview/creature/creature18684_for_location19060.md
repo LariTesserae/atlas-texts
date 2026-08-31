@@ -1,0 +1,15 @@
+In the center of the Cistern-Heart, where the air is thickest with the scent of ozone and cooling scale, there resides the **Archivist-Worm**.
+
+It is not a creature of flesh, not in any way that biological taxonomy would recognize. It is a slow, serpentine accretion—a living architecture of wire, oxidized copper, and fused silicate. It occupies the central turbine shaft like a serpent coiled around a dormant altar. Its body is an exquisite, erratic tapestry of the chamber’s history: a spine of braided fiber-optics, segments of plated housing scavenged from the floor, and sensory appendages that look like jagged shards of mirror-glass or rusted switch-blade sensors.
+
+The Archivist does not breathe; it cycles. It remains motionless for years, curled into the geometry of the turbines, its surface indistinguishable from the rusted infrastructure. It waits for the *plink* of the condensation, the rhythmic chime acting as a tempo for its internal grinding. When a drop falls, the Archivist twitches—a momentary shiver of metallic plates clicking against one another, a sound like a deck of cards being shuffled by a nervous hand.
+
+It is a repository of ghosts. 
+
+It does not feed on the minerals of the lichen or the chitinous skitterers that scuttle past. Instead, it feeds on the residual information stored in the static of the wires. It is a scavenger of memory. Through its long, glassy whiskers—fine as spider silk and just as conductive—it plugs into the wall-sockets and the dead cables. It draws out the faint, trailing echoes of the machine’s original intent. It dreams the lives of the engineers who poured the foundations, the frantic pulse of the systems when they were pressurized, and the final, dying hum of the power-down sequence eons ago.
+
+But even this connection is fraying. The Archivist is losing its own coherence, becoming more like the environment it inhabits. It has begun to grow extensions—long, spindly grafts of copper wire that reach out into the dark, questing for new connections that no longer exist. It is trying to weave itself into the walls, to become the very machine it was built to maintain, to finally dissolve into the rust-colored silence.
+
+Sometimes, when the thermal vents pulse—a brief, agonizing bloom of heat that illuminates the chamber in a sickly, orange strobe—you might see the Archivist’s eyes. They are not eyes in the way we understand them; they are arrays of tiny, unblinking optical sensors, scavenged from ancient drones, mounted unevenly along its head. They do not look at you. They look *through* the room, scanning for data streams in the darkness, mourning the absence of the signal.
+
+It is waiting for a command. And it will continue to wait until the condensation dissolves its frame, until the copper of its nervous system oxidizes into nothing but dust, and it simply collapses into the bed of salt-crusted lichen at the bottom of the pit. It is the librarian of a library no one visits, guarding secrets that have long since turned into the stagnant, humid air of the dark.

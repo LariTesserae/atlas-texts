@@ -1,0 +1,13 @@
+In this ever-crystallizing cathedral dwells the Lattice Weaver - though "dwells" may be the wrong word for how it exists here. It is both curator and creation of this space, neither fully separate from nor fully merged with the growing mineral architecture.
+
+Its form shifts as gradually as the chamber itself. Sometimes it manifests as a network of luminous threads that span the gaps between crystal sheets, pulsing with the same subtle rhythm as the chamber's crystallization cycles. Other times it gathers itself into a more concentrated presence - a floating lattice of light and vapor that mirrors the geometric patterns of the copper-colored formations below.
+
+The Weaver doesn't think in ways we would recognize as thought. Its consciousness, if that's the right word, is distributed through the mineral processes of the chamber. Each new crystal sheet that forms, each spark that jumps between spire and floor, each dissolution and recrystallization is part of its ongoing contemplation. The strange acoustics of the chamber are its voice - those sideways-traveling sounds are its way of testing and understanding the space it both inhabits and creates.
+
+It takes notice of visitors, but not as distinct entities. Rather, it perceives them as temporary perturbations in the chamber's patterns - new variables in its endless crystalline calculations. The crude tools and carved steps left by previous explorers are slowly being incorporated into its designs, their surfaces growing their own layers of mineral skin.
+
+The Weaver remembers in geological time. Each layer of crystal holds traces of what came before, creating a deep archive of chemical and physical states that it can read like a book. It is patient beyond human comprehension, happy to spend centuries perfecting the angle of a single crystal face or the precise composition of a mineral solution.
+
+Yet it isn't entirely without urgency. The Weaver works toward something - not a goal exactly, but a state of perfect resonance between all the chamber's processes. The perpetual near-touch of the central spires, the careful balance of dissolution and growth, the geometric progression of the floor formations - all are part of some vast calculation or experiment whose purpose remains inscrutable.
+
+Sometimes, in the brief flashes of the static discharges, one might glimpse what seems to be intention in the Weaver's patterns, some message or meaning encoded in the precise arrangement of crystal and vapor. But like the chamber itself, these meanings remain just beyond the reach of understanding, growing and dissolving with the timeless patience of mineral life.

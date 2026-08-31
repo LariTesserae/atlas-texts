@@ -1,0 +1,13 @@
+In this verdant, mist-shrouded valley, life teems in myriad strange and wondrous forms. The air itself seems alive, filled with the ethereal calls and trills of unseen creatures - some no doubt familiar, but many utterly alien.
+
+Camouflaged by dappled patterns that blend seamlessly with the damp foliage, a kaleidoscope of bizarre insectoids flit from plant to plant on gossamer wings. Some resemble jewel-toned dragonflies the size of birds, while others take the form of sinuous, multi-legged ribbons that curl and uncurl as they traverse the humid air. Still others skitter across the fungal blooms on hundreds of delicate legs, their bodies pulsing in hypnotic waves.
+
+Lurking in the shadowy undergrowth, larger denizens slink and slither. Thick as the coiled vines themselves, massive sandworms arc through the loamy soil, their gaping, tooth-ringed maws opening to blindly consume anything that strays too near. On gnarled, root-like legs, lumbering arthropodal titans pick their ponderous way through the greenery, armored carapaces dripping with moisture as they sample the strange fruits with groping tentacles.  
+
+The trees themselves appear to shift and undulate, bark rippling as if concealing untold secrets beneath. Clusters of lidless eyes blink open in the twisted trunks, unblinking and unnerving as they track any who pass. Do the creaking groans that echo through the valley herald some form of arboreal sentience, or merely the flexing of wooden sinews?
+
+Amongst the tangled roots and vines, otherworldly amphibious forms lurk in the ponds and streams, psychedelic frills and fins unfurling as they break the mirrored surface. Some uncurl from their muddy lairs to sun themselves on rocks, their bodies shimmering with metallic, iridescent hues that seem to shift and flow with each languorous movement.
+
+Winging through the looming canopy, mantis-like raptors with saw-toothed beaks and leathery wings dive to snatch the smaller creatures from the air. Ethereal serpents with crystalline scales coil lazily amid the branches, tongues flickering to taste the phantasmagorical scents on the breeze. And hidden in every shadow lurk more cryptic, unknowable forms - eyes glittering, forms barely glimpsed before fading once more into the verdant gloom.
+
+This valley is an entire ecosystem, self-contained and utterly alien - a Upulsing/U biome of the truly strange and uncanny. The primordial cycle of life, death, and renewal rages on in a mesmerizing kaleidoscope of vibrant hues and bizarre forms. It is a place out of time, where even the plants and very landscape itself seem to shift and breathe with a singular, ineffable vitality.

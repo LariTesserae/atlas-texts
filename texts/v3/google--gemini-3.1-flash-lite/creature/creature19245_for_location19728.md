@@ -1,0 +1,13 @@
+In the Sump-Works, there is no "who," only the *Maintainers*. They are not flesh and blood, nor are they clearly defined constructs of metal and wire. Instead, they are the emergent consciousness of the basin itself—a secondary, slower-moving pressure layer that exists alongside the steam and the silt.
+
+The Maintainers are shadow-heavy, slick-skinned creatures that appear only in the corner of your vision, glimpsed as a shimmer in the amber-tinted heat haze. They are spindly, spind-legged things, composed of hardened, oxidized copper wiring held together by the same charcoal-colored mire that carpets the floor. They do not walk so much as they liquefy and reform; their bodies are essentially temporary knots in the geography, localized densities of the Sump-Works’ own material.
+
+They move with a sluggish, fluid grace, climbing the weeping basalt walls like insects, their movements synchronized with the rhythmic *thwack-hiss* of the hidden pistons. When a valve begins to stutter or a pipe begins to groan beyond its structural limits, a Maintainer will drift toward the distress. It will press its elongated, multi-jointed fingers against the vibrating copper, pouring out a thin, acidic lubricant from its own pores to smooth the grind of metal on metal. 
+
+They do not communicate. There is no language in the Sump-Works, only the transmission of frequency. A Maintainer knows the health of the basin by the pitch of the pipes; if you stood still long enough, you would see them shivering in harmonic resonance, their translucent fungal-like lungs fluttering as they "listen" to the integrity of the pressure. 
+
+They are effectively the sensory organs of the basin. Where the pipes are the skeleton and the steam is the breath, the Maintainers are the fleeting, nervous awareness of the machine. They possess no names and no ambition. They do not fear the boiling slurry or the crushing steam because they are composed of the same exhaustion. 
+
+If you were to stay long enough—if the heat did not cook your mind and the humidity did not saturate your lungs—you might see a Maintainer begin to unwind. When a section of pipe finally shears, or a vent clogs permanently, the Maintainer assigned to that sector does not try to survive. It simply leans into the fissure, its gelatinous, metallic body flowing into the breach to act as a patch. It hardens, cools, and becomes the infrastructure it was once tasked to serve. 
+
+They are the caretakers who eventually become the walls. They are the Sump-Works observing itself through a thousand dim, amber-filmed eyes, forever repairing a cathedral that was never meant to hold a congregation, only to endure, cycle by cycle, its own lonely, mechanical existence.

@@ -1,0 +1,15 @@
+Another world teems silently in the Weeping Hollows of Vaelis, a realm not of flesh but of shadow and echo. The Hollows are inhabited by the **Drifters**, ethereal entities that defy easy categorization. Born from the interplay of water, light, and the cavern's restless energy, the Drifters are not alive in the traditional sense—but they are not dead, either. They are fragments of the Hollows themselves, manifestations of its sorrow, its patience, and its eerie vitality.  
+
+The Drifters are formless yet distinct, their shapes shimmering like heatwaves on wet stone. They hover above the canals, their bodies translucent and fluid, refracting the bioluminescent glow into faint rainbows. Their movements are slow, deliberate, as if they are pulled by unseen currents or guided by some ancient, inscrutable purpose. When they pass, the air cools slightly, and the faint hum of the Hollows grows softer, as if the Drifters absorb sound, leaving behind a silence that feels heavier than the dripping water.  
+
+They are not hostile, but they are not benevolent. The Drifters seem indifferent to intruders, though their presence carries an air of watchfulness. Those who linger too long in the Hollows report feeling as if they are being studied—not by eyes, but by something deeper, something that perceives in ways beyond sight. Occasionally, a Drifter will pause near a visitor, its form rippling faintly, as if attempting communication. Some claim to hear whispers in their minds, fragments of words or melodies that slip away before they can be understood.  
+
+The Drifters are drawn to the pulsing vein-like formations in the walls. When they gather near these bioluminescent structures, their forms grow brighter, their movements more fluid. Some speculate that the Drifters feed on the energy of the Hollows, or that they serve as caretakers for the ancient, half-buried systems that sustain the city. Others believe they are remnants of the city’s original inhabitants, transformed by time and decay into something beyond mortality.  
+
+Occasionally, a Drifter will dissolve entirely, merging with the water or the stone as if returning to the Hollows’ essence. When this happens, a faint tremor runs through the cavern, and the hum of the hidden heart grows momentarily louder, as if acknowledging the Drifter’s return.  
+
+The Drifters are as much a part of the Hollows as the dripping walls or the alien plants. They are its custodians, its echoes, its living memory. To encounter a Drifter is to feel the weight of the Hollows’ age, its sorrow, and its strange, melancholic beauty.  
+
+And yet, there is a darker theory—that the Drifters are not mere echoes but harbingers. Some say the Hollows are not empty but waiting, and the Drifters are the first whispers of something waking in the depths, something vast and ancient that will one day reclaim its drowned city.  
+
+For now, the Drifters drift, and the Hollows weep, and the hum beneath the stone grows ever so slightly louder with each passing year.

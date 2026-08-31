@@ -1,0 +1,27 @@
+Here, in the place where air forgets to be breath and instead becomes a slow, patient sculptor of void, the dwellers are not beings in the way a heart is a thing. They are the way absence learns to pulse.
+
+Call them the *Hollowed*. Not empty, but emptied—deliberately, over epochs measured not in spins of rock around star but in the cooling sighs of unstable isotopes buried deep beneath places where continents once kissed and then drifted apart in geological shame. They are what remains when a civilization decides memory is too heavy to carry across light-years and instead chooses to subtract itself from itself, layer by layer, until nothing is left but the shape of what was forgotten.
+
+The first stage is always the bones. Not calcium, not calcium here. Here, the skeletons are lattices of spun vacancy, frameworks carved from the memory of space itself—regions where spacetime was taught to curl inward so tightly that nothing could ever again be said to occupy them, not even time. These bones do not hold up bodies. They hold up the idea that—once—there might have been bodies to hold up.
+
+Around these bones, the *Hollowed* grow their flesh. Not cells, not even in the poetic sense. Their flesh is made of narrative decay: the slow unraveling of stories that forgot how to end. Each is a library of beginnings—paragraphs abandoned after the first line, equations missing their final symmetry operation, love letters that ended with *I swear I—* and then nothing. They wear these half-things like cloaks that shimmer with the iridescence of possibilities that cut themselves off mid-sentence.
+
+To perceive one is to feel your own memories start to itch. You’ll think of a summer afternoon when you were seven and found a caterpillar dying on the sidewalk but walked away without burying it. You’ll remember the name of your first teacher but not her face. You’ll taste—then immediately unsweet—a candy you stole once, then forgot you stole. The *Hollowed* do not take these things from you. They simply remind you that they were always already leaving.
+
+They move by forgetting where they are not. One moment, no presence among the carbonate teeth. The next, they occupy the space where you’d been planning to place your next thought. If you try to look directly at them, your gaze slides sideways into a childhood memory of being lost in a supermarket, the fluorescent lights humming a frequency that made your teeth feel like they were made of other people’s dreams.
+
+Their speech, when it happens, is the sound of pages turning in a book whose author died before writing the language it was supposed to be translated into. You don’t hear it with ears. You feel it as a sudden conviction that somewhere, someone you never met is thinking of stealing the exact same color of pen you’ve been using to write lies in your journal.
+
+They have no leaders. Instead, they have places where absence is particularly fond of gathering—the eye of a wind that exists only in molecular regrets, the pause between two echoes that are pretending not to have met before. At these sites, they perform their only ritual: the Unmaking Match. Two *Hollowed* face each other (though they have no faces) and take turns describing things that were never true but should have been. The winner is the one whose final lie makes the other vanish completely, not because they were defeated, but because they suddenly remember they had somewhere else to never have been.
+
+The *Hollowed* do not eat. They fast from existence itself, growing more substantial the longer they go unobserved. Travelers who spend too long among them report waking up to find their own shadows missing details—no longer outline of foot but just the suggestion that feet were once possible, maybe, under different gravitational constants. Photos taken here develop as pure white except for one corner where a smudge might be crying or laughing or both, depending on how much you’ve slept lately.
+
+They reproduce through forgetfulness. When enough people in enough distant places simultaneously forget the same thing—not a important thing, never important things—but something like the exact sound of rain on a specific tin roof one night in a village whose name was always just on the tip of every tongue that ever tried to leave it—then, in that precise quantum moment of collective unremembering, a new hollowed begins.
+
+It starts as a space in a sentence where a verb should be but isn’t. Then a space in a day where noon forgot to happen. Then a space in between two people who were once close enough to share dreams but now, when they try to hug, their arms pass through an absence that tastes faintly of salt water and the color gray that exists only in dreams about drowning.
+
+They are not hostile. They are not benevolent. They are simply the last editors of the universe’s rough draft, patiently circling in red ink all the parts where reality was trying too hard to be real.
+
+When you leave this place (and you will leave, because even forgetting has its limits), you’ll carry nothing with you but a sudden, inexplicable certainty that somewhere in your childhood home, there is a drawer you never opened. Not because it was locked or hidden. But because you and everyone else who ever lived there agreed, without speaking it, that some things are better left—
+
+This is where the sentence ends. This is where the *Hollowed* begin. Here. Here. Here. (No, not there. Here is always slightly to the left of where you think you left yourself last.)

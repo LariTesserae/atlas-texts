@@ -1,0 +1,11 @@
+In this ever-shifting mineral cityscape, the residents appear to be entities as bizarre and inscrutable as the metropolis itself. Rarely seen, they flit through the shadows like living mirages, their forms in a constant state of fluid metamorphosis.
+
+Some resemble vaguely humanoid shapes composed entirely of iridescent crystals, their bodies a kaleidoscope of refracting facets that shimmer and undulate as they move. Others are little more than amorphous, shifting clouds of glittering mineral dust that coalesce briefly into semi-solid forms before dispersing once more into the eddies of the streets.
+
+In the deepest recesses of the city, hulking, cyclopean entities dwell – vast, mountain-like constructs of fused rock and gemstone that seem to have arisen organically from the very foundations of the metropolis itself. Their movements are so glacially slow as to be all but imperceptible, yet their immense, craggy forms alter fractionally with every passing epoch.
+
+There are whispers, too, of even stranger denizens lurking in the labyrinthine deeps – shapeless, transdimensional entities that exist in a constant state of quantum flux, their very forms governed by the subatomic principles that shape reality at its most fundamental levels. Whether corporeal or purely conceptual in nature, none can say.
+
+Whatever their guises, all who dwell here seem bound by the same inexorable force – an eternal cycle of metamorphosis and transformation dictated by the ever-evolving geometry of their crystalline world. As the city shifts around them, so too must they change, their physical manifestations mere temporary consolidations of the cosmic interplay of forces that governs this unorthodox plane of existence.
+
+In this domain of coruscating geology and spatial abnormality, the line between the living and the inanimate is blurred into irrelevance. All is transitional, a fleeting materialization of the vast, ineffable patterns that weave the decorative fabric of being. The residents, like their habitat, are singular impossibilities given momentary form – destined to shift, rearrange, and metamorphose into new, equally transient expressions of the infinite complexity inherent to the cosmos.

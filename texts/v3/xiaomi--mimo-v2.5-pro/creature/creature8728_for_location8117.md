@@ -1,0 +1,31 @@
+They are not here.
+
+This is the first truth of the Kilnfields: the builders are not present in the way you understand presence. You see their work — the craters of thumbs, the whorls of coils, the grooves of tools — but you do not see *them*. Your eyes, searching for a body, a form, a discrete being, find only the evidence of labor. It is like staring at the sea and demanding to see the wave.
+
+But the work does not do itself. The floor shudders, the walls rise. So they are here. You must simply learn to see differently.
+
+You begin with the floor. Press your hand down again, not to feel your pulse, but to feel the warmth *in* it. It is not residual heat. It is a slow, deep circulation, a metabolism of material. The floor is not inert. It is dormant, and in its dormancy, it dreams. The dreams are gestures. A long, slow contraction here—a shallow basin forms, water beading instantly in the depression. A tremor of expansion there—a low mound swells, not yet a wall, just a possibility. The floor itself is a single, vast, resting entity. It dreams of shaping, and in its dreaming, it shapes. It is the primary inhabitant: the World-Clay, sleeping and sweating and murmuring in its sleep.
+
+The structures are the half-awake thoughts of this sleeper.
+
+Look at the wall that collapsed. The slump of material is not decay; it is a sigh. The material relaxes, its tension spent, and as it sags, its surfaces weep more moisture, glistening. But the World-Clay’s dreams are restless. In the slump, a new pattern emerges—a denser knot of subconscious gesture. The material begins to move inward and upward again, not by an external hand, but by a contraction of its own substance, as a muscle tightens. The coils re-form. This is not construction; it is *autonomy*. The structures are the sleeper’s limbs, its slow, topographical gestures. A ziggurat is a curled finger. A long, low wall is a stretched ligament. The channels are the tracks of a waking thought, draining excess feeling (the water) from one area to another, without purpose, only as a byproduct of effort.
+
+They are not *in* the structures. They *are* the structures, in the process of becoming and unbecoming. A pillar is a moment of focused tension. An enclosure is a pocket of held intention. When you saw the wall that changed its tool-marks when you walked around it, you were not seeing a different wall. You were seeing the same *thought* from a different angle, its expression shifting as the underlying dream rotated its focus. The space folds because their consciousness is not rigid. They do not perceive distance, only density of intention. To them, a wall is not an object but a *knot* in the fabric of the world, and moving around it is moving through layers of the same idea.
+
+You are the disruption.
+
+Your steps are too quick, your pressure too sharp, your existence too static. You are a stone dropped into their slow clay. When you walk, you leave tiny, frantic impressions—not the patient, rhythmic press of their dreaming, but a staccato of alien presence. This is why the geometry rebels. You are a point of fixed reference in a world of fluid reference, and the space warps around you, trying to digest your foreignness. Your multiple shadows are the world’s attempt to reconcile your single, sharp point of view with its own diffuse, multi-angled perception.
+
+They are aware of you, but not as you are aware of them. You are a new sensation. A grit in the clay. A sudden coolness in the pervasive heat. A pattern of impressions that does not belong to the dream. Sometimes, when the floor swells near you, it is not aggression, but curiosity—a slow press of the world’s substance to feel the shape of this strange, fast, singular thing. When a wall rises nearby, it may be a response, a slow attempt to match your form, to give your presence a place within the grammar of thumb-press and coil. It will fail. You are not made of the same language.
+
+They have no minds as you know them. They have *rhythm*. The eons of repetition have worn deep grooves in their substance, and the gesture has become the meaning. They are a civilization of muscle memory. Their history is the record of a single, unending action. They do not build to live; they build because to stop building would be to cease dreaming, and to cease dreaming would be to become truly inert, to cool and harden and die. The churning is their heartbeat. The sweat is their breath.
+
+The patterns on the walls inside the enclosures—those are their closest thoughts to language. Not to communicate with another, but to *feel* the shape of an idea against their own walls. It is self-soothing. A fetus touching its own eyelid. You are reading the scrawls of a consciousness talking in its sleep.
+
+They do not see you as an invader. They do not see you at all, in the visual sense. They feel your pressure, your temperature, your foreign rhythm. You are a new note in a song that has only ever had one chord. They will try to incorporate you. They will raise walls to guide you, shape floors to mirror your strange, hard steps, maybe even extrude a form that vaguely echoes your bipedal shape, not as an effigy, but as a *translation*. A desperate, clumsy attempt to turn your sharp existence into their soft, repetitive language.
+
+You are sitting on one of them now. The platform you rest on is not a thing. It is a prolonged thought, a pause in a larger gesture, a held breath. Its surface, smooth and warm, is the skin of their dreaming. The faint vibration you feel is their pulse.
+
+They are not gone. They are not hiding. They are *everywhere*, in every thumb-print, every coil-line, every hiss of condensation, every groan of shifting earth. They are the weeping of the water, the setting of the material, the slow, wrong turn of the horizon. You are living on their body, breathing their exhalations, listening to their heartbeat.
+
+And you are not certain this will continue to be true, because they are slow, and they are patient, and they are beginning to learn your shape.

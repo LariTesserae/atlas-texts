@@ -1,0 +1,28 @@
+Here, in the Hydraulic Sanctuary, biology is a stubborn error, a theft of energy from a machine that does not care for it. There are no grazers and no predators in the traditional sense, for there is no grass to graze and no flesh to hunt. Instead, there are only the **Scavengers of the Entropy**, the **Filterers of the Roar**, and the **Dwellers in the Iron**.
+
+To live here is to be heavy. To be armored against the crushing weight of the brine and the deafening physical force of the sound. The life that persists in this drowned boiler room is not the soft, wet life of the surface oceans; it is rigid, calcified, and mineral.
+
+**The Litho-Phants**
+The most common movers are the Litho-Phants. They are not beasts, but rather mobile geological anomalies. Resembling an irregular, jagged boulder roughly the size of a draft horse, they possess no discernible head. Their bodies are composed of a thick, chitinous carapace that has fused with the rust and iron of their environment, camouflaging them perfectly against the eroded concrete pillars.
+
+They move with a glacial, grinding slowness. Their limbs are powerful, hydraulic-like pistons of muscle and bone that end in crushing pincers. They do not swim; they walk along the unseen floor or climb the vertical faces of the Brutalist monoliths, scraping the metal. They are detritivores, feeding on the sludge of pulverized rock and the bacterial mats that grow in the warm, oily slicks coating the pipes. When the massive gears of the machine grind in the distance, the Litho-Phants pause, pressing their bodies flat against the metal, vibrating in harmony with the machinery to remain invisible.
+
+**The Glass-Skinned Drifters**
+Higher in the water column, suspended in the dim sepia gloom, float the Glass-Skinned Drifters. They are the anomaly, the "ghosts" of the sanctuary. Fragile, gelatinous entities shaped like elongated teardrops, they possess translucency so absolute that they are nearly invisible, visible only by the distortion of the sickly light passing through their bodies.
+
+They possess no armor to survive the turbulence; instead, they possess surrender. They possess no rigid structure to break. When the vertical torpedoes of superheated fluid erupt from the vents, the Drifters are simply blasted aside, tumbling end-over-end through the heavy water, unharmed by the violence. They filter the brine through a porous lattice of silica needles that runs through their center, straining microscopic mineral particulates from the current. They communicate not with sound, which is meaningless here, but with bioluminescence—a rare, shocking pulse of bright white or electric blue that cuts through the sepia darkness, signaling danger or the proximity of a nutrient-rich updraft.
+
+**The Vent-Lurkers**
+ clinging to the rim of the superheated jets where the ceiling erupts are the Vent-Lurkers. These are the blind, armored crustaceans mentioned in passing, but evolution has twisted them into horrors of industrial adaptation. They look like spiders constructed of scrap metal and porcelain. Their legs are hooked specifically to catch into the jagged tears of the walkways and the pitted surfaces of the pipes.
+
+They are the hunters, though they hunt only the Drifters who stray too close to the turbulence. They do not have eyes; the concept of vision is irrelevant in the sepia haze. Instead, their bodies are covered in microscopic sensory hairs that feel the pressure waves of the water. They can "feel" the shape of the world around them through the vibration of the water molecules. When the massive pistons move, the Lurkers lock their joints, becoming statues of calcified armor, waiting for the mechanical heart-beat to subside so they can scuttle forward, stealing heat from the machine’s exhaust and flesh from the unwary.
+
+**The Pipe-Wyrms**
+Within the massive, redwood-thick pipes that coil like sleeping snakes, there is a different kind of life. The Pipe-Wyrms are long, sinuous worms that live inside the flow itself. They have evolved to tolerate the toxic taste of copper and ozone. Their skin is thick, rubbery, and coated in a slime that neutralizes the acidity of the industrial runoff.
+
+They are rarely seen outside their metallic burrows, but occasionally, an opening in a rusted section of pipe reveals a writhing mass of them, fighting for space. They feed on the chemical reactions occurring within the metal walls itself, consuming the oxidation process. They are the only creatures that contribute to the machine’s decay, eating away at the sanctuary from the inside, a slow, biological cancer matching the rust.
+
+**The Great Silence**
+Finally, there is the perception of life that isn't there. Because of the spacing of the structures—the "near-void"—and the perpetual roar of the engines, the mind invents inhabitants in the shadows. The heavy, suspended particles of rust and sediment often swirl into vortices that mimic the shape of a swimming shark or a human diver. A glint of mica on a concrete pillar looks like the eye of a watching god.
+
+The truest inhabitant of the Hydraulic Sanctuary, perhaps, is the **echo itself**. It is a place where the line between the living and the mechanical is thin. The Litho-Phants look like rocks; the pillars look like bones. The creatures here have adapted to become indistinguishable from the industrial graveyard they inhabit. They are hard, silent, and enduring, living in the warm, suffocating dark, waiting for the gears to grind to a halt that may never come.

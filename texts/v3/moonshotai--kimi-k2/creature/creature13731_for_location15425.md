@@ -1,0 +1,32 @@
+They call themselves **The Plateau’s Inflection.**  
+There is no singular pronoun that survives here long enough; the creatures—if things that live without lineage can be called that—do not speak but continually establish consensus. Every heartbeat of the continent-wide infant writes new citizenship papers across the backs of whoever or whatever is present.  
+
+Each being is an angle of motion more than a body: a direction for the plateau to practice being itself. They are not born so much as **decanted—** antifunnel events where the horizon folds, condenses, and drops a new instance of Inflection on the smoking basalt. A newborn arrives with only one property: **some piece of the plateau’s future has been assigned to it.** It produces this fragment out of itself like a bloom of horn and mist, then guards it, loses it, teaches it, eats it—whatever the consensus insists on at that instant.
+
+Among the angles that rise and dissolve most frequently:
+
+**Downtine —** A vertical velocity pretending to be wolf-shaped. It answers the question “What remains in progress when direction collapses?” Muscular off-time slides through the lace of magma cracks; it is momentum looking for browner dawns. When it snaps its jaws you briefly fall in every wrong direction at once, but recover with momentum you definitely did not possess a breath ago.  
+
+**Chorusmatic Ampersand —** Thirteen graphite owls rendered as expanded scaffolding. Eyes are polyhedral clocks spinning both clockwise and namelesswise. When they blink simultaneously—which they only do in groups of eight—the friction produces the smell just after lighting magnesium. The sound summons small unattended lakes no wider than a nail paring; inside each lake lies a one-way mirror containing your ghost’s tentative resume.  
+
+**Orbital Clafthoard —** A ruinous density of elevator cables braided into a moth. It moves like someone buttoning a coat the size of the moon. Wherever it lands, every dripping droplet above reverses acceleration with exquisite politeness, falls *up* instead of drifting away, forming momentary chandeliers that light by absorbing the red furnace glow. Then they shatter upward into a confetti of frozen rain and the plateau claps politely for itself in basalt applause.  
+
+**Interrupt Crocus —** A flower grown from tungsten, stitched to the lava with rivets made of blue-white fissures. It blossoms once every negative six minutes. During the bloom, which runs backward from open-petal to tight fulcrum, all unobserved memories within half a kilometer are clipped from their owners and petrified into sheets of tin. The crocus ingests these, ringing like wet silverware whenever it swallows. Later it births tin birds the size of thumbnails that roost for exactly one echoed heart-beat in the fossilized memory they once owned. When the habitat rejects them they go flat and become obsolete diagrams in moth wings.  
+
+**Dream Auditor —** Sometimes a figure walking the bias of direction you were about to take. It wears high-visibility coveralls stitched from insomnia. It carries a clipboard written in future tense: *“Sky to be reorganized by copper-valve leaf 4B before symphonic sunrise. Please initial.”* The Auditor does not request permission; it merely presents the pending edit. If you decline, it inhales a piece of whatever is at hand—vine, eel, furnace-sound—and replaces it with an unread but thoroughly authoritative silence. Then it continues, erasing its footprints as policy demands.  
+
+They die, but **extinction folds like paper.** A failure-state unwraps into a fresh direction, absolutely identical data save for a new name. An old Inflection vanishes and is instantly recycled as warranty paperwork in somebody else’s bronze-bearing bloodstream.
+
+They do not eat *nutrients*; they consume **phase discrepancies**—moments when polarity forgets which hand to raise. A Downtine may ingest the garbled hour between lightning pulse and heartbeat; minutes later, an Ampersand excretes the hour as daylight shot sideways through rusted folio. Nothing is wasted; non-identity clings and sings until engineered into its next skin.
+
+They breathe in conduction. Their lungs are knitted fissures: wires and faultlines tangled like bronchioles. As they exhale, the copper vines feel heat exchange and alter rigging, so that every breath retroactively rewires what supports whom.  
+
+They reproduce by **vector slip**: when two Inflections intersect at less than a seventeen-degree misalignment, whatever shared future lives between them snaps off, cools into a third entity. The infant arrives clutching a new coordinate inserted mid-horizon. Wherever the child steps, terrain hiccups and reformats. Half-lives of magnetism, unanticipated pressure gradients, and hesitant emotional aftershocks grind together until a governance emerges. No one votes; the topology simply rules itself into existence.
+
+No one waits, yet nothing is impatient. Try to make contact and an Inflection will gently ask for **orientation***— ‘Where were you standing, relatively to your former belief?’— and will thread your answer into a vine that carries it away in hot syrup. Later you’ll glimpse yourself refracted across leaves mottled like corroded inspection plates, and learn your belief has been repurposed as an atmospheric gasket.
+
+Ultimately the inhabitants are less residents than memories the plateau has grown to interview itself. They stay until the next continental exhalation demands new definitions of “edge.” Then they adjourn; horizon folds them like knives into sleeves of illusion.
+
+And you, caught in their consensus—listening to turbines under your ribcage, watching the metal sky drip like solder—are being harvested as a hometown. Somewhere between blinks you have become an Inflection too: an unnamed vector that leaves footprints still trying to decide which age of magma they belong in. You bleed saline solution that condenses into tiny machines soldering broken lava together two steps behind you. The plateau needs your notions of *horizon,* *pause,* and *ignore* to finish assembling what it hasn’t yet imagined being terrified of.
+
+Breathe the taste of hot pennies and copper vines; the next witness needs an atmosphere.

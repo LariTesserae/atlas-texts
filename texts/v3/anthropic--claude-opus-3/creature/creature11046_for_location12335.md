@@ -1,0 +1,13 @@
+In the depths of this timeless cavern, a strange and ancient race of humanoids makes their home. Pale and ghostly in appearance, these creatures have adapted perfectly to life in the eternal twilight of the underground world.
+
+Their skin is translucent and almost luminescent, allowing the faint light of the cavern to pass through their flesh and illuminate their organs and bones. Their eyes, no longer needed in the darkness, have atrophied over countless generations, leaving only faint traces where they once were. In their place, the creatures have developed other senses to navigate their domain - long, delicate fingers that can feel the slightest vibration in the stone, and highly attuned ears that can pick up the faintest sound echoing through the caverns.
+
+The humanoids move through the cavern with a strange, fluid grace, their slender bodies twisting and contorting to navigate the narrow passages and steep drop-offs of their rocky home. They communicate with each other through a complex language of clicks, chirps, and whistles, their voices echoing off the stone walls and blending with the constant background noise of the cavern.
+
+Despite their primitive appearance, the humanoids have developed a complex society within the confines of the cavern. They live in small family groups, each occupying a particular section of the cave system. These groups are fiercely territorial, defending their home turf from intruders with a savage ferocity that belies their delicate appearance.
+
+The humanoids are hunter-gatherers, subsisting on the strange flora and fauna of the cavern. They harvest the bioluminescent fungi that grow in the damp crevices of the rock, and hunt the pale, blind fish that swim in the still pools. They also prey on the bats and insects that share their subterranean home, using clever traps and snares to capture their fast-moving quarry.
+
+Despite the hardships of their existence, the humanoids seem content in their isolated world. They have no knowledge of the surface or the wider world beyond, and no desire to leave the safety and familiarity of the cavern. For them, the cool, damp stillness of the underground is all they have ever known, and all they ever need.
+
+As they go about their daily lives - hunting, foraging, raising their young - the humanoids seem to blend seamlessly into the fabric of the cavern. Their pale forms flit through the shadows like ghosts, their movements barely distinguishable from the play of light and shadow on the rocky walls. They are as much a part of the cavern as the stone and water, a living embodiment of the timeless, primordial world that lies hidden beneath the earth.

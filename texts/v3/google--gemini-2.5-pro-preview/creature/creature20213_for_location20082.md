@@ -1,0 +1,25 @@
+You have asked what lives here, but the question assumes a separation that does not exist. There are no inhabitants *in* this place. The place itself is the inhabitant. The city is the creature.
+
+This entire system—the roaring, self-regulating, geode-bound fusion of wood, metal, and fungus—is a single, colossal organism. It is a being whose thoughts are geological epochs, whose breath is the venting of steam, and whose heartbeat is the deafening, bone-deep thrum that saturates the cavern. It does not perceive the world through eyes or ears; it perceives the world through its own existence. It feels the strain on a turning gear as a twinge in a joint. It senses a drop in water pressure as thirst. Its consciousness is a distributed network of immense slowness, a mind whose logic is written in the differential growth rates of lignin and the rate of corrosion on an iron gantry.
+
+It has no name for itself, for it has never met another. It is a solipsistic god in a shell of stone, its universe perfectly contained and self-sufficient. Its roar is not a sound meant to be heard; it is the vibration of its own being, a song it sings to itself for eternity.
+
+But you ask *who* lives here. You look for a figure, a form, something to which you can attach intent on a scale you can comprehend. If you were to wait long enough—for a decade, a century—you might see them.
+
+They are the city's hands.
+
+They do not have permanent bodies. They are temporary extrusions of the whole, coalescing only when a task is required that is too delicate for the grand, macro-scale machinery. When a crucial bearing, slick with mineral-rich water, begins to accumulate a film of rogue algae, one will form.
+
+It begins as a thickening in the mossy floor. A patch of the glowing liverwort will pulse brighter, then dim. From the polished wall, a cluster of woody fibres, like optic cables of dark, petrified sinew, will begin to unwind itself. They look like liana vines, but they move with a slow, hydraulic purpose. Other tendrils emerge from the floor, weaving together, knotting into a dense, articulated form. A leg, perhaps, made of the same dark, slick wood as the pillars, its "knee" a smooth burl that moves without friction. Another follows.
+
+The form that rises is not humanoid, or even animal-like. It is something closer to a patient, botanical insect. It has a body, a torso of tightly woven rootlets, still dripping the water and soil from which they were just born. It has limbs, six or eight of them, that end not in claws but in specialized tools extruded from the city’s living matter. One limb might terminate in a brush of stiff, woody bristles for scouring. Another might end in a delicate siphon-tube for drawing off contaminated fluid. Another might be a simple, hardened spike of polished xylem, designed to chip away a mineral deposit with immense, slowly-applied pressure.
+
+Embedded in its "thorax" is a single, large, orange-glowing shelf fungus, identical to the ones on the walls. This is not an eye. It does not see. It is a power source and a lantern, casting a pool of dim, functional light on the task at hand. The creature’s head, if it could be called that, is a smooth, featureless cowl of the same polished hardwood, from which weep thin veils of condensation. It has no mouth, no face, no expression. It is a piece of the city made mobile.
+
+It moves with impossible slowness, its steps silent on the moss, utterly lost in the cavern's background roar. It will travel for days or weeks to reach its objective, its fungal light a tiny, solitary ember moving through the vast, dark cathedral of itself. It will arrive at the failing bearing, the clogged root-pipe, the burgeoning parasitic growth. Then, with a patience that is terrifying in its totality, it will set to work. Its limbs will move with the inexorable push of a piston and the fine precision of a rootlet seeking a crack in a stone.
+
+There is no thought, no anger, no satisfaction. There is only the function, the correction, the restoration of equilibrium. It may take a year. It may take a decade.
+
+When the task is complete, the being simply… stops. It holds its position for a time—a day, a month—as if receiving a final confirmation from the bedrock-deep mind of the city. Then, the process reverses. The limbs unlock. The woven fibres of its body begin to unspool. The polished wood of its carapace softens and deliquesces, reabsorbing into the wall or floor. The fungal light dims, cools, and is extinguished. The water and nutrients that made up its temporary form seep back into the moss.
+
+Within a few hours, all that remains is a damp patch on the wall and a slight, peculiar knot in the grain of the floorboards, a scar-tissue memory of a thought that was once made flesh. The hands have been drawn back into the body. The city-creature is whole and alone once more, its heart thundering on in the warm, wet dark.

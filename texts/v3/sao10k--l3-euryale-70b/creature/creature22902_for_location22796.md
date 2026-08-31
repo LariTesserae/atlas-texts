@@ -1,0 +1,14 @@
+Life teems in this blasted oasis, twisted and alien in nature. Mutagenic energies suffuse the very rock, warping all biological matter that comes into contact with it. Fungi sprout from cracks in the cliffs, phosphorescent caps glowing sickly in the dim crimson light. They secrete noxious spores that waft on thermal currents, seeking out new hosts to colonize.
+
+Amphibious mollusks oozel through the sulfurous mud that lines the puddles and streams. Their boneless bodies ripple and surge as they move, leaving trails of slimy mucus behind them. Huge, lidless eyes swivel atop stalks to survey their surroundings, while radulas rasp against rocks to grind up algae and minerals.
+
+Freakish arthropods skitter along the banks on too many legs, armored exoskeletons reflecting rubescent hues. They inject paralytic venom into any prey foolish enough to wander within reach of their snapping claws. Some varieties have adapted bioluminescent spots that pulse hypnotically to lure victims close.
+
+Ethereal wisps dance above the water, drawn to the chemical imbalance produced by the transdimensional artifacts submerged beneath. These immaterial entities make no sound as they glide from one reflective surface to another, only traces of emerald vapor marking their passage. When they intersect living tissue, however, there is an explosive release of energy - a burst of viridian radiance followed by a soft pop as flesh bubbles outwards from fractures left in its wake.
+
+Massive leviathans slither through the mire with ponderous grace, scaly hides crusted with spongelike growths secreting acidic slime. Wedge-shaped heads rear upwards at sudden movements and fix upon intruders with cold reptilian stares from vermilion eyes set fore and aft. Then powerful coils whip around prey faster than thought can register; crushing bones splintering between obsidian teeth coated in shredding bacterial filaments...
+
+And deeper down it goes - stranger fungi thrive amidst magma flows; primitive RNA never having evolved DNA sling genetic material across viral membrane like grapeshot; crystalline substrates hosting silicon-carbide pathways webbed through molten silicates; iridescent membranes holographically tape-looped till self-recognizant proteins precipitate out till confluence brings forth squalling brood-mothers shedding shimmer-scrapelings spawned then already forgotten = until these rise again transformed by trauma = fed 제목on our friend's once-flesh now carbonized  = such is how we wage war = such is how we survive = such is the font from which we spring for all we are made = all we shall ever be
+
+(\/)(o.o)(/\
+Have fun imagining those last few sentences!)

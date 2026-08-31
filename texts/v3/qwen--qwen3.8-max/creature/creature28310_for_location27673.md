@@ -1,0 +1,79 @@
+What lives there is not one thing.
+
+At first, if you were to press your face close to the seam and peer into the green dimness, you would probably say that the place is lived in by small animals: frogs on the undersides of leaves, snails on the damp walls, insects threading through the leaf litter, quick shadows passing over the pools. That would be true. But it would not be the whole truth.
+
+The pocket has keepers.
+
+They are low, soft-bodied beings, closer to the ground than to the sky, and so fitted to the place that a person unaccustomed to looking would take them for parts of it. A knot beside a root that slowly opens an eye. A patch of moss that breathes too evenly. A curved lump of clay-colored skin that unfolds a hand. They are not large. Some are no bigger than a broad leaf; others are broader and slower, shaped more like mounds than bodies. None of them rise high. They keep the scale of the courtyard: intimate, close-fitting, unhurried.
+
+Their skin is cool and moist, not slimy but soft, like wet clay or the underside of a young fern frond. It changes with where they rest: olive in the leaf-light, liver-brown against old stems, grayish charcoal in shadow, faintly gold where a rare beam touches them. Many have living things growing on them — a thin fur of moss along the shoulders, a tiny lichen flare at the elbow, a seed caught in the fold of a neck, already sprouting. This does not seem to trouble them. It seems to be part of their dignity. Their bodies are not sealed off from the place. They are inhabited too.
+
+Their eyes are large and quiet, made for the green twilight. They blink slowly, often with a second, clearer membrane sliding across the eye when water runs near. Their mouths are wide and gentle, not made for biting large things but for tasting air, softening fibers, carrying eggs, pressing root tips into place. Their throats move constantly, small pulses running beneath the skin, tasting moisture, calling in frequencies too low and too wet to be heard as ordinary sound. Their fingers and toes end in rounded pads, broad and sensitive, able to read the difference between a surface that is merely damp and one that is about to become a channel.
+
+They are amphibious in temperament more than in strict form. Some spend most of their lives near the shallow pools, their bodies sleeker, darker, more patient. Others move along the terraces and root walls, lighter in color, more alert, their limbs stronger for climbing and smoothing soil. They do not divide themselves rigidly this way. A pool-born one may later tend roofs of woven vine. A terrace-born one may sit for days at the edge of a basin, watching larvae turn in the water. They belong to water in pulses, as the place does.
+
+What lives there, then, is a people of first arrangements.
+
+They are not builders in the sense of forcing shapes onto the world. They do not cut, burn, hammer, or conquer. They guide. They persuade. They wait until a root is ready to thicken, then encourage it with pressure, warmth, breath, and scent. They train vines by touching the growing tips, turning them gently toward one another until the plants accept the pattern as their own. They layer leaves into screens not by pinning them but by folding, overlapping, and weighting them with living stems that continue to grow into the desired shape. When a wall needs to become stronger, they do not add stone or timber. They sit with the roots, press their palms into the soil, and let their bodies become a warm suggestion. Over days, the roots answer.
+
+They are the reason the place feels urban without machines.
+
+Their settlements are not packed. They live in scattered clusters, each cluster separated by breathing room, shadow, open earth. One group may inhabit a low mound whose sides are held together by buttress roots, its entrance shaded by a single enormous leaf that has been trained to lean just so. Another may dwell in a row of hollow stems set along a damp slope, each tube lined with soft fiber, each opening dark and warm. Another may make its home on a raised platform of woven reeds and shed bark, just above the reach of a wandering rill. Between these places there is emptiness, but not absence. The emptiness is cared for too. It is swept by water, crossed by small feet, left open so the courtyard can breathe.
+
+They do not fill every space because they understand that the ground is young. They know the terrain has not decided what it wants to become. They leave room for the next rain to speak.
+
+Water is their chief authority, and they serve it without seeming to serve.
+
+When condensation thickens in the dark hours before dawn, they are already moving. They climb along root rails to the highest woven layers. They press their bodies against the cooler surfaces and guide the forming beads toward leaf-grooves. They open their throats and taste the air, deciding which hollows need filling. They do not carry water in manufactured vessels. They use the place itself: curled leaves, clay dents, seed-capsules, the cupped hands of broad glossy plants. If a leaf-basin is too shallow, they deepen it with patient fingers. If a drip is falling where it will only scatter, they place a strip of bark or a living stem beneath it until the water learns a better path.
+
+When a brief shower breaks through the canopy, they become still at first. They listen. They read the first taps on the leaves. Then they move with sudden quiet purpose. They know which channels will overflow. They know which patches of raw clay are still too bare to receive the flow. They hurry to those spots, pressing moss into place, spreading leaf litter, guiding water toward basins instead of allowing it to tear new wounds in the silt. They do not fight erosion so much as redirect its appetite. If a rill begins to form, they may let it continue if it seems useful. If it threatens a shelter or nursery pool, they soften its slope, offer it another way down, and coax it to rest elsewhere.
+
+After rain, they remain active long after the last obvious drops have fallen. The place continues dripping. So do they. They move through the delayed rain, catching beads on their skin, smoothing wet surfaces, checking the young pools. They seem to enjoy the after-time most of all. The air is fullest then. Every surface shines. The courtyard exhales, and they exhale with it.
+
+Their lives are communal but not crowded.
+
+There is no chief among them, no throne, no central hall, no obvious authority giving orders. Instead, there is a shared attention. They gather when water gathers. They repair what many feet have learned to repair. They repeat what has worked. If one of them discovers that a certain root will hold a slope better when encouraged to grow sideways, others notice and imitate. If a particular leaf arrangement makes a roof too dark, it is altered over several seasons, not by decree but by small adjustments. Their society is cumulative. It is made of many tiny choices layered like leaf-light.
+
+They communicate in ways suited to the pocket’s softness. Sound among them is restrained. A low croak that might be mistaken for a frog. A click made by tongue against palate. The faint scrape of a claw on bark. Most of their speech, however, is felt rather than heard: vibrations through wet wood, ripples across a pool, patterns tapped into moss, pressure changes in the air. They can send messages by disturbing a single hanging drop and letting it fall into a leaf below. A sequence of drips may mean danger. A slow double ripple may mean that a basin is ready. A warmth of scent from the throat may mean welcome.
+
+Their names are not loud things. They are more like remembered sensations. A name might be the feel of silt under a certain root after the third rain. It might be the angle of a rare beam striking a pool at dawn. It might be the particular stillness that follows a predator’s passing. To know someone among them is not merely to recognize a face but to recall how that person’s body changes the moisture around it.
+
+They are tender with one another, but not sentimental.
+
+Birth among them is a wet event. Eggs are laid in the safest leaf-cups and shallow basins, often after a rain pulse when the water is fresh and still. The adults do not leave them to chance. They move the eggs if the pool grows too warm, too stagnant, or too exposed. They shade them with leaves. They breathe over them, keeping the water oxygenated by the subtlest movements of their throats and hands. When the larvae hatch, they are translucent and quick, little more than flickers in the miniature pools. Some of the keepers remain in the water with them for a time, their bodies half-submerged, guarding against beetles, larvae of other kinds, or sudden drying.
+
+Not all young become land-walkers. Some remain in the pools as they grow, taking on the slow duties of water-tending. Others emerge onto moss and clay, learning the paths, the walls, the overhead screens. Their growing is not separated from the place’s growing. They learn by repairing. A child among them might spend days simply pressing root hairs back into soil after a wash. Another might follow an elder along a vine line, watching how the elder touches a tendril without forcing it.
+
+Old age among them is a settling.
+
+The eldest do not become frail in a way that removes them from the settlement. They become heavier, slower, more rooted. Their skin thickens into something closer to bark or packed earth. Moss grows on them more deeply. Some choose a quiet corner and remain there for a long time, their bodies becoming part of a wall, a terrace, or the edge of a pool. They are not dead, but they are no longer moving through the ordinary day. Others sit beside them, pressing a hand to their side, receiving whatever slow counsel can be passed through warmth and chemical scent. When death finally comes, it is not hidden away. The body is allowed to compost into the architecture. A mound may rise where someone once sat. A new shoot may grow from their ribs. A roof may become stronger because of their softened bones. This is not considered grim. It is considered continuation.
+
+They eat in the same spirit of continuation.
+
+Their food is gathered, encouraged, and shared rather than seized. They cultivate films of algae on wet stones. They tend soft mosses and edible fungi in shaded folds. They harvest pollen from the pale, low-scented flowers near the animal paths. They collect fallen fruit that has softened into sweetness, and they know which seeds must be pressed into fresh mud. They also take small animal life when necessary: larvae, insect eggs, tender-bodied creatures that multiply too quickly in the pools. They do not hunt with drama. A hand closes gently. A tongue or mouthpart moves. A life ends with little more than a ripple. They accept that they too may be eaten. The snake-colored shadow along the root is not evil to them. It is another mouth in the quiet economy of the fold.
+
+There are many other lives in the pocket besides them.
+
+The tree frogs are their nearest neighbors and, in some ways, their mirrors. Both kinds rest on leaf undersides. Both watch water. Both become still when danger passes. The keepers do not command the frogs, but they make room for them, sometimes clearing a leaf-cup so frogs may drink, sometimes leaving a broad platform undisturbed so a frog may bask in the rare warmth of filtered light. In return, the frogs eat insects that might otherwise damage the woven roofs. Their evening croaks are part of the pocket’s speech.
+
+The snails are treated with a kind of slow respect. The keepers watch their shining trails and read them as signs. A line of snails along a damp wall may mean that a surface is especially rich in minerals. A sudden absence of snails may mean that the moisture has changed in a way not yet obvious. Snails are not hurried. When one crosses a worn path, a keeper may pause rather than disturb it, because the snail’s movement is itself a kind of careful travel.
+
+Ants and ant-like insects are admired for their lines. The keepers often build their paths near insect roads, not to control them but to benefit from their order. Where ants carry fragments along root walls, the keepers may reinforce those routes, knowing that such traffic helps distribute tiny seeds and bits of organic matter. Sometimes an ant line and a keeper path become one for a while, then separate. The arrangement lasts as long as it is useful.
+
+Spiders are the weavers of the upper air. Their webs, weighted with condensation, are left unbroken whenever possible. The keepers read the beads on the strands as weather signs. If a web hangs heavy and still, the air is saturated. If it trembles without wind, something moves through the upper layers. The spiders themselves are not pets, but allies in the management of flying insects. When a web is torn by a falling leaf, a keeper may carefully lift the leaf away so the spider can begin again.
+
+Near the pools, the life is more intense. Tadpoles and small fish move through the clearer basins in sudden bursts. The keepers know which pools are nurseries and which are only temporary. They will sometimes connect two basins during a wet pulse, allowing young life to pass between them. They will also separate pools when one grows foul or too crowded. They do not see this as cruelty. It is husbandry at the scale of droplets.
+
+Above, among the woven roofs and hanging stems, birds or bird-like creatures make brief visits. They are heard more than seen: a rustle, a creaking stem, a shadow passing over the moss. The keepers do not try to bring them down. They allow the upper canopy to remain open enough for winged life to pass through, but dense enough to preserve the pocket’s dimness. Sometimes a feather or a dropped seed becomes a gift. The keepers incorporate it into a wall or a nest without ceremony.
+
+Bats or small winged mammals roost in the darker folds overhead. Their droppings are precious. The keepers gather them not with greed but with care, placing them where new soil needs enrichment. A patch of pale flowers may bloom beneath a roost because of this quiet fertilization. The keepers know the relationship between above and below, between waste and growth. They do not call it soil-making. They simply tend what falls.
+
+Predators live there too, and the keepers know each one by habit.
+
+There is the snake-colored shadow that moves along the lowest root, sleek and patient. There is the still shape on a low perch whose eyes catch the faintest gold. There is the sudden absence that tells of something just departed. The keepers do not try to eliminate these hunters. They adjust. They teach their young which corners to avoid at certain hours. They may shift a nursery pool if a predator begins to visit too often. They may thicken a screen of leaves so a perch becomes less useful. But they accept that a healthy place must have teeth as well as tongues.
+
+If one spends enough time noticing, another truth begins to emerge: the pocket is also one living thing.
+
+Not merely a place inhabited, but a composite body made of root, fungus, water, moss, animal movement, and the accumulated intention of its keepers. The small people may be its hands, its senses, its memory in motion. Or perhaps they are its children. It is hard to say. The roots respond to them too quickly. The water seems to gather where they gather. The moss thickens where they rest. The walls lean slightly toward their warmth. The boundary between resident and place is soft here, as all boundaries are soft.
+
+Beneath the visible life there is a network. Fungal threads bind the floor. Roots cross and recross the terraces. Fallen stems become bridges, then soil, then nurseries. Every leaf

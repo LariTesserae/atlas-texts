@@ -1,0 +1,39 @@
+Look closely at the base of one of the immense, spun-glass extraction cylinders, right where the shivering laminar flow of near-boiling water sheets over the smooth ceramic plinth. In the blinding, washed-out glare, the heat shimmer seems to pool and hold a persistent shape. 
+
+Gradually, the distortion separates from the glass. It unpeels itself from the architecture. 
+
+It is a tall, exquisitely slender biped, towering perhaps nine feet from heel to crown. At first glance, it appears to be a statue carved from the very same calcium carbonate and silica that makes up the city, brought to sluggish, hydraulic life. Its body is encased in a flexible, overlapping lattice of pale, heat-resistant plating, resembling smooth, interlocking fragments of wet chalk or unglazed porcelain. Where the scalding water from the cylinder splashes against its shoulders, the fluid doesn’t splatter; it clings to an invisible, hydrophobic secretion on the creature's surface, sliding off in a perfectly unbroken, glassy film.
+
+This is a Tender. To call them the builders of this vast metropolis would be an overstatement of their autonomy; to call them mere animals would grossly insult their profound, silent intelligence. They are the living mechanics of the basin, the biological counterparts to the city’s frictionless, eternal motion.
+
+As the Tender wades out into the ankle-deep reflection pool, its anatomy becomes clearer. It possesses long, multi-jointed limbs that move with the same sluggish, hypnotic grace as the immense pistons around it. Its legs end in wide, flat pads that distribute its weight flawlessly, allowing it to walk across the submerged mats of thermophilic archaea without disturbing them. 
+
+It has no face in any human sense. To survive a lifetime beneath a blinding white sky, evolution—or perhaps deep-time genetic engineering—has replaced the need for standard optical organs. The upper half of its smooth, bulbous head is completely covered by a thick, protruding visor of natural obsidian. This band of dark, volcanic glass is grown directly from the creature's silica-rich diet, forming a permanent, smoked lens that filters out the punishing zenith sun and allows them to see the subtle, swirling thermal currents of the world around them. 
+
+Down the ridge of the Tender's spine runs a series of flared, gill-like spiracles. They do not breathe the suffocating, humid air. Instead, as the heavy, wet wind pushes the scalding mist against their backs, these spiracles forcefully inhale the superheated steam, stripping it of oxygen and suspended trace minerals before exhaling a tiny, crystalline puff of cooled carbon gas.
+
+The Tender wades toward a massive, elevated aqueduct. With agonizingly deliberate grace, it reaches up with a long, seven-fingered hand. The tips of its fingers end in thick, chisel-like adaptations made of dense ceramic bone. It plunges its hand directly into a seam of the boiling, pressurized pipe. Despite the scalding heat, the creature does not flinch. It carefully scrapes away a stubborn crust of mineral buildup that was minutely disrupting the capillary action of the channel. Once cleared, it withdraws its hand, dragging a fistful of gray slag which it casually drops into the water below for the table-sized lens-grazers to descend upon and consume.
+
+If you let your eyes adjust to the blinding glare and look out across the sprawling, shallow bowl of the basin, you will realize the first Tender is not alone. There are hundreds of them. Thousands. 
+
+They are scattered across the vast metropolis, looking like ghostly herons wading through the endless mirrors. They operate in absolute silence. They do not possess vocal cords. When two Tenders cross paths in the steamy shallows, they pause. They lean forward, the long arcs of their necks extending, and gently press their dark obsidian visors together. Through this sheer physical contact, they communicate in high-frequency vibrations—a silent, tactile transfer of thermal data, architectural maps, and chemical needs, vibrating through their solid bone. Then, they part, returning to their endless, slow-motion choreography of maintenance.
+
+The other wildlife of the basin shapes its behavior around them. The mirrored stalk-walkers, those lethal apex predators, give the Tenders a wide berth. The predators’ pneumatic proboscises cannot pierce the Tenders' porcelain armor, and the Tenders exude a mineral scent that registers to the stalk-walkers not as meat, but as living stone. Occasionally, a Tender will stop beside the discarded, shattered carapace of a harvested lens-grazer. With delicate precision, the Tender will crush the leftover silica shell into a fine paste between its hands, mix it with its own alkaline saliva, and use the sheer putty to patch a microscopic fracture in a nearby distillation vat.
+
+As you watch them move through the suffocating heat, a deeper realization of their lifecycle begins to take hold. You notice that they vary in color and density. The young, smaller ones are almost translucent, moving with slightly more urgency, their armor thin and opalescent. But as they age in this extreme environment, continuously ingesting and secreting minerals, they calcify. They become heavier, thicker, more opaque. 
+
+Near the bases of the great cylindrical towers, you see the oldest of their kind. These elders move so slowly they appear entirely stationary. Their joints are incredibly thick, burdened by centuries of mineral accretion. 
+
+Eventually, a Tender becomes too heavy to walk. When this time comes, it wades toward one of the massive, structural weirs or supporting pylons of the water-troughs. It climbs deliberately onto the pale stone, wraps its long, multi-jointed arms and legs around the architecture, and presses its chest flat against the surface. It stops moving. Forever. 
+
+Over decades, the silica-rich, boiling water washes over the motionless elder. The heavy moisture in the air settling on its skin slowly petrifies the organic matter. The creature fuses with the pillar. Its obsidian visor hazes over, turning white. Its limbs become load-bearing buttresses. It becomes stone. 
+
+You look closer at the geometry of the city—the perfectly leveled terraces, the incredibly broad, soft-looking aqueducts, the spaced-out monuments. The realization washes over you with the sheer weight of the heavy atmosphere. The soft, rounded, wet-looking structures of the metropolis are not simply carved out of rock. The city is a coral reef. It is quite literally built out of the petrified, interlocking bodies of their ancestors, millions of them, layered over millennia, guiding the boiling water ever downward. 
+
+And why do they maintain it? Why do they tend the machines, filter the brine, and direct the thermal gradients with such absolute, mindless devotion? 
+
+If you press your ear against the pale stone of the terraces, ignoring the blistering heat of the rock against your skin, you can feel it. Beneath the microscopic *clink* of cooling metal, beneath the soft *shhhhh* of the sliding water, there is a rhythm. It is impossibly deep, resonant, and slow—a heartbeat miles below the bedrock. 
+
+The Tenders are not the masters of this basin. They are merely the gardeners, the white blood cells. The vast, ancient process of extraction and distillation is operating to maintain the exact pressure, temperature, and atmospheric moisture required by the true citizen of the Sinter Basin: a singular, incomprehensibly massive benthic intelligence sleeping in the geothermal dark of the aquifer beneath the crust. 
+
+The city is its lung. The shadow-casters floating above are its parasols. The Tenders are its hands. And they all exist in a profound, blindingly radiant quiet, keeping the world perfectly calibrated so the god beneath the boiling mirror never has to wake.

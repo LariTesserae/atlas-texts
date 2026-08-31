@@ -1,0 +1,35 @@
+To stand in the path of one of these titans is to witness geology made animate. 
+ 
+As an individual approaches through the permanent, bruising dusk, it does not arrive so much as it gradually eclipses the horizon. At close range, the illusion of a single, solid silhouette shatters, revealing a staggering complexity of biological engineering. There is no true surface to the beast. Its carapace is a fractal topography of extruded slag, oxidized iron plates, and accreted silicates, built up over centuries like cooling lava flows. Deep fissures run along its flanks, packed with frozen rime and streaks of mineral runoff—copper-green starbursts and sulfur-yellow veins that bleed from its highest ridges down to its massive flanks.
+
+Its legs are tectonic pillars. There are six of them, arranged in a staggered, asymmetrical gait to perfectly distribute millions of tons of mass. The limbs are constructed of segmented, interlocking iron-bone cylinders, wrapped in thick, cable-like bundles of carbon-based muscle that contract with the agonizing slowness of a creeping glacier. The joints—immense, ball-and-socket configurations the size of town squares—are shielded by overlapping plates of native steel. Beneath these plates bulge the colossal sacs of biological lubricant. This oil is thick, golden, and viscous, weeping slowly from the pores of the joint-capsules to coat the moving parts. It smells of ozone and deep earth. When a limb is lifted, the fluid stretches in thick, translucent webs before snapping back, cushioning the vast internal pressures. 
+
+There is no face. To require eyes in this shadowless, unchanging pale light, or ears in this smothered silence, would be an evolutionary waste. Instead, the prow of the beast is dominated by an underslung sensory and harvesting apparatus—a blunt, sweeping mandible as wide as a canyon. 
+
+Its navigation is entirely magnetic and chemical. Deep within the iron-plated skull, heavy nodes of lodestone orient the creature to the planet’s magnetic poles, while trailing, whip-like whiskers of raw copper drag along the ground to taste the sub-surface density of metal and moisture. 
+
+When it feeds, the process is relentlessly patient. The ventral maw lowers to the bedrock. It does not bite; it mills. The jaw is a rotating drum of cartilaginous tissue embedded with tens of thousands of diamond-hard denticles. As the beast creeps forward, the drum turns, scraping away the metallic lichens, the mosses, and a microscopic layer of the iron-rich bedrock itself. The friction of the grinding is absorbed by the sheer density of the beast's body, translating into the earth as a rhythmic, subsonic vibration. It is a slow, methodical shaving of the world, leaving behind a perfectly smooth, polished trough in the eternal stone.
+
+The harvested material is drawn upward through massive, muscular conveying-throats deep into the creature's abdomen—the crucible. 
+
+Beneath the beast, suspended between the immense pillars of its legs, its underbelly swells low to the ground. Here, the heavy armor gives way to expanses of thick, highly engineered silica-flesh. It is translucent, resembling layers of bulletproof glass and clouded quartz. Through these thick membranes, one can see the beast’s terrible, beautiful internal thermogenesis. 
+
+A cherry-red glow pulses inside chambers the size of cathedrals. The atmospheric oxygen it pulls from the thin air is compressed by titanic, bellows-like lungs, then forced into the digestion-smelters. Inside, the wire-lichens and sulfurous rocks are subjected to perpetual biological combustion. Enzymes that behave like industrial fluxes break down the minerals, while the extreme, contained heat melts the iron out of the stone. Shadowy, internal pistons of heat-resistant tissue churn the molten slurry. Waste slag is eventually pushed outward, slowly extruding through lateral vents to cool and harden perfectly onto the beast's exterior, perpetually renewing its armor. 
+
+Because of this immense internal heat, the beast is an oasis of warmth in a freezing void, and thus, it has its own passengers. 
+
+In the recessed, steaming canyons of the beast’s upper back, entirely unique micro-ecologies thrive. Where the heat bleeds through cracks in the slag, colonies of thermal-sponges—pale, blind things resembling coral—cling to its hide. Small, flattened arthropods, with shells like flakes of rust, scuttle blindly through the warm slick of the joint-oil, feeding on the shedding proteins and extruded waste. Delicate, spider-like organisms string webs of golden silk between the towering exhaust vents, positioned precisely to catch the mineral-rich soot that rains down when the beast breathes. 
+
+And then comes the breathing. 
+
+An internal clock, governed by thermal pressure, reaches its zenith. The creature pauses its imperceptible forward grind. A deep, physical shudder rolls through its iron-clad flanks. High upon its back, the ossified forest of bone-stacks groans as vascular, internal valves open. 
+
+*Shhhhhhh.*
+
+It is a sigh that goes on for minutes. Columns of boiling white steam, laced with heavy, yellow sulfur-gas and particulate iron, rocket upward into the freezing gray sky. The heat of the plume violently warps the air, creating shimmering halos around the bone-vents. As the steam leaves the beast, it joins the colossal, artificial cloud-ceiling that quilts the continent, immediately super-cooling. Thus, the mist that floats back down to coat the bedrock—watering the next generation of lichen—is born from the belly of the beast. 
+
+Their social interactions are mysterious, conducted over vast distances through the substrate of the earth. Two beasts might walk a half-mile apart for decades, never physically touching, yet perfectly synchronized in their plodding gait, communicating through the subsonic thumping of their hearts and the grinding of their jaws. Their sheer mass bends the crust of the plateau just enough to pool what little atmospheric moisture exists into the tracks they leave behind.
+
+When a titan reaches the end of its life—perhaps after tens of thousands of years—it does not fall. Its biological furnace simply runs out of fuel, or the great bellows of its lungs finally tear. The cherry-red glow in its translucent belly dims to a bruised purple, and then to a cold, dead gray. 
+
+It halts. The lubricating oils dry into amber-like resins. The heat dissipates, and the freezing air claims the interior, frosting the great combustion chambers with ice. The beast is locked in place, an instant mountain. Over millennia, other migrating herds will inevitably cross its path. With blind, unhurried precision, the living beasts will lower their diamond-toothed jaws and slowly, over generations, mine the body of their ancestor for its purified iron, recycling its corpse back into the slow-burning engines of the herd, leaving nothing behind but the flat, polished bedrock of the plateau.

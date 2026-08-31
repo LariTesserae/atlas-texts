@@ -1,0 +1,23 @@
+The Keeper tends to the forgotten covenant.
+
+She was human once—or mostly human, though the distinction grows less relevant with each passing decade. The chamber knows her by her breathing, which has synchronized with its humid rhythms until it's impossible to say whether she breathes the air or the air breathes through her. Her skin has taken on the pallor of the creatures she shepherds, gone translucent enough that in certain angles of phosphorescent light you can see the slow pulse of fluids beneath.
+
+She moves through the space with impossible grace, her bare feet finding purchase on surfaces slick with condensation and living film. Her limbs have lengthened subtly over the years, fingers grown delicate and articulated as a spider's legs. She rarely needs to use them for locomotion anymore—she knows every surface of this place by heart, could navigate it in perfect darkness by the feel of moisture gradients against her skin.
+
+The creatures respond to her presence like flowers to sun, though there is nothing bright about her. They cluster more densely where she passes, their pale bodies pulsing in patterns that might be communication or might be worship. She tends to them with movements that blur the line between conscious action and instinct—clearing blocked passages with her elongated fingers, adjusting the flow of water through minute manipulations of debris, humming in frequencies too low for normal human ears but which make the creatures shiver in apparent pleasure.
+
+Her clothing, if it can still be called that, consists of materials that have achieved a kind of equilibrium with the chamber's atmosphere. Fabric that never fully dries but never rots, taking on the properties of the rootless plants that drift through the air. It clings and flows around her like a second skin, like moss, like memory.
+
+She feeds on what the chamber provides—the pale shoots that grow without sun, the condensation that carries nutrients leached from the city above, and sometimes, when the creatures' populations grow too dense, on the creatures themselves. This is not predation but participation in cycles too complex for surface dwellers to understand. She has become a necessary component of this pocket ecosystem, as integral as the seeping water or the patient stone.
+
+Her eyes have adapted to the eternal twilight, pupils dilated until the iris is barely a ring. But more than see, she *feels*—every vibration through the stone tells her stories of the city above, every change in air pressure speaks of distant weather, every chemical shift in the water carries messages from depths even she has never explored. Her nervous system has extended beyond her body, networked into the living film that coats the walls, until the boundary between self and environment exists only as a useful fiction.
+
+She remembers her name sometimes, in the way one remembers dreams—distant and uncertain, perhaps belonging to someone else. The city records, if anyone thought to check them, list her as missing forty-three years ago. A municipal worker who descended to check water pressure readings and never returned. The search was perfunctory; people disappear in cities all the time.
+
+But she is not missing. She is exactly where she needs to be, serving a function that no one above knows needs serving. She maintains the balance that keeps this strange life from spreading upward, that prevents the patient stone from finally yielding to the water's will, that ensures the creatures remain content in their warm darkness. She is priestess and prisoner, guardian and guarded, as human as the chamber requires and no more.
+
+When she speaks—and she does speak, though rarely and to no human audience—her voice carries the same liquid quality as everything here. Words bubble up through what sounds like water, consonants softened until language becomes pure sound, pure intent. The creatures understand, or seem to. The chamber understands. That is enough.
+
+She will live as long as the chamber lives, which is to say as long as the city above continues to press down with its ignorant weight, creating the precise conditions that allow this impossible space to exist. When she finally dies—if death is even the right word for the transition she'll eventually undergo—she will dissolve into the living film on the walls, and the creatures will tend to her as she tended to them, and the chamber will continue its slow pulse, and perhaps, in time, another guardian will emerge from whoever next descends and finds themselves unwilling or unable to leave.
+
+But for now, she tends. She maintains. She exists in the space between spaces, as patient as stone, as eternal and temporary as the city that unknowingly depends upon her service.

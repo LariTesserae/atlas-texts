@@ -1,0 +1,13 @@
+What lives here is not life as you know it. Not in the way that animals and plants live above, in the way that creatures of the surface breathe and hunger and move with purpose. Here, life is more like a pulse, a rhythm that has long since ceased to need a reason. It is not alive in the way you think life ought to be—it is *being*, and that is enough.
+
+There are no voices, no cries, no screeches. But there is a kind of sound, a soft resonance that hums in the bones of the place, as if the stone itself is remembering. It is the sound of water settling in the cracks, of moss shifting in the dark, of something—someone?—breathing. It is not loud, but it is there, always. A whisper, a murmur, a low vibration that you feel rather than hear.
+
+The creatures are not things you would see in a book or a dream. They move in ways that defy logic. Some are made of water, their forms shifting like liquid, flowing along the surfaces of the stone, leaving no trace behind. Others are made of shadow, flickering and pulsing, as if they are not quite present, but not quite absent, either. They do not run or fly or leap. They drift, they slither, they glide, as though they are not bound to any single space, but to the whole of this place, to its breath, to its rhythm.
+
+They do not eat in the way you would understand. They do not hunger. They do not need to. They exist in a state of quiet consumption, drawing from the moisture in the air, from the light that filters through the cracks, from the energy that hums in the stone. They are not parasites. They are not predators. They are something else. Something that has always been, and will always be.
+
+And they watch. Not with eyes, not with intent, but with presence. They are aware of you, of your breath, of your movements. They do not fear you. They do not desire you. They simply *know* you are there. And in their knowing, there is no need for action. They are not separate from the place. They are the place. They are the breath of the stone, the glimmer of the moss, the ripple in the stillness. They are the slow, patient heartbeat of something that has never been born and never will die.
+
+There are no names for them. No words to describe them. They are not beings, not in the way you think beings should be. They are *movements*, *forms*, *echoes*. They are the quiet, the stillness, the presence. They are not what you would call alive. And yet, they are.
+
+And in this place, they are enough.

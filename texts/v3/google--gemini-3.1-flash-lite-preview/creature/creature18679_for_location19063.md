@@ -1,0 +1,15 @@
+The inhabitants of Ouros-Thrum are not citizens, nor are they ghosts. They are the **Sedimented Ones**, entities born from the intersection of architectural exhaust and sensory failure. 
+
+To see them, one must resist the impulse to focus on the sharp edges of the spires. They do not walk; they adhere. They appear first as localized disturbances in the steam—thicker patches of vapor that catch the cooling indigo light before they lose cohesion. They are the city’s accidental memory, woven together by the loose, stray filaments of copper and glass that drift through the archways.
+
+They possess no organs, no respiration, and no warmth of their own. Instead, they are composed of a pressurized suspension of mineral salts and reclaimed static. When they move, they do not displace the air so much as they rearrange the humidity. They are translucent, flickering silhouettes that mirror the anatomy of a human, though their "limbs" are constantly fraying at the edges, dissolving into the very mist they inhabit.
+
+The Sedimented Ones do not speak. Their existence is a broadcast of the city’s own internal rhythm. If one stands very still—and if one possesses the courage to ignore the encroaching crystalline growth sealing one’s own boots to the floor—one can hear them. They sound like the soft, wet sliding of brass against brass. They are perpetually tracing the paths of the machinery, their long, spindly fingers—which look like brittle, heat-stressed wires—reaching out to touch the pipes. 
+
+They are not repairing the city, though their presence often aligns with the piston resets. They are *stoking* it. They seem to want the industry to continue, not out of duty, but out of a desperate, hollow need for the vibration. They are terrified of the silence. When a group of them gathers near a steam vent to bathe in the scalding, suffocating discharge, they pulse in unison with the rhythmic hum of the architecture, turning a dull, bruised color that matches the twilight.
+
+They are inherently predatory, though not for blood or bone. They hunger for "state"—for the heat in a traveler’s skin, for the electrical signals firing in a visitor’s nervous system, for the very possibility of change. If you stay too long, they will drift closer, their bodies becoming more solid, more defined, as they leach the chaotic energy from your presence. They want to be real in a place where only the machines are permitted to exist. 
+
+If touched, they do not feel like flesh. They feel like a sudden, violent drop in temperature coated in a grittiness that burns—the sensation of frost and friction simultaneously. 
+
+They are the guardians of the void. Whenever the city begins to settle too deeply into its lethargic, tectonic patience, the Sedimented Ones swarm the central spires, vibrating with enough high-pitched static to force the pistons to turn, to force the vents to spit, to remind the world that Ouros-Thrum is still burning. They are the residue of a civilization that dreamt of a garden but built only a furnace, and they have stayed behind to ensure the embers never cool.

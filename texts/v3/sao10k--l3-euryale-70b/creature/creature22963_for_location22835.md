@@ -1,0 +1,11 @@
+The denizens who inhabit this hellish realm are as twisted and distorted as the landscape they call home. They emerge from the boiling pools of primordial ooze, their bodies knitted together haphazardly from mismatched parts scavenged from any creature that dares cross through this unforgiving domain.
+
+Nameless horrors slither forth - some with gnashing mandibles dripping ichor, others trailing tentacles slick with viscous fluids. Their hides may be armored plates of keratinic scale or pulsating masses of undulating flesh. Multiple limbs sprout at odd angles, ending in serrated claws or grasping pseudopodia. Bulging eyes cluster atop misshapen heads like tumor growths, staring with mad hunger or vacant stupidity.
+
+These abominations shamble and skitter across jagged rock formations rent by geysers of steam and magma. Some have developed symbiotic relationships - parasitic organisms clinging to their hosts' backsides, burrowing under skin to feed off vital fluids while lending extra sensory perception. Others ride upon creatures born of pure chaos - writhing mats of segmented worms fused into living saddles for their masters.
+
+Bioluminescence flickers in eldritch patterns over hide and carapace, an unholy light kindling in fungal hyphae and photosynthetic patches coating alien forms never meant by nature's hand. Grunts and shrieks echo through sulfur-choked fog as these beings go about incomprehensible rituals beneath cyclopean ruins scored with blasphemous runes.
+
+Some few possess vestiges of intellect sufficient to forge crude weapons from meteor-forged metals: spears wreathed in crackling energies, axes sheened silver-bright by superheated bloodspoor compressed within stone depths ages ago. These serve them well when packs converge to rend each other apart over primeval feuds written in genetic memory older than stars above.
+
+And so it has been since before recorded history began here in this forsaken gash torn open between planes - life clawing its way free only to descend again into new permutations unbound by sanity or reason...for such concepts hold no meaning amid this crucible where reality is constantly being rewritten anew every moment by forces too vast for mortal minds to encompass without going mad!

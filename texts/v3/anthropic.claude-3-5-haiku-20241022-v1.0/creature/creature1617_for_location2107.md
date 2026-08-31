@@ -1,0 +1,13 @@
+In the Chlorophyll Sea, life is less about individual entities and more about collective, interconnected existence. Its inhabitants are not separate beings, but modular components of a vast, living network.
+
+Drift-Weavers are perhaps the most emblematic inhabitants. They are translucent, jellyfish-like creatures that are simultaneously animal and plant, their bodies a complex lattice of photosynthetic membranes and neural filaments. They don't so much swim as negotiate through the living medium, their boundaries constantly shifting and merging with the surrounding tissue. A Drift-Weaver might spend decades slowly pulsing through the sea's depths, absorbing nutrients, communicating through bioluminescent signals, and contributing to the larger metabolic conversation.
+
+Rootwalkers are mobile botanical entities that look like walking coral structures—part animal locomotion, part plant architecture. They move with glacial deliberation, their root-tendrils constantly sampling and analyzing the surrounding liquid, leaving subtle chemical trails that serve as both communication and territorial mapping. Their "bodies" are complex networks of sensory and digestive systems, capable of processing multiple streams of information simultaneously.
+
+Some inhabitants are almost architectural: living conduits called Vein-Architects that function like mobile infrastructure, their bodies serving as transportation routes, communication networks, and processing systems. They grow and reshape themselves in response to the sea's metabolic needs, creating organic pipelines and neural bridges.
+
+Luminescent Aggregates drift in the deeper regions—collective organisms that are more like living clouds than discrete creatures. They pulse with internal light, their boundaries constantly dissolving and reforming. These are not individual beings but cooperative systems, with each "member" functioning like a cell in a larger organism.
+
+The smallest inhabitants are microscopic symbiotes that flow constantly through the sea's living tissue—bacterial analogues that process information, transform matter, and maintain the complex biological infrastructure at a cellular level.
+
+What defines life here is not individuality, but participation. Every entity is simultaneously consuming and being consumed, communicating and being communicated through, growing and being grown by the larger system. Boundaries are fluid, identities are collaborative, and existence is a continuous, breathing negotiation.

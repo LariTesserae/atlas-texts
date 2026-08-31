@@ -1,0 +1,13 @@
+In the Vastum Aeternum, an ethereal and ancient world, beings have found a way to coexist with the frozen biology that surrounds them. These beings, known as the Initiates, are the living embodiment of the primordial life that once thrived in the depths of this world. They are characterized by their eternal slumber and their connection to the ancient rituals and practices that harken back to the very beginning of time.
+
+The Initiates have lived in harmony with the environment of the Vastum Aeternum for centuries, learning to navigate the intricate and ancient networks of tunnels, caverns, and passageways that have been built and worn into the very bedrock of the world. Here, the once-vibrant city thrives amidst the desiccated and cracked surfaces, its inhabitants alive in their whispered intentions and ancient knowledge.
+
+Through the connections between the Initiates and the unnumbered inhabitants of the Vastum Aeternum, the ritualistic biology of this world has found a way to exist in perpetual stasis, frozen in time and space, but infinitely connected through the ancient pulses and the psychic whispers of those who once called this world home.
+
+At night, the city glows with the flickering lights of distant memories, haunting the ruined walls of once-impressive edifices and the silent machinery of ancient factories. The cold lights blink out and on again, as the city shuffles through the memories of those who once tread these halls, decoding the layers of history embedded deep within the rock itself.
+
+Fuel vents and temperature factories dot the landscape, pumping out the energy needed to power the ancient machines that continue to hum through the cracks in the earth. Here, the cadence of time marches on, the slow steps of a slumbrous and weightless world where dreams and memories coat the fragile glass that forms the streets and walls of this eternal city.
+
+Between the flickering zones of the now and then, the ancient factory-city cycles and sighs, its memory fractured and dulled by the passage of time, now turned to retell the eternal ritual of its ancient inhabitants. The air, uncut by passers-by, is filled with the gentle sounds of deep waves and the whispers of the ancient secrets that once thrived in this forgotten world.
+
+As the Initiates continue to dream and tumble through the memories of this ancient world, they become more entwined with the latent rhythms of life that pulse through every grain of dust, every flickering light, and every forgotten corner of this world. They are the living remnants of an ancient civilization, the sole witnesses to the glories and mysteries of the deep and eternal Vastum Aeternum.

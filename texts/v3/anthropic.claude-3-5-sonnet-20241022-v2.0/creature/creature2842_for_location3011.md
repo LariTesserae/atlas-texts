@@ -1,0 +1,17 @@
+Here's who and what lives in this place:
+
+The primary inhabitants are what I think of as the Symbiotes - humans who have developed an intimate biological and cultural partnership with both the city-organism and its swarm-colonies. Their bodies have subtly adapted over generations: enlarged pineal glands that sense bioelectric fields, slightly luminescent patches of skin that can communicate with the swarms, enhanced inner ear structures to interpret the city's constant vibrations as meaningful information.
+
+They wear clothing made from living fibers that respond to both their body chemistry and the city's signals. Many have extensive botanical modifications - not exactly cybernetics, but something more organic: neural interfaces grown from specialized fungal networks, sensory organs derived from hybrid plant species. Their hair often incorporates symbiotic filaments that act as environmental sensors.
+
+The swarm-colonies themselves are a distributed intelligence - neither purely biological nor purely mechanical. Each thumbnail-sized individual is a marvel of evolved engineering: translucent exoskeletons housing complex crystalline computers, bodies that can secrete both digital enzymes and molecular programming sequences. They operate both as independent entities and as nodes in vast processing networks, their consciousness flowing between individual and collective states.
+
+In the liquid crystal chambers deep in the towers live the Architects - a caste of the swarm-colonies that has evolved to interface directly with the city's deepest functions. Their bodies are larger, more crystalline, capable of extending fractal appendages into the molecular soup to manipulate quantum-scale structures. They rarely interact directly with humans, but their dreams shape the city's growth patterns.
+
+The towers themselves harbor countless smaller ecosystems: colonies of data-storing fungi that grow in fractal patterns, schools of air-swimming creatures that tend the floating gardens, microscopic organisms that maintain the living circuitry of the bridge-vines. In the moisture-collection systems live specialized beings that are essentially programmable water, their molecular structure altered by the swarms to optimize the city's hydrological processes.
+
+Perhaps most fascinating are the Memory Weavers - human-swarm hybrid collectives that inhabit the spaces between towers. They create and maintain the vast arrays of bioluminescent information networks, their consciousness distributed between human nervous systems and swarm-colony processors. They experience time differently, perceiving the city's slow growth patterns as a kind of music they can conduct.
+
+In the highest levels, where the towers brush against the clouds, dwell the Weather Shepherds - humans who have developed extreme biological adaptations to work with the atmospheric conditions. Their bodies incorporate elements of the lighter-than-air plant tissue used in the floating platforms, allowing them to drift between towers and influence the patterns of rain and electrical discharge that are so crucial to the city's growth cycles.
+
+Throughout it all moves something harder to define - the city's own awareness, emergent from the complex interactions of all its components. Not quite conscious in any way we'd recognize, but undeniably alive and purposeful, its vast dreams playing out in patterns of growth and transformation that unfold over years and decades.

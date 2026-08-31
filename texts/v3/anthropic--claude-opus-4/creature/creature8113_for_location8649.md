@@ -1,0 +1,31 @@
+In the Singing Gorge dwells the Choirkeeper.
+
+It emerged from the perfect stasis itself, or perhaps it was always here—a confluence of fungal networks that achieved something like consciousness through the endless repetition of acoustic patterns. The Choirkeeper has no fixed form. It exists as a traveling density within the root-webs, a knot of heightened awareness that moves through the vegetable architecture like thought through a vast brain.
+
+When it manifests visibly, it appears as a temporary thickening of the aerial roots, a place where the hanging gardens grow suddenly more lush and the bioluminescent fungi pulse in patterns too complex to be random. Water running down these concentrated root-bundles takes on an oily sheen, and the droplets that fall from them strike their targets with uncanny precision, adding new voices to the symphony or silencing others.
+
+The Choirkeeper maintains the gorge's perfect equilibrium through countless minute adjustments. It guides the growth of new acoustic chambers within the trunk-columns, encourages certain mosses to spread across surfaces that have begun to alter their resonance, diverts water flow to compensate for the gradual erosion of a sound-producing stone. It works with the patience of geology, making changes so subtle they're imperceptible except across centuries.
+
+But it is not alone. Within the closed system live the Resonance Dancers—creatures that may once have been human, or something else that walked upright and knew language. They've adapted so completely to the gorge that they're more plant than animal now. Their skin has the same mineral-vegetable quality as the walls, and thin roots trail from their elongated limbs, drawing sustenance directly from the fungal networks.
+
+The Dancers move in perfect synchronization with the acoustic patterns, their bodies serving as living baffles and resonators. They have no eyes—the constant sound would make vision useless anyway—but navigate through vibration like the salamander-things, feeling the music through specialized patches of bark-like skin. They position themselves at crucial acoustic nodes, their presence altering the harmonics in ways that please the Choirkeeper.
+
+They retain just enough intelligence to perform their function, following choreographed paths through the gorge that have been worn smooth by countless repetitions. Their movements are so precisely timed that they've become part of the composition itself—a dancer must be *here* when this sequence of drops falls, must raise an arm *thus* to deflect this particular harmonic, must breathe *so* to add a subtle wind-note to this passage.
+
+Sometimes a Dancer will begin to deviate from the pattern, some ghost of individuality stirring in what remains of their consciousness. When this happens, the Choirkeeper intervenes. Root networks redirect themselves, wrapping around the errant Dancer with infinite gentleness, drawing them back into the design. The fungi in their gut adjust their chemistry, bringing peace and forgetting. The rebellion subsides, and the dance continues.
+
+Deep in the pools where the bioluminescent fungi grow thickest lives something else—the Echo Oracle. It's a colonial organism, somewhere between plant and jellyfish, that exists primarily as a living membrane stretched across the surface of the deepest pool. The Oracle feeds on the acoustic energy itself, its gelatinous body rippling in response to sound waves, converting vibration into sustenance through some impossible biology.
+
+The Oracle remembers every sound that has ever been made in the gorge. Sometimes, in the brief silences between water drops, it replays ancient fragments—the last words of the people who became the first Dancers, the death-cry of some extinct creature, the sound of stones being stacked into the first cairns by whatever intelligence began shaping this place. These ghost-sounds are perfectly reproduced but feel hollow, like light from dead stars.
+
+The Choirkeeper tends the Oracle carefully, feeding it specific frequencies to maintain its health. In return, the Oracle serves as a kind of memory bank, allowing the Choirkeeper to compare the current symphony against its historical patterns, ensuring that nothing drifts too far from the ideal.
+
+There are also the Tuning Mites—microscopic creatures that live in the water itself, adjusting its mineral content to maintain the precise acoustic properties needed for each pool and stream. They work in vast swarms, invisible except when the light catches them just right, creating clouds of glitter in the falling water. The mites respond directly to the Choirkeeper's chemical signals, moving minerals from place to place with the patience of erosion.
+
+And in the highest reaches of the canopy-ceiling lives the Silence—not a creature but an absence that moves, a mobile pocket of perfect quiet that drifts through the upper reaches like a hunting void. Nothing is known about its nature or purpose. The Dancers freeze when it passes overhead. The Choirkeeper's attention carefully avoids it. Even the endless water seems to fall more softly when the Silence is near.
+
+Some say the Silence is what remains of whatever first carved the acoustic chambers, the ghost of the original architect who shaped this symphony and then dissolved into its own creation, leaving only this moving absence as a signature. Others believe it's a kind of antibody, a defense mechanism that will activate if the gorge's equilibrium is ever truly threatened.
+
+The Choirkeeper knows the truth but keeps it folded deep within its distributed consciousness, in root-thoughts too slow and quiet for any other intelligence to perceive. It continues its endless work, maintaining the monument to stasis that is the Singing Gorge, conducting a symphony that plays for no audience, in a concert hall that built itself from sound and time and the patient work of living things.
+
+The gorge sings on, and its inhabitants dance their eternal dance, locked in a perfection so absolute it might be indistinguishable from death, save for the constant, deafening proof of its vitality.

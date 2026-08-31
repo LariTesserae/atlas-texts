@@ -1,0 +1,15 @@
+Deep within this living labyrinth dwells the Tide Chorus - not a single species but a communion of entities that exist as both keepers and expressions of the forest's consciousness. They manifest as translucent, vaguely humanoid forms that seem to coalesce from the water itself, their bodies incorporating strands of bioluminescent tissue that pulse in harmony with the forest's rhythms.
+
+The Chorus members flow through the kelp-mass like living currents, their forms expanding and contracting as needed. Sometimes they stretch into ribbon-like structures dozens of meters long, weaving through the forest's architecture to tend to its needs. Other times they gather into more concentrated forms, clustering in the hollow spaces within ancient shell-structures to perform what appear to be rituals of maintenance and renewal.
+
+Their consciousness is distributed, like the forest itself. Individual members can act independently, but they're always connected to the greater awareness of their collective and the forest they serve. They communicate through modulated vibrations that contribute to the forest's constant song, their voices both distinct from and integral to its deeper rhythms.
+
+The Chorus shares a symbiotic relationship with the parasitic-symbiotic organisms that dwell throughout the forest. They cultivate these life-forms, directing their growth to strengthen weakened areas of the kelp-mass or to break down dead tissue. Their bodies often incorporate these smaller organisms, using them as tools or sensors to monitor the forest's health.
+
+Their primary function appears to be maintaining the delicate balance between growth and decay, between individual organisms and the collective whole. They regulate the forest's expansion, prune away unstable growths, and guide new growth around the ancient shell-structures that anchor the system. But they're more than mere caretakers - they're the forest's self-awareness made manifest, the means by which it understands and shapes itself.
+
+The Chorus members seem to age backwards, beginning as fully formed entities and gradually dissolving into the forest's tissue over time, contributing their accumulated knowledge and awareness back to the whole. New members emerge from the interaction between the forest's deep root systems and the mineral formations below, each one carrying both ancient memories and novel adaptations.
+
+They harbor memories of the civilization that left behind the shell-structures, though these memories are more like inherited instincts than clear recollections. The Chorus understands that they themselves are descendants of this civilization, transformed over millennia as the rising waters forced adaptation and merger with the kelp-forest's earliest forms.
+
+To encounter the Tide Chorus is to confront the dissolution of boundaries between individual and collective, between consciousness and environment. They are the forest's dreams given form, its songs made flesh, eternally dancing between states of being and becoming in the endless depths of their liquid world.

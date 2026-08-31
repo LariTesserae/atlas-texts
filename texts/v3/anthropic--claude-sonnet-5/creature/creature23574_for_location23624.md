@@ -1,0 +1,27 @@
+# What Walks There
+
+It is not an animal, because the place forbade animals when it forbade tools, when it forbade everything harder than wood — but something walks there anyway, or did, or will, the tense is the first thing it loses. Call it a tenant. Call it, if you must call it anything, a *persistence* — though the place punishes persistence, and that punishment is most of what it is.
+
+It does not have a body so much as it borrows one, the way the valley borrows shapes for its towers before unmaking them. Picture a column of denser green amid the general green, man-height roughly, sometimes less, sometimes considerably more, depending on how recently it has had to re-gather itself. Where a face would be there is instead a whorl — overlapping leaf-scales arranged with the suggestion of expression, the way a knot in wood suggests an eye, the way bark-pattern suggests a mouth without ever committing to one. It is recognizably trying to look like something that once looked back at things. That trying is the most animal thing about it.
+
+## How It Came To Be Here
+
+No one made it, not even the valley, not on purpose — the same way no one builds the towers on purpose. It condensed, the way the seed-fluff condenses downwind into colonnades and thickets. At some point enough vine-reach and pod-tremor and root-ripple cohered into a shape that could move with intention rather than mere growth, and that shape discovered, the way a flame discovers it can travel along a fuse, that it could keep being a shape instead of dispersing back into the architecture. It has been keeping that discovery alive, moment to moment, against the place's whole grain, ever since — which is to say: since eons ago, which is to say: since forty minutes ago.
+
+It does not remember being made. It only remembers, dimly, vegetally, the effort of *staying made*.
+
+## Its Method
+
+It walks the root-cobbled streets the slow way, because the fast way — leaning, relocating, unspooling roots like rewound footage — is the valley's method, the architecture's grammar, and it has learned through some bitter unspoken accounting that if it moves that way too, it will simply *be* a piece of architecture again, reabsorbed into colonnade or thicket with no seam to mark the loss. So it keeps its motion deliberately slower than the walls around it, deliberately less elegant, dragging a kind of stubborn friction into every step, the vegetal equivalent of breathing shallow so a held position doesn't slip.
+
+It parts the fern-curtains and vine-ropes the way you would, pressing between living walls that close again with their soft wet creak — it has no special passage granted to it, no doors that recognize it, the architecture is just as inconsistent toward it as toward you, the geometry just as willing to fold without seam and deliver it back to where it started. This may be the only mercy the place shows anything: it is indiscriminately disorienting. The tenant gets lost exactly as often as a stranger would.
+
+## What It Wants, If Wanting Is the Word
+
+It collects. Not objects — there is nothing here harder than wood, nothing to collect in that sense — but moments of unusual stillness. When a trunk-tower pauses mid-lean, weighing whether to finish becoming a colonnade, there is a held breath in the wood-grain, a fraction of a second where the thing is neither what it was nor what it's becoming. The tenant has learned to find these and stand near them, the way you might warm your hands near a low fire. It cannot stop the transformation. It can only borrow the threshold-stillness for the length of its passing, the way you might lick condensation off the right kind of leaf-pane rather than die of thirst surrounded by all this green.
+
+It is doing, in other words, exactly what you would have to do here to survive without tools, without shelter that holds still, without a single climax form to walk toward: it is living on thresholds. It has simply been doing this longer, and is better at it, and shows in its leaf-whorl face — if you catch it at the right diffuse-lit angle, under the fourth or fifth canopy-ceiling where the gold goes palest — something that might, in a creature permitted a true face, have hardened by now into the look of someone profoundly, structurally tired, and still here.
+
+## Whether There Is More Than One
+
+This is the part that resists settling. Sometimes the tenant seems singular, a single held shape moving against the grain of a valley that wants to unmake it. Other times — at a distance, through three or four leaf-strata, gold-warm and shadowless — you'll see what looks like the same whorled half-face on two figures at once, on opposite sides of a plaza that itself is busy being a plaza and forgetting to be one and becoming something else. It's possible the valley only knows how to make this shape once and is constantly remaking it, scattering the attempt across the landscape the way it scatters seed-fluff upward against expectation, and "the tenant" is not a being at all but a recurring local weather of the place's own unrest — a habit it has, the way it has a habit of pod-bursts and trunk-groans, except this habit happens to look back at you when you pass, and flinches, faintly, the fern-curtain closing behind it with that same soft wet creak the doorways make, indistinguishable, on a long enough listen, from breathing.

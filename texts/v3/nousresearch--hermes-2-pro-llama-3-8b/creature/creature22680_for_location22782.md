@@ -1,0 +1,11 @@
+In this subterranean metropolis, various creatures have adapted to their peculiar abode. The most prominent inhabitants are the falsely named "unicorns." These creatures are not true unicorns, but rather elongated, serpentine beings with iridescent scales that emit a soft glow, similar to the bioluminescent fungi.
+
+They cover every inch of the subterranean terrain, venturing into the murky waters and wriggling through the damp tunnels like eels. Despite their slithering form, they are surprisingly gentle and elusive, hardly ever venturing out of their natural habitats. The unicorns' scales, in conjunction with the bioluminescent structures above, create mesmerizing patterns of light underwater, as their iridescent scales emit flashes of blues, greens, and purples, illuminating their surroundings and providing a sense of comfort to the other inhabitants.
+
+Along with the unicorns, several species of subterranean insects reside in the hidden crevices and corners of the city. Ranging from minute to sizable, these insects uniquely develop in a gel formed by mixing mud and water found in this environment. The insects have symbiotic relationships with other crustaceans that live in this gel, often using these crustaceans as "guard dogs." The insects develop in these crustaceans, granting them even more strength and agility.
+
+The final creatures in this subsurface world are the humans. They have lived here for generations, adapting to their cavernous home as well as their unique ecosystem. Despite their isolation, they have managed to maintain a rustic network of trade, exchanging goods and resources with the outside world.
+
+The human settlement is primarily concentrated in the structures built around the city, a testament to their incredible architectural ingenuity. They've learned to harness the bioluminescent fungi to light their dwellings and streets, using their knowledge about the growth patterns to determine the most efficient placement for energy harnessing.
+
+Living in harmony with their strange surroundings, humans and animals alike share the same waters, air, and tunnels. Despite their varied appearances and forms, they trust and respect one another, navigating the labyrinthine caverns with an understanding and gentleness honed by years of coexisting with each other and their environment.

@@ -1,0 +1,17 @@
+In this lightless grotto, life clings tenuously in the form of delicate sheets of microbes. The bacterial mats coat the smooth obsidian walls in abstract swaths of luminous blues and greens, like an otherworldly stained glass illuminated from within. 
+
+The individual cells are tiny, mere microns across, but together they form colonies that can spread for several handspans. Each mat is many thousands of generations old, the present bacteria building upon layers of their ancestors' remains. Powered by the faint geochemical energy sources that seep in with the water, they carry out their slow-motion lives in the warm stillness.
+
+The different species segregate themselves into softly glowing bands of turquoise, aquamarine, and seafoam, the colors shifting and blending where the colonies intermingle. The mats undulate gently in the rivulets of moisture that course down the curved walls, shimmering with a galaxies of pinpoint lights as water magnifies the bioluminescence of individual cells.
+
+These microbes are the only living things to have found purchase in this sealed vault. They are primordial extremophiles, able to subsist in the meager minerals and humidity, thriving in the anoxic environment. Their sluggish metabolisms have ticked along for eons in the stillness, marking the passage of deep time with creeping, incremental growth.
+
+Their communal existences play out on a timescale far removed from the frenetic modern world, pulsing faintly to ancient rhythms of energy production and consumption, division and propagation. Unaware of the throbbing industrial might thrumming through the bedrock mere meters above, the bacterial mats slowly build their filmy edifices and glow softly in the dark.
+
+The steady patter and trickle of water droplets is the only sound of their domain, echoing in the spherical chamber. The puddles on the floor ripple with impacts, casting wavering reflections of blue-green light on the low ceiling. In these ephemeral mirrors, the bacterial patterns seem to swim and flux like oil slicks or ghostly nebulae.
+
+This is a world within a world, a microcosm sealed away for epochs. A place out of place and a time out of time, where the first stirrings of life hold resolute against the grinding machinations of civilizational progress clanking and whirring dimly in the porous stone overhead. An improbable refuge where fragile, mindless beauty carries on unhurried and heedless.
+
+The bacterial colonies are simultaneously delicate and tenacious, their filmy structures sloughing away where the water flow is too strong, always building back layer by painstaking layer. They glow with the same gentle blues and greens as they did when the obsidian walls first cooled and cracked in the planet's youth, tiny inheritors and perpetuators of a life process set in motion when the stone was new.
+
+Ultimately, this is their domain and their story — that of the myriad microbes locked away in a spherical keep, exiled from the evolutionary arms race but spared the scouring tides of planetary change. Beneath the notice of even the cave creatures and extremophiles that dwell in the cracks closer to the surface, they have made a home in the dripping, abandoned halls of the planet's own history. The bacterial mats are out of place and out of time, yet perfectly placed to subsist and shine where no other life intrudes.

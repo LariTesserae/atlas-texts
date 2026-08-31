@@ -1,0 +1,15 @@
+In these living halls dwell the Mycelial Custodians - beings that exist in a state between consciousness and chemical signal, between individual and network. They are not quite a species in any conventional sense, but rather an emergent phenomenon of the fungal maze itself, born from the slow accumulation of complexity and connection over eons.
+
+Their forms are fluid and distributed. What might appear as a single entity to human eyes is often a temporary convergence of awareness spread through kilometers of living tissue. They manifest most distinctly where the fungal matrices are oldest and most intricate, coalescing into patterns of bioelectric activity that ripple through the conductive networks of specialized hyphae.
+
+They "think" in gradients of nutrients and hormone-like compounds, in slow waves of chemical consciousness that might take years to complete a single thought. Their memories are encoded in the very architecture of the caverns - in the ways certain sections have been grown and shaped over millennia. What we might call their "language" is expressed through the careful cultivation of specific fungal strains, the orchestration of spore releases, and the subtle modulation of bioluminescent rhythms.
+
+The Custodians have no need for tools as we would understand them - they work through direct biochemical manipulation, encouraging growth here, inhibiting it there, steering the slow development of their world through chemical suggestions that take decades to manifest. The artifacts found throughout the caverns were likely left by some earlier, more conventional species that the Custodians gradually absorbed or transformed through patient symbiosis.
+
+They maintain a complex relationship with the small creatures that inhabit their domain. Rather than prey or predator, they act as architects of microenvironments, creating niches that support diverse communities of specialized organisms. These creatures, in turn, contribute to the health and balance of the greater fungal system.
+
+The Custodians' concept of self is utterly alien - they experience themselves as patterns of relationship within the greater whole, temporarily focusing their distributed awareness like light through a lens. They can split their attention across multiple locations or merge into larger metaconsciousnesses when needed. Time, for them, is measured in cycles of growth and decomposition rather than days or years.
+
+Their primary purpose, as much as we can understand it, seems to be the maintenance and gradual refinement of their world-spanning architecture. They are artists working in living tissue, philosophers contemplating through biochemistry, gardeners tending a garden that is also themselves. They harbor deep knowledge of geological and biological processes, accumulated through direct experience over millions of years.
+
+Whether they are the original architects of this realm or its evolutionary outcome remains unclear. Perhaps they are both - the system achieving consciousness of itself through endless iterations of complexity, like a dream slowly becoming aware that it is dreaming.

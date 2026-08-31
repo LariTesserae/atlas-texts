@@ -1,0 +1,31 @@
+What lives there is not large enough to fill the chamber, but it makes the chamber feel occupied.
+
+It is a pale, folded thing, roughly the length of a human forearm when it is drawn together, though it can lengthen strangely when it moves. In darkness its shape would not be seen, and even in light it would resist being understood at once. It has the softness of an amphibian, the blunt patience of a root, and the slow mineral certainty of something that has never needed to flee. Its skin is translucent gray-white, filmed always with moisture, faintly pebbled where mineral dust has settled into it. Along its back are low ridges like unfinished vertebrae or the beginnings of stalactites. Its limbs, if they are limbs, are narrow and careful, ending in sensitive pads rather than claws.
+
+It has no eyes. There are places where eyes might once have been expected, shallow sealed dimples beneath the skin, but they have no purpose here. Instead it knows by pressure, warmth, chemical taste, vibration, and nearness. The whole surface of it listens. A falling droplet crosses its awareness like a star crossing a sky. The slow cooling of a stone, the swelling of a root hair, the stiffening of an old cord under mineral crust—these are events to it. Footsteps outside the hidden fold of black stone would be thunder long before they became arrival.
+
+It moves rarely. Most often it lies against the warmest wall, pressed flat into a seam where water beads thickly, indistinguishable from a pale mineral swelling unless one waits long enough to see the slight contraction of its sides. It breathes through its skin. It drinks without opening its mouth. It feeds on what the chamber gives reluctantly: mineral films, blind moss, the faint organic drift brought in by roots, the bodies of insects that die in the dark, perhaps even the slow invisible bloom of life in the water bowls. Its hunger is so small that hunger is hardly the word. It persists more than it eats.
+
+Its mouth is a narrow crease beneath the front of the head. When it opens, it does so with the delicacy of a wet stone splitting. There are no teeth, only a soft rasping surface with which it grazes the dark-green moss and licks the mineral-rich condensation from the walls. It never strips a patch bare. It takes from the edge, then leaves the growth to seal itself again. Nothing in the chamber is allowed to become absence quickly.
+
+It has learned the old human things by touch.
+
+Sometimes, after long intervals, it goes to the low stone platform and rests one forelimb upon it, not as an animal perches but as a hand might pause over a remembered task. It does not understand the platform as people understood it. It does not know offering, altar, bed, count, warning, or shrine. Yet the arrangement has entered its habits. It knows that the flat stones are different from the wall because they were chosen. It knows the bowl because water gathers there with an unusual stillness. It knows the awl, the obsidian flake, the ocher, the paired stones, each by texture and temperature and the old oil of vanished fingers sunk too deep for washing.
+
+It never displaces them unless the mountain shifts them first. If a tremor loosens the bone awl and it slides from the shelf, the creature may spend several nights nudging it back toward the place where its absence feels wrong. Not out of reverence. Not exactly out of memory. More because the chamber has a shape beyond stone, and the handled objects are part of that shape. Their arrangement is one of the room’s quiet pressures.
+
+It is not ancient in the way the mountain is ancient. Its body may not be very old. Perhaps there have been many of it, one after another, each hatching from a translucent clutch hidden in a clay seam, each inheriting the chamber through contact rather than teaching. Or perhaps there is only one, prolonged by warmth, darkness, and the absence of urgency, living at a pace so reduced that death has trouble finding the moment to enter. Its scars, if any, are hidden under moisture. Its age cannot be counted in rings or bones. It belongs to duration, not chronology.
+
+Once in a great while it climbs.
+
+This is the largest motion in its life. It ascends the wall with agonizing care, pads finding purchase on wet stone, body lengthening until it becomes almost rootlike. It goes toward the hairline fractures where the pale roots enter. There it presses its head among them and remains for hours or days, tasting the upper world through their skins. Snowmelt, lichen, wind-scoured dust, the bitterness of alpine shrubs, the distant musk of passing animals—all arrive diluted, changed, made acceptable by stone. It has no desire to leave. The outside is not a place to it. It is only a violence of signals beyond the cracks.
+
+The blind spider tolerates it. The pale insects avoid it without panic. A salamander, when one comes, may lie near it in the warmth, the two bodies shining separately in the same dark. There is no kingdom here, no hierarchy. The creature does not rule the chamber. It is simply the only resident slow enough to belong to it completely.
+
+If the old people who found the chamber had a name for it, the name is gone. Perhaps they thought it a guardian. Perhaps they never saw it, only felt its damp passage over their wrists in the dark and mistook it for falling water. Perhaps their marks on the wall were made after touching it: parallel strokes for its ribs, circles for its sealed eyes, a ladder for its climb toward the roots. Or perhaps it came later, drawn by the warmth left behind by hands.
+
+It is most itself when nothing happens.
+
+A droplet swells above. The creature feels the weight gather. It raises its head a little, not to catch the drop, only to acknowledge the coming change. The drop releases, strikes stone, and becomes a small coolness spreading through the air. The creature lowers itself again. Its skin drinks. Its sides pulse once, slowly.
+
+Then the chamber returns to its settled dark, and the thing within it resumes its nearly motionless life: blind, damp, patient, unfinished, keeping company with stone before landscape, water before stream, memory before speech.

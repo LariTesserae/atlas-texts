@@ -1,0 +1,5 @@
+The canyon country is home to a unique and alien ecosystem, though it lacks any apparent animal life. The primary inhabitants seem to be the strange, dark plant life that thrives in the arid, scorching environment. These black-green plants grow in dense clusters within courtyards and along roads in the ancient settlements. Some sprout vertically from narrow plots in the rock floor, while others carpet the inner surfaces of low walls or spread over flat, sheltered areas.
+
+The plants have adapted to survive, even flourish, in the extreme heat and absence of water. Their dark, lush foliage suggests they may have evolved to absorb and store what little moisture is available or to efficiently use some other nutrient source. The wind constantly rustling through the plants produces dry, rustling sighs, adding to the eerie soundscape.
+
+The stark, alien cities of tightly packed stone and fibrous structures stand as testament to some long-lost civilization that once inhabited this harsh world. Who or what they were remains a mystery, as the only activity now is the endless erosion of stone on stone in the waterless winds.

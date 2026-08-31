@@ -1,0 +1,15 @@
+They did not arrive; they accrued.
+
+First came the Poolers, patient quadrupeds whose pads are maps of the basins—spongy, ridged, dark as wet basalt. They do not drink; they inhale the film from stone. When they walk, they do not seek high ground but the exact low line where water gathers its thinnest skin. Their bodies are heavy with stored coolness; their breath smells of iron and forgotten rain. They sleep in shallow troughs so the evaporation can salt their shoulders, and they wake crusted, glittering, preserved.
+
+With them came the Raspers, low-bodied crawlers armored in overlapping plates that are less shell than sediment. They move like breath drawn slow, rasping the mineral skins for the fugitive algae that is less green than suggestion. Their mouths are not mouths but rasps that sing a note only stone can feel. They leave behind trails that look like writing, but it is a language that erases itself by morning, reclaimed by the patient ledger of the ground.
+
+Above them, the Fans live—winged things whose wings are less feathers than stretched membrane, veined and translucent, beating the thick air into ripples. They do not fly so much as hover and pivot, harvesting midges that breed in the standing water. When they land, they do not perch but cling, suctioned to overhangs, their wings dripping into the pools below like metronomes.
+
+The Predators are not fast but folded. They are the creases in the landscape given hunger. Their motion is a rumor of motion—a shift of shadow, a rounding of stone that was not rounded yesterday. They wait in the half-walls, in the terraces that remember being edges, until a Pooler or Rasper lingers too long in a saucer of sky-water. Then the crease opens, and the waiting pours out.
+
+There are also the Listeners, smaller things that are more ear than body. They nest in the rims of bowls, antennae like whiskers tuned to the ring of certain stones. When the weirdness hums—when the seeps branch like tiny rivers or the pools show yesterday’s sky—the Listeners twitch in unison, recording the anomaly in the tremor of their legs. They are the archive of the place, storing its strangeness in the bodies of the small.
+
+And threading through them all are the Weavers, not insects but simpler, softer, leaving behind fungal scribbles that bloom after rains and fade to dust when the air dries. They are the breath of the place made visible, the exhale that pearls on overhangs. Where they pass, the ground feels alive, slick with a thin film of purpose.
+
+Together they make a citizenship of water and stone. They do not build; they arrange. They do not tame the water but coax it, teach it to pause in spirals, to pool in saucers that memorize clouds. They move through cycles of burst and rest, predator and prey trading places in a choreography older than thought. They are not visitors to the low place but its living texture, its fauna loud and abundant, clicking and scraping and humming into the dimness, making the silence ring like a struck stone, making the wet, cool, ancient bowl feel full.

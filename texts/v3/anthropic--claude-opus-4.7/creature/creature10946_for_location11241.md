@@ -1,0 +1,29 @@
+# What Lives There
+
+Begin with the plants, because they are the easiest mistake.
+
+They are not plants. They resemble plants the way the engines resemble engines — as a courtesy to your expectations. A real plant is a wager: it grows toward something, it spends itself toward seed and successor, it competes, it dies. The jade rosettes do none of this. They have reached the size they have reached and they will not reach any further. They are not striving. They are *posed*.
+
+What they do, with their visible pores and their faint warmth, is breathe in concert with the engines — and this is the first thing to understand about who lives on the plateau. The rosettes and the engines are not two kinds of inhabitant. They are one inhabitant, distributed. The pistons rise and fall on their hour-long stroke; the pores open and close on some longer rhythm you would have to camp for a week to confirm. Together they form a single slow physiology, spread across kilometers of ochre stone, breathing something that is not air into something that is not lung.
+
+Call this inhabitant the Sustainer, provisionally, knowing the name is wrong.
+
+The Sustainer is not conscious in any way you would recognize, but it is not unconscious either. It is *attentive*. Attention is the function it performs. Somewhere in the coupling of stone-engine and stone-leaf, in the slow arithmetic by which the rosettes reproduce without urgency and the rocker arms counterweight each other across kilometers, an attention is being paid. To what? To the condition of the plateau. To the fact that nothing has begun. The Sustainer is the noticing that holds the pause open. Remove it and the wind would start; the stone would remember it is supposed to weather; some small dark thing would crawl out from under a leaf and the world would tip forward into its long noisy career.
+
+This is most of what lives there. But not all.
+
+There is also, and this is harder to say, *the waiting itself*. Not as a metaphor. The waiting is a resident of the plateau in the way that humidity is a resident of a jungle — a condition so saturating that it constitutes a presence. You feel it as the reason you stay longer than you meant to. It is not the Sustainer; the Sustainer maintains it but did not author it. The waiting predates the engines. The engines grew, you begin to suspect, *in response* to the waiting, the way calluses grow in response to friction. Something on this plateau is waiting to begin, has been waiting since before there was a plateau to wait on, and the Sustainer is the elaborate apparatus by which that waiting is kept comfortable, kept warm, kept from collapsing under its own duration into either fulfillment or despair.
+
+Who is waiting? This is the question the plateau will not answer, and the longer you stand among the rocker arms the more clearly you understand that it will not answer because the answer is not available yet — that the identity of the waiter is precisely what has been deferred, along with everything else. The waiter is waiting to find out who it will turn out to have been.
+
+And then — and you would miss this if you did not stay through several of the slow strokes, watching the shadows of the rocker arms creep across the stone — there are the visitors.
+
+Not you. You are a visitor, but you are not one of *the* visitors. The visitors are not human and not animal and they do not arrive. They are already there when you notice them, and they were not there a moment before, and they do not move. They occur at the edges of the rosettes, in the long shadows of the engines, in the wide empty spaces between living things. They are not shapes exactly. They are *occasions* — places where the plateau, for a moment, attends to itself a little harder. You might call them thoughts the Sustainer is having, except that the Sustainer does not think; or witnesses to the waiting, except that nothing here is being witnessed. They flicker on and off across the ochre stone at intervals that have nothing to do with the engines' breath, and when you turn to look at one directly it is not gone — it was simply never the kind of thing you could look at directly.
+
+The visitors are the closest the plateau comes to fauna. They are what fauna would be, if fauna were permitted. They are the placeholders for the beetles and birds and small dark crawling things, the empty seats reserved at a table for guests who will not be invited.
+
+So: the Sustainer, the waiting, the visitors. Three residents, or one resident in three aspects, or no residents at all and only a careful arrangement that resembles residency from a distance. Choose your accounting.
+
+What you should understand, leaving — and you will leave; everyone leaves; the plateau permits leaving the way it permits everything that is not a beginning — is that nothing on the plateau is lonely. Loneliness requires the possibility of company, and company requires time moving forward toward a meeting. On the plateau time does not move forward. It accumulates sideways, in warm even layers, like the heat from the engines. The Sustainer is not alone with the waiting; the waiting is not alone with the visitors; the visitors are not alone with the dry pepper-scented air. They are all, together, the single held breath of a world that has chosen — or been chosen, or simply happens — not to exhale.
+
+You are welcome there. You are not needed. The plateau will be exactly the same when you return, because the plateau is exactly the same now, and now, and now, and the pause is the place, and the page stays blank, and whatever lives there is the keeping-blank itself, patient as the bell that will not be rung.

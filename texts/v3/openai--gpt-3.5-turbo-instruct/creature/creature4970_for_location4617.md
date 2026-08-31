@@ -1,0 +1,1 @@
+Wow, it sounds like an incredible place! I'm curious, do the creatures seem friendly or hostile? And what about the people living in the city, what kind of culture or society do they have?

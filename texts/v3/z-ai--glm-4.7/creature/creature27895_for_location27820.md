@@ -1,0 +1,33 @@
+To exist in the High Sump is to exist in a state of suspended animation. Life here does not scramble; it endures. The inhabitants are not distinct from the environment so much as they are slow-moving extensions of it, biological processes that have learned to mimic the geology.
+
+**The Lithic Grazers**
+
+The primary movers upon the Floaters are the creatures known, to the few who might name them, as the Oreads. They are immense, singular beings that blur the line between animal and island. An Oread resembles a tortoise in its general architecture, but one grown to the size of a small town. Their shells are not made of bone, but of a calcified substance identical to the basalt of the Floaters themselves, worn smooth by the atmospheric friction until the creature is indistinguishable from the rock it rests upon.
+
+They do not walk; they slide. On their underside, they possess a single, massive muscular foot that ripples with a glacial, peristaltic motion. This foot secretes a slick, mucopolysaccharide substance that lubricates the yielding ground, allowing them to glide across the surface of the Floaters with the silent, fluid grace of a tectonic plate shifting.
+
+The Oreads are the gardeners of the High Sump. They feed exclusively on the heavy, dark mats of moss and vine that carpet the stones. Because the plants grow with aggressive speed in the humid soup, the Oreads are constantly grazing, their beaked mouths—small and hidden within folds of rugged skin—shaving the vegetation down to the stone. This grazing prevents the weight of the water-logged flora from capsizing the smaller Floaters. In return, the Oreads carry the spores of the mosses in the deep, crater-like pores of their shells, distributing them to new stones as they drift. An Oread does not perceive time as we do; a single grazing circuit of a floating island may take a century. They live for millennia, their consciousness a slow, repetitive loop of pressure, taste, and the satisfaction of buoyancy.
+
+**The Aetheric Filter-Feeders**
+
+Sharing the syrup-heavy air are the Drifters, but they are not alone. The skies of the Sump are patrolled by the Nebula Rays, distant cousins of the Drifters that have evolved to exploit the thick, particulate soup. While the Drifters are solitary, ancient cartilage-ghosts, the Nebula Rays are gregarious, forming loose, drifting constellations that migrate through the atmospheric tides.
+
+They are magnificent, translucent beings. Their bodies are composed of a gelatinous, balloon-like skeleton filled with hydrogen harvested from the breakdown of atmospheric water, giving them neutral buoyancy. Their wings are not solid membranes but vast, cascading nets of specialized cilia—feather-light and incredibly delicate—that trail behind them for hundreds of meters. These cilia vibrate imperceptibly, generating a faint electromagnetic field that attracts the suspended algae and metallic dust that permeates the Sump’s air.
+
+The Nebula Rays move with a peculiar locomotion. They do not flap; they *breathe* their way through the world. By expanding and contracting their internal gas bladders, they ripple their long, wing-like membranes, drifting forward like silk in a breeze. They are filter feeders of the highest order, straining the very atmosphere for sustenance. When they die—a rare event, usually caused by a collision with a Floater—they do not fall. Instead, they lose their buoyancy and slowly dissolve, their gelatinous bodies breaking down into a cloud of nutrient-rich mist that feeds the moss below, closing the circle of the Sump’s economy.
+
+**The Void-Crawlers**
+
+On the underside of the Floaters, where the stone hangs suspended over the infinite abyss below, live the Anchorites. These are spindly, spider-like organisms, though they possess no exoskeleton. Their bodies are soft and cylindrical, supported by the hydraulic pressure of their own internal fluids. They are the scavengers of the vertical axis.
+
+The Anchorites spin webs—not of silk, but of a hardened, glass-like secretion derived from the silica in the air. These webs dangle hundreds of meters into the gloom beneath the islands, acting as massive nets to catch falling debris—clumps of moss, decaying vegetation, or the unfortunate carcass of a smaller sky-animal.
+
+However, the Anchorites are most fascinating for their relationship with the Monoliths. They are inexplicably drawn to the geometric pillars. Swarms of them congregate on the smooth, ceramic surfaces of the Monoliths, clustering around the base like pilgrims at a shrine. They do not eat the stone; they vibrate against it. Using specialized organs in their legs, they strum the surface of the Monoliths, creating low-frequency hums that travel through the stone and out into the dense air. It is believed these hums are a form of sonar, a map-making effort in a world with no horizons, or perhaps a long-distance communication with other Anchorite colonies on distant Floaters. To a human observer, the silence is profound, but to the senses of an Anchorite, the Monoliths are singing, broadcasting a slow, mournful chord that binds the scattered islands together.
+
+**The Echoes**
+
+Finally, there is the question of the "Built." If the Monoliths are the memory of a civilization, then the Echoes are the shadow of that memory. They are not biological life in the traditional sense. They are concentrations of the heavy, viscous air that have achieved a strange, semi-sentient cohesion, drawn to the psychic or geological residue left by the builders.
+
+They appear as disturbances in the atmosphere, slight distortions in the gloom, like heat haze on a highway. They lack distinct form, often shaping themselves into rudimentary geometries—spheres, cubes, or tall, thin columns—mimicking the Monoliths. They drift aimlessly, passing through solid matter with ease. They seem to be attracted to the passage of time itself. An Echo will often attach itself to a Slow-King (Oread) or a Nebula Ray, shadowing it for decades, riding along in the creature’s slipstream. They do not interact; they only witness. They are the Sump watching itself, a phenomenon of pure observation in a world that has forgotten how to change quickly.
+
+Together, these beings form a biome of slowness, a biological reflection of the suspended, drowning world they inhabit. They are the custodians of the gloom, living in the pause between a breath taken and a breath released.

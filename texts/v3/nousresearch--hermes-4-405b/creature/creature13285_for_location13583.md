@@ -1,0 +1,15 @@
+In the sunken city, life has taken on strange and wondrous forms, shaped by the crushing pressure and eternal darkness of the deep.
+
+Glowing, translucent jellyfish drift languidly between the ancient towers, their tentacles trailing like ghostly streamers. Bioluminescent bacteria coat their gelatinous bodies, casting an eerie blue-green light that flickers and dances, illuminating the drowned metropolis in haunting chiaroscuro. The jellyfish pulse rhythmically, jetting themselves deeper into the labyrinth of stone whenever the currents surge with particular ferocity. 
+
+Armored, crab-like creatures scuttle across the sea floor, their clawed appendages clicking against the stone. Thick shells encase their segmented bodies, shields against the tremendous pressure. They feed on the glowing bacteria and any other organic matter they can scavenge, antennae constantly twitching as they navigate the ruins. When threatened, they scuttle into cracks and crevices, secreted away in the labyrinthine architecture. 
+
+Vast schools of sleek, silvery fish flash through the water, moving as one entity. Their scales glint even in the near absence of light. Razor sharp teeth fill their gaping mouths, ready to shred any smaller creatures that cross their path. They pour through the hollow-eyed windows and doorways of the city in an endless, swarming tide of life and death in the depths.
+
+Gargantuan, serpentine eels lurk in the deepest shadows, their sinuous bodies thicker than a man is tall. Eyes like dinner plates stare unblinkingly into the gloom, hunting for any prey large enough to sate their endless hunger. Powerful jaws open wide to swallow tremendous gulps of water, and anything else unfortunate enough to be caught in their path.
+
+Pale white tube worms carpet every surface, their feathery red gills extending greedily into the mineral-rich currents. They feed on the chemicals that seep from the Earth's crust, forming living thickets of waving filaments. Brittlestars and basketstars creep slowly between the tubes on spindly legs, their wiry arms spread wide to catch drifting morsels of food. 
+
+Strange, pulsing growths encrust the stone here and there - colonial tunicates, bryozoans, and glass sponges filtering the frigid water for sustenance. Glowing with their own inner light, they add to the otherworldly beauty of this abyssal realm. Shrimps and amphipods dance among the varied structures, eking out a meager existence in the unforgiving darkness.
+
+In this lightless, crushing realm, life persists and even flourishes in forms bizarre and wonderful. The ancient city has become a vast reef, a foundation and shelter for living things that thrive where no sun penetrates. Though the original builders are long vanished, their handiwork endures, hosting an alien ecosystem in the cold, dark heart of the deep.

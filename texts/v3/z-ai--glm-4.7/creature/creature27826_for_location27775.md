@@ -1,0 +1,19 @@
+They are not born, and they do not die in the traditional sense; they accumulate.
+
+Given the absolute silence of the animal kingdom and the suffocating density of the industry, the inhabitants of this kiln are the inevitable, parasitic children of the machine itself. They are the **Resonants**.
+
+They begin as the gray-green moss that clings to the rivets, feeding on the thrumming vibrations of the engine rather than the dim light. But in this place, the boundary between botany and machinery has dissolved. Over weeks of unseen industry, the moss colonizes the stray arcs of electricity and the dripping mineral-water, calcifying into a crust that mimics the texture of cast iron.
+
+A Resonant starts as a patch of this rust-fur on a vertical pipe, a tumor of damp vegetation drinking the heat. As it grows, it begins to weave itself around the mechanisms. It uses the exposed copper wiring like a vascular system, pulling current to fuel a metabolism that runs on thermal entropy. Slowly, the plant lifts heavy, tuberous roots that look disturbingly like hydraulic pistons, detaching from the pipe to become something independent.
+
+In shape, they are elongated and jagged, mimicking the forest of iron that birthed them. They stand seven or eight feet tall, spindly and multi-jointed, resembling a stick insect constructed from recycled boiler plates and dried fronds. Their "limbs" are actually tough, woody vines sheathed in a shell of oxidized brass, scavenged from the debris of the excavation. They have no distinct head, but rather a cluster of black-veined fern-leaves that twitch with the subsonic pressure changes in the air, acting as ears and eyes.
+
+They live in the claustrophobic gaps, the spaces too narrow for a human, where the condensation is heaviest. They are the silent maintainers of the "wound." Because the sound is muffled, they move without clatter; their joints are lubricated by the thick, gray moss, which exudes a slick, oily gel.
+
+You would not know they are there unless you looked closely at a stationary valve and realized the "rust" on it was breathing. They are perfectly camouflaged against the pale, scarred rock and the dull, orange metal. They do not scuttle or skitter; they flow with the glacial, inevitable momentum of the flywheels. When they move across the catwalks, they distribute their weight across many limbs, looking like a drifting shadow or a sudden draft of steam.
+
+Their sustenance is the heat and the vibration. They wrap their fern-like sensory organs around the hot pipes, pressing their fibrous bodies against the metal to drink the friction. In return, they perform the tasks of the absent gods: with delicate, twig-like fingers, they adjust the pressure gauges that twitch frantically, and they clear the vents when the steam threatens to choke the room. They are the white blood cells of this cathedral, filtering the grime and oil, ensuring the fever of the industry does not break.
+
+They possess a hive-mind consciousness, linked not by sound, but by the physical conduction of the pipes. When a gear housing grinds against a friction point, a Resonant feels it in its teeth and is drawn to the wound. They swarm silently, a dozen spindly figures emerging from the mist to cauterize the leak with their own bodies, plugging gaps with their mossy, fibrous flesh, fusing temporarily with the machine until the metal heals.
+
+In the dim twilight, they look like nothing more than part of the mechanism—silhouettes of pipes and valves that have detached and rearranged themselves. They are the ghost in the machine, given form by the relentless heat and the weeping rock. They are the only thing that enjoys the heavy, wet air, because it is the very breath of their father.

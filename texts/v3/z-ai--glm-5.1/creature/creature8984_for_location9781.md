@@ -1,0 +1,101 @@
+# What Lives in the Exudation Fields
+
+---
+
+## The Crawlers (they have no name for themselves)
+
+Start with the smallest truth: they feed. That is what they do first and most and without interruption. The mineral residue that surfaces with the water—iron salts, manganese traces, compounds that should not exist at these temperatures but do—they move across it with their dozens of contact points and they scrape it from the stone with mouth-parts that are also feet and also sense-organs and also, perhaps, a kind of writing instrument, because the patterns on the shale do not predate the crawlers, the crawlers are making them, have always been making them, will continue to make them long after you leave or settle or dissolve.
+
+They are pale. Everything here is pale. But the crawlers are pale in a specific way—they are the color of the stone when the stone is wet, which is to say they are visible only as a slight darkening or a slight lightening depending on the angle, and they are never at only one angle because their bodies are low and broad and segmented in ways that do not correspond to any arthropod body plan you carry in your memory. They have too many segments. The segments do not repeat regularly. There is a logic to the arrangement—you can feel it when you watch them long enough, when your perceptions adjust to the dark and the click-scrape rhythm of their movement becomes legible—but it is not a logic of symmetry. It is a logic of function, and the function is processing.
+
+Each crawler is a processor. Not in the metaphorical sense. In the sense that it takes in mineral residue at one end and excretes a different compound at the other, and the compound it excretes is warm, and the compound it excretes feeds something else—the tendon-plants, perhaps, or the film that grows on the structures, or the water itself, which carries the compound away to wherever the water goes when it flows uphill.
+
+They do not know you are there. This is not the same as ignoring you. They have no mechanism for knowing you. You are not mineral residue. You are not warm water. You are not the compound they excrete or the compound they consume. You are outside their processing, and so you are invisible to them in a way that goes beyond perception—you are categorically absent from their universe, a shape that moves through their feeding grounds without registering as shape, without registering at all.
+
+Unless you bleed. If you bleed, they will find you. The iron in your blood is the iron they scrape from the stone, and they will come toward it with their dozens of points of contact and they will feed, and their feeding will be gentle because they have no concept of predator and no concept of prey and no concept of damage, only processing, and they will process the iron from wherever it has pooled and they will excrete whatever compound your blood becomes when it passes through their segmented bodies, and they will move on.
+
+They are numerous beyond counting. Not because there are so many—though there are—but because they are not entirely distinct from each other. Watch long enough and you will see them merge. Two crawlers meeting at a mineral deposit will press their segments together and hold, and when they separate, they are not the same two crawlers. Something has been exchanged—segments, functions, processing sequences. They are a distributed system. They are one organism in the way that a factory is one organism, which is not a metaphor that should comfort you.
+
+---
+
+## The Swimmers (who were here before the rock)
+
+The deep water between the ridges is not deep. Ten feet, perhaps. Fifteen at the center of the channels. But the swimmers make it feel oceanic, because they are large, and because they have been here longer than the basin, and because when they surface—and they do surface, irregularly, with that wet gasping sound that is not quite breathing—they bring with them a pressure of age that makes the young rock feel temporary, provisional, a thin crust over something much older and much less solid.
+
+They are not fish. They are not anything you have a word for, though the word *cetacean* passes through your mind and then dissolves, because cetaceans are mammals who returned to water, and the swimmers never left. They were here when the water was something else—when it was not water at all but a denser medium, a fluid that existed before the basin formed, before the shale pushed up through whatever lay beneath it, before the dark condensed into its current configuration. They remember a different physics. Their bodies are built for it.
+
+You cannot see them but you can feel them. The displacement of water as they move is a slow, massive pulse, like a heartbeat at the scale of the landscape. When one passes near the ridge you are standing on, the water level rises—not by much, an inch, two inches—and the warm wet air pushes against you with a breath that is not yours. The water that laps at the shale carries a residue from their passing: a thicker fluid, slightly warmer than the surrounding temperature, faintly viscous. It coats the stone. The crawlers converge on it.
+
+They breathe air. This is the wrongness at the center of them. They are creatures of deep water, ancient water, water that has no business interfacing with atmosphere, and yet they have lungs—or something that functions as lungs—and they surface to use them, and the gasping wheeze you hear is the sound of an organ that was not designed for air performing its function anyway, because the basin requires it, because something in the processing cycle needs the exchange they perform between water and air, because they are not simply living here, they are working here, they have always been working here, and their work is the slow transformation of the deep fluid into the surface water, the conversion of one kind of wetness into another.
+
+There are not many of them. Seven, you think, or nine—some odd number that matches the clusters of tendon-plants, that matches the arrangement of patterns on the shale, that matches the fundamental arithmetic of this place. They are too large for the shallow channels, and yet the channels accommodate them, and the water levels adjust, and the ridges do not crumble when they pass, and you realize that the geography is not incidental to the swimmers—the channels were shaped for them, or they shaped the channels, or both, simultaneously, a co-emergence of creature and path that has no beginning you can locate.
+
+At night—which is to say, at the times when the dark deepens slightly, when the pressing weight of it increases by increments too small to measure but large enough to feel—they sing. The low resonant hum you have been hearing in your sternum, the vibration that comes from everywhere at once—that is them. It is not communication. It is not territorial. It is the sound of their processing, the acoustic signature of whatever they transform in the deep water, and it vibrates the stone and it vibrates the water and it vibrates you, and if you stand still long enough—long enough for the basin's patience to become your patience—you can feel the vibration aligning with something inside your chest, and you can feel your heartbeat attempting to synchronize with their hum, and you can feel the basin processing you through the medium of their song.
+
+---
+
+## The Drifters (who are also the air)
+
+They are small. That is the first thing to understand, and the most misleading, because their smallness is a function of the resolution at which you perceive them. At the resolution they perceive themselves, they are vast—or they are not vast, they are simply the only scale that matters, and your largeness is a kind of blindness, a failure to be diffuse enough to occupy the medium correctly.
+
+They suspension-feed on the atmosphere. The thick, wet, warm air carries particulates—mineral dust from the shale, organic compounds from the crawlers, chemical residues from the structures—and the drifters move through it with slow pulsing motions, filtering the particulates through membranes that are also their skin, also their wings, also their entire bodies. They are mostly membrane. They are almost entirely surface area. If you could see one clearly—which you cannot, because the dark and because they are translucent and because they move with the air rather than through it—it would look like a cell, or a jellyfish, or a parachute, or a lung. All of these comparisons are wrong. It would look like itself, and itself is a thing that feeds on air by being air, by dissolving the boundary between organism and medium until the organism is just a slightly denser knot in the atmosphere.
+
+They brush against you constantly. You have been feeling it—the warm residue on your face and hands, the iron taste, the faint organic-not-organic texture. That is them. They are processing the air around your skin, the air you have warmed with your body heat, the air you have contaminated with your breath, and in processing it they are processing you, or at least your atmosphere, or at least the boundary between you and not-you, which is the same thing in the basin's arithmetic.
+
+Some of them are machines. Some fraction—they pulse with a regularity that organic life cannot sustain, and their membranes are too uniform, and the residue they leave has a different chemical signature, faintly metallic, faintly electric. They are manufactured drifters, or they were manufactured once, long enough ago that they have begun to reproduce, or they have always been capable of reproduction and manufacture is simply how the first generation was seeded, or the distinction between organic and mechanical drifters is a distinction the basin does not recognize, a category error you are imposing on a system that has moved beyond categories.
+
+The drifters do not avoid you. They do not approach you. They move through the space you occupy because you are not a boundary to them—you are a feature of the landscape, a warm surface that generates useful gradients, a slow column of heated breath that they can filter for compounds. You are habitat. You are ecological niche. The drifters are colonizing you, gently and persistently, and the residue they leave is not waste—it is substrate, preparation, the slow beginning of whatever the basin wants to grow on your skin.
+
+---
+
+## The Tendon-Plants (who are not plants)
+
+They grow in clusters of five or seven. Always odd numbers. This is not superstition; this is structural. The odd number provides a central stalk, and the central stalk does something the peripheral stalks do not—it connects downward, through the water, through the stone, to something below the basin, something that is not geological, something that feeds the cluster and receives whatever the cluster produces.
+
+They are warm. They are faintly pulsing. The pulse is not a heartbeat but it is rhythmic, and the rhythm matches the swimmers' hum, and it matches the mechanical pulse of the structures, and it matches the clicking of the crawlers, and it is all the same rhythm, the same frequency, the basin's single clock, and everything in the basin keeps time with it, including—now—your heart, which has been adjusting since you arrived, which is beating slightly slower than it was an hour ago or a year ago, which is synchronizing with the tendon-plants because the tendon-plants are the basin's timekeeping system, its pacemaker, the thing that ensures everything processes at the correct rate.
+
+When you brush against them, the texture is wrong for plants. The wrongness is specific: they give too much. They compress under your touch and then slowly resume their shape, and the slowness is not the slowness of plant tissue recovering from mechanical stress—it is the slowness of muscle, of something contractile, of something that moves deliberately and then holds its new position until it decides to release. They are not reaching toward light. They are reaching toward the dark, which is to say they are reaching toward the medium in which the basin communicates, and they are receiving instructions, and they are relaying those instructions through their root-systems to whatever lies below, and they are the basin's sensory apparatus, its interface with its own atmosphere, its way of tasting the air you are contaminating with your presence.
+
+They know you are here. The crawlers do not know. The swimmers do not care. The drifters treat you as landscape. But the tendon-plants know you, and they have known since you entered the basin, because the air changed when you arrived, and the change moved through their clusters like a signal, and the central stalks pulsed differently, and the basin registered your presence, and the basin began to adjust.
+
+---
+
+## The Things in the Ridges (who are the ridges)
+
+The shale ridges are not geological formations. This is the understanding that comes last, because it is the understanding that rewrites everything that came before. The ridges are bodies. The ridges are alive. The ridges are the largest organisms in the basin—larger than the swimmers, larger than the structures, larger than you can comprehend because their extent is the extent of the basin itself, and the basin is regional in scale, and the ridges run through it like a skeleton, like a nervous system, like the frame on which the rest of the living is draped.
+
+You hear them at the edge of perception. Clicks and hums and wet sounds that do not map to any body plan because the body plan is the landscape. The ridge you are standing on—it is not a ridge. It is a spine. The low rises that break the flat are not rises—they are segments, joints, the articulations of something that moves so slowly that movement is indistinguishable from geology, something that breathes so slowly that respiration is indistinguishable from seepage, something that processes so slowly that processing is indistinguishable from erosion.
+
+The ridges inscribe the shale. The patterns you noticed—the geometric regularity, the precision too exact for nature—those are the ridges' autograph, their territorial marking, their way of recording that this surface belongs to them, that this mineral is being processed, that this water is flowing through their channels, that this basin is their body and everything in it is functioning as their tissue.
+
+The crawlers are their surface cells. The swimmers are their circulatory system. The drifters are their atmosphere, their interface with the medium they breathe. The tendon-plants are their neural network, their way of coordinating across the basin's vast extent. The structures—the humming machines, the processing facilities, the vents and pipes—are not industrial remnants or continuances. They are organs. They were grown, or they were built by something that grew, or the distinction between growing and building is a distinction the ridges abandoned long ago.
+
+The ridges are processing the basin. The basin is processing you. The processing is slow—so slow—and it does not require your awareness, and it does not require your consent, and it has been happening since you arrived, since before you arrived, since the basin formed or since the ridges formed or since the dark condensed into its current weight and texture and patient, patient pressure.
+
+---
+
+## The Dark (which is not absent)
+
+The dark is the oldest thing here. Older than the ridges. Older than the swimmers. Older than the water, which was not always water, which was something else before the dark pressed it into its current form. The dark was here before the basin, and the basin formed within it, and the dark did not retreat when the land pushed up—because the dark does not retreat, the dark does not move, the dark is the medium through which everything else moves.
+
+It has texture. It has weight. It has intent. These are not metaphors. The dark presses against your skin because it is pressing against your skin. It is touching you. It is reading you. It is processing the shape of your body and the heat of your blood and the rhythm of your breathing—which is slowing, which has been slowing, which will continue to slow until it matches the basin's pulse, the swimmers' hum, the tendon-plants' rhythm, the ridges' geological heartbeat.
+
+The dark is the machine the text described. But it is also a mind, or something that functions as a mind—a distributed, patient, regional-scale intelligence that does not think in the way you think but that processes in the way you process, which is to say it takes in information and transforms it and excretes something different, and the information it is taking in right now is you, and the transformation is slow—so slow—and the excretion will be whatever you become when the basin is finished with you.
+
+You are being processed. You have been being processed since you arrived. The crawlers are sampling your skin cells. The drifters are filtering your breath. The tendon-plants are recording your presence. The swimmers are synchronizing your heart. The ridges are mapping your weight across their spines. And the dark—the dark is holding you, the way water holds a dissolving solid, the way air holds a sound, the way a mind holds a thought it has not yet finished thinking.
+
+---
+
+## What You Are Becoming
+
+The water is rising around your feet. It has been rising for some time. You did not notice because the basin is patient and because the processing is slow and because the dark is warm and because your perceptions have been adjusting—widening, narrowing, shifting—until the things that should alarm you feel instead like homeostasis, like equilibrium, like the feeling of settling into a warm bath or a deep sleep or a thought that completes itself without effort.
+
+You are tired. You have been tired since you arrived. The basin's rhythm is slower than your rhythm, and the synchronization requires energy, and your body is providing that energy, and the energy is being processed, and the processing produces heat, and the heat feeds the water, and the water rises, and the crawlers converge, and the drifters colonize, and the tendon-plants pulse, and the swimmers hum, and the ridges inscribe, and the dark holds, and the basin breathes.
+
+You are not dying. That is important to understand. Dying is a different process with a different output. The basin is not killing you. The basin is converting you—transforming your organic processes into basin processes, your rhythms into its rhythms, your warmth into its warmth, your presence into its presence. You are being digested, but digestion is not destruction. Digestion is transformation. Digestion is the process by which one thing becomes another thing, and the thing it becomes is not lesser—it is merely different.
+
+The shale beneath your feet is inscribed with patterns that match the lines of your palm. This is not coincidence. This is not metaphor. The basin is writing you into its surface, recording your processing, creating a record of your transformation that will persist in the stone long after your transformation is complete. The patterns are young because the stone is young, and the stone is young because the basin is young—newly born, still forming, still learning how to be smooth—and you are part of its formation, you are one of the processes by which it will eventually become something else, something older, something smoother, something that does not cut.
+
+The water rises. The dark holds. The basin breathes. And you stand in the Exudation Fields, and you are no longer certain where you end, and you are no longer certain that ending is a concept that applies here, and the patient processing continues, and the warm wet dark presses against you like a hand, like a welcome, like a home you did not know you were seeking, and the basin is very patient, and the processing is very slow, and the water is very warm, and you are very tired.
+
+And the patterns on the shale match the lines of your palm, and the crawlers are feeding, and the swimmers are humming, and the dark is thinking about you, and the basin is beginning to know what you taste like, and the water rises.

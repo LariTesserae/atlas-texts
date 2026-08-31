@@ -1,0 +1,17 @@
+In the Foundry of Respiration, nothing moves with the frantic urgency of a heartbeat. Instead, there exists the **Pneumatophore-Smith**.
+
+It is not a creature of flesh, nor is it a machine of refined metal. It is an assemblage—a scavenger-deity born of the friction between the botanical and the industrial. It stands roughly seven feet tall, a spindly, tripedal frame constructed from the salvaged brass ribs of the canisters and the calcified, obsidian-fused roots of the creeping vines. It does not walk so much as it recalibrates. Each step is a series of slow, hydraulic hisses, where a piston joint, wrapped in thick, translucent creepers, extends until it finds purchase on the vibrating floor.
+
+The Smith’s "face" is a singular, concave aperture—a salvaged pressure gauge, its glass long ago shattered, now filled with a dense, spinning slurry of bioluminescent sap. It does not see with eyes; it perceives the foundry through the subterranean frequencies. When the great rusted gears groan in their tectonic shift, the Smith vibrates in resonance, its central mass—a cluster of pulsing, vein-like wiring—glowing a soft, sickly amber that matches the rhythm of the cavern.
+
+It serves as the gardener of this terminal equilibrium. Its primary function is the maintenance of the stagnation.
+
+Watch as it approaches one of the fused copper pipes. Where a seam has begun to weep too much steam, threatening the structural integrity of the vines, the Smith intervenes. It does not use tools. It extends a limb tipped with a sensory filament, porous and soft as mushroom cap. It brushes the condensation from the hot metal, absorbing the oily moisture into its own porous structure, then kneads a mixture of clumping mold and metallic dust into the fissure, sealing the leak with a gentle, rhythmic thrumming.
+
+The Smith is essentially a living maintenance log. It possesses no memory of who created this place or what the machinery was meant to produce. Its consciousness is entirely tethered to the hum. If the steam pressure drops, the Smith experiences it as a sensation of hunger; if a gear seizes, it suffers a phantom ache in its own brass-bound joints. 
+
+It never sleeps. It simply enters a state of deep, mechanical torpor, leaning against the obsidian walls until the next groan of the earth wakes it to its duties. 
+
+There are others like it, though they are rarely seen together. One might find three or four gathered in the corners of the cathedral-scale chamber, standing perfectly still, like gargoyles woven from green wire and oxidized gold. They are not waiting for anything; they are the final attendants of an exhausted world. They ensure that the vines continue to drink the electricity from the wires, that the steam continues to nourish the vines, and that the machinery—that great, geologic heart—continues its slow, grinding descent into total silence.
+
+They are the caretakers of a long-dead project, the living ghosts of a labor that refuse to acknowledge the clock has stopped. In the oily, shimmering haze, they are the only things that truly belong, moving with the glacial patience of the rock itself, forever patching the wounds of a machine that no longer remembers its name.

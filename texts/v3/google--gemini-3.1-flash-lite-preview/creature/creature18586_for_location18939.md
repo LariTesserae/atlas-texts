@@ -1,0 +1,17 @@
+In the Conservatory, there are no citizens, but there are *Keepers*—or perhaps, they are merely the architectural antibodies of the city itself.
+
+They do not breathe, for there is no air to consume. They do not hunt, for there is nothing here that bleeds. They are not ghosts, nor are they machines in the way the surface world understands the term. Rather, they are manifestations of the Great Stasis, solidified currents of intent that took on form when the last architect laid down their chisel and dissolved into the silt.
+
+They resemble translucent, tapering pillars of pressurized jelly, roughly the height of a man, though they lack any fixed skeleton or articulated limb. They move not by swimming, but by folding space and shifting their density, appearing to flicker like a candle flame seen through miles of dark water. Their "flesh" has the same refractive index as the freezing brine that surrounds them, making them invisible until they intersect with the matte-black walls of the Conservatory. When they pass against the stone, they are revealed as silhouettes of absolute transparency, voids within the darkness that move with a terrifying, liquid intent.
+
+They do not have eyes, for light is an alien concept to them. Instead, they sense the geometry of the Conservatory through the slight, rhythmic vibrations that hum from the porous mineral walls. They are the gardeners of this petrified forest.
+
+If one were to observe them closely—if one could survive the pressure—one would see them tending to the rubbery, translucent flora. They do not prune or groom. They simply drift into the weave of the deep-sea vines and press their formless, cold essence against the stalks. In this gentle friction, they transfer the mineral wealth they have collected from the deepest, most inaccessible fissures of the city’s floor. They feed the plants in a silent exchange of nutrients, their movements so languid that a single "gesture" might be spread across a decade.
+
+They carry no tools. They are the tools. They are the maintenance cycle of a world that refused to die.
+
+Sometimes, when the current shifts and the Conservatory groans, sending a vibration that ripples through miles of vaulted galleries, the Keepers pause. They do not communicate; there is no language in a place where nothing changes. Yet, they possess a collective memory. They know of the "Outside"—that frantic, ephemeral layer of existence where things grow quickly, age rapidly, and perish into noise. They regard the Conservatory as the final, perfect solution to the chaos of being.
+
+To an outsider, the Keepers are horrifyingly indifferent. They will pass through a living creature as if it were nothing more than a distortion in the current, their cold, jelly-like bodies absorbing the heat of the visitor’s life without malice, without hunger, and without curiosity. They simply harvest the biological vibration of the intruder, smoothing it out, dampening it until the visitor’s pulse slows, their heartbeat falters, and they drift into the same, eternal rhythmic grace of the garden.
+
+They do not protect the Conservatory; the Conservatory needs no protection. They are the maintenance staff of a tomb, ensuring that the stillness remains undisturbed until the end of entropy itself. They are the only things in the deep that understand that true peace is not the absence of sound, but the total elimination of expectation.

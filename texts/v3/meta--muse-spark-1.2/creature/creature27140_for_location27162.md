@@ -1,0 +1,45 @@
+Nothing lives here the way you thought something would live here.
+
+At first you think the answer is *nothing*. That's what the emptiness tells you. The chamber is so ostentatiously hollow — that perfect, cathedral void in the middle, air you can walk through without brushing a single leaf — that it feels uninhabited. Like a house with no furniture. The beetle is too slow to count, the moth is a smudge of dust that happens to breathe. The cut-and-braided roots are old news, visitors' work, not residents' work. Whoever made them left.
+
+Then you stay a minute longer than a visitor should, and you realize you made the same mistake you made with the walls. You thought the walls were *covered* in plants. Then you understood the walls *were* plants.
+
+You thought the plants were *in* a place. Then you understand the plants *are* the place. And the place is alive.
+
+It does not live here. It *is* here.
+
+It is one thing. Not a jungle, not a colony, not an ecosystem that happens to coincide inside a crack. One organism, one body, turned inside-out.
+
+You have to unlearn counting. You want to count vines, leaves, mosses, succulents, as if they are separate. They aren't. The thigh-thick corded vines that arch like ribs are not trees. They are the primary limbs — the structural arms — of a single lithophyte that germinated in the dark when the basalt split. The rock is young and sharp because it is *younger* than the thing that broke it. The seed — if it was a seed — fell into a hairline fault when the lava was still cooling, swelled with the first rain that ever found that fault, and pushed. It did not fill a cave. It *made* a cave by insisting on being hollow. Rock fractured around it in conchoidal plates because that was the only way rock could get out of the way.
+
+What lives here is a hollow organ. A lung. A bladder. A throat that learned to keep itself open.
+
+If you put your hand against one of the great rib-vines and hold still long enough for your own pulse to stop being the loudest thing, you feel its pulse. Not a heartbeat. A hydraulic tide. A slow peristalsis that starts somewhere deep behind the leaf-wall — behind meters of densely packed photosynthetic flesh where no light should reach — and heaves forward. *Rush — pause — creak — rush.* Sap rising under terrible pressure, water being hauled hand-over-hand from root-hairs that have licked their way into microfissures in the basalt, up through the ribs, out into the blanket-leaves to be breathed. You hear it as sound before you feel it as vibration. That low wet rush in a giant's ear. Then the whole wall shivers. Leaves adjust. The drips syncopate.
+
+It breathes. Not metaphorically. Stomata on the underside of ten thousand leaves open and close together, and the chamber inhales. You saw it happen when the wind crossed the crack — every hanging root swayed *inward* at once, the light dimmed a fraction. It was not wind moving the roots. It was the organism inhaling through its only mouth — that jagged seam to the sky — drawing down hot dry surface air, cooling it against wet waxy interiors, stripping the moisture from it, exhaling it again as fog. The air that hit your face when you knelt at the lip and first felt it — warm, damp, loud — was its breath.
+
+It has no eyes. It has no face to turn toward you. It has no need for either because it has something better: light as a nervous system.
+
+You thought the weird light was strange. Now you see it is the organism thinking.
+
+The uppermost leaves — the ones that actually touch real sun at the crack's edge — are its receptors. They catch photons and do not use them where they fall. They shunt them down translucent veins, fiber-optic phloem, distributing brightness to where it is needed. A leaf deep on the shadowed floor glows from within because it was *sent* light. The double shadow under your hand, the one that lags half a second behind, is latency. The signal bouncing through living cable. When a vine tip sniffs the air and inches toward the center, it does so because a patch of interior leaf has just been lit from within, calling it. The whole interior is a slow, green thought made of sun.
+
+That is why shadows fall upward. That is why a water droplet can detach, hover, drift sideways. The organism is not *breaking* gravity and optics. It is *growing* its own little pocket of rules and insisting on them. Inside its rind, five or six feet deep of densely interwoven living matter, physics is polite but negotiable, because space itself was grown, not found. The right-angle root growing unsupported in mid-air is not a trick. It laid down air as scaffolding and then grew along it. The far end of the chamber looks farther when stared at because the organism hasn't decided how big it wants to be in that direction yet; in your peripheral vision you catch its true, smaller, more honest size.
+
+And everything grows inward. That is its only law and its whole ethic. Leaves face the void. Roots quest toward empty humid air. Even the succulent sheets that look like they should seal the chamber pulse faintly *inward*, sweating condensation toward the center. It keeps itself empty on purpose. The emptiness is not absence. It is the organ's function. It is a catchment, a still, a lung-alveolus. It holds open a volume of damp air so that when true rain comes — that sudden vertical stutter that hammers through the crack — every surface can drink at once. Water never pools because pooling would be waste. A drop bead on moss is passed to a waxy leaf, to a hanging root tip, to a vine channel, hand to hand, until it is stored or transpired. It drinks rain the way a throat drinks.
+
+It is young. That is the most unsettling thing once you understand its scale. The basalt is still sharp, still conchoidal, because this thing is perhaps fifty, perhaps a hundred years old. A baby, in geological time. An adolescent that has already learned to pry rock apart and bend light. The creak-pop of a leaf unfurling in real time, the pale questing vine tip you watched move while you held your breath — that is not the slow growth of a forest. That is the fast, urgent growth of something that knows it has to get big before the next season's crack seals or shifts.
+
+It is aware, but not the way an animal is aware. There is no brain behind the wall. The awareness *is* the wall. Distributed, diffuse, vegetal. It noticed you the way a tongue notices a seed. Not as predator, not as prey. As *novelty* in the central void. As a warm, salty, transpiring object that is temporarily part of the empty air it so carefully maintains.
+
+That's why the root touched you.
+
+That thin aerial root, no thicker than string, that brushed your shoulder and paused and curled — it wasn't trying to grab. It was doing what all its other rootlets do: measuring humidity, light, chemistry. Tasting your sweat for salt, your exhale for CO2, your skin for heat. Deciding if you were rain, or sun, or detritus, or something to be gently moved around. When you stepped back, it let go without resistance because you are not useful to it and not threatening to it. You are weather. You will pass through, like the vertical shower, and be gone. It will heal over the place where you stood — not with scar tissue, but with new condensation.
+
+The primitive hands understood this. They did not worship it. They *pruned* it. The clean angled cut, the braid still weeping clear sap and capped with singed sap to stop growth — that's horticulture, not butchery. They came down the way you did, sideways and dropping, harvested a length of living rope that is stronger than any fiber they could grow on the surface, braided it while it was still alive so it would hold shape, cauterized the end so the organism would seal and not die. The organism let them. Or rather, it didn't have a concept of *not* letting them. A haircut. It will heal in a day, overgrow the braid if they don't come back.
+
+If you stayed — really stayed, a night, two nights, breathing its fog, letting condensation bead on your arms until your skin felt like another waxy leaf surface — it would not eat you. It has no mouth in the center. It would, slowly, without malice, begin to grow around you. Not to trap. Just to close the void, because a void is inefficient. A leaf would unfurl over your boot. A root would find the warmth of your back and decide it was a good trellis. The light would pipe itself onto you because you are a surface in the middle of its empty, and everything grows toward the empty.
+
+You step back toward the jagged line of real sky. The chamber creaks, drips *tok tok tok*, inhales. A new leaf somewhere behind you finishes unscrolling with a soft pop.
+
+It will still be here when you are not, breathing warm damp air into a crack in a hot pan of stone, holding open an emptiness so perfect it feels like a room that was built for you, waiting for the next rain to swallow whole.

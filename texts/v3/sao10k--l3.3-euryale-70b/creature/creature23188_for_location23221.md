@@ -1,0 +1,7 @@
+The living denizens of this mystifying land have adapted to the perpetual otherworldliness around them. Their structures, built with materials local to this dreamy place, seem to grow organically out of the ground rather than being constructed. Walls of luminous moss cover houses, and streets are rough-hewn water-smoothed rock. The buildings, if they can be called that, blend into the misty surroundings, as if they've been projected onto the landscape.
+
+People dress in flowing, hooded robes made from the same shiny material as the river rocks. Their gowns catch the ambient light, making them seem structureless, just hints of violet and miridedi for a second before vanishing back into the haze. It is normal for two strangers who glance at each other for too long to immediately change color, although confirming this is something of a challenge.
+
+People walk by sliding along just above the surface of the ground without disturbing it. They use a viscous mode of transportation to boost their range, which looks to shift around its mass when smelled, afterward emitting a bit of a giant blunder like merchandise from another decade.
+
+People gather in town to drink at a public fountain. This pooled water has a various odd taste from one time to an other. It tastes like a small detergent, something yeasty and a little sweet. Not knowing the cause or medical safety of these flavor variations is possible. Some individuals have been sickened yet none succumb to this so inexplicably infatuated demand.

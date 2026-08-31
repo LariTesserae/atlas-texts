@@ -1,0 +1,11 @@
+In this surreal, nightmarish pocket of reality, a being defying classification makes its home. Neither animal, plant, fungus, nor microbe, the entity is a throbbing, pulsating mass of protoplasmic matter that adheres to the porous volcanic rock like a obscene growth. 
+
+Amorphous and ever-shifting, its form flows like thick liquid, extruding pseudopods and reabsorbing them, splitting and merging with itself in a ceaseless, churning ballet. The creature's translucent flesh glows with the same eerie bioluminescence that permeates its environment, lit from within by some arcane metabolic processes. Veins of that strange glowing mineral run through its gelatinous body like fiery networks of nerves.
+
+The entity feeds upon the teeming colonies of microorganisms coating the walls of the chamber, absorbing them into its mucilaginous bulk. It extrudes millions of microscopic feeding tendrils, ensnaring its prey and drawing them back into itself. Digestive processes take place within its semi-transparent form, dimly visible like the workings of some profane living factory.
+
+Pulsing waves of color and patterns of glowing bioluminescence flow across its surface, mesmerizing and disorienting to behold. These rippling displays serve as the creature's only mode of communication - though with what, an observer could hardly fathom. At times, the patterns intensify and synchronize with the shimmering lights dancing along the veins in the rock, the two seeming to engage in some indecipherable exchange.
+
+The very presence of this entity warps the fabric of spacetime within the chamber, its uncanny metabolism and alien energies causing the air to ripple and distort. Pockets of denser gas and shimmering heat-haze drift around its pulsating form, drawn inexorably into orbit. The creature seems to warp and elongate as tendrils of its matter are pulled outward, only to snap back into cohesion an instant later.
+
+This aberrant entity is a being out of time, an unfathomable intelligence evolved along a path incomprehensible to terrestrial life. In the churning, superheated depths of the planet's crust, it has found a niche that suits its utterly alien biology. Thriving in conditions that would annihilate more familiar organisms, it exists at the very edges of material existence, dancing along the knife-edge of a reality twisted beyond easy comprehension.

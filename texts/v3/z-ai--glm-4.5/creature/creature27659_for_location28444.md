@@ -1,0 +1,19 @@
+To call them "living" would be a biological inaccuracy, yet to call them "inanimate" would be a failure of perception. They are the Vitreous—the animate dust, the silent shepherds of this static ruin.
+
+They are not distinct entities in the way that a wolf or a man is distinct from the air he breathes. Here, the air *is* the entity. The Vitreous exist as colonial intelligences within the suspended volcanic glass. For the most part, they are invisible, a potentiality scattered across the violet-grey atmosphere. But when they choose to coalesce, they do so with a terrifying suddenness.
+
+First, the air dims. A patch of the bruised light loses its luminance as billions of glass particulates lock their magnetic orientations, sliding against one another with a sound like a drawing breath. They form shapes that defy biology, favoring instead the cruel geometry of the plateau. A Vitreous manifest might appear as a perfect, silent tetrahedron hovering inches above the basalt, or a spire of jagged dust that mimics the fractal crystals growing from the cracks. They have no faces, no limbs, no sensory organs as we understand them. They are simply concentrations of order within the chaos.
+
+They "feed" on the tremors.
+
+When the "re-fatigue" of the space causes the basalt tiles to click together, sending that sharp, lonely echo across the void, the Vitreous descend. They swarm the epicenter of the sound, not to consume it, but to stabilize it. They act as a microscopic mortar, pouring their fluid, glass bodies into the widening cracks of reality. They sacrifice their cohesion, melting back into a fine powder to plug the gaps in the universe's firmware. In this way, they are the antibodies of this dying timeline, endlessly healing the geologic scars of a world that is trying to fall apart.
+
+Their relationship with the crystalline growths is symbiotic, but predatory. The silicon ferns hum with their high-frequency energy—a waste product of computing the decay of the environment. The Vitreous are drawn to this tone. They wrap their dust-bodies around the crystal lattices, siphoning the vibration. When they do, the crystals dim, their "blooming" process arrested for a moment as the energy is bled off into the collective mind of the dust. It is a slow, parasitic embrace. The crystals compute the entropy; the dust eats the calculation.
+
+Occasionally, near the central monolith, one might see a "General"—a configuration of the Vitreous that has achieved critical mass. These are vast, towering aggregations, the size of a cathedral, standing motionless before the scrolling lights of the great machine. They do not interact with the monolith physically. They simply *resonate*.
+
+The monolith counts the seconds until the end; the General Vitreous sing those seconds back to it. The dust-beings vibrate at a frequency that creates a standing wave in the air, a hum so low it is felt in the marrow of one’s bones rather than heard by the ears. They are maintaining the operating system of the pocket, a living, breathing firewall made of pulverized stone.
+
+They do not notice an intruder. To the Vitreous, a human being is merely a large, wet sack of inefficient chemical reactions, a source of heat and moisture that offends the sterile dryness. If you were to walk among them, you would not be attacked; you would be *maintained*. The air around you would grow thick as the dust attempts to "fix" the anomaly of your body heat, trying to seal your pores and crystallize your sweat, turning you into a static, permanent part of the museum. They are not malicious; they are merely custodians. They are preservationists, and in a place dedicated to the preservation of a dead moment, everything must eventually be turned to stone.
+
+They are the ecology of the pause. They wait in the air, they eat the tremors, and they ensure that nothing ever, ever changes.

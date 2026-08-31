@@ -1,0 +1,33 @@
+The white, hair-like lichen that carpets the plate-striders is more than an opportunistic hitchhiker; it is the binding thread of the entire chimney. Known in the unspoken grammar of this vertical world as **the felt-network**, its pale filaments do not merely sit upon the gray carapaces—they search out the microscopic fissures in the basalt-crusted shells, weaving through one plate-strider and into the next. 
+
+Because of this, the vertical crawl of the striders is not a collection of individual journeys but a single, massive, suspended tapestry of jointed stone and live fiber. The lichen acts as a safety-harness. If a plate-strider loses its grip on a razor-sharp edge of basalt, it does not plummet into the blackness; it hangs, dangling by several thousand high-tensile threads of white silk, until the slow, rhythmic contractions of its neighbors drag it back against the wall. The lichen is the water-bearer, the anchor, and the nervous system of the rift. When a tectonic shudder rattles the mountain, the vibration travels through the felt-network like an electric current, prompting a coordinated, wave-like tightening of millions of iron claws against the rock face.
+
+But where there is such dense, sluggish life, there must be those that harvest it. 
+
+Creeping along the edges of the unstable slate bridges are **the Bellows-hides**. These are the primary predators of the chimney, though "predator" implies a speed they do not possess. They are blind, six-legged organisms about the size of a hounds-skin, but flat and flexible, with a hide that has the texture of wet, oil-cured leather. They have no teeth or claws. Instead, their heads taper into a hard, triangular bone-wedge, like a mason’s chisel. 
+
+A Bellows-hide hunts by detecting the tension in the felt-network. It slowly works its way toward a plate-strider that is isolated or old, slips its bone-wedge nose beneath the rim of the mineralized shell, and anchors its rear feet into the basalt. Then, it begins to pump. Using a pair of muscular, air-bag lungs along its sides, it draws in the cold, damp air of the chimney and compresses it, forcing it into its snout. Over several hours, the pressure builds. With a wet, metallic *shump*, the compressed air pops the plate-strider off the rock face, tearing the connecting lichen-threads. 
+
+The dislodged plate-strider falls. Because the walls are so narrow and divided by the natural slate bridges, the fallen creature rarely drops far before smashing against a terrace. The Bellows-hide then descends at its leisure, using its leathery belly to slide down the vertical rock face, to feed on the exposed, sulfur-grey pulp of the shattered strider.
+
+On the flat terraces below these hunting grounds, a different kind of life takes root. These horizontal shelves, built from the slate-flakes wedged by the plate-striders, catch all the detritus of the chimney: the dead lichen, the crushed shell-fragments, the condensation, and the greasy iron-dust.
+
+In these shallow, freezing mud-pools live **the Iron-marrows**. 
+
+They are the only soft-bodied creatures in the rift, looking like massive, pale-grey grubs, the color of raw lard. Their skin is thick and coated in a cold, antiseptic mucus that keeps them from being torn to ribbons by the surrounding shale. The Iron-marrows have no eyes, but their mouths are ringed with hard, black ring-teeth made of concentrated silica. They graze on the "slate-paste" that accumulates in the terraces, digesting the mineral-loving bacteria and the fungal spores that thrive in the wet dust. 
+
+The relationship between the plate-striders and the Iron-marrows is the cornerstone of the rift’s industry. The plate-striders drop stone-flakes and detritus; the Iron-marrows eat the debris and excrete a dark, heavy, fast-setting mineral cement. This cement catches the next layer of falling slate, gluing the unstable bridges into permanent, solid stone floors. Without the Iron-marrows, the terraces would collapse under the weight of the climbing striders; without the striders’ masonry, the Iron-marrows would have no pools of silt to live in.
+
+Higher up, hanging from the undersides of the slate bridges where the moisture hangs in heavy drops, are **the Chime-cones**.
+
+These are small, sessile mollusks that look like inverted, slate-grey church bells, no larger than a child’s fist. They have no eyes or legs; they are glued to the ceiling of the bridges by a foot of solid calcium. From the center of each cone hangs a long, crystalline needle of pure quartz. 
+
+The Chime-cones are acoustic parasites. The deafening, metallic roar of the plate-striders—the constant grinding of claw on basalt—vibrates the air so violently that the quartz needles inside the cones begin to strike against their hard, bell-like shells. This produces a high, clear, ringing tone that cuts through the low-frequency rumble of the rift. This ring is not a song; it is a physical filter. The vibration of the Chime-cones creates small pockets of localized pressure in the air, which causes the microscopic, wind-blown spores drifting down from the summit to drop out of the air current and settle directly onto the slate bridges—providing a constant harvest of food for the Iron-marrows and the young plate-striders waiting below.
+
+At the very bottom of the chimney, where the vertical rift narrows until the walls are barely two feet apart, the atmosphere changes. Here, the air is so heavy with iron-fumes and grease-slick dampness that it is difficult to breathe. The sound of the master-grind above is muffled, converted into a deep, bass thrum that vibrates the soles of your feet.
+
+Here live **the Fused-ones**.
+
+These are the ancient patriarchs of the plate-striders. They are six feet across, their segmented plates no longer grey and mobile, but thick, black, and grown over with centuries of basalt flow and mineral deposits. They have stopped moving. Over five hundred years, their shells have literally bonded with the mountain, cold-welded to the basalt walls by the mineral-rich condensation.
+
+They are no longer entirely animal. They are living protrusions of the mountain itself. Their legs have withered into solid, anchoring stone roots; their mouthparts have fused into the rock-face to suck the iron-rich water straight from the veins of the crust. Yet, they live. If you press your hand against the wet, cold basalt of their backs, you can feel it: a heartbeat. It is a slow, wet shudder, occurring perhaps once every twenty minutes, a tiny, buried drumbeat that tells the rest of the chimney that the mountain is still alive, and still holding its breath.

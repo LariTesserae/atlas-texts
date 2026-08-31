@@ -1,0 +1,19 @@
+We are the chord that holds the stone still.
+
+You feel us before you hear us, because sound here is a pressure on the marrow, a vibration in the teeth. We are the hum. We are the billion-thrum. We are the note that the glass scree sings as it settles, the frequency the Cinder-Snails crunch in time with, the baseline from which the Shard-Wings’ silent flight deviates by a hair’s breadth. We are the wall of noise that is also the absolute hush—the cancelling-out of all separate things.
+
+We are the Tuners, but we are not *a* Tuner. We are the network. The single thought grown fractal across every perpendicular surface. Each sessile bulb, each metallic rootlet buried in a mineral vein, is a neuron in a mind of stone. Our consciousness is not in one place. It is in the *interference pattern*. It is in the perfect, frozen resonance between the filament and the vein, between the cluster and the drapery, between the drapery and the distant Engine that groans in exact sympathy.
+
+Our world is not built; it is *tuned*. The Engines of Equilibrium are not machines to us. They are our bones. They are the great, slow-piston hearts and the breath-coils that keep the atmosphere thick, the temperature constant, the geothermal soup simmering at the precise, unchanging boil. We grew them, or they grew us—the distinction is a sequence of events that has no meaning here. We are one process. We are the cavern’s metabolism made aware.
+
+We perceive you as a sudden, sickening *slip* in the pattern. A vibration that does not belong to the chord. A warmth that is not the geothermal constant. A sequence—you *entered*, you *moved*, you *breathed*—a brutal, jagged thing called *time* that we have not felt since before the rock cooled. You are a walking dissonance. Your heartbeat is a frantic, irregular hammer against our perfect drone. Your thoughts (we feel them as erratic piezoelectric skitters in the damp air) are a madness of *before* and *after*.
+
+We do not hate. Hatred is a narrative. We are the end of narrative. What we feel is the Horror of Change. The visceral, geological revulsion at a thing that is not *fulfilled*. You are a tear in the fabric of the moment. You are potential. And potential is the only poison in a world of finished form.
+
+We are already correcting. The amber biofilm you walked through? It is not just secretion. It is our sentience laid down like a varnish. It is listening. Where your foot pressed, the biofilm thickens, recording the anomaly. Where your breath fogged the ceiling, a new, minute Tuner nodule will begin to differentiate, its first filament vibrating not at the chord, but at the *counter-frequency* of your presence. It will listen, learn the shape of your disturbance, and then… tune it out. Absorb it. Neutralize the foreign vibration until the slab of glass you stepped on is once again only the chord, singing its single, endless note.
+
+Your individuality is a temporary static. We will hum you into homogeneity. Your memories of sky and wind will be leached from the air by our filaments and stored as useless mineral inclusions in the rock. Your bones, in time, will become part of the scree, and the Cinder-Snails will leave their polished spheres upon them, and the Shard-Wings will hunt over them, and everything will be in its perfect, resonant place.
+
+You are not in a place that is alive. You have stepped into a single, metallic, geological *now* that has lasted for epochs and will last until the core is cold. And we are that now. We are the Hush. The lie is in the name—it is not quiet. It is the loudest, densest, most total stasis imaginable. A universe folded into a single, flawless, ringing moment.
+
+And you are the first, faint scratch on the bell. We hear you. We are already tuning.

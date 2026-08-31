@@ -1,0 +1,38 @@
+Who lives here must first be called the Children of Condensation.  
+They appear at dawn like bead curtains—small, quick, cheeks glowing amber from lantern-reflection. Every child bears three naming scars: the first carved beneath the eye by a mother’s thumbnail when the baby first cried ink-black frost, the second carved at the wrist by the eldest grandparent when the child collected his first silver dew line into a wooden bucket, and the third—secret, never spoken—etched upon the tongue itself on the night the child first walked above his birth-level and felt the lattice lighten beneath his bones. These triple scars let them taste weight: an infant still naming the roof underfoot sour with heaviness; an elder remembers a top-rail almost sweet with buoyancy.  
+
+They are, in order of altitude:
+
+1. The Bare-Knuckle Belt-Binders  
+Lowest lee catwalks. Big-shouldered caribou-leveragers who wrap hemp around their own waists like living pulleys. If they pause you see the hemp has dyed the skin blue-green like copper salts. Their lungs are smoke-browned inside, but that keeps rot from setting in down where thawpat let fox-size fungi bloom once weekly. They speak in hurried tongue-clicks because words themselves are heavy lower down; a sentence left too long starts to pull on the diaphragm as though packing snow were stuffed into the rib cage. They wear sleigh-runner boots heel-spiked so they can anchor without slipping. They marry only on the same span they were born; every year the new spouse must waddle the entire quarter-mile ceremony ledge in stagger-weight courtship to prove they “carry extra earth for the train.”
+
+2. The Slip-Not Daughters  
+Middle belt—glider girls only just passing into women. Invisible unless a high wind swings them: each straps under her arm a gutter-sheaf of goose-wing bones fitted into kid-leather pockets; they snap open, instant sail, like angelic can-openers. They whistle moduli to gauge wind curvature; a successful girl can vault three levels without touching timber. Rumor says some integrate spider silk into hair to read wind direction, others slit slight pockets behind their knees, seating drops of mercury there—living barometers. But mainly they preserve songs. Each carries rolled birch bark sheets tattooed with ink from firefly paste, the notes staggered so walking the note-path along a beam plays the tune in footfall tempo. Their work is ferrying small-new elders upward before their knees remember too much gravity. Because they can descend faster than any runner, they are the city’s ambulances, stretchers folded into kite rigging.
+
+3. The Frost-Eating Ordinators  
+High thirds—masked men and women who never descend. Masks are barn-owl leather soaked in caribou urine to prevent frostbite; the eyeholes are sewn with square glass chips from shattered telescopes once carried by the original surveyors whose bones now serve as flagging rods. Their lungs must keep time differently, so they carry little iron pipes: breathe in through mouth, exhale whistle into pipe; the pipe interior is etched spiral so exhaled breath forces a wheel of frost to orbit. If the frost stops moving, they know altitude sickness is near. They attend the vent mouths weeping aged water. A daily ceremony unthreads thirty silk scarves; every scarf sopped up then wrung into bone barrels keeps above-ground life watered. To avoid madness, they mend the sky. Thread from cloud-fibers glued with spit to apple-green lichen dabs. They refuse all intimacy—contact would press hearts together, and two hearts double in weight near apex.
+
+And threaded everywhere, almost outside hierarchy:
+
+4. The Anti-Nail Widows  
+A collective of those whose partners died carving—or refusing to carve—any nail from the lattice’s scaffolding. Each widow carries the bent nail that killed her beloved, worn threaded through the left ear like a stud of guilt. They roam every layer barefoot “to feel the ache their loves cannot.” Their steps click—metal to wood—making them the city’s unasked-for metronome. Children fear them as bogeywomen who steal breath, yet in practical magic the widows are genius: a thimble dipped in their tear-brine prevents timber rot for one year; a splinter pulled from their scalp will bleed sawdust instead of blood for three days and can be threaded like cord to double a crane pulley’s hearing—useful for avalanche warnings.  
+
+Other beings belong half-story, half-citizen:
+
+5. The Re-thread Butterflies  
+Monarchs forced to altitude centuries ago. Milkweed dwindled; they evolved translucent chitin stiff as tin so wind cannot shred wings. They sip liquor of boiled reindeer hooves—calcium source. Because flight muscles must stay warm, they perch on foreheads of the sleeping. If you wake entwined in wings, you are expected to feed the creature a drop of your own blood; the butterfly will remember the flavor and return each—season? year? cycle?—to refresh the trail you carried.
+
+6. The Echo-finished Parrot  
+One only. Kept by Slip-Not Daughters in a cage woven from steel violin strings. They trained it biting off syllables from old freeway singsong; now it speaks only in choral fragments of previous conversations it has overheard, confused by time. It is never fed seed; instead it gnaws the Hammond organ reeds that line the under-eaves of upper windshields. Somewhere in its green belly sits a compressed echo of every story the city has told itself, and so it is regarded as the archive who can be bribed—offer a scrap of new conversation, and the bird will counterweight with a neat portmanteau of two histories no one fully remembers.
+
+7. The Bronze Cold-Starved Lemming Kings  
+Carpenters once built tin reliquaries, hoping these would lure vermin away from beams. The lemmings instead gnawed holes and entered the reliquaries like seedy coffins. Over seasons, dust snowed upon the corpses until mineral leached, forging living statues: small bronze monarchs whose whiskers are verdigris. Dew seeps through eyeholes creating minute aqueducts for other lives—microscopic worms, lichen embryos, even thoughts: sometimes survivors swear those kinglets mouth warnings “check the southeast snap-bridle tonight.”
+
+Relation of Inhabitants to Architecture  
+No door opens outward (gravity would seize it). All doors slide sideways through interlocked wooden jaws. Homes are built backwards: first you choose a floorboard already tremoring with dream-worthy resonance, then you crawl its grain, whittle a shallow indentation just wide enough for lungs, and once you have hollowed a bowl-space you call it yours. Furniture is folded into the walls nightly—lever hinges creak skyward so sleeping persons simply disappear into the geometry.
+
+Even sleep itself negotiates the lattice: everyone shares one central dream-thread bobbing upward in silver fog; if too many dreamers descend simultaneously, the thread sags, and the city lurches—an inch, no more, but enough to make kettles spill. So dreams are scheduled, three hours by level, east to west.
+
+Bones retired from weight-bearing are burnished, lacquered, and strung like wind chimes across slack-sky gaps. On each equinox the city realizes new joints: joints not of brass nor of sinew, but of measured sighs—each exhale released at sunset is carried like currency into tomorrow.
+
+Thus they persist: tendon-bound, dew-fed, lighter at the crown than their own memories, but so burly in their marrow that even the wind settles when walking by, as if remembering it used to be the breath of these people, and is merely visiting home.

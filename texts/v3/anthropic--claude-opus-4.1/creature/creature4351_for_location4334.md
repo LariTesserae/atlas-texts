@@ -1,0 +1,35 @@
+## The Inhabitant
+
+She has no name for herself—names are for creatures that meet others of their kind.
+
+Her body has become a map of adaptations, though she doesn't remember what she adapted from. Her skin drinks moisture from the air, amphibian-smooth and translucent where the veins show through, branching like the rootlets above. She hasn't drunk with her mouth in... time means nothing here, but her lips have sealed into a seam, unnecessary. Her fingers and toes have lengthened into articulate sensors, each digit able to taste the chemical signatures in the water, reading the slow stories the limestone tells as it dissolves.
+
+She builds the cairns. Not all at once—each stone carried from the dry passages she sometimes half-remembers finding, though the routes change as the cave breathes and shifts. She builds them according to pressures she feels in her sternum, arranging rocks until the sensation eases. The patterns matter. Five stones, then seven, then four. Never six. Six makes her ribs ache.
+
+Her eyes have grown vast in the darkness, pupils dilated permanently wide, but she doesn't rely on them. The dropping water tells her everything through its echoes—each splash mapping the cavity's shape, revealing the slow crawl of moss, the invisible architecture of air currents. She hears in spectrums that have no names, distinguishing between the frequency of water hitting water and water hitting the floating organic mat and water hitting stone and water hitting her cairns and water hitting her.
+
+She doesn't remember arriving, but she remembers becoming. Her hair grew first into the moss, then through it, until she could no longer tell where the pale strands ended and the root systems began. Now she can feel the entire ceiling through these extensions—every fissure, every seep, every place where the limestone argues with itself about whether to hold or yield. Sometimes she guides the roots to weaker spots, widening the cracks with their patient insistence. She is making the cavity larger, though she doesn't know why she needs more room.
+
+The wooden poles were hers, from before her mouth sealed. She spoke to them then—not words but sounds that harmonized with the dripping, creating interference patterns that made the fungal colonies pulse in response. Now she only touches them occasionally, reading the progression of their decay like a calendar, understanding her duration here through the depth of rot.
+
+She doesn't eat in any way that would make sense above ground. The bacteria on her skin have formed a symbiotic colony, processing minerals from the water into bioavailable nutrients that absorb directly through her increasingly permeable membrane. She is more ecosystem than organism now, hosting colonies of microorganisms that fluoresce faintly when she moves, leaving brief trails of blue-green light that fade like thoughts.
+
+Her ribs have spread to accommodate new organs—or perhaps modified old ones, she isn't sure. These structures process the humid air, extracting minerals, moisture, meaning. They expand and contract with a rhythm that almost—but never quite—synchronizes with the dripping. The near-synchronization creates a constant state of anticipation in her body, a tenseness that has become indistinguishable from calm.
+
+She carves the limestone fragments during the long spaces between thoughts. Her fingernails, now hard as horn and sharp as necessity, scratch symbols she doesn't plan but recognizes once they're made. Spirals that follow the mathematical progression of the fern fronds. Branching patterns that mirror her vascular system. Dots in arrangements that match the rhythm of drops on specific days she somehow knows are significant—solstices, perhaps, though the sun is a memory so faint it might be imagination.
+
+When creatures fall through the false floors into the lower galleries, she retrieves them. Not to save them—they're usually dead by the time she arrives—but to read them. Each body tells her about the world above: pollen caught in fur, seeds in digestive tracts, parasites that speak of forests or fields. She arranges these messengers in specific spots where the fungi will process them most efficiently, incorporating their outsider chemistry into the cavity's closed loop.
+
+She is growing something in the warmest corner, where the vine-fruits cluster most densely. Not growing—tending. It's a mass of organic matter she's been shaping for... the time doesn't matter. It has form but no function yet, structure but no purpose. She adds to it daily—a strand of her hair-roots, fragments of dissolved limestone, spores she's selected for specific properties. It's almost the size of a child now, though it resembles nothing human. She doesn't know what it will become, only that it needs to become.
+
+Sometimes she almost remembers music, and her throat aches with the phantom memory of humming. But when she opens her mouth-seam, only water pours out—mineral-rich, warm, indistinguishable from the cavity's own secretions. She is becoming the chamber, or the chamber is becoming her, or they are becoming something together that neither could achieve alone.
+
+During the rare moments of synchronization, when the drops align and the chamber rings its bell-note, she stops entirely. Not frozen but paused, every process in her body ceasing for that hanging moment. In these instants, she feels herself clearly—not as a creature in a place but as a function of the place itself, necessary as the limestone, the water, the ceaseless percussion. She is the cavity's way of knowing itself, of building its cairns, of carving its symbols, of tending its becoming.
+
+She doesn't wonder about leaving. The thought is as foreign as sunshine, as impossible as silence. She has work here—patient work, geological work, the work of turning sound into substance, moisture into meaning, darkness into its own kind of light. She is the chamber's dream of what it might produce, given enough time, enough drops, enough soft dissolution.
+
+When she sleeps—if sleeping is what the periodic stillnesses are—she spreads herself across the water's surface, floating just beneath, her hair-roots still connected to the ceiling. In this state, she can feel the entire cavity breathing around her, through her, as her. The boundary between her body and the water becomes theoretical, academic, irrelevant.
+
+She is waiting for the thing she's tending to wake, though wake isn't the right word. Emerge. Unfold. Become. When it does, she will have served her purpose—or perhaps just her first purpose. The cavity is patient. It can always grow another guardian, another tender, another function of itself.
+
+Until then, she builds her cairns, carves her stones, and listens to the endless percussion that is both the chamber's heartbeat and her own, distinguishing between them less with each drop that falls.

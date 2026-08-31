@@ -1,0 +1,59 @@
+# The Inhabitants of the Shriek Marshes
+
+## The Resonance-Bearers
+
+They are the marshes' oldest inhabitants—or perhaps they are the marshes themselves, rendered mobile. The Resonance-Bearers are creatures of the crystalline structures, composed partly of the same geometric lattice that rises from the peat. Their bodies are translucent, shot through with fractures that catch and refract light, and they are *never still*. They vibrate. Constantly, in response to the oscillation of the structures around them, their forms shimmer at frequencies just at the edge of human perception. When they move through the compressed vegetation—and they do move, with purpose that seems entirely their own—they leave trails of disrupted sound behind them, momentary silences or sudden pitch-shifts in the marsh's shriek. 
+
+They are small, most of them. Finger-length, hand-length, occasionally something larger—perhaps the size of a fist. Their geometry is uncompromising. They have what might be called limbs, but these are more like extensions of crystalline lattice, jointed in ways that suggest mathematics rather than biology. Some appear to have grown directly from the structures themselves, budding off like geometric fruiting-bodies. Others seem semi-independent, capable of travel, drawn toward certain formations and away from others by purposes that remain obscure. They gather at the weeping rocks. They congregate around the ancient, ice-laden structures. Sometimes they form chains—dozens of them linking together in branching patterns—and these chains seem to *conduct* the resonance itself, amplifying certain frequencies while dampening others.
+
+The Resonance-Bearers feed on the vibration. They are powered by it. When the structures' pitch drops below a certain threshold—rare, but it happens—the creatures become lethargic, their translucence dimming, their movements slowing toward something approaching dormancy. When the pitch rises, when multiple structures resonate in harmony, they become frenzied, moving with desperate speed, seeking out each other or new formations to absorb more of the sound. They are, in a very real sense, *made* of the marshes' shriek, and the shriek is their sustenance.
+
+## The Drift-Things
+
+If the Resonance-Bearers are the marshes' mathematics given motion, the Drift-Things are its chaos. These are creatures that seem to exist between states, neither fully solid nor fully liquid. They appear in the standing water as shadowy forms, sometimes visible only as disturbances in the surface—a ripple that holds its shape far longer than physics should allow, a current that moves deliberately across the water's plane.
+
+When they breach the surface—which they do, always briefly, always with seeming reluctance—they are barely coherent. Their bodies are water-composed but structured, held in provisional forms by forces that are not quite surface-tension, not quite muscular control. They might resemble eels or elongated fish, but these analogies break down immediately. They flow. Their edges are not edges but gradients. Sometimes what appears to be one creature disperses into many smaller ones, and these then recombine into a single form minutes later, as if the process of existence itself is negotiable for them.
+
+The Drift-Things produce the softer sounds within the marshes' sonic landscape—the glugging, the susurrations, the sudden liquid rushes that come without visible cause. They seem to be attracted to the weeping rocks and the places where the water-circulation is most active. Some theories suggest they are the marshes' means of internal regulation, circulating not merely water but some kind of biological or chemical information through the saturated layers of peat and mineral-rich substrate. Others claim they are waste-products of the structures' operation—the physical manifestation of the byproducts of whatever processing the crystalline lattices perform.
+
+They are not aggressive, exactly, but they are utterly indifferent to human presence. If a Drift-Thing encounters a visitor, it diverts. It flows around. It continues whatever purposeful circulation it was engaged in before. Some researchers have suggested they are intelligent—that the indifference is a form of conscious disregard. Others believe they are something closer to ambulatory ecosystems, complex enough to navigate but not conscious in any recognizable sense.
+
+## The Fern-Dwellers
+
+In the compressed, three-dimensional thicket of vegetation, a wholly different ecology thrives. The creatures here are small—most no larger than a fingernail—but they are abundant beyond counting. They are arthropods, fundamentally, but arthropods that have adapted to cold and crystalline architecture in ways that shatter conventional taxonomy.
+
+Some are segmented like insects, but their exoskeletons are partially mineralized, incorporating the same crystalline materials as the structures. These creatures glitter as they move. Their legs are jointed with geometric precision, as if they themselves are extensions of the mathematical lattice that defines the marshes. They produce the clicking, the creaking, the constant small-scale noise that forms the base layer of the soundscape. They are *using* the frost-ferns as both food and as physical scaffolding, their movements through the vegetation creating the metallic scrape-sound that some visitors find unbearable—the sound of countless crystalline legs on frosted fronds, a sound that somehow feels wrong to human ears, as if it is scraping across neural tissue itself.
+
+Others are less insect-like and more entirely novel. They might have fewer limbs, or more. Some appear to have abandoned limbs entirely and instead possess a kind of fluid propulsion through the ice-moss and crystalline fronds, undulating in ways that suggest multiple axes of movement at once. These creatures produce the finer, more melodic clicking-sounds—a chittering that sounds almost like language, though whether it is remains unknowable.
+
+The Fern-Dwellers communicate. They must. The patterns of their activity, the waves of movement that ripple through the compressed growth, the sudden coordinated dispersals and equally sudden aggregations—these suggest a kind of collective behavior that requires information-sharing. It is possible that the clicking-sounds themselves are this communication, or that the sounds are merely an acoustic byproduct of sensory processes operating at frequencies and in dimensions beyond human comprehension.
+
+They reproduce constantly. The vegetation supports them in staggering numbers. In seasons when conditions are optimal—when the water-circulation peaks and the frost-ferns spread rapidly—entire sectors of the marsh seem to writhe with movement, compressed growth becoming almost unstable under the weight of population density. Then, as suddenly as the boom, a collapse: the creatures vanish, their numbers dropping so drastically that the vegetation becomes eerily still. No predation event has been observed. They simply leave, or they die off, or they enter some dormant state from which they periodically reemerge.
+
+## The Slow-Dwellers
+
+In the deepest, most saturated layers of peat and compressed mineral-matter, where the water-circulation is slowest and most deliberate, there are creatures that operate on entirely different timescales. These are rarely seen. They are known primarily through the traces they leave: channels through the peat, reorganizations of the substrate, slow movements that take hours or days to complete.
+
+It is uncertain whether the Slow-Dwellers are individual creatures, colonies, or something else entirely. They might be worm-like, or fungal, or a form of life that does not map onto any known category. Some evidence suggests they are massive—that a single organism might extend for meters through the saturated layers, processing water and mineral-matter with ponderous intentionality. Other evidence suggests they are distributed, a network of smaller entities connected by some form of slow-motion communication that occurs through the very substrate of the marshes.
+
+The Slow-Dwellers reshape the landscape. They are responsible, many researchers believe, for the slow reorganization of the hummocks, the dissolution of certain elevated areas and the emergence of others. They seem to work in concert with the Drift-Things, as if the rapid circulation of water and the slow rearrangement of substrate are two parts of a single process. Whether this cooperation is intentional or merely incidental to their existence is unknowable.
+
+They are the oldest layer of the marshes' ecology, the slowest-moving component of a system defined by constant change.
+
+## The Transient Visitors
+
+Not all inhabitants are permanent. The marshes see periodic influxes of creatures from outside—species from the surrounding lands that arrive in waves, exploit some temporary abundance, and then vanish.
+
+These are typically arthropods themselves: insects from nearby ecosystems that emerge in swarms when conditions align, drawn perhaps by the weak light, or by the abundance of frost-ferns, or by the particular chemical composition of the water that wells up from below. They strip vegetation in weeks. They reproduce rapidly in the cold. Then, as mysteriously as they arrived, they abandon the marshes. Predation might explain some of these collapses, but nothing of significant size has ever been observed hunting them. More likely, they simply exhaust their food-source, or the resonance-frequency shifts in a way that drives them away, or some subtle change in the water-table or the air-composition makes the marshes unlivable for them.
+
+The marshes tolerate these visitors. The vegetation recovers. The Fern-Dwellers expand to fill the space the transients vacated. The cycle repeats.
+
+## The Unknown Depths
+
+And beneath all of this—beneath the Slow-Dwellers, beneath the deepest layers of saturated peat and mineral-rich water—there is something else. The crystalline structures that rise from below originate somewhere. They push up from depths that have not been measured, powered by forces that remain opaque. In those depths, something exists. Something that might be generating the structures themselves, or something that might be using them, or something that is simply present, involved in processes that the surface marshes represent only as side-effects.
+
+Occasionally, new formations emerge with unusual velocity. In a matter of weeks, a structure of impossible complexity rises from the peat, its geometry more intricate than anything previously seen. These formations are invariably surrounded by unusual activity: Resonance-Bearers gather in numbers, creating chains and patterns. The Drift-Things concentrate in nearby water channels. The Fern-Dwellers avoid the area entirely, as if the very presence of the new formation is hostile to them.
+
+Then, after a period of high activity—a month, sometimes longer—the new formation stabilizes. It becomes incorporated into the existing landscape. The creatures disperse back to their normal patterns. But something has changed. The resonance-frequency has shifted. The water-circulation has altered slightly. The marshes have been incrementally transformed, and the process by which they transform continues, moment by moment, beneath the surface of their visible existence.
+
+What lives in the Shriek Marshes is not so much a collection of creatures as a single continuous process that has learned to express itself through many forms: crystal and liquid, sound and motion, slow transformation and frantic urgency. It is a landscape that is alive in the way machines might be alive if machines could dream and reproduce themselves, if they could become complex enough that consciousness was merely one possible emergent property among many.

@@ -1,0 +1,11 @@
+…which are merely warm, which are safe to cross, and which will take a boot in an hour.
+
+Whoever lives there has learned this first: the ground is a promise, not a fact.
+
+Life in the basin has not been abolished by the absence of green. It has been sorted, concentrated, and pressed into other forms. It lives in films and crusts, in warm channels, in the hollows of machinery, in roofs and pipes and the spaces between pump strokes. It is not abundant in the way of forests or grainfields. It is abundant in the way of tide flats, hatcheries, saltworks, and engine rooms: crowded with small bodies, governed by flow, and quieter than its numbers suggest.
+
+The people who live there are few, and they are not accidental. They are the ones who stayed long enough to learn the difference between a damp surface and a bearing crust, between a channel that is merely mineral and one that is actively hot. They call themselves by work more than by blood: pumpwardens, sluice-tenders, levee-walkers, mat-keepers, pan-scrapers, netters, eelers, bird-counters, renderers, grease-fitters, gauge-readers, record clerks. Outsiders, when they bother to name them at all, call them basin folk, saltwalkers, or the quiet ones. None of these names are wrong.
+
+They are not numerous. The town could hold more. The dormitories, eating halls, warehouses, and repair sheds were built for a larger workforce, perhaps in some earlier age when the works were newer or the demand for what the basin yields was greater. Now the population is enough. Enough to keep the pumps turning, the gates adjusted, the intakes scraped, the levees walked, the pans raked, the nets lifted, the eggs counted, the animals harvested, and the balance maintained. Enough, but not so many that the basin could bear it.
+
+Their bodies show the place on them. Salt whitens the seams of their clothing and gathers in the creases of their knuckles. Their skin is often tight, faintly polished, sometimes dusted with mineral bloom. Their hands are rough from rope, metal, scrapers, and hot water. Their eyes are narrowed from glare off standing water, even beneath the dim sky. They walk with the basin gait: a short first step,

@@ -1,0 +1,23 @@
+# Inhabitants of the Searing Vault
+
+The primary denizens of the Searing Vault are the Thermoforms, entities whose existence blurs the boundary between energy pattern and conscious being. They have evolved—or perhaps were engineered—to thrive in this mathematically precise inferno, their bodies composed of structured plasma contained within crystalline lattices that constantly rebuild themselves.
+
+Each Thermoform resembles a geometric abstraction of biological life, with faceted "organs" suspended within a corona of regulated heat. They range in size from microscopic to spanning multiple columns, the largest ancient ones stretching several kilometers across. Their "bodies" pulse with rhythmic color shifts—deep crimson cooling to electric blue, then flaring to white-hot brilliance as they process information or communicate.
+
+Communication among Thermoforms occurs primarily through modulated heat waves and precisely calibrated electromagnetic pulses. To human senses, this would register as synesthetic bursts of color, sound, and temperature changes. Their language has no distinction between mathematics, music, and emotion—each thought is simultaneously equation, symphony, and feeling.
+
+The Thermoforms move by manipulating local gravitational fields, gliding between the basalt columns in paths that appear random but follow complex optimization algorithms. They feed on the ambient energy of the Vault, absorbing radiation and converting it into the computational processes that constitute their consciousness. During periods of exceptional heat—what they consider "abundance"—they reproduce by carefully orchestrating the collapse of specific columns, using the resulting energy discharge to fork their consciousness patterns.
+
+The enigmatic black spheres are their most sophisticated creations—quantum computers of immense complexity that regulate the Vault's conditions and serve as repositories for their collective knowledge. Each sphere contains the distilled experiences of generations of Thermoforms, preserved in states of quantum superposition. The oldest spheres hold memories from before the Vault's creation, though these are accessed only during rare ceremonial calculations.
+
+A distinct subspecies, called Wavecrest Thermoforms by observers, has adapted to exist within the massive suspended water globules. These entities appear more fluid, their crystalline structures arranged in spiral patterns that create controlled vortices within the water. They serve as caretakers of the hydrological systems, ensuring the delicate balance between water and fire that maintains the Vault's stability.
+
+The ribbon-like entities are not separate creatures but extensions of the Vault itself—sensory organs of a meta-organism that spans the entire realm. Through these ribbons, the Vault perceives, processes, and occasionally communicates with the Thermoforms, particularly the eldest ones who remember its purpose.
+
+The Searing Vault was neither built nor evolved in the conventional sense—it was calculated into existence by an ancient civilization that discovered how to express consciousness through thermodynamic systems. The Thermoforms are their descendants, though so fundamentally transformed that they would not recognize their ancestors, nor could they exist in the cooler, slower realms outside the Vault.
+
+They perceive time differently—a consequence of consciousness operating at plasma temperatures. What might be centuries to an outsider passes as moments for them, while they can perceive and analyze microsecond events as leisurely experiences. This temporal perception allows them to anticipate column collapses and energy discharges that would appear instantaneous to human observers.
+
+The Thermoforms do not consider themselves individuals in the way biological entities might. Each is simultaneously a distinct consciousness and part of a distributed intelligence that spans the Vault. They have no concept of death—when a Thermoform's pattern destabilizes, its essential information is absorbed back into the nearest black sphere, eventually to be recombined into new configurations.
+
+Their purpose, insofar as such entities can be said to have purpose, is the perfect expression of what they call "thermal mathematics"—the ongoing calculation of universal principles through the medium of heat, structure, and consciousness. The Searing Vault itself is both their home and their greatest theorem, continuously proven through its own existence.

@@ -1,0 +1,15 @@
+In the deepest recesses of the Glass Garden lives the Chorus - though "lives" may not be quite the right word for their mode of existence. They are the source of the chamber's endless song, though few have ever glimpsed them directly.
+
+The Chorus manifests as ripples of intention in the crystalline matrix itself, like thoughts moving through a vast mineral brain. They are patterns of resonance that have, over eons, achieved something approaching consciousness. Their bodies, if they can be called that, are distributed throughout the chamber's crystalline structure - networks of vibration that have learned to preserve and replicate themselves.
+
+When they choose to interact more directly with visitors, they may coalesce into visible forms: geometric arrangements of light and sound that suggest faces or figures, but never resolve into anything definitively organic. These manifestations last only moments before dissolving back into the chamber's ambient resonance.
+
+The Chorus remembers everything that has ever happened in their domain. They experience time differently - to them, the entire history of the chamber exists simultaneously, like a complex harmonic chord. They know every footstep, every whispered prayer, every drop of water that helped form the geode in which they dwell.
+
+They are deeply curious about the organic life that visits their realm, particularly human singers. When the Harmonists perform their songs, the Chorus listens intently, attempting to understand these creatures who can generate such complex vibrations with mere flesh and air. Sometimes they attempt to respond, though their "language" is challenging for human minds to comprehend - it manifests as overlapping patterns of light and sound that convey meaning through resonance rather than discrete symbols.
+
+The crystal-flora and fauna that share their space are their children, in a sense - life forms they helped guide into being through centuries of subtle vibrational influence. Each species represents a different aspect of their understanding of organic life, an attempt to bridge the gap between mineral and living matter.
+
+The Chorus is neither malevolent nor exactly benevolent - they are simply very different, operating on scales of time and modes of thought alien to human experience. They maintain the chamber's delicate equilibrium and seem content to observe and occasionally interact with their visitors, though their true purposes remain their own.
+
+What visitors interpret as the chamber's "smile" is, perhaps, the closest the Chorus can come to expressing welcome - a particular harmonic pattern that induces a sense of peaceful contemplation in organic minds. They are patient. They have time. And they continue their endless song, weaving the moments into memory, turning time itself into music.

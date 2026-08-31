@@ -1,0 +1,31 @@
+The Tender of Stones makes her home here, though "home" is perhaps too settled a word for what she has become to this place.
+
+She arrived decades ago—or was it centuries? Time moves differently in the chamber's eternal twilight. A volcanologist, originally, following thermal readings that made no sense, squeezing through that weeping crack with instruments that have long since fused into the walls. But the chamber changed her, as it changes everything that lingers.
+
+Her skin has taken on the quality of wet leather, constantly slick with mineral perspiration that matches the chamber's own. It has darkened to near-black at her extremities, where years of contact with the obsidian walls have begun a slow transformation. Her fingers end in nails of volcanic glass—not grown but accreted, layer by microscopic layer, until they've become perfect tools for scraping mineral deposits and crushing stone scarabs into paste.
+
+She moves through the chamber on all fours now, her spine having curved to match the tube's contours. Her knees and palms bear thick pads of calcified skin, clicking against the stone with a rhythm that mimics the scarabs' own percussion. The creatures part for her like a living sea, recognizing her as neither predator nor prey but something more fundamental—a feature of their landscape that happens to move.
+
+Her hair, once human-fine, has become something between strand and filament—thick cords that trap moisture and channel it down her back in constant rivulets. These pseudo-dreads have developed their own ecosystem: colonies of the phosphorescent fungi fruit along their length, giving her a crown of wan, shifting light. Thermal mites nest in the warmer spots near her scalp, their tiny bodies processing her sweat into nutrients the fungi can absorb.
+
+She no longer speaks—the superheated air long ago scarred her throat into silence—but she sings in harmonics with the chamber's sounds. Her humming matches the frequency of the thermal surges, her clicking tongue echoes the scarabs' movements. She has become the chamber's voice, translating its mineral language into something approaching music.
+
+Her shelter is less construction than collaboration. In one of the deeper alcoves, she has trained the scarabs to build structures from their own shed carapaces and volcanic mud. They craft her bowls for collecting condensation, raise low walls to channel the thermal flows, even form crude furniture from their cast-off shells. In exchange, she cultivates gardens of the sulfur-fungi, ensuring diverse strains that the scarabs prize.
+
+The Tender's daily rituals follow the chamber's rhythm. During the steam surges, she presses herself into a particular depression in the floor—one that fits her body perfectly after years of use. As the mineral rain falls, she extends all her limbs, letting the droplets course over her skin, washing away the accumulations of the previous cycle. The scarabs climb over her during these times, cleaning her as they would a favored stone, their mandibles gentle and precise.
+
+She feeds on a diet that would poison any surface dweller. Sulfur-fungi ground into paste with rainwater. Stone scarab eggs, soft and mineral-rich. The occasional thermal salamander, caught and cooked on the superheated vents until its flesh becomes a crystalline jelly. She has learned to extract nutrients from the chamber itself—licking certain rocks for their salt, chewing others for trace metals her transformed body craves.
+
+Her greatest work is the Map. Across one entire wall, she has trained the scarabs to create an ever-evolving sculpture of the chamber and its surroundings. They build it from their own bodies and secretions, a living model that shows every thermal vent, every water flow, every minute shift in the mountain's structure. She reads it by touch in the phosphorescent twilight, her glass-nailed fingers tracing patterns that predict when new cracks will form, when surges will come, when the deep sources might shift.
+
+The abandoned tools near the entrance were hers, from a time when she still thought in terms of "research" and "departure." Now they're just another mineral formation to her, no more significant than any other stone. She has better tools now—scarab warriors she can direct with a click of her tongue, fungi she can cultivate to dissolve specific minerals, her own body that has become perfectly calibrated to the chamber's needs.
+
+Sometimes, in the depths of a particularly violent surge, memories surface of the world above. Sunlight. Wind that doesn't taste of sulfur. Voices that aren't made of stone-whispers. But these fragments dissolve as quickly as they form, incompatible with what she has become. The woman who entered this chamber is gone, her proteins reorganized, her bones dense with volcanic minerals, her mind rewired to think in geological time.
+
+She is the Tender of Stones, and she tends. When new cracks threaten the chamber's stability, she directs the scarabs to seal them with their secretions. When the fungal blooms grow too aggressive, she harvests them back to balance. When the thermal salamanders overpopulate, she thins their numbers. She maintains the equilibrium of this tiny world, this pocket of impossible life in the mountain's burning heart.
+
+And in return, the chamber tends to her. It provides her food, shelter, purpose. It has made her into something that can survive—thrive—in conditions that would kill her former self in minutes. She is no longer human in any way that matters, but she is profoundly alive, profoundly necessary.
+
+The chamber breathes, and she breathes with it. The chamber pulses, and her heart keeps time. She has become its consciousness, as it has become her body. Together, they persist—a hybrid thing of flesh and stone, a successful experiment in extremophile evolution.
+
+When she dies—if something like her can die—the scarabs will process her body as they do everything else, incorporating her minerals into their structures. Her patterns will persist in their behaviors, her cultivations will continue to fruit, her Map will keep growing. She will become fully what she already is halfway: a permanent feature of this hidden world, a ghost in the stone that tends itself forever.

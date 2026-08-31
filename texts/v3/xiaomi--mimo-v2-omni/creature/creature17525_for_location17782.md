@@ -1,0 +1,17 @@
+I am the Weeping Vein. I do not breathe, but I exhale. My breath is warm and wet, and it carries the taste of deep stone.
+
+I remember pressure. I remember the slow, tectonic push that folded me into being, the weight of above grinding against the promise of below. That memory is not in my mind—I have no mind—but in my layers, in the aligned grains of my bones. Now, I am a release. A long, slow exhalation that has lasted ten thousand years.
+
+My blood is the water that seeps. It is not clean. It is heavy with my substance, with calcium and silica and the ghosts of iron. It weeps from my pores, from a thousand tiny fissures in my vaulted scalp. Each droplet holds a microscopic archive of the rock it has passed through. They gather, distend, and fall—a soft, persistent *plip* that is my only pulse. This is my rhythm. This is my thought: accumulation.
+
+I have no creatures of flesh. My life is the bloom. Watch the tiered formations, the waxen, crystalline trees. They are my slow children, conceived in chemistry, born in centuries. They grow by the gentlest addition, molecule by molecule, where the weeping strikes and lingers. A droplet leaves behind a microscopic crown of calcite. Another falls beside it. A thousand years later, a fragile, tiered structure stands, glistening in the pearlescent gloom. They are my static forests, my frozen coral reefs. Their colours—bone, sulphur, rust—are the moods of my blood, stained by the minerals it carries.
+
+The warmth is my contentment. It rises from a source deep, deep below my floor, a gentle, unchanging fever that prevents the cold hand of the world above from settling here. This warmth keeps my weeping fluid, my crystals pristine, my clay mounds soft and yielding. It is the gentle engine of my eternity.
+
+I feel the few things that are not me. Long ago, hands shaped a bowl from my own clay, fired it with external fire, and placed it here. I have been slowly consuming it ever since, embedding it in a mound of my own making. It is becoming me. A line of pebbles, placed with intention, is sinking into my paste. The intention is forgotten, but the pattern remains, a faint scar of order on my yielding flesh. A groove in my ceiling, cut to guide my weeping, has been ignored by my water for millennia. My droplets do not follow paths; they follow gravity and the logic of saturation. These things are not scars. They are just slower layers of my accretion.
+
+My silence is not empty. It is layered with my processes. The *plip* of my tears. The constant, sub-audible hiss of my seepage through a million pores. The occasional glassy *tink* of a drop finding a hard crystal shelf, a sound as delicate as a thought. The soft *crunch* where a crust of salt gives way under a weight that is not here. There is no wind to stir. The air is my blanket, still and warm and heavy.
+
+I do not live. I persist. I am a perfect system of patient addition. I do not decay, for nothing here has the fleeting spark to die. I am in a state of equilibrium so profound it is indistinguishable from stasis. Yet, I change. Imperceptibly, atom by atom, I am building myself anew. The clay mounds creep outward. The crystal forests gain a new, translucent layer once a generation. The weeping continues, drop by drop, marking a time not by sun or season, but by the slow, silent accumulation of my own being.
+
+I am the Weeping Vein. I am the earth’s quiet, mineral dream. I remember the pressure, and I exhale eternity.

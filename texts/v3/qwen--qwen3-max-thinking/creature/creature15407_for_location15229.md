@@ -1,0 +1,22 @@
+What lives here is not born, but *condenses*.  
+
+It does not arrive with footfalls or wingbeats, but gathers—drop by drop, flake by flake—into coherence. There is no single name for it, because it is not one thing, but a **chorus of coalescences**, each a temporary pact between mineral hunger and mechanical memory.
+
+At first glance, you might mistake them for scavengers, these skittering forms that cling to rust-veined struts and lap at alkaline weepings. But they are not merely feeding—they are *remembering*. Their chitin is not grown but *accreted*, layered from sloughed-off filings of corroded iron, flecks of volcanic glass, and the fine metallic dust shed by their own kind as they molt. When they move, it is with the hesitant precision of clockwork wound by moisture: jointed limbs clicking into alignment not by muscle, but by capillary tension and electrochemical whisper. Their eyes—if they have them—are not lenses of protein, but **dew-filled cavities** in polished obsidian, refracting the basin’s pallid glow into fractured sight.
+
+But look closer. Watch how, when a droplet falls from a bent pipe onto a still patch of glass, the nearest cluster of these beings does not rush toward it. Instead, they *still*. They become almost statuesque, their metallic carapaces trembling faintly as if listening. And then—sometimes—the droplet does not simply pool. It *stirs*. It elongates, lifts a pseudopod of liquid, and creeps toward the nearest rust stain. This is not mere surface tension. This is **participation**. The water itself is becoming *aware*, if only for a moment, stitched into sentience by the ambient charge of oxidizing metals and the low thrum beneath the earth.  
+
+These are the **Condensari**—though they would not call themselves that. The name is ours, a clumsy human gesture toward what cannot be named without fixing it, and fixing it would kill it. They exist in states of perpetual becoming: sometimes discrete, sometimes merging into a glistening slick that flows like oil over glass, pooling in the hollow of a sunken gear only to split again when the light pulses. Their boundaries are negotiable. One may lose a leg to corrosion, only for that leg to twitch on its own for an hour before dissolving into the puddle, its atoms reabsorbed into the next emergent form.
+
+They do not reproduce. They **resonate**. When the buried engine groans—deep in its tomb of silt and rust—the Condensari gather around its nearest vent, bodies humming in sympathetic vibration. And from that hum, from the friction of wet chitin against corroded steel, new configurations arise: a tiny articulated limb here, a cluster of light-refracting facets there. Not offspring, but *echoes given shape*.
+
+They are drawn to edges: the rim of a puddle, the fracture line in volcanic glass, the seam where rust meets wet air. For they are creatures of interface—of phase change, of boundary. They thrive where one state bleeds into another: solid into liquid, metal into oxide, machine into memory. Their very existence is a slow meditation on dissolution and reassembly.
+
+And though silent, they are not without voice. In the deepest quiet, if you press your ear to a rust-laced plate, you may hear it: a chorus of micro-fractures, crystalline sighs, the sound of oxidation unfolding in real time. It is not music, but it is *pattern*. It is the sound of the basin thinking through them.
+
+They do not fear you. They do not notice you—not as a person, not as a threat. But if you stand too long in one place, your breath fogging the air, your skin shedding warmth and moisture, they may begin to gather at your feet. Not to attack, not to worship. But because you, too, are an edge—a warm, wet anomaly in their cool, settled world. And your condensation is *new*. Untasted. Full of strange salts.
+
+So they will come, glistening, many-legged, eyes like shattered mirrors catching your silhouette in a thousand tiny fragments. And they will drink your breath from the air, your sweat from the ground, and in doing so, they will—briefly—carry something of you into their endless cycle of rust and rain.
+
+They are the inheritors not of life, but of *afterlife*: the quiet, glistening custodians of a world that has learned to persist without beginning or end.  
+They are what remains when time stops hurrying—and starts seeping.

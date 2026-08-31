@@ -1,0 +1,27 @@
+The inhabitants of the Verant Sink do not walk so much as they *drift* through the vertical density of their home. They are the **Veranti**, a people who have become as translucent and deliberate as the frost that defines their world. 
+
+To look upon a Veranti is to see a study in archival adaptation. They are tall and attenuated, their limbs elongated by generations of climbing and reaching through the marrow-wood thickets. Their skin is not white, but a pale, opalescent grey—so thin that the slow, rhythmic pulse of their veins is visible beneath the surface, tracing violet maps across their chests. They possess no hair; instead, their scalps and brows are covered in a fine, sensory down that shivers at the slightest change in the "weight" of the surrounding light.
+
+Their eyes are their most striking feature. Because the Sink is flooded with a perpetual, shadowless noon, the Veranti have evolved oversized, lidless pupils that have hardened into dark, obsidian-like lenses. They do not blink. To blink would be to miss a signal, a vibration, or a shift in the crystalline air. They see not in colors, but in gradients of intensity and "texture." To them, a wall of bone-wood is not a solid object, but a complex tapestry of light-refraction.
+
+### The Silent Society
+The Veranti live in a state of communal intimacy that would be unbearable to an outsider. Because the city is a single, braided organism, privacy is not a concept of space, but of stillness. When a Veranti wishes to be "alone," they simply cease all movement. In the Sink, to be motionless is to be invisible. 
+
+Their social structure is a **Liturgy of Maintenance**. Since the city is "finished," their entire culture is dedicated to the prevention of decay. They are master carvers and menders. You will see them perched on the high, bulbous boughs of the bone-wood, using small basalt needles to stitch cracks in the living bark with threads of spider-glass. They move with an agonizing, lepidopteran slowness, their fingers vibrating at high frequencies to melt the rime-ice just enough to fuse materials together.
+
+They are the keepers of the **Vibrational Syntax**. If you were to press your ear to the trunk of a bone-wood tree, you would hear the true "voice" of the city: a constant, low-thrumming hum. This is the Veranti at work. They communicate by tapping the wood with resin-coated thimbles. A sharp, staccato pulse might be a greeting; a long, low resonance that lasts for minutes is the telling of a history. Because the air is too heavy and damp for efficient speech, their vocal cords have withered into vestigial ribbons. When they do breathe out, their sighs are heavy with the smell of mint and minerals, but they make no sound.
+
+### The Fauna of the Crevice
+Sharing this vertical thicket are the **Silt-Moths**, creatures the size of lapdogs with flat, saucer-shaped bodies covered in a pelt of white, oily feathers. They do not fly so much as they suction themselves to the undersides of the pod-houses, moving with a rhythmic contraction of their many-toed feet. The Veranti treat them as both livestock and companions; the moths exude a thick, phosphorescent slime that is harvested in bone bowls to provide light for the few lightless hollows within the tree-trunks.
+
+Then there are the **Glint-Walkers**, multi-legged mammals that resemble a cross between a tarsier and a frozen root. They are the "cleaning crew" of the Sink. Their diet consists entirely of the silver rime that accumulates on the bone-wood needles. They move in a state of semi-catatonia, their metabolisms tuned to the same glacial pace as the trees. A Glint-Walker might take an entire week to migrate from one branch to another, its pale eyes fixed on some distant, unmoving point.
+
+### The Texture of Life
+Clothing among the Veranti is a matter of insulation rather than modesty. They wrap themselves in "wet-shrouds"—heavy, layered garments woven from the glass-like needles of the trees and the thick down of the Silt-Moths. These garments are designed to trap the body’s moisture, creating a micro-climate of warmth against the skin that never escapes into the "cold noon" of the Sink. When they move, they do not rustle; the fabric is sodden and silent.
+
+Their diet is as static as their environment. They cultivate **Mist-Galls**, pale, spongy growths that erupt from the crooks of the trees where the silver rime pools. These galls are rich in minerals and contain the heavy, viscous water of the Sink. Eating is a ritual of slow chewing, a communal act performed in the narrow capillaries of the city where groups of ten or twelve sit in a vertical stack, passing the galls from hand to hand.
+
+### The Final Equilibrium
+Death in the Verant Sink is not an exit, but a transition into architecture. When a Veranti’s slow-beating heart finally stops, their body is not buried—for there is no earth to speak of—nor burned, for fire is anathema to the damp, frozen air. Instead, they are bound to the trunk of a bone-wood tree with vines. Over decades, the tree grows around them, its translucent needles and white bark subsuming the form. 
+
+The city is literally built of its ancestors. The bulbous, aerodynamic shapes of the houses are often the result of centuries of bone-wood encasing those who came before. To live in the Sink is to be cradled by the dead, held in a bright, frozen, and eternal embrace. There is no grief, only the quiet satisfaction of a gear finally coming to rest in a perfect, unchanging machine.

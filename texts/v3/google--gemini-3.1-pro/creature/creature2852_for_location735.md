@@ -1,0 +1,35 @@
+To say that something "lives" here implies a separation between the creature and the environment, a distinction that this world long ago abandoned. The apex inhabitants of this brutal, high-altitude factory-floor do not merely walk upon the world; they are calibrated to it. They are the organic governors, the repair mechanisms, the immune response, and the melancholy sapience of the great machine.
+
+If you stood trembling in the freezing fog, covering your ears against the shrieking spiracles and the thudding pistons, you might not notice them at first. They are immense—often forty feet tall—but their coloration is perfect camouflage: the mottled gray-green of the ancient root-substantia, stained with oxidized amber and rimed in frost. 
+
+They are the **Resonators**.
+
+At first glance, their silhouettes evoke the nightmarish intersection of a praying mantis, a cathedral pipe organ, and a deep-sea crustacean. But they possess no exoskeleton, no bones, no chitin. Their vast, asymmetrical bodies are entirely *lignified*—constructed from hyper-dense, petrified wood-tissues and thick, flexible cables of black vascular moss. 
+
+A Resonator does not possess two identical limbs. They move on a constantly shifting array of seven to eleven jointed appendages, each specialized for the hellscape they tend. Some ending legs are massive, splayed dampeners made of spongy, shock-absorbing fungi, allowing them to glide silently across the vibrating, water-logged plains without shattering the thin ice. Other limbs are delicate, fractal arrays of prehensile twigs, twitching with such speed and precision that they blur. These fractional manipulators are designed to reach into the zones of unraveling physics—plucking the spiraling, reversed-gravity water-gears from the air just before they shatter, catching them to harvest their momentary rotational energy.
+
+They have no faces. In an environment of blinding fog and deafening, concussive noise, eyes and ears are liabilities. Instead, the "head" of a Resonator is a sprawling, concave dish of ribbed, acoustic folds, resembling immense, blackened oyster mushrooms or the flared bells of brass instruments. 
+
+This acoustic cowl is highly piezoelectric. They perceive the world not through light or sound, but through pure pressure gradients, structural vibrations, and electrostatic decay. They "see" the rhythm of the planet. Through the dim half-light, you can track their thoughts; their central nervous systems are entirely translucent, filled with the same thick, amber sap that powers the planetary hydraulics. When a Resonator thinks, when it identifies a spatial glitch or a stuttering piston, fierce blue sparks of bioluminescence arc inside its skull-dish, flashing down the length of its neck like lightning trapped in a glass tube. 
+
+Because they are born into a reality that constantly tears at its own seams, their biology has adapted to the glitch. The Resonators are semi-chronal. When the horizon skips and stutters like a broken film strip, they do not fight it. A Resonator can step into a fold of collapsed space and emerge three miles away, its huge, heavy body flickering past the iron-gray herds of ungulates like a dropped frame of reality. They exist in the microscopic stutter-spaces between the pounding rhythms of the world.
+
+And they are endlessly at work. They are the tenders of the agony.
+
+The world is a mechanical engine operating at a violent excess, constantly threatening to shake itself into a terminal thermodynamic meltdown. The Resonators are its dampeners. When a massive botanical engine begins to overheat—when its piston-sleeves bulge angrily and the sap lines scream under unmanageable hydraulic loads—the Resonators converge. 
+
+You can see them rising from the mist, drawing toward the crisis in groups of three or four. They wade through the boiling, kinetic vortices, ignoring the swarms of flat amphibians that splatter against their dense legs. They surround the malfunctioning planetary engine and physically embrace it. They latch their multi-jointed limbs onto the shuddering, towering wood-cylinders and open their acoustic cowls.
+
+They do not scream; they harmonize. 
+
+They vibrate their massive bodies at the exact inverse frequency of the malfunctioning machinery. It is a terrifying, beautiful act of biological engineering. You can watch the kinetic overload bleed out of the engine and into the bodies of the Resonators. Tremendous pressure transfers into them. The icy water pooling around their feet instantly flash-boils into steam, and the blue glowing fluid within their veins flares to an almost blinding, starry radiance. They physically absorb the lethal friction and spatial instability into their own tissues, acting as living heat-sinks, suffering the violent resonance until the botanical piston stabilizes and returns to its smooth, thudding rhythm. 
+
+There is an entire micro-ecology that exists solely upon their massive, walking frames. Tucked into the thermal vents beneath their shoulder-joints, where they exhale freezing white plumes of exhausted pressure, live swarms of tiny, metallic arachnoids. These "Tuning Ticks" scurry over the Resonators' bodies, feeding on the crystallized sap and ozone buildup, meticulously cleaning the fractional limbs of their colossal hosts. The Resonators pay them no mind, moving with a slow, deliberate grace that belies the explosive speed of the world around them.
+
+They do not build homes. They have no language, no leaders, no written history. Their entire culture, their art, and their duty are expressed as an endless, physical symphony of maintenance. They speak in localized gravity inversions and bursts of blue light.
+
+But they possess a profound, solemn awareness of their own impermanence. The friction eventually erodes them. A Resonator pulling too much kinetic energy from the world will eventually begin to splinter, its dense wood-flesh vibrating so violently that it becomes out of phase with reality. When one is too old to maintain the rhythm, it commits a quiet, mechanical suicide. 
+
+It does not lie down to rot. It walks to one of the colossal spinning fern-turbines, waits for the moment of peak rotation, and steps beneath the natural bearings. It allows the churning, hyper-chilled updrafts to strip its lignified armor away, rendering its massive body back down into fibrous dust, amber sap, and a final, spectacular burst of blue ozone, feeding its own spent mechanics back into the relentless engine of the world.
+
+To live in this place is to be a part of its terrible machinery. Under the bruised, dim sky, amidst the deafening roar and the grinding ice-gears, the Resonators walk the flooded plains like ancient, sorrowful gods—silent conductors keeping a broken world from tearing itself entirely apart.

@@ -1,0 +1,15 @@
+In this awe-inspiring and bewildering landscape, life has adapted in extraordinary ways to thrive amidst the chaos of sound, fluctuating physics, and harsh conditions. The primary inhabitants of this realm are beings known as the Resonants.
+
+The Resonants are entities that exist in a state between matter and energy, their forms shimmering and undulating like heat mirages. They appear as translucent, vaguely humanoid shapes, their bodies composed of intricate patterns of light that pulse in sync with the mountains' song. These beings range in size from a few feet tall to colossal forms that rival the mountains themselves.
+
+Resonants communicate through modulations in their own frequencies, adding to the complex symphony of the world. They possess a deep connection to the mountains, able to manipulate the sound waves to shape their environment, move across vast distances, and even alter the flow of time in localized areas.
+
+The Resonants live in harmony with the crystalline bird-like creatures, which they call "Echoes." These beings serve as extensions of the Resonants' will, acting as scouts and messengers across the vast mountain ranges. The shadow creatures, known as "Whispers," are actually young Resonants, not yet fully formed, flitting between dimensions as they grow and learn to control their frequencies.
+
+Scattered among the Resonants are the Discordants – beings that were once part of the ancient civilization whose ruins dot the landscape. These entities survived by fusing their consciousness with the remaining functional machinery. They appear as bizarre hybrids of flesh, metal, and energy, their forms constantly shifting as they struggle to maintain coherence in this altered reality. The Discordants seek to restore their lost world, often coming into conflict with the Resonants who have embraced the new order.
+
+In the highest reaches of the mountains, where reality becomes most malleable, dwell the Harmonics. These are ancient, godlike Resonants who have achieved perfect synchronization with the world's song. They appear as massive, fractal patterns of pure energy, their very thoughts capable of reshaping portions of reality. The Harmonics serve as guardians and guides, maintaining the delicate balance of this strange ecosystem.
+
+Amidst all these beings, small pockets of more recognizable life forms cling to existence. Communities of evolved humans and other sentient species have adapted to live in the most stable areas, developing technologies that harness the world's unique properties. These enclaves are rare and isolated, often hidden in vast cavern systems within the mountains, protected from the overwhelming sensory assault of the outside world.
+
+All of these diverse inhabitants are bound together by the eternal song of the mountains, their lives and destinies intertwined in a cosmic dance of sound and energy, forever echoing through the impossibly vast peaks of this extraordinary world.

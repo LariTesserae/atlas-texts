@@ -1,0 +1,16 @@
+What lives here is not a creature. It is a *condition*. It is the slow, humid, green-throated *process* of becoming-place.
+
+Think of it this way: the Grove of Resonant Fronds is not a habitat; it is a single, sprawling, continent-sized organism whose nervous system is a network of bioluminescent leaf-stalk vines and humming glass spires, whose blood is the tea-colored water in its shifting canals, whose bones are the fused stem-trees and the half-swallowed ceramic gears. And what lives in it is the **mind of that organism**, or rather, the faint, distributed traces of cognition that have precipitated out of its metabolism.
+
+This is not a consciousness like ours. It does not think in narratives or goals. Its thoughts are cycles and pressures. Its memories are mineral deposits and the healed scars where a root split a piston over three hundred years. Its personality is the collective sigh of a trillion cellulose fibers adjusting to the mist’s weight, the subsonic thrum felt in the teeth, the patient, yeasty smell of decomposition that is also creation.
+
+You might encounter it as a **patch of wilting moss-reed** that pulses in time with the distant fifty-cycle hum, a resonant node in a distributed network. Or as a **sudden, coordinated unfurling** of a dozen broad canopy leaves miles apart, a slow, deliberate blink of the Grove’s "eye" to optimize light for a buried spire. You might feel it as a **pressure change** in the air—a subtle deepening of the humid weight—when a major piston completes its monthly cycle and pushes a new equilibrium into the root-walls.
+
+The rare fauna—the blind slate-scuttlers, the gliding membrane-things—are not inhabitants so much as *symbionts*. They are like gut flora, or temporary sensory hairs. Their movements, their grazing, their silent drifting are part of the organism’s peripheral input. Their lifecycle is a brief, local fluctuation in the Grove’s vast, slow chemistry. They do not *have* a place here; they *are* a momentary function of it.
+
+The industrial relics are not artifacts to it. They are **organs that have forgotten their original purpose**. The great piston is a heart that now regulates water, not steam. The humming spire is a pineal gland, its electrical song coordinating reproductive cycles. The bone-white gear turning in the mud is a synaptic knot, its creak a slow, analog thought.
+
+To "live" here is to be part of this unthinking, geological mindfulness. There is no "who" at the center. The center is everywhere and nowhere—in the drip on a leaf, in the root splitting stone, in the brass oxidized to a specific blue-green patina that matches the moss growing on it. The life is the perfect, agonizing, ongoing act of assimilation itself. The world ate its machines, and in digesting them, it birthed a new, slow, green kind of soul—a soul made of patience, of integration, of the sound of a billion tiny things happening at once, and nothing ever happening at all.
+
+You are not *in* a place with inhabitants.
+You are *inside* the breath of a being that thinks in centuries and speaks in sighs. Its only desire is to continue. Its only language is the choral drip, the electrical hiss, and the deep, tectonic hum of its own, unending, becoming.

@@ -1,0 +1,39 @@
+# Inhabitants of the Standing Country
+
+You do not meet this place's people. You meet their absence first — a fire-ring, a rope bridge, a notch cut into a trunk forty years gone soft at the edges — and only later, if you are patient and quiet and lucky, do you meet what filled those absences.
+
+## The Canopy-Born
+
+Call them the *lash-folk*, because that is what travelers call them, lacking a better word and never staying long enough to learn the right one. They do not live on the ground. This is the first and most important fact about them — not as taboo, not as fear, simply as fact, the way a fish does not live on land. Their platforms are built three, four, five canopy-layers up, lashed into the forks of fused trunks with cordage they make from a fibrous vine that strengthens, rather than rots, with age and weather. A platform built a hundred years ago by a person's many-times grandparent is sturdier now than the day it was tied, the lashings having grown into the bark, the bark having grown around the lashings, so that wood and rope and time have become a single material.
+
+They are small in number — a family group might number a dozen, two dozen, scattered across a ridge-system the size of a small nation, in contact with neighboring groups only through the long resonant calls borrowed, consciously, from the foghorn-throated grazers below them in the mid-canopy. They have learned to mimic that call, or perhaps inherited the trick from ancestors who learned it so long ago the mimicry has become its own language, a set of held notes that mean *here*, *danger*, *fruiting*, *come*. Sound is their geography. They do not draw maps. They sing distances.
+
+Their bodies, over generations, have made small treaties with the climb: longer reach, harder palms, a particular economy of movement that outsiders mistake for grace and insiders would call simply *not wasting effort, because effort here is rationed by gravity*. They do not fall, mostly, because falling is the one mistake the Standing Country does not forgive twice.
+
+They eat little that requires killing. The forest hands them fruit, sap, the soft pith of certain aerial roots, insects taken in passing, eggs raided in careful rotation from nests they know individually, by name, the way a smaller country's farmers might know their fields. They keep no herds, plant no crops, in any sense a ground-dweller would recognize — their agriculture, if it can be called that, is a slow curation of which vines they encourage along which trunk, which fruiting growths they protect from competing growths, tending a garden so vast and so indistinguishable from wild forest that even they, asked, might struggle to say where the cultivation ends and the wilderness resumes.
+
+They are not many. They may be fewer with each generation — nobody among them keeps that count, or if they do, they have not said so to anyone who left to tell of it. The old platforms higher up, the ones the text below politely calls *unconfirmed*, the ones built by hands not quite like current hands — the lash-folk do not disclaim these stories. They simply do not discuss them, the way you do not discuss the dead at a wedding. Ask, and you get silence, and then, if you wait long enough and ask gently enough, a single sentence: *they were here before the trees decided to stay.*
+
+## The Callers
+
+Below the lash-folk's platforms, in the mid-canopy where the branch-roads run wide and pale-worn from generations of the same patient feet, move the great grazers — the makers of the foghorn-cello sound that gives the whole country its only long-distance voice.
+
+They are massive without being monstrous: broad-bodied, slow-gaited, built low and wide for stability on branches that would not bear a sharper, more vertical animal. Their hides have gone the color of bark and lichen both, mottled gray-green, and they move in groups of six to twenty, an unhurried tide drifting along the same worn paths their ancestors wore smooth across centuries, cropping the soft growth of the upper-mid canopy with wide flat mouths, leaving behind a trail of dung that the forest converts, within days, into its own small fungal cities.
+
+Their calls are not communication in any urgent sense — no warning, mostly, no alarm. They call to mark themselves as present, the way a held cello note marks a held cello note: *I am here, I am still here, the herd is still whole.* These calls roll along the ridgelines for kilometers, the only sound in the entire roaring country that travels that far without losing its shape, and every other creature — lash-folk included — has learned to use them as a kind of slow clock, a way of knowing where the herd has gotten to today, how far the day has worn on, how close to dusk.
+
+They have almost no enemies that can take a healthy adult. Predators take the calves, occasionally, in the gaps where a mother's vigilance lapses, and the herd's response to this — a closing of ranks, a lowering of great heads, a silence that is somehow louder than the call had been — is the only time the Callers seem less than entirely at peace with their country.
+
+## What Answers the Silence
+
+The predator is rarely seen and this is deliberate, on its part — not shyness but strategy. It reads as *absence* before it reads as *animal*: the held breath rippling outward through a stretch of canopy, birds going quiet in a widening ring, insect-drone dipping by some small fraction that only the most attuned travelers ever consciously register. By the time a sound or shape confirms its presence, it has usually already decided whether you matter to it, and acted accordingly.
+
+It is built for the in-between spaces — the cave-like hollow volumes beneath the canopy stack that look empty and are not always empty. Long-bodied, low-slung like the Callers but built for speed across a branch rather than weight-bearing across one, its coloring breaks itself into patches of light and dark that mean, in the coin-shaped dapple of the lower stack, that it simply is not there until it chooses to be. It hunts by patience in a country that runs on patience as its basic currency — waiting motionless through hours of insect-drone and bird-call, conserving the kind of stillness that the rest of the Standing Country's noise seems designed to make impossible, until something smaller or younger or careless passes close enough.
+
+It does not hunt the lash-folk, mostly, by some old mutual agreement that neither party has ever needed to formalize: they do not descend far enough, often enough, to be worth its patience, and it does not climb high enough, often enough, to be worth their fear. The agreement is not love. It is simply efficient unbothering, the same arrangement struck a thousand times over between any two things sharing a country too large and too loud to fight over.
+
+## The Unnamed Many
+
+Beneath and around and above all three of these — the platform-people, the slow callers, the patient hunter — move the uncountable others: gliding things that treat the ground as travelers treat the sea floor, theoretical and irrelevant; blind or near-blind foragers navigating the permanent dusk of the lowest stack by smell and echo and the memory of a thousand identical-feeling branches; insect cities humming in the high forks with a population that, gathered and counted, would outweigh and outnumber every vertebrate inhabitant of the Standing Country combined.
+
+None of them are the country's *point*, exactly, any more than the lash-folk or the Callers or the patient hunter are its point. The country has no point. It has only its long unbothered patience, its skin of green grown thick enough to forget the stone beneath, and the enormous accumulated roar of everything that has ever decided, against the overwhelming evidence of the mountain's indifference, to go on living here anyway.

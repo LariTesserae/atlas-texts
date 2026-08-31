@@ -1,0 +1,9 @@
+In the high, icy reaches of the Frozen Peaks, a hardy and resilient community of creatures endures amid the harsh, unforgiving landscape. 
+
+Huddled within the crevices and hollows of the jagged, wind-carved crags are the dwellings of the Hyborian, a race of burly, thick-furred humanoids adapted to survive the biting cold and howling winds. Their clawed hands and broad, stocky frames allow them to cling to the steep, treacherous slopes, while their keen senses and instinctive understanding of the mountain's rhythms guide them through the treacherous terrain. 
+
+Nestled among the sprawling glaciers and meltwater pools are the nesting grounds of the Aeroans, massive, leathery-winged reptilian creatures that soar on the turbulent air currents, their haunting cries echoing across the icy peaks. These ancient, primordial beings glide effortlessly through the dense, energetic atmosphere, hunting the elusive herds of tusked, shaggy-coated megafauna that graze on the hardy, lichen-like vegetation.
+
+In the deepest, most inaccessible crevices and caverns, a race of small, scaled predators known as the Thaxans lurk, their glittering eyes and sharp, venomous fangs ever vigilant for the unwary. These cunning, territorial hunters dart between the shadows, feeding on the smaller denizens of the Frozen Peaks, their presence often betrayed only by the faint scuttling of their clawed feet or the sudden, unsettling silence of the surrounding wildlife.
+
+Amidst this harsh, primal landscape, the various inhabitants of the Frozen Peaks coexist in a delicate, ever-shifting balance, each species playing a vital role in the complex web of life that has emerged in this extreme, unforgiving realm. For here, where the very forces of nature are in constant, dramatic flux, the ability to adapt, to evolve, and to thrive in the face of adversity is the key to survival.

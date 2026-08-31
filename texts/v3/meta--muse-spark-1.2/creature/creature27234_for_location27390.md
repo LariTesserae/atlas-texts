@@ -1,0 +1,43 @@
+They live like they are trying not to be noticed by the place they live in.
+
+At first you think no one lives here at all. That's the trick of it.
+
+You see the forty houses set so far apart in the moss, the swept stone paths, the cisterns full of cliff-water, and you think *abandoned*. Because nothing moves the way a living town should move. No smoke. No voices calling. No clatter. The ferns have already started to take the paths back.
+
+Then you hold still long enough that your own breathing starts to sound rude, and the town resolves.
+
+### The People
+
+They are human. Mostly. Enough that you recognize them, enough that the differences feel intentional rather than inherited.
+
+They are short, not from malnutrition but from generations of keeping low. A tall person would brush the hanging canopy with their head and disturb the light. Their chests are deep and broad for the thin air - when they breathe, you can see the whole ribcage expand, slow and deliberate, like bellows. Their skin is the color of the limestone that washes down in the drip, a bloodless grey-white, because the sun has never found them. Their eyes are disproportionate. Large, wet, amber or pale green irises with pupils that stay wide even at noon, to drink that thin, bluish dusk-light. Children stare without blinking.
+
+They go barefoot always. The soles of their feet are wide, calloused but sensitive, almost like hands. They read the ledge through them. The moss mat is a foot thick and it transmits everything - the slow peristalsis of something hunting underneath, the approach of a deer-thing, the tremor when a beetle lands. They walk toe-first, weight rolling outward, a gait that makes no vibration. If you watch an adult cross from one basalt house to another, fifty paces across living moss, you'll see them pause every four or five steps to listen with their feet.
+
+They don't speak often, and when they do it is not with sound. Their language has moved into light and touch. They cultivate patches of luminous fungus on their forearms and cheeks - a pale, flat lichen they graft to their skin when they are young. It glows when stroked. A mother will run two fingers down her forearm in a slow pulse to tell a child *stay*. Two quick flashes on the cheek means *come, water collected*. Lovers press glowing palms together in the dark. For anything more complex they use their hands in the hanging-tree light, in a sign language so subtle it looks like they are just flexing their fingers to keep warm. Their voices, when they must use them, are whispers pitched so low you feel them more than hear them. A child who shouts is taken inside immediately, not punished, but held, as if they've cut themselves.
+
+They are farmers, but not of anything you would recognize as a crop. They farm *surfaces*. They scrape the cliff-drip lichen off terraced basalt walls with bone shavers - a grey-green, protein-rich crust that doubles its mass overnight if you leave it alone. They farm the moss itself, not by planting it but by weeding it. Each household tends the empty buffer around its house, pulling out the carnivorous threads that rise like white nerves from the mat if left undisturbed. That emptiness between houses isn't emptiness at all - it's grazing land for the moss-predator, and the people let it hunt there. A house with a well-kept halo of cropped moss will never have a salamander in its pantry. A house that lets the halo grow shaggy will wake up to find its floor soft and hungry.
+
+They tend the inverted forest as priests tend lamps. The hanging trees are not wild to them. Each tree has a family. An old woman will stand beneath her tree for an hour, bare hands on its pale, cold bark, stroking upward against the grain until the vast translucent leaves above brighten from a tired pulse to a steady green glow. She is not making light to see by. She is asking the canopy to speak. When wind moves through and all the leaves dim at once, she dims with it. When they brighten, she reads the health of the condensation cycle, the presence of moths above, the mood of the cliff. The timber they use is only ever fallen branches - to cut a hanging tree would be like cutting a lung.
+
+They are intensely, deliberately sparse. Forty structures for maybe a hundred people, when the ledge could hold four hundred. They could cluster for warmth, for safety. They don't. Because the fourth rule is the only law: *everything that lives here is both camouflaged and luminous.* To be seen and to be hidden at once. The people paint their basalt houses with moss slurry so they vanish. And then they hang a single, dim, green copper lantern at the door, so they can be found by those who know how to look. A town that hides together would be a beacon. A town that hides apart is just part of the texture.
+
+### The Other Residents
+
+And they are not alone on the shelf. They are just the only ones who build.
+
+The base of everything is the moss. It is not groundcover. It is an animal pretending to be a plant, or a plant pretending to be an animal. The mat is a colonial organism, jade-green on top, white and veined underneath. It does not photosynthesize much in this dim - it eats. It eats condensation, detritus, the dead, and the careless. If you stand still long enough you will see a patch ripple without wind, a slow wave moving under the ferns as it hauls a beetle carcass down into itself. It never makes a sound. It communicates by softening or hardening underfoot. The people know not to sleep directly on it.
+
+In it live the **Frill-throats** - those six-limbed salamanders. They are the shepherds of the moss. White as cave fish, each with a throat fan that can bloom like a lantern. When closed, they are invisible against the basalt, perfectly still. When open, they flash complex, silent sentences in amber and white to each other across the cliff face: *food here, danger there, mate here.* They eat the moth larvae and are eaten by the moths. They are everywhere and you will count a hundred before you realize you've been looking at them for minutes.
+
+Above, the **Veil Moths** - not moths. Noiseless fliers the size of owls, with wings like grey ash-paper that never seem to beat. They hang suspended in the damp air, filtering mist through feathered antennae that also shed light. Their wings are covered in luminous pollen. When two pass each other, they release a brief cloud of it that hangs in a glowing script for thirty seconds before the damp carries it away - a love letter or a territorial warning that the people have learned not to walk through. When they feed, they fold, utterly silent, around a Frill-throat and smother its light. There's no struggle you can hear. The moth just goes dark for a little while afterward, digesting.
+
+The **Backward Deer** - the small ungulates with too many eyes. Their eyes are not for sight. Six small, lidless, opal eyes along their flanks and neck are light organs. They blush in rings when they are calm, strobe when startled. Their legs are jointed wrong so they can step over the deep moss without sinking, picking their way like stilts. They are the only animal here that still makes a sound, but it isn't vocal. They tap - a single, soft *tok* of a hoof on basalt, carried through the stone, to say *I am here, this path is taken.*
+
+And in the hanging canopy, the **Watchers**. Round, feathered spheres the size of a head, tucked among the pale branches. They have no face until they open. Then a single, lidless eye, huge and wet and amber like the people's eyes, but without a pupil, just light. They open in unison at dusk, hundreds at once, drink the canopy glow, and close. They don't hunt. They don't move. They may be the trees' fruit, or their parasites, or their gods. The people leave them alone. When a Watcher opens directly above you, you feel, absolutely, that you have been counted.
+
+None of them sing. None of them cry. The whole ledge is a conversation held in dim pulses, in scent on wet air, in tremors through moss and stone. A frantic, constant, utterly silent argument about who gets to eat and who gets to mate, conducted in a light too soft to cast a shadow.
+
+If you stay until the canopy wakes - when the people stroke their trees and the ceiling of leaves becomes a cathedral of green lamps and every pool reflects it - you'll see it clearly for a second: the people standing in their isolated halos of swept moss, their cheek-lichens glowing faintly in answer, the Frill-throats flashing, the moths writing pollen overhead, the deer rippling light along their sides, the Watchers opening.
+
+A city of a hundred quiet lights, spaced precisely far enough apart to let the darkness hunt between them.

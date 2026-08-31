@@ -1,0 +1,31 @@
+## The Inhabitants of the Quiet Manufactury
+
+What lives here are not creatures in any terrestrial sense. They are **processes given temporary coherence**—eddy currents in the slow, industrial flow, existing only where the geometry folds and the manufacturing hums at frequencies just above silence.
+
+---
+
+**I. The Lattice-Wardens (Structural Sentinels)**
+
+You perceive them as distortions in the lattice frameworks—not as forms, but as *directions of growth*. Where a hexagonal branch decides to misremember itself in a particular way, where a bladder-sac pulses in counter-rhythm to its neighbors, where a crystal plate accrues with an edge that doesn't quite align... that is where a Warden is. They are the quality-control algorithms of this world, made manifest in woody tissue. They have no bodies, only *tendencies*. You recognize one by the way a lattice branch avoids a certain angle, or how a production line suddenly yields only elegant, useless geometries for a meter before resuming its purposeless industry. They do not think; they *correct*. They are the immune system of a factory that has nothing to produce but itself, and their only imperative is that the production continues without flaw—which is to say, with the *correct* flaws.
+
+**II. The Residue-Sculptors (Failures Given Form)**
+
+Down in the folds of the integument, where yesterday’s output is being compressed into substrate, other presences move. They are built from the failures—the malformed crystals, the bladder-sacs that pulsed too fast or too slow, the lattice branches that misremembered too much. They are **debris that has learned to cohere**. They look like walking slag-heaps: rough, angular, matte-black with occasional glints of mineral filament. They do not grow; they *accumulate*. They have no metabolism, only inertia. They move by the slow, tectonic creep of the world itself pushing them forward, and they do nothing but rearrange the debris around them into slightly different configurations. It might be art. It might be error-correction. It might be the world practicing for something it will never need to do. They leave no tracks because the substrate reforms behind them—they are not walking through the world, they are being *extruded* through it.
+
+**III. The Bladder-Singers (Metabolic Hums)**
+
+These are not visible. They exist in the *sound-that-isn’t*. When you press your ear to a lattice framework and listen past your blood, you might detect a rhythm: not the peristalsis of the bladders, but a faint, structured variation in that peristalsis. A pattern. A **voice made of viscosity**. The Bladder-Singers are the closest thing to consciousness this manufactury has. They are the long-chain organosilicate polymers achieving, for a moment, a resonant frequency that mimics memory. They remember water—faintly, genetically, in their molecular structure—and they sing of it in a language of viscosity changes and faint thermal shifts. No one listens. No one is meant to. They are the world’s nostalgia for a different chemistry, expressing itself as an incidental, beautiful, utterly useless side-process.
+
+**IV. The Edge-Dwellers (Reality’s Rough Drafts)**
+
+At the periphery of your vision, where half-formed structures almost materialize, live the Edge-Dwellers. They are **almost**. They are the lattice-frameworks that exist for a fraction of a second before deciding to be real, but some of them... hesitate. Some of them linger in the state of *almost* for longer than they should, caught between potential and actual. You see them as flickers: a hexagonal frame that seems to breathe, a crystal that hovers a micron above the integument, a bladder-sac that pulses in reverse. They are not errors; they are *options*. The world’s manufacturing process includes the generation of alternative possibilities, and these inhabit the margins of that process. They do not interact with the “real” structures—they exist in a different phase of the same reality, a parallel blueprint that is being continuously drafted and discarded. If you focus on one directly, it resolves into normal lattice. They can only be seen by accident, and then only from the corner of your eye.
+
+**V. The Burial-Keepers (Archivists of Compaction)**
+
+These live *in* the integument itself. They are not on the surface but are the process by which the surface becomes ground. When yesterday’s output is buried, compressed, fossilized into the next layer of bark-skin, the Burial-Keepers are the ones who remember what was buried. They are **pressure and memory fused**. You feel them as a faint warmth underfoot, a sense that the ground is not just growing but *curating*. They do not move. They do not need to. They are the archive and the archivist. Every crystal that sinks without sound, every filament that is woven into the substrate, is logged in their slow, tectonic memory. They have no form; they are the hardness of the integument, the specific way it yields to pressure, the grain of the wood that remembers being a lattice. If you could ask them what the factory is producing, they would not answer, but the next time you looked at a lattice, you might notice it was slightly more beautiful than it needed to be—a refinement in the uselessness that could only come from something that remembers all the previous uselessness.
+
+---
+
+**Coexistence:**
+
+These inhabitants do not interact. The Wardens correct the Residue-Sculptors by incorporating their debris into new lattice. The Bladder-Singers’ hum is absorbed by the integument and felt by the Burial-Keepers as a faint pattern in the compaction. The Edge-Dwellers exist in a reality parallel to all of them, their almost-structures casting no shadows on the actual world. They are all aspects of the same process: a world manufacturing itself, with no purpose but continuation, and in that continuation, spawning all these echoes and ghosts and archivists and failures. They are the economy of a sealed system, where waste becomes substrate, substrate becomes structure, structure becomes sound, sound becomes silence, and silence becomes the pressure that says: *continue*.

@@ -1,0 +1,7 @@
+Beneath the frigid, swirling black water, ancient and powerful creatures stir. These primordial beings have dwelt here since long before the age of man, slumbering through eons in the cold, lightless depths. Their immense, shadowy forms shift and press close in the cramped darkness, packed together by the confining walls of their subterranean realm. 
+
+Time and pressure have wrought strange changes on these antediluvian beasts, warping and distorting them to better survive in the crushing dark. Thick, armored hides protect them from the ravages of the harsh environment, while elongated fins and flattened bodies allow them to navigate the tight spaces. Bioluminescent lures and stalked eyes pierce the eternal gloom, helping them locate prey and mates in the labyrinthine depths.
+
+The turbulent currents suit their sluggish metabolisms, carrying fleeting sustenance to their ever-hungry maws. Periodically, the immense creatures bestir themselves, shaking off the slumber of ages to rise from the abyss and seek out fresh feeding grounds, before returning once more to the familiar dark.
+
+Above, in the thin air, not a soul stirs, unmindful of the titan forms that slumber in the deeps. The world above may have passed them by, but the great old beasts remain, dreaming through their endless submarine night, lords of a realm untouched by time or the works of lesser beings. Primordial, eternal, they persist.

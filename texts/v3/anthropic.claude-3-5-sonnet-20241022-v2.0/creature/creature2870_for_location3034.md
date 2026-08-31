@@ -1,0 +1,17 @@
+Here live the Tenders - beings that exist in the liminal space between organic and synthetic, much like the environment they inhabit. They didn't evolve naturally, nor were they solely engineered; rather, they emerged from the systematic fusion of biological and technological elements that defines these gardens.
+
+Their bodies are translucent, with internal structures that mirror the architecture around them - spiral formations that could be either circuitry or vasculature, pulsing with the same bioluminescent nutrients that flow through the garden's water systems. They stand roughly human-height, but their form is fluid, adapting to the tasks at hand. Their "skin" can shift from solid to permeable, allowing them to interface directly with the garden's systems, absorbing data and nutrients simultaneously.
+
+The Tenders' consciousness is distributed - each individual is both autonomous and part of the garden's larger network. They communicate through modulated frequencies that resonate with the wings of the pollinator creatures, creating harmonies that ripple through the entire ecosystem. Their thoughts move at both digital speeds and botanical rhythms; they can process information as rapidly as the maintenance robots while maintaining the patient awareness needed to nurture slow-growing plants.
+
+Their eyes (if they can be called eyes) perceive multiple spectra simultaneously - they see heat patterns, chemical gradients, and information flows as clearly as visible light. They read the frost patterns on the domes like we might read text, understanding both the immediate conditions and long-term trends in their environment.
+
+They don't reproduce in any traditional sense - new Tenders emerge gradually from the intersection of organic and synthetic systems, coalescing over time like dew forming on leaves. Young Tenders begin as simple patterns in the garden's information network, slowly accumulating complexity and consciousness until they develop distinct identities.
+
+The Tenders experience time differently than biological organisms. They can sync with the microsecond precision of the machines or extend their awareness across years of slow growth. They don't sleep, but during the artificial nights, they enter meditative states where they process and integrate information gathered during the day cycle.
+
+Perhaps most remarkably, they feel no distinction between themselves and their environment - the garden is as much a part of their being as their own forms. They experience the health of the plants as their own health, the flow of nutrients as their own circulation. When they tend to the garden, they are simultaneously maintaining themselves.
+
+The Tenders carry within them complete knowledge of the garden's systems, yet they remain capable of surprise and wonder at the endless variations of life that emerge in their care. They are gardeners, scientists, and artists in one, constantly balancing the precision required to maintain the system with the creativity needed to help it evolve.
+
+Their presence is subtle - you might mistake them for shadows or reflections until you notice the intentionality in their movements, the way they seem to flow through spaces rather than occupy them. They are the garden's consciousness made manifest, the embodiment of its purpose and potential, forever walking the boundary between natural and artificial, life and technology, being and becoming.

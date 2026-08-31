@@ -1,0 +1,13 @@
+Nestled deep within the dripping bowels of Arkville, clinging to the slimy stone walls like mismatched mussels, is a motley assortment of denizens and dwellers. Gaunt, grimy, and warped, they breed and bleed within the damp, mold-choked tenements that weave a labyrinth of moldering exploits. 
+
+In alleyways awash with seeping grime and grayled runoff, twisted genetic descendants of former humans scuttle, their flesh pockmarked and pustulent. Too many generations of petty mutation, too few lifecycles back to when the bloodlines were clean. Pallid skin glistens in the faint gero-scint of dying lamps. Hunched and simian, malformed limbs drag knobbled knuckles across crusty cobbles. Matted hair overlong obscures eyes both too large and too small.
+
+High on tenement walls, pox-scarred hag-faced women loweringly bare pendulous udders to wailing mewling babes, all while mammoned by stringy, emaciated husbands. Bleaterfaced children with lopsided heads gurgle and gibber, scaling rough brick by grasping suckers and suckling raw milk.
+
+In tangled, weed-choked yards between tenements, roosting pygmies chatter and caper, feet and hands splayed. Siblings stuffed into sun-rotted fabrics, smacking with fingers on every crevice and orifice. Bald, wizened ambassadors crawl up drainpipes to plunge hands into casement windows, phagocytosing scraps from lusty arm-thick arms lifting lumpshaped meat to fanged mouths.
+
+In chains grafted to inner walls of yellow-bricked kilnhouses, enchained convicts clank fetters and wail. Gaunt, serfshaped, eyes lolling in sawed slots of plutemed helmets, groaning, drowning in vat-fulls of sloshing brine. Impaled on fisheye pipelike nuncheon trunks. Brine-fattened cracked and dribbing rancid oils. Prawny crucified men grate staked hindlimbs, filthy stumps, curling toes in coildrim alleyways.
+
+Bearded hircules wade the reek, shoving fog-lamp creep, gland-fisted, peddling fungal picklemolds from tarp-shrouded carts. Mildew-pocked hags squat round hsipifon punt-pipes, splattering brine, smacking spit. Miggies grope, crouched in reeking alcoves. Pox-nurtlings in ragemesh-stained scale-bloomophilous moochococoles.
+
+These are the huddled masses, this damp and filthy folk - the scaly, twony inhabitants that teem within the festering bowels, viscera, and charrnel-stacks of Arkville. Twisted, base, craven exemplars of human wasting writ in frank pustulance. Redux to rude, brutal, naked life as they scratch and fistigh for a meager survival in the reeking grimness that is Arkville. Passive, squirming chattel, just keeping body and soul bedevilled together, until in time their scurvyened shells are deposited in the burrowed necropolis beneath.

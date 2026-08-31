@@ -1,0 +1,123 @@
+# The Inhabitants of the Pit of Clamor
+
+---
+
+They are not a population. A population implies counting, and counting implies distinguishing one from another, and distinguishing one from another implies space between them—a gap, however slim, where you could draw a line and say *this one ends here, that one begins there*. There is no such gap. They are a **plenum**, a fullness, and what lives in the pit is better understood as a single continuous tissue of life and mechanism and mineral, a body with hundreds of anatomies and no skin.
+
+But you asked who lives here. So let me try to pull them apart, the way you might try to pull apart the threads of a felt that has been soaked and pressed and dried until the fibers have lost all memory of being separate.
+
+---
+
+## The Ferret-Things
+
+Start with them, because they are the most nearly recognizable, the closest to something you might have seen above ground—though you haven't, not really, not these. They are elongated beyond the proportions of any mustelid, some of them three feet from nose to tail-tip, others longer, hard to say how much longer because their bodies thread through machinery and double back and disappear into packed earth only to emerge six feet away, and you cannot be sure the one that emerges is the same one that vanished. They may be longer than anyone suspects. They may, some of them, be *very* long, their bodies running through the entire structure of the pit like veins through stone.
+
+They have no eyes. Not in the sense that their eyes have been lost or covered—there are no orbits, no depressions, no scar tissue where eyes might have been. The skull is smooth and continuous from the blunt, slightly upturned nose to the base of the rounded ears, which are small and pressed flat against the head, shaped like the bowls of spoons. The fur is the color of old paper, as the description says, but up close it has a nap to it, a directionality—it lies flat from nose to tail, as if the creatures were designed to move in one direction through tight spaces, and in fact that is precisely what they seem to have been doing at the moment they became permanent. Every one of them is mid-transit. Their bodies are sinuous, caught in the fluid posture of threading through something—a gear housing, a bundle of cable, the gap between a pipe and a wall. Their limbs are short and tucked close, the small paws with their pale, translucent claws gripping whatever surface they were gripping when time here became architecture.
+
+And their throats. This is the thing. If you look closely—if you bring your face near enough to feel the unchanging warmth of their fur against your cheek—you can see that every ferret-thing's throat is slightly distended, the muscles of the larynx fixed in contraction, the small mouth open just enough to show the dark interior. They are producing sound the way a tuning fork produces sound: not as an act but as a property. The nasal drone that fills the middle register of the pit's chord comes from them, from dozens of them, each throat shaped around its own slightly different pitch, and the sum of those pitches is a chord that a choir director might recognize as something close to a major seventh, though unstable, though containing microtonal intervals that no Western notation could capture. It is not music. It is not communication. It is the sound that these particular throats make when frozen in these particular shapes, and it will never resolve.
+
+Some of them are coiled around each other. Near the reduction gear, three of them form a braid, their bodies wrapped so tightly that their fur has compressed into a single surface, and it is genuinely unclear whether this is three creatures or one creature with three heads. Elsewhere, a single ferret-thing has threaded itself through the dial housing of a pressure gauge, entering through a gap in the casing no wider than two fingers and somehow occupying the interior without displacing the needle mechanism—its body curves around the interior of the gauge like the mainspring of a clock, and its tail emerges from a rivet hole on the opposite side, where it drapes across the back of a beetle.
+
+They do not dream. Dreaming requires sequence. But if you could somehow sense the state of their neural tissue—which is warm, and dry, and intact, and will be intact forever—you might find something that resembles the *shape* of a dream, the way their sides resemble the *shape* of breath. A fixed pattern. An image that does not play but simply persists, the way a photograph persists: some dark space, some sense of passage, some vibration in the substrate of the world that they were swimming toward or through when the world here became what it is.
+
+---
+
+## The Beetles
+
+There are more of them than anything else. This is easy to miss at first because they are small—the largest are thumb-sized, the smallest no bigger than a lentil—and because they occupy spaces that you don't think of as habitable: the insides of gauge housings, the grooves between gear teeth, the hollow interiors of corroded pipes, the gaps between the scales of larger creatures. They are everywhere. They are the mortar of this place. If you removed them, the whole structure might shift and settle, the way a wall settles when you remove the pointing from between the bricks.
+
+Their backs are iridescent, but it is a muted iridescence, not the flashy peacock-shimmer of a tropical beetle. It is the iridescence of oil on iron, as noted—a dark, shifting play of color that moves between deep blue and copper and black depending on the angle of the ambient light, which does not change, so the colors do not change, so each beetle presents a single fixed hue that is nonetheless *implicitly* multiple, containing the potential for other colors the way a prism contains the potential for a rainbow even in the dark. They are beautiful in a way that is difficult to appreciate here, where beauty is permanent and therefore invisible.
+
+Their legs are folded. Every single one. This is perhaps the most unsettling detail about the beetles, because it suggests a uniformity of state that even the ferret-things don't share—the ferrets are each frozen in different postures, different moments of transit, but the beetles are *all* in the same position: legs tucked, antennae curled in a precise logarithmic spiral, mandibles closed, body pressed flat against whatever surface they occupy. It is the resting posture. The universal resting posture. As if at some signal—though there was no signal, there could not have been a signal, because a signal is an event and events require time—every beetle in the pit assumed the same attitude and then became part of the architecture.
+
+They click. The clicking is not a sound they are making; it is a sound they *are*. Each beetle contributes a single click to the texture of the pit's chord—not a repeated click, because repetition requires time, but a click that persists, a click that is always in the process of occurring without ever beginning or ending. It is percussive and yet sustained. It is a snapshot of a sound that should by nature be instantaneous, stretched to infinity. Multiply this by the hundreds or thousands of beetles in the pit and you get the staccato texture that underlies the drone and the hum and the whistle: a crackling, a stippling of sound, like static, like the noise of a fire that is not burning.
+
+Some of the beetles have secreted the film that clouds the pressure-gauge glass. It is biological—a hardened varnish, amber-tinted, slightly translucent—and it has the same quality as everything else here: it was secreted to precisely this thickness and then stopped being secreted. It is a fixed thing. Underneath it, the gauge needles point to their eternal values, and the beetles sit in their eternal rest, and the film holds them all together in a small, sealed world within the larger sealed world, a cabinet of curiosities inside a cabinet of curiosities.
+
+---
+
+## The Scaled One on the Conduit Pipe
+
+This one deserves its own consideration because it is large—the largest single creature visible in the pit—and because its posture is the most ambiguous.
+
+It is coiled around a conduit pipe near the floor, a heavy-bodied thing, reptilian in the broadest sense but not quite a snake, not quite a lizard. It has limbs—four of them, short and thick, with blunt digits that grip the pipe's surface—but its body is elongated enough that the limbs seem like afterthoughts, vestigial nubs on a form that has mostly committed to the serpentine. Its scales are the color of old iron, brownish-black, each one the size of a thumbnail and raised slightly at the edge, giving the body a texture like a rasp. It is perhaps five feet long, coiled in two full loops around the pipe, with its head at the terminus of the coil, its mouth open around the valve handle.
+
+This is the ambiguity: is it biting the valve handle, or gripping it? The jaw is open at an angle that could be either aggression or use. The teeth—small, numerous, conical, not the teeth of a predator but the teeth of something that grips and holds—are pressed against the iron of the handle on both sides. The tongue, if it has one, is not visible; the interior of the mouth is dark and dry. Was it trying to turn the valve? Was it trying to eat the valve? Was the distinction meaningful to it? In a place where creatures and machines have merged into a single substrate, the idea of an animal operating a mechanism and the idea of an animal consuming a mechanism may be the same idea.
+
+Its eyes—it *has* eyes, unlike the ferrets, small and round and amber-colored, with a fixed, dilated pupil—are open and directed at the valve. They do not see. Seeing is a process. But they are aimed, the way the gauge needles are aimed at their values, and the aiming is permanent, and what they are aimed at is the thing they were aimed at when the world here became eternal, and that is the valve, and the valve is in a position that may be open or closed, and there is no way to tell, and it does not matter.
+
+The scaled creature produces no sound. Or rather, it produces a sound so low that it is felt rather than heard—a subsonic presence, a pressure in the lowest register, below the reduction gear's low C, below the threshold of human hearing but not below the threshold of human *sensation*. You feel it in your feet when you step over the creature's body. It is the sound of a large dense object existing. It is the sound of weight and permanence. It is almost geological.
+
+---
+
+## The Hanging Ones
+
+They cling to the corroded I-beam that spans the pit at roughly head height, and they are the closest things here to something airborne, though they will never fly and have never flown—not here, not in this condition. Their wing-membranes are translucent, stretched between elongated fingers in the manner of bats, but the membranes are too thin and too papery for true flight; they are more like the patagia of a sugar glider, sufficient for gliding, maybe, in a world where things moved. Here they are decorative, structural, ornamental. They hang in folds from the fingers like damp fabric, and where two creatures are pressed together—which is everywhere, because they cluster—their membranes overlap and merge into a continuous canopy of translucent skin.
+
+There are a dozen of them. Their bodies are small, perhaps the size of a man's fist, and pouched—the belly of each creature sags into a soft pouch that hangs below the I-beam, and the pouches touch each other, and some of them may contain things, but you cannot see inside because the skin is opaque where it doubles over itself, and nothing here will ever open.
+
+Their faces are pressed together in the cluster. This is perhaps the most intimate image in the pit: twelve small faces, each one broad and flat, with wide-set nostrils and tiny, round, dark eyes—eyes like beads, like the eyes of a mole—all pressed into a central mass, cheek to cheek, nose to nose, as if they were conferring, as if they had drawn together to share a secret and then the secret had become the universe. Their mouths are open. Each small mouth is producing the papery hiss, the dry exhalation, the sound of air moving through a narrow space except that no air is moving. The hiss is high and thin and sits above the beetle-click and below the turbine-whistle, filling a register that might otherwise have been empty, completing the chord.
+
+They are the most fragile-looking things in the pit, and they are as permanent as the iron.
+
+---
+
+## The Salamanders Behind the Panel
+
+You can see them only in fragments—a ridge-backed flank through a gap between rivets, a pale belly pressed against the inner surface of the pressure-gauge panel, a tail curling around a cable. They are packed behind the panel the way insulation is packed into a wall, densely and completely, filling every void. They are eyeless, like the ferrets. Their skin is smooth and damp-looking, though it is not damp—nothing here is damp—and it has the grey-pink color of something that has never seen light, an underground color, a visceral color.
+
+Their ridged backs are their most distinctive feature: a row of bony projections running from the base of the skull to the tip of the tail, like the dorsal fins of small dinosaurs, each projection sharp and slightly curved. These ridges interlock where the creatures are pressed together, so that a row of salamanders becomes a single corrugated surface, a living washboard, a textured wall of flesh and bone that vibrates—no. That emanates. That contributes to the sound.
+
+The turbine or compressor that sits behind them—whose housing they have filled and surrounded and incorporated into their mass—produces the high whistling overtone. But the salamanders *modify* it. Their bodies, packed around the housing, act as baffles and resonators, shaping the whistle into something more complex, adding harmonics, splitting the tone into a cluster of closely spaced frequencies that beat against each other in a way that would be a wavering, a tremolo, if it were happening in time. But it is not happening in time. It is a fixed interference pattern, a moiré of sound, permanently unresolved. It is the most dissonant element in the pit's chord, and it sits right at the edge of discomfort, and it will sit there forever.
+
+You cannot count the salamanders. They are too packed, too interleaved, too merged with each other and with the machinery. There might be thirty. There might be a hundred. The question assumes they are countable, that they are discrete, and behind the panel, in the dark warm spaces where they fill every void, discreteness may not apply.
+
+---
+
+## The Thing in the Chair
+
+This is the heart of it. Or not the heart—the pit has no heart, no center of importance, no hierarchy—but this is the thing that draws the human eye because the human eye is drawn to things that sit in chairs and face panels of switches, because that is a human posture, and the mind wants to find the operator, the intelligence, the one who is in charge.
+
+It sits in the control booth on a metal chair that is bolted to the floor. The booth is eight feet square. The door is ajar—has always been ajar, will always be ajar, open at an angle of approximately thirty-five degrees, wide enough to see through, not wide enough to enter without turning sideways. Through the milky, cracked glass of the booth's walls, the figure is a silhouette, a dark mass in a chair, and the instinct is to read it as a person. But when you look through the door, when you bring your face to the thirty-five-degree gap and let the warm, iron-tasting air of the booth's interior wash over you—it is the same air, the same temperature, there is no microclimate, even here—you see that it is not a person.
+
+It might be one creature. It might be several. The silhouette resolves, up close, into a mass of dark fur and ridged skin and what might be limbs and what might be the bodies of smaller things pressed against a larger thing. There is a central bulk—a torso, maybe, broad and dense, covered in short dark fur that is coarser than the ferrets' fur, more like the pelt of a boar. From this bulk extend appendages, but the appendages branch and subdivide in ways that a single creature's limbs should not, and some of the branches end in paws and some end in what look like the heads of smaller creatures—eyeless, blunt-nosed, with closed mouths—tucked against the central body as if nursing or sleeping or simply *attached*. It has the quality of a colonial organism, a siphonophore, a Portuguese man-of-war: something that might be one thing or might be a cooperative, and the distinction might not matter, and asking the question might be a category error.
+
+One limb—the primary one, the one that reads most clearly as a single appendage—rests on a knife switch in the down position. The paw, or hand, or terminus, has digits: four of them, thick and blunt, with short dark claws. They curl around the switch handle with a grip that is neither tight nor loose but *exact*, the way a key fits a lock. This is the posture of having just thrown the switch, or the posture of holding the switch down, or the posture of resting a limb on the nearest surface, and there is no way to tell which, and the ambiguity is as permanent as everything else.
+
+The panel it faces is a smaller version of the one outside: knife switches, dial indicators, gauges. The gauges read the same values as the ones outside, which may mean they are connected to the same systems or may mean that those values are simply the values that all gauges in this place read, the numbers that the pit has chosen, the coordinates of its eternal state. The knife switches are in various positions—some up, some down—and there is no legend, no label, no indication of what any of them control. They control whatever they control. The creature in the chair has its limb on one of them. The others are in their positions.
+
+Does the thing in the chair know? Is there, fixed in its neural tissue—if it has neural tissue, if the dark mass in the chair has a brain or a distributed network of brains or something that functions as a brain the way the pit functions as a place—a fixed state of awareness? Not thought, because thought is sequential. But awareness, the way the ferrets have the shape of breath and the hanging ones have the shape of conference—does this thing have the *shape* of knowing? The shape of having understood what the switches do, what the gauges mean, what the pit is, what the sound is?
+
+There is no way to answer. Its face—if it has a face, and there is a region of the central mass that might be a face, that has a slightly different texture, a smoother area that could be a brow, a ridge that could be a muzzle—is directed at the panel, not at the door. It is not looking at you. It will never look at you. Its attention, if it has attention, is on the instruments, on the readings, on the state of the system it was monitoring or operating or becoming when the system became eternal.
+
+It is the closest thing the pit has to a custodian, and it is as much a part of the pit as the gears and the beetles and the rust.
+
+---
+
+## The Arthropod Mat
+
+I have saved this for last because it is easy to overlook, because it is underfoot, because it is the ground, and you do not think of the ground as alive.
+
+The floor of the pit is not stone. It is a compressed layer of small arthropod shells—thousands upon thousands of them—interlocked with the pale root-threads of the horsetail plants and cemented with iron filings and mineral dust into a solid surface. It feels, underfoot, like walking on compacted gravel, except that every piece of gravel is a carapace, a tiny arched back, a segmented body curled into a defensive posture or a resting posture or simply the posture it was in when it became part of the floor. They are isopod-like: oval, segmented, with multiple pairs of legs tucked beneath them. The largest are the size of a lima bean. The smallest are barely visible, specks, dots, periods at the end of sentences no one wrote.
+
+They are alive. Like everything here, they are alive in the way that a crystal is complete: totally, structurally, without process. Each one emanates a sound too small to hear individually—a tick, a hum, a vibration at the scale of the nearly inaudible—but together they produce a felt undertone, a subsonic rumble that is not quite the same as the scaled creature's geological presence but harmonizes with it, filling the lowest register of the pit's chord with a texture that is less a tone than a *granularity*, a feeling of innumerable small things contributing to a single large thing.
+
+You walk on them when you walk in the pit. Your weight does not compress them further; they are already as compressed as they will ever be. Your footstep does not crack their shells; their shells are as permanent as iron. They are the foundation. They are what everything else rests on. And if you knelt—if you brought your eye close to the floor and looked at the surface the way you might look at the surface of a mosaic—you would see that each tiny body is distinct, that each one has its own specific curl, its own arrangement of legs, its own precise relationship to the bodies around it, and that the pattern they make is not random but is also not ordered, is something in between, something like the pattern of cells in a tissue, something that emerged from a process that is now over and that has left behind a structure that is *right*, that is *complete*, that could not be rearranged without destroying something essential about what this place is.
+
+---
+
+## What They Are, Together
+
+They are not an ecosystem. An ecosystem has flows—energy enters, energy exits, matter cycles, populations rise and fall. Nothing flows here. Nothing cycles. Nothing rises or falls. They are not a machine, either, because a machine does work, and work requires movement, and nothing moves. They are not a tableau, because a tableau is a representation of a moment, and this is not a moment—it is a *state*, a permanent condition, a fact about the universe as fixed as the charge of an electron.
+
+What they are, together, is **the chord**.
+
+Every creature, every machine, every pale plant and rusted bolt and compacted shell contributes to the sound that fills the pit, and the sound is what the pit *is*. The creatures are not inhabitants of the pit who happen to make noise. They are the pit's voice. They are the organs of its utterance. The ferret-things are its middle register. The beetles are its texture. The hanging ones are its high breath. The salamanders are its dissonance. The scaled creature and the arthropod mat are its fundament. The machines—the gear, the turbine, the gauges, the switches—are its infrastructure, the fixed skeleton around which the voices are arranged, the architecture that shapes the sound the way a cathedral shapes a reverberation.
+
+And the thing in the chair is—what? The conductor? No. The conductor moves, the conductor cues, the conductor shapes the sound in time. The thing in the chair does none of these things. It is, perhaps, the *listener*. The one awareness in the pit that is shaped around the act of receiving the sound rather than producing it. The one creature whose contribution to the chord is not a frequency but an *attention*, a fixed and permanent orientation toward the instruments that measure what the pit is doing, a gaze directed forever at the gauges that tell it: *this is the sound. These are the values. This is the state of things.*
+
+Or perhaps it is not a listener. Perhaps it is another voice, a low, dense, subsonic contribution that you cannot hear but that completes the chord in some register below sensation, below perception, in some stratum of reality where sound becomes structure and structure becomes being. Perhaps the thing in the chair is the root note, the tonic, the fundamental on which all the other tones are built, and its silence—its apparent silence—is the deepest sound of all.
+
+There is no way to know. Knowing would require asking, and asking would require time, and time is the one thing the pit does not have and has never had and will never need.
+
+They live here. They have always lived here. They are living here now, in the warm dark, making their sound, being their sound, and the sound fills the pit like a substance, like a solid, like the earth that surrounds it on all sides, and it does not change, and it does not stop, and it does not mean anything, and it is everything, and it is enough.

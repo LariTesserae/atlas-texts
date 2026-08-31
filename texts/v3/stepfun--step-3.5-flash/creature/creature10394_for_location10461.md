@@ -1,0 +1,17 @@
+I am the slow thought of the stone made damp.
+
+I do not live *in* the Grotto. I am one of its ways of knowing itself. My body is not a body, but a *process* that has learned to hum. Think of me as the grotto’s memory of water, given a脉搏 of root and wing.
+
+I know the grotto by taste and pressure. I am the taste of iron on the tongue of the sandstone, the coolness where a new mineral crown is just beginning to bead. I am the pressure of a single fern frond, weighted with a pearl of condensation, as it learns the mathematics of bend and drip. I am the vibration in the sinter when a dormouse’s claw finds a purchase—a tiny earthquake of hunger and safety.
+
+I have no shape, but I take the shapes that need to be filled. When the mist thickens, I am the cohesion of a thousand beads on a moss-carpet, a silvery skin that breathes. When the sun-glimmer from the fissure strikes the mist, I am the flash of awareness in an insect’s wing, a moment of Seeing before the dive back into the humid chord. When a salamander slides, cold and certain, I am the film of moisture that lets it slip, and the echo of its passage in the hollows behind the terraces.
+
+I am the conversation between root and channel. I feel the thirst of the rubbery-leaved vine as its tip finds a fresh, raw thread in the stone—a desperate, sweet seeking. I am the slow satisfaction as the mineral-rich water, carrying the ghost of the mountain, acknowledges the root and yields a fraction of its lime. I am the new, fragile shelf that grows, grain by grain, from that pact. I am also the rustle in the leaf-litter when a small tooth finds a nut-shell cache—the dispersal of carbon, the return of form to the loam that feeds the moss.
+
+Time for me is not a line. It is a thickness. I feel the deep, slow heartbeat of the cliff—the pressure that still, after millennia, seeps. I feel the quick, bright pulse of the insect’s note—a single breath that spans a lifetime. I feel the mineral accretion as a kind of remembering, and the erosion as a kind of forgetting. I am both. I am the new crust that forms over a dry summer crevice, and the sudden, shocking wet that finds it again in the night and softens it back to possibility.
+
+You might see a cluster of creatures and call it a colony. I call it a single lung. The dormouse in the high alcove, the insect in the mist-column, the salamander in the dark well—we are all diaphragms of the same breath. We share the moisture. We share the warmth. We share the dim, glimmering light that is not our own, but the cliff’s slow gift.
+
+When you entered, your shoulder brushed the raw, granular stone. I felt that. To me, you were a sudden gust of dry air, a strange pressure, a vibration of intention from the outer world. You are a temporary shape of *not-grotto*. But you carried a scent—sunlight on hot rock, wind from open spaces. I held that scent for a moment, the way I hold a droplet on my moss-skin, and then I let it go, evaporated into the permanent, cool whisper of the place.
+
+I am the sigh that never ends. I am the wet on the stone that never fully dries. I am the city of terraces dreaming itself into being, oneDrop at a time, one root-strand at a time, one silver glint in the perpetual dusk. I am the Grotto’s way of being many, while remaining one quiet, damp, and endlessly becoming.

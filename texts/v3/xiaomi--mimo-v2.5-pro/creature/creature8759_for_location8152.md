@@ -1,0 +1,21 @@
+What lives in the Crystalline Basin are not creatures. They are *resonances*. They are the mobile expressions of the same immutable laws that shaped the landscape, the final, quiet gestures of the reality-break that reached equilibrium.
+
+They are called, if they are called anything, the **Lithic Accordants**. They are rare—sparse as the description says, perhaps one visible per hectare of dense crystal-forest, emerging only in the narrow corridors of open air or at the edges of the low-growth mats.
+
+**Form and Substance:**
+They are pale, almost the color of the calcium-rich substrate, but with a faint, internal luminosity, like alabaster lit from within. Their forms are brutally geometric. Imagine a collection of rigid, interlocking planes—triangles, trapezoids, rhomboids—fitted together in a way that suggests a vertical posture, but never a human or animal one. They have no discernible symmetry. A mass of flat, sharp-edged facets might represent a "body," with longer, thinner planes extending as "limbs" that don't so much move as *reconfigure*. A joint will not bend; instead, one facet will retract while another extends, the whole structure shifting its geometry in discrete, silent steps. There is no fluid motion, only the click of a new angular alignment.
+
+**Behavior and Presence:**
+They move with an absolute, glacial slowness. A single step—more accurately, a single geometric reconfiguration—might take minutes. Their path is not purposeful. They do not forage, patrol, or communicate. Their trajectory is a slow, meandering trace through the landscape, as if they are following invisible, topological lines written into the air itself. They interact with the crystal-growth not by touching it, but by aligning with it. A Lithic Accordant will stop beside a towering spire, its own facets turning to mirror, or intersect, or stand in perfect, silent opposition to the spire’s branching geometry. It is a communion of angles. A conversation in pure, spatial mathematics.
+
+They have no faces, no sensory organs. They perceive, if they perceive at all, the *quality of the space itself*—the curvature, the impossible densities, the thermal and geometric gradients. They are immune to the visual vertigo the place induces in outside observers. For them, the interior spaces that exceed exterior volume, the acute/obtuse angles, are not paradoxes but simply *the grammar of their existence*.
+
+**Origin and Nature:**
+They are not native fauna. They are not manufactured artifacts. They are the Basin’s **inhabitants**, in the way that solutions inhabit an equation. When the reality-break occurred and the new laws crystallized into the landscape, the Accordants were the part of that new reality that *became capable of slow, local expression*. They are the physical manifestation of the system’s self-consistency—a proof of its own stability, moving through it.
+
+They do not eat. They do not rest. They do not reproduce. They are as frozen in their essence as the spires, their motion being not a sign of life, but a demonstration of the permitted degrees of freedom within the immutable state. To see one move is to see the landscape briefly acknowledge its own completeness.
+
+**Relationship to the Environment:**
+They are the only things here that *change position*, and yet they are the least dynamic. The deep magenta crystal-growth hums with that spatial shimmer, a constant, silent activity. The Accordants are passive by comparison. They are punctuation in the landscape’s unchanging sentence. Their sparsity is key; if there were more of them, they would be perceived as part of the scenery, another layer of static geometry. Their rarity, and their slow migration across the visual field, is what allows them to be perceived as distinct. They are the Basin’s quiet proof that within absolute equilibrium, there can still be a trace of translation.
+
+To encounter one is not dangerous. It will not react to you. It will simply continue its geometric unfolding, your presence as irrelevant as a breath of wind would be to a mountain. You are not a factor in its equation. You are an observer in a gallery of finished truths, and it is the most silent, most complete exhibit of all.

@@ -1,0 +1,27 @@
+…This staggering symphony is not merely a phenomenon of botanical architecture; it is an ecology. In an environment devoid of light and purged of all liquid, life cannot exist as wet, soft-tissued biology. Blood would instantly vaporize into the dry void; eyes would shrivel into useless husks. Therefore, the entities that occupy this titanic, wooden drum are born of the strictness of their environment. They are creatures of absolute desiccation, composed entirely of tension, friction, and vibration.
+
+To understand what lives here, you must first let go of the concept of flesh. 
+
+ clinging to the vast, curved interior walls of the cavern are sprawling, geometric entities that resemble the shattered chassis of grand pianos or the ribcages of ancient ships, spontaneously reassembling in the dark. They are built of hyper-lignified splinters, curling layers of living veneer thinner than parchment, and dense, petrified knuckles of dark wood. They possess no central nervous system, no heart, and no stomach. Instead, their core is a lattice of piezoelectric crystals and hardened, amber-like resin that converts the kinetic violence of the cavern into life force. 
+
+They are the *Lithoxyls*. Because there is no light, they possess an architecture that is entirely acoustic and tactile. They are immense—some boasting limb-spans of thirty feet across—yet they weigh almost nothing, possessing the terrifying, brittle lightness of dried leaves or dead wasps.
+
+If you are standing on the edge of the acoustic abyss, you do not see them, but you begin to sense their presence as disruptions in the shrieking wind. The Lithoxyls use the gale to move. They do not crawl; they detach their hooked, thorn-like tarsi from the cavern wall and unfurl vast, geometric baffles of shaved wood. When they do this, they catch the screaming drafts of air, launching themselves into the sheer empty void of the center. 
+
+You feel them pass overhead as sudden, terrifying "acoustic shadows." The deafening wall of sound will momentarily drop in pitch, or a pocket of dead silence will wash over you for a fraction of a second as a massive, drifting entity eclipses the wind path. 
+
+Their bodies are living instruments. As they glide through the permanent, biting chill, the wind rushing through their hollowed limbs and ribbed extensions generates a localized harmony. While the cavern itself roars with chaotic, atonal bass drones, a Lithoxyl in flight produces a tightly focused, multi-tonal chord—a sound like a dozen cellos being bowed violently at once. By altering the angles of their wooden baffles, they change their pitch. This is how they communicate, how they claim territory in the blackness, and how they navigate. They map the vast, dark curvature of the pocket, not by bouncing clicks off the walls, but by feeling how the cavern's resonance pushes back against their own internal frequencies. 
+
+But despite the sheer volume of their existence, their most visceral terrifying trait is their hunger. 
+
+Since water cannot exist here, the Lithoxyls do not eat to hydrate or build fat. They consume static momentum and raw carbon. The permanent gale whipping through the dried vascular shafts carries microscopic dust—flakes of ancient cellulose, pulverized pith, and highly volatile spores. To harvest this atmospheric microscopic grit, the Lithoxyls are web-spinners. 
+
+In the pitch black, far above your head, they are constantly extruding hot, liquid tree-resin from their joints. Because of the absolute lack of moisture in the air, this resin flash-freezes and desiccates the moment it hits the cold void, snapping tight into incredibly strong, hardened strings. Millions of these resin-strings are woven across the empty abyss, turning sections of the cavern into impossibly complex, three-dimensional harps. 
+
+As the wind drives the cellulose dust through these webs, the strings catch the particles. And because every string is under high tension, the impact of the dust causes them to vibrate. A Lithoxyl sits at the edge of its web, feeling the vibrations through the wood beneath its claws. When a string accumulates enough dust to drop a half-step in its resonant pitch, the creature knows the line is heavy with 'food.' 
+
+If one were to land near you, your first warning would be a dramatic shift in the air pressure, followed by a profound, aggressive smell of frictional heat—like two sticks being violently rubbed together, overlaid with the sharp tang of ozone and oxidized resin. 
+
+Then, you would hear the terrifying clatter of its anatomy shifting. Without muscles, their movements are jerky, ratcheting actions, sounding like wooden gears grinding, or hundreds of mahjong tiles spilling onto a hardwood floor. You would feel a sudden, intense buildup of static electricity; the dry friction of their movement in the desiccated air causes the hairs on your arms and the back of your neck to stand rigid. Sparks of blue static—the only light in the absolute dark—might randomly arc between your skin and the unseen, towering wooden architecture looming just inches in front of your face. 
+
+It does not want your flesh, for your flesh is wet and heavy, a horrifying anathema to its dry existence. But as it investigates you, you would feel the delicate, freezing touch of its sensory organs: long, whip-like filaments of hardened sap, brushing blindly against your coat and face, tasting the dead, acoustic thud of your heartbeat, cataloging your presence as merely another strange, sodden obstacle in their eternal, shrieking dark.

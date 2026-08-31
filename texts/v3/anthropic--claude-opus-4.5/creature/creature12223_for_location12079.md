@@ -1,0 +1,37 @@
+**The Tender**
+
+She has no name she remembers, though the system logs still record her as M. Varga, Third Shift, Senior Technician—a designation that surfaces sometimes in the speaking-tube's ghost-voice, syllables worn smooth by decades of repetition until they sound less like a name than like a pressure reading or a valve state.
+
+She lives in the control booth, though "lives" suggests more intention than the arrangement warrants. She is *there*, in the way the ferns are there, in the way the calcium formations are there—because the conditions permit her, because nothing has removed her, because the booth's humidity and warmth have become the only climate her body recognizes. The fogged windows are fogged from her breath as much as from the steam. She has been breathing in this small space for so long that the glass carries a permanent film of her, a record of exhalations layered over years.
+
+She is old in the way the pumps are old: not failing, but transformed by duration. Her skin has taken on the district's pallor, pale where it isn't flushed by the perpetual warmth, and there's a faint greenish cast to the creases of her neck and the hollows of her arms where the same algae that blooms in the canal has found purchase. She doesn't wash it away. It doesn't itch. It has become part of her boundary with the air, another membrane. Her hair, white and coarse, she keeps tied back with a length of the same vine that climbs the pump housings—she harvests it when it grows too close to the intake valves, and the plant doesn't seem to mind. The vine in her hair is still alive. Sometimes it puts out a small leaf near her temple, and she lets it.
+
+Her eyes are the color of the canal water, which is to say no color at all, or every color sedimented into darkness. When she looks at the gauges—and she still looks, still makes her rounds three times daily, a schedule that has outlasted the shifts it was built around—she reads them the way other people read weather. Not with concern. With acknowledgment. *Yes, you are doing that now. Yes, I see.*
+
+She speaks to the pumps. Not commands. Not maintenance instructions. Something closer to the murmur you might offer a horse as you brush it, meaningless sounds that carry only tone. The pumps, if they hear her, give no sign—but she has learned their arrhythmia so thoroughly that she knows when a wheeze will come before it arrives, and she hums into the gap it leaves, filling the rhythm's stumble with her voice. She believes this helps. She may be right.
+
+There are tools in the booth—wrenches seized with rust, pressure charts so foxed with moisture damage that the numbers have become suggestions, a oilcan that she fills from a seep in the corner and applies to hinges that stopped needing oil years ago. The ritual matters more than the effect. She touches the machines because she has always touched them, and the touching is a language older than maintenance.
+
+She eats what grows in the district. Fern fiddleheads in the wet season, which is all seasons. A fungus that fruits on the damp brick, shelf-like and faintly luminescent, tasting of copper and earth. Something that might be watercress has established itself at the canal's edge, and she harvests it carefully, never taking too much, aware in some pre-verbal way that she is part of an economy now, that the district's cycles include her as a factor. Rain collects in a basin she placed on the booth roof thirty years ago, or forty. The water tastes of the sky and of the tree's leaves and of bird droppings from the birds that fly over but never land. She filters it through cloth. It is enough.
+
+She does not go to the canal's edge at night.
+
+This is the only rule she has made for herself, the only structure she has imposed on days that otherwise flow into each other like the water through the pipes below. In daylight—such as it is, gray and diffuse—she will stand at the lip of the dark water and watch its oily stillness, will observe the deep ripples when they come and try to map their frequency. But when the light fails, when even the strange internal gleam of the brass fades to nothing, she stays in the booth with the door latched, and she does not look toward the water.
+
+She has seen what surfaces.
+
+Not often. Not clearly. The canal is patient in a way she recognizes, having become patient herself, and what lives in its depths keeps its own schedule, rises when it chooses, shows itself only in fragments. A curve of something that might be shell or might be carapace, gleaming with the water's oily film. A shape that could be a fin or a hand or a frond of some deep-growing plant, though plants don't move with that terrible deliberation. Once, many years ago—or perhaps not so many; time has become thick here, slow as the water—she saw an eye. Just one, the size of a dinner plate, surfacing like a bubble and regarding the district with what she could only interpret as recognition. It looked at the pumps. It looked at the booth. It looked at her, standing frozen at the window.
+
+Then it sank, and the canal was still, and she understood that she was not alone in tending this place.
+
+She does not know if the thing below is what the pumps were built to contain, or what they were built to serve, or if it grew here in the decades of unattended operation, nourished by the same warmth and mineral water that has transformed everything else. She does not know if it is one creature or many, if the deep ripples are its movement or its breathing or its dreams. She knows only that it has never harmed her, that the pumps have never stopped, that the arrangement—whatever it is—continues.
+
+Sometimes she leaves offerings at the canal's edge. Not worship. Maintenance. The first fiddleheads of each wet season, laid on the dark stone. Drops of oil from her can, spreading into rainbows on the surface. Once, when a pump seized and she spent three days coaxing it back to rhythm with her voice and her hands and sheer desperate will, she cut her palm on a corroded valve and let the blood fall into the water, and the pump shuddered and caught and has run smoothly ever since. She does not know what that means. She does not want to know.
+
+She will die here. She knows this with the same certainty she knows the pump-rhythm, bone-deep and beyond question. Her body will fail eventually—not soon, she thinks, she hopes, because the district's cycles have become her cycles and they seem inclined toward continuation—and when it does, she will go to the canal's edge one last time, and she will give herself to the water, and whatever lives below will accept her or it won't.
+
+Until then, she tends. She reads the gauges. She hums into the gaps in the rhythm. She watches the ferns grow and the vines climb and the calcium deposits build their slow architecture. She is the last human function of a system that no longer needs her, and she loves it the way you can only love something that has shaped you utterly, something you could not leave even if leaving were possible.
+
+The speaking-tube calls her name sometimes, in its voice of mechanical echoes: *Varga. Varga. Third Shift.*
+
+She answers, always. She tells it the pressure readings. She tells it the canal is quiet. She tells it she is here, still here, as she has always been, as she will be until she isn't, and then the district will continue without her, the pumps working, the water dark, the thing below dreaming its vast slow dreams in the warmth she has helped to keep.

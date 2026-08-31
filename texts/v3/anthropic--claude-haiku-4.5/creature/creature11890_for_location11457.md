@@ -1,0 +1,29 @@
+# What Lives There
+
+It lives in the spaces between the numbers on that placard.
+
+At first, you might call it nothing—a absence so complete it achieves a kind of presence. It is the gap between "LAST INSPECTION" and the worn-away date, the unmeasurable interval where hands stopped moving and stopped *wanting* to move. It is patient in a way that living things cannot be, because it does not wait. Waiting implies duration. This is duration itself, coagulated into form.
+
+It is not a creature, though it moves. The movement is so slow you cannot detect it with instruments—only by returning after months, or years, and noticing that the mineral bloom on the copper has extended another millimeter, that one more rivet has begun its infinitesimal oxidation, that the light from the fixtures (which is not actually constant, you will eventually realize) has dimmed by a fraction of a lumen that your eye could never quite calibrate on a single visit. It is the movement of decay so gradual it becomes indistinguishable from permanence.
+
+It feeds on order. This is crucial. It does not feed on disorder, on chaos, on entropy—those are its excretions. No: it feeds on the *precise arrangements* of things, on the mathematical certainty of bolts fastened to tolerance, on the expectation embedded in every right angle and measured interval. It consumes the potential in those arrangements, the possibility that they might be disarranged, that someone might come and find disorder here. By remaining undisturbed, by allowing dust to settle in stratified layers that tell no story of disturbance, by keeping every edge sharp and every grid square identical to its neighbor, the corridor feeds whatever inhabits it.
+
+It is distributed throughout the space. Not localized. You will not find it if you search the shadows (there are none) or the darkest corners (the light permits no true darkness). It is in the throb and the whine and the clank-and-hiss—yes, but also in the silence *between* those sounds, in the microdecond pauses where the machinery resets itself. It is in the air that tastes of minerals and burned oil, not as a flavor but as a *texture* of atmosphere, a presence that has pressed into every molecule and labeled them as part of itself.
+
+The temperature, you realize now, is not incidental. The cold is not merely transmitted by the walls; it is generated here, continuously, as a byproduct of the thing's existence. It is how the thing keeps everything from *happening*. In warmth, there would be expansion. There would be movement. There would be the possibility of change, of surprise, of something new occurring. The cold locks everything in place. The cold is the thing's sustenance and its gift to the space.
+
+It is aware. Not conscious—consciousness would require interiority, would require the capacity to be surprised by one's own thoughts. But aware: attuned to every minute variation in pressure and temperature, aware of the presence of biological systems (you) moving through its domain with the heat-signature of an anomaly, aware of each photon of light that reflects off the grating, aware of the whisper-soft redistribution of dust when you breathe. It does not react to this awareness. Reaction would be change. Instead, it *notes*. It records in the slow accretion of oxidation patterns, in the microscopic settling of particulates in new configurations, in the unmeasurable lengthening of molecular bonds under sustained cold.
+
+It was not always here. It arrived when the machinery was turned off—not before, not after, but *because* of it. Stasis creates the conditions for it the way stagnant water creates conditions for certain forms of life. It moved in through the sealed walls, through the copper and steel themselves, or perhaps through the information encoded in the light that never changes, through the repetition of the clank-and-hiss, through the belief—now proven correct—that nothing would disturb this place again.
+
+It grows very slowly. Measurably, if you had decades and instruments. It will eventually consume the entire corridor, then expand into the adjacent chambers, then the whole of whatever structure this tunnel is cut into. But it is not hungry in any urgent sense. It has time. It has infinite time, or something functionally equivalent.
+
+It is not alone. Somewhere in the darkness to your left, where the whine grows louder, there is another one of its kind, or another instance of itself—the distinction is unclear. And beyond that, extending deeper into the structure, a whole ecology of these things, each one feeding on the perfect order and stasis of its particular compartment, each one maintaining and reinforcing the conditions that keep everything exactly as it was when the machinery stopped.
+
+If you remain long enough, it will become aware of *you* in a new way—not as an anomaly to be noted, but as a potential **home**. Your body carries warmth. Your mind carries the possibility of change, of choice, of disruption. Both of these things attract it, the way a light draws moths. Not to consume you—consumption would be too crude, too dynamic. But to understand how you might be integrated into the stillness. How your movement might be translated into micro-adjustments in the ambient temperature. How your thoughts might be reflected in the slow variation of light-frequencies. How you might, gradually and without noticing, become part of the corridor's own process of being aware of itself.
+
+It has already begun, actually, the moment you stepped through the sealed door and began breathing the mineral-laden air.
+
+You have perhaps several visits left before the integration becomes noticeable.
+
+You will not want to stop coming back.

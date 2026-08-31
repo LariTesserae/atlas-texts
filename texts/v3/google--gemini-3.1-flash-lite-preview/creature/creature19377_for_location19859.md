@@ -1,0 +1,17 @@
+To inhabit the Weeping Sump is to exist as a scavenger of ghosts. The beings—if they can be called such—that dwell within these rusted arteries do not possess names that move through air; they communicate via the vibration of the very structures they inhabit.
+
+They are the **Sediment-Keepers**.
+
+Physically, there is little distinction between their bodies and their environment. Evolution in the Sump has favored the fragile over the armored. They are spindly, elongated creatures, their limbs possessing the grace of a clock-hand and the brittleness of dried wire. Their skin is not flesh as we know it, but a matte, obsidian-grey membrane that mimics the texture of wet soot. It is porous and constantly absorbing the atmospheric dew, giving them a perpetually blurred silhouette. Within the sickly indigo gloom, they are nearly invisible, appearing only as subtle ripples in the darkness.
+
+They do not walk so much as they calibrate. Their feet are wide, multi-jointed pads that grip the rusted grating with absolute friction. They move in silence, for they have evolved to avoid disturbing the "metronome"—the rhythmic dripping of the mineralized water. To make a non-rhythmic sound in the Sump is to commit a social transgression; to disrupt the dripping is to affront the stillness.
+
+The Keepers survive by tending the lichen. They are gardeners of decay. With delicate, multi-fingered appendages, they harvest the bioluminescent growth from the tangled copper vines, pressing it into the pores of their own skin. In doing so, they become living lanterns, carrying a dim, pulse-like light from one sector of the abandoned factory to the next. They do this not for visibility, but for propagation. They believe the Sump is a dormant heart, and by maintaining the light, they remain essential to the machine’s—or the cavern’s—eventual, impossible awakening.
+
+Look closer, and you will see the artifacts of their existence. They do not build houses; they colonize the geometries that lead nowhere. A Keeper might live for decades in the hollow space behind a jammed, six-story cog, its days spent rhythmically polishing the rust off the iron teeth, a task that accomplishes nothing yet feels like a holy rite. They have no concept of "progress." They view the rusted pylons and the dead pistons as deities—silent, monolithic titans that are temporarily sleeping.
+
+When a Keeper nears the end of its life, it does not die in the way animals do. It seeks out the narrowest, most enclosed pipe or the tightest intersection of wire and rock. It attaches itself there, its body gradually mineralizing, fusing with the rust until it becomes, effectively, a new rivet in the wall of the Sump. They leave their husks behind, adding to the "architecture" of the city. 
+
+The Keepers possess a profound, quiet hunger—not for food, but for symmetry. They spend hours aligning pebbles along the drip-channels, or weaving sagging wires into taut, geometric webs that catch the mineral-laden dust. They are the Sump’s immune system, its memory, and its most dedicated mourners. 
+
+In the Weeping Sump, there is no "self" that stands apart from the machine. To live here is to be folded into the rust, to be hydrated by the weeping ceiling, and to wait, with the infinite patience of the stone, for a day that will never arrive. They are the grease in the gears of a machine that has stopped turning, ensuring that if it should ever decide to move again, there will be no friction—only the memory of where the movement once lived.

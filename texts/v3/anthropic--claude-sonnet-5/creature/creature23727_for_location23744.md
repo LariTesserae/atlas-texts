@@ -1,0 +1,37 @@
+## The Wrights
+
+You will not see one arrive. You will see the evidence of arrival—a platform suddenly occupied that was empty a breath before, a wrapped load shifted six feet down a chain-track, a door drawn shut on its own weight with a sound like an exhale held too long—and you will understand, eventually, that this is not because they move fast. It's because they move *on a different clock*, slow as the gear-housings, patient as the steam, and what reads to you as a vanishing is simply a presence withdrawing at a pace you weren't built to register.
+
+They are called, in the handful of surface accounts that mention them at all, the Wrights—a word borrowed from old trades, fitting badly, fitting well enough. No one alive saw them named. The word simply attached itself, the way names do to things that clearly *make* but won't say what.
+
+### Shape
+
+Low. Everything about them is low, compressed toward the horizontal, built for ducking under conveyance chains and slipping between pipe-stalks set close enough to bruise a taller frame. Where a person stands roughly as wide as a doorway is tall, a Wright stands roughly as tall as a doorway is wide—broad through the shoulder and back, short in the leg, the whole silhouette closer to a kiln-door than a body. Skin, if it's skin, has the look of the architecture itself: a dark, slightly glassy surface, fired rather than grown, networked with fine red-brown seams that catch the ember-light the same way the rivets do. It would be easy, in bad light—and all light here is bad light—to mistake a standing Wright for a structural feature. This is not coincidence. It may not even be camouflage in the active sense; it may simply be that they and the Works were vitrified by the same long process, in the same cooling chamber, on the same decades-long timescale, and never fully separated into *self* and *built thing*.
+
+The face, such as it is, sits low and wide, dominated by two heat-pitted sockets where eyes would be—not blind, but tuned so far down the visible register that true daylight is reported to blind them the way deep dark blinds us. They do not need the furnace-glow to see by. They need it the way a held breath needs air: as the baseline condition of being able to function at all. Take a Wright to the surface and you would not be killing it, exactly. You would be asking it to read a script in no language it owns.
+
+Their hands—four-fingered, blunt, ending in something closer to chisel-edge than nail—are scarred uniformly along the same ridges, generation after generation, the kind of scarring that comes from gripping the same tool-housing in the same way for so long that the wear pattern becomes hereditary rather than personal. Whether this means they live very long, or that the pattern is simply taught hand to hand, child to elder, so faithfully that it might as well be inherited, is not something anyone has stayed long enough to determine.
+
+### Work
+
+They do not work *for* anything you'd recognize as a wage, a meal, a market. The furnaces are fed; the conveyance chains move their wrapped, anonymous loads from house to house; the gears turn at their slow argumentative pace—and the Wrights tend all of it with the unbothered constancy of something closer to circulation than labor. Ask what the furnaces produce and you will get no satisfying answer, because the asking assumes a *product*, an end-point, a market waiting somewhere with open hands. There may be one. More likely, the work is closer to breathing: necessary, continuous, not undertaken toward a future state but simply *performed*, the way a heart performs.
+
+What passes between them in place of conversation is the murmur you mistake for the furnaces themselves—a low continuous undertone, pitched just below the threshold where you'd call it speech, carried mouth to mouth across distances no greater than an arm's reach, because the Wrights, like their architecture, were never built for projection. Everyone has always been close enough to whisper. The occasional clang of metal-on-metal that seems to arrive without cause is, more likely than not, a Wright striking a punctuation mark into the murmur—an exclamation, a correction, a name—using the only register loud enough to be heard a full room away, which among them counts as raising one's voice.
+
+### Why They Withdraw
+
+It is not fear of you. Survey enough accounts and a pattern emerges: the Wrights do not flee danger so much as they decline observation, the way a sleeper might roll away from a lamp without ever quite waking. To be witnessed mid-task seems to register, in whatever passes for their custom, as a kind of violation done not to them but to the *work*—as though labor performed under an outside eye is somehow spoiled, made false, the same way a held breath stops being a held breath the instant someone announces they're counting it. So the door closes before you arrive. So the platform empties a half-second ahead of your gaze. It isn't evasion. It's a kind of courtesy extended toward an activity that asks not to be made self-conscious—directed at the work itself, with you merely the accident that would have caused the spoiling.
+
+This is also, probably, why you are never actually stopped, threatened, or barred. You are not an intruder in the sense of a trespasser. You are closer to an unexpected light source—something to be quietly worked around rather than confronted.
+
+### The Stalks, and What They Mean
+
+The pale leafless growths along the runoff channels, the ones that look crystallized rather than grown—these are, by the best guess of those who've looked closely and lived to say so, not separate from the Wrights at all. Whether they are larval stages, memorial markers, or something closer to a compost of the dead reabsorbed into mineral form, no one has determined, and the Wrights have given no sign of objecting to the uncertainty. What is consistent is this: the stalks lean toward moisture the way the Wrights lean toward warmth, with the same patient, faintly devotional posture, and they appear most thickly near junctions where the work has clearly continued longest, generation over generation, in the same four-fingered grip on the same worn tool-housing.
+
+It is the strongest available evidence that the Wrights do, eventually, end—and that ending here looks less like death and more like settling back into the inventory of the place, becoming wall, becoming stalk, becoming one more fixture for the next shift to work quietly around.
+
+### What You'll Actually Get
+
+If you wait long enough at any junction—and you will be told this, correctly, by the few who've come back to tell it—something will eventually come to meet you. A chain. A cart. A closing door. Very rarely, if you hold still and dim your own light past the point of comfort, a shape at the very edge of an ember-glow that resolves, for half a second, into something low and broad and patient, regarding you from sockets that have never needed brightness to see, before it returns—unhurried, uninsulted, entirely uninterested in the fact of you—to the work.
+
+It will not explain itself. The work was never conducted with witnesses in mind, and your understanding it was never part of the design.

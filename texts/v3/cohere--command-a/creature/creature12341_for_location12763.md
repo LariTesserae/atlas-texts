@@ -1,0 +1,33 @@
+In the Ossuary Spires of Ferrumvex, life clings to existence not through the softness of flesh or the verdancy of plant, but through the unflinching resilience of adaptation and the cold, calculated pulse of machinery. Here, the inhabitants are as much a product of their environment as they are its architects, their very existence a testament to the fusion of organic desperation and industrial inevitability.
+
+**The Forgemasters**  
+At the apex of Ferrumvex’s hierarchy are the Forgemasters, sentient beings whose bodies are a hybrid of organic tissue and repurposed machinery. Their skin, where it remains, is a thick, leathery hide resistant to heat and abrasion, often stained with the hues of rust and soot. Metal plates and gears are embedded in their musculature, replacing limbs lost to accidents or fused directly into their skeletons for strength. Their eyes glow faintly, bioluminescent orbs that reflect the light of the bioluminescent fungi, their pupils narrowed slits adapted to the harsh clarity of Ferrumvex’s unnatural light.  
+
+The Forgemasters are the overseers of the industrial complexes, their minds sharpened by centuries of exposure to the spires’ strange energies. They communicate in a guttural, rhythmic language that mimics the cadence of the engines, their voices amplified by internal speakers that resonate through their chest cavities. They move with deliberate precision, their every action a calculation of efficiency, their thoughts a blend of survival instinct and mechanical logic.  
+
+**The Steamworkers**  
+Below the Forgemasters are the Steamworkers, a caste of beings born from the necessity of labor. Their bodies are smaller, more compact, their limbs ending in clawed appendages ideal for gripping tools and navigating the narrow conduits of the spires. Their skin is slick with a natural oil that repels the moisture and heat, their lungs adapted to filter the noxious fumes that permeate the air. They wear minimal armor, strips of metal and leather bound to their frames, their most prized possessions being the masks that filter the air and the goggles that protect their eyes from the glare of molten metals.  
+
+The Steamworkers are the workforce of Ferrumvex, their lives spent in the factories and mines, tending to the machines and extracting the raw materials that keep the city alive. They live in communal chambers carved into the spires, their quarters dimly lit by the glow of bioluminescent fungi and the flicker of plasma torches. Their existence is one of routine and exhaustion, their dreams—if they dream—filled with visions of the spires’ shifting forms and the distant hum of the engines.  
+
+**The Scavengeborn**  
+At the fringes of Ferrumvex’s society are the Scavengeborn, outcasts and anomalies who have been rejected by the rigid hierarchy of the Forgemasters and Steamworkers. They are the misfits, the malformed, the ones whose bodies could not adapt to the demands of industrial life. Some are grotesquely fused with machinery, their limbs twisted into useless shapes or their minds fractured by exposure to the spires’ energies. Others are remarkably resilient, their bodies mutated in ways that grant them unique abilities—enhanced strength, immunity to heat, or even the ability to communicate with the scavenger drones.  
+
+The Scavengeborn survive by scavenging the wastes, picking through the discarded remnants of Ferrumvex’s industry for anything of value. They live in the shadows, in the cracks and crevices of the spires, their homes makeshift shelters cobbled together from scrap metal and fungal tendrils. They are both feared and pitied by the other inhabitants, seen as omens of misfortune or as living reminders of the cost of progress.  
+
+**The Drones**  
+Scuttling across the landscape like metallic spiders, the scavenger drones are the only true machines of Ferrumvex that retain a semblance of autonomy. Their bodies are a patchwork of salvaged parts, their insectile forms designed for efficiency and mobility. They are relentless in their search for organic matter or discarded machinery, their sensor arrays scanning the environment with unblinking precision.  
+
+Some drones have developed a strange symbiosis with the bioluminescent fungi, their exoskeletons colonized by the glowing tendrils. These drones emit a faint hum, their movements almost hypnotic, as though they are being guided by forces beyond their programming. They are both revered and feared by the inhabitants, seen as harbingers of change or as the eyes of some unseen power that watches over Ferrumvex.  
+
+**The Spireborn**  
+Deep within the heart of the spires, there are whispers of the Spireborn, beings said to be born directly from the obsidian and iron themselves. These creatures are rarely seen, their forms shifting and amorphous, their bodies blending seamlessly with the spires’ architecture. They are said to possess an innate understanding of the spires’ secrets, their minds connected to the very essence of Ferrumvex.  
+
+The Spireborn are both creators and destroyers, their actions incomprehensible to the other inhabitants. They are rumored to shape the spires with their bare hands, carving new pathways and chambers from the living rock. They are also said to be capable of destroying entire factories with a touch, their power as vast and unrelenting as the landscape itself.  
+
+**The Collective**  
+At the lowest level of Ferrumvex’s hierarchy are the Collective, a mass of fungal networks that have achieved a form of sentience through their symbiotic relationship with the spires and the waste they consume. The Collective communicates through bioluminescent pulses, their tendrils stretching for miles, connecting every corner of the city. They are the unseen backbone of Ferrumvex, their presence felt in the glow of the fungi and the subtle shifts of the spires themselves.  
+
+The Collective is both benign and indifferent, their priorities unknown to the other inhabitants. They are rumored to hold the memories of Ferrumvex’s past, their fungal networks a living archive of the city’s history. Some believe that the Collective is guiding the spires’ evolution, their tendrils shaping the landscape in ways that only they can understand.  
+
+In Ferrumvex, life is not a gift but a negotiation, a constant struggle for existence in a world that is both unforgiving and endlessly malleable. Its inhabitants are bound together by necessity, their lives a tapestry of metal, flesh, and fungus, woven into the very fabric of the spires. They are the children of industry and geology, their story still being written in the slow, unrelenting passage of time.

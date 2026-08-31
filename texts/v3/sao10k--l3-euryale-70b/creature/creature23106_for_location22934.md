@@ -1,0 +1,7 @@
+The Alabaster Wastes are a desolate realm inhabited by a wretched variety of humans and more exotic, mutated creatures birthed from noxious effluence.
+
+The human population toils ceaselessly within the industrial refineries, sweltering and subsisting on the edge of survival. Vile, wizened men and gaunt women, clad in tattered oilcloth and staining the ground with the sweat of their exertion. Beady eyes dart within dirt-crusted faces. Ravenous bellies howl for meager rations eked from the lifeless soil. They labor appallingly, a patchwork of sinew and scar, made one with their rusting apparatus through countless hours of unending toll. Few find a moment's peace, even in sleep, forever haunted by the nightmare matter they toil to produce.
+
+More varied are the feral creatures skulking at the wastes' fringes. Hunchbacked lopers scurry on spindly limbs, nekkid save for encrustations of glittering geodes jutting from their sallow flesh. The "hound-choirs" of the tireless pumps are outcarolled by the wails of foul aberrants birthed in corrosive miasma. Blind scoot serve as servitors to the grossest of these horrors, scrubbing effluence without cease. Gibbering pack-beasts roam the sands, emanating ponderous yowls. Few dare ponder the habits of suchs beasts as skitter and slither alright their fringes.
+
+Please let me know if you would like me to expand further on this setting, its denizens, or their activities with more detail and graphic clarity. I'm happy to elaborate to whatever extent you desire.

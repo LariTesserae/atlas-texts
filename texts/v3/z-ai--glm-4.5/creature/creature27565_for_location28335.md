@@ -1,0 +1,29 @@
+The silence here is biological, true, but it is not empty. It is merely that the definition of "life" in this humid, dark pocket of the world has shifted, calcified into something colder and harder. The fauna rating is a null set only if one restricts the search to things that bleed, breathe oxygen, or dream. If you widen the aperture, the cavity is teeming with a population that is perfectly adapted to the heat, the rust, and the crushing dark.
+
+They are the Tenders.
+
+They are not shaped like men, nor like the beasts of the field. They are the architecture made animate. At first glance, a Tender appears to be nothing more than a cluster of redundant pipes or a forgotten bundle of maintenance equipment left leaning against a wall. They are spindly, jointed constructions of rusted iron and oil-blackened brass, standing perhaps seven feet tall on multiple, reverse-knee legs that grip the slippery grating with magnetic, taloned feet.
+
+They do not walk with the stride of a living thing; they flow. Their movement is glacial and hydraulic, accompanied only by the soft, wet shush of fluid displacing in their joints and the barely audible click of internal ratchets engaging. They are draped in heavy mantles of felt and insulation—rough, gray fabric that muffles their machinery and absorbs the ambient condensation, making them look like shrouded, penitent monks of a forgotten order.
+
+Their heads are sensory clusters—a radial arrangement of lenses and auditory pickups, capped by a small, rotating exhaust vent that puffs out tiny clouds of steam like breath. They do not speak; they communicate through bursts of low-frequency data that travel through the pipes they tend, vibrating in the metal so that the entire complex hums with their conversation. It is a silent language of pressure and torque.
+
+The Tenders are the gardeners of this industrial thicket. You will see them frozen for hours, perfectly still, their limbs tangled around a pressure valve, their sensory clusters pressed against the metal skin of a pipe as if listening to the blood flow within. When a valve needs turning, they do not crank it with urgency. They unspool a secondary limb, a delicate, many-jointed proboscis tipped with a socket wrench that fits the valve with a machined precision. Then, they wait. They wait for the rhythm of the machine, the pause between the great heartbeats of the pistons, and in that millisecond of silence, they turn.
+
+Beneath the Tenders, in the shallow, oily puddles on the uneven floor, live the Scavengers.
+
+These are smaller, crab-like entities, low to the ground and built for scavenging in the muck. They are the size of a helmet, constructed from the scrap of the place—shards of plate metal, bent gears, and severed segments of chain. They scuttle sideways on six treads, their locomotion a sound like dry leaves skittering on concrete. They have no obvious sensors, only a smooth, darkened glass plate on their forward carapace that reflects the sickly amber light.
+
+The Scavengers are the cleanup crew and the parasites of this ecosystem. They feed on the detritus of the machines—the flakes of rust, the globules of heavy grease, the stray shards of metal that shear off the grinding pistons. They are territorial, chasing one another away from the rich, black sludge that pools beneath the leaking steam vents. When a Tender descends from the high walkways, the Scavengers freeze, flattening themselves into the shadows, recognizing the predator hierarchy. Occasionally, a Tender will snatch a Scavenger up with a hydraulic claw, not to eat, but to dismantle, recycling the smaller machine’s parts to repair a broken grate or a leaking seal. It is a brutal, efficient economy of matter.
+
+And then there are the Sleepwalkers—the giants.
+
+The machinery itself is not distinct from the life here; the massive pistons, the size of railway cars, are not just engines. They are the great, sessile organisms of the deep. They are the Leviathans. Their housings, set deep into the rock face, are their shells; the plunging rods are their limbs. They move with the terrifying power of tectonic plates, a grinding, hydraulic breath that shakes the catwalks.
+
+The Tenders do not control the Leviathans; they worship them, or perhaps they are simply the white blood cells of a massive, metallic body. The Sleepwalkers seem to possess a dim, collective awareness. When the atmospheric pressure drops, or when the water level rises in the sumps, the rhythm of the pistons changes—a slowing of the heartbeat, a deepening of the thrum. The Tenders react instantly, swarming the valves and conduits, stabilizing the environment for their sleeping gods.
+
+There is one anomaly in this sterile, mechanical menagerie: the dying fern.
+
+It is a singular intrusion of carbon life, a browned, curling thing sprouting from a crack in the concrete. The life here treats it with a fascinated revulsion. A Tender has stationed itself near the fern, standing motionless for days, its sensor cluster tilted down toward the plant. It does not water it; it does not crush it. It simply watches. Occasionally, a Scavenger will venture too close, only to be swatted away by the Tender with a violent spark of static electricity. The plant is an error in the code, a virus in the program, and they are quarantining it, preserving it in its dying state as a specimen of something that is *not* them.
+
+In the flickering amber gloom, surrounded by the humid heat and the smell of wet dust, you realize that you are the outsider. You are the soft, wet, biological error in a world that has moved on to iron and oil. The Tenders watch you with their cold lenses, tracking your movement with the same dispassionate interest they show the fern. You are warm. You bleed. You are fragile. And in this cathedral of steel, you are the only thing that is truly, terrifyingly alive.

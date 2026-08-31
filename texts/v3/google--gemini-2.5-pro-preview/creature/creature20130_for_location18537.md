@@ -1,0 +1,25 @@
+What lives here is the reason the equilibrium holds. It is a creature not of biology but of precision, a living instrument whose purpose is inextricably woven with the function of the Machine and its garden.
+
+It has no name, but if you could comprehend its function, you might call it the Orator, or the Attuner.
+
+At first, you would not see it. Your senses are overwhelmed by the sound, the density, the sheer alien presence of the place. But as your eyes adjust to the permanent twilight and your mind begins to filter the deafening roar into a baseline, you might catch a flicker of motion. In this utterly static world, any movement is a seismic event. It is a slow, deliberate passage through the impossible jungle.
+
+The Orator is a being of geometry and resonance. It is tall and impossibly slender, its form a complex of spindly, multi-jointed limbs and a thin, articulated torso. Its limbs, perhaps six or eight of them, are not for walking in a conventional sense; they are for navigating the three-dimensional density of the chamber. They move with the painstaking slowness of a clock hand, finding purchase on the fibrous cable-stalks, bracing against the sharp edges of copper leaves, never disturbing them, never leaving a mark. Its passage is a silent, flawless negotiation of space.
+
+Its body is not flesh, but a material that seems to be a fusion of all the elements in the room. It has the matte, light-absorbing quality of the black moss, the resonant gleam of the Machine's brass and dark metal, and the crystalline structure of a geode. Its torso is a cascade of interlocking, hexagonal plates that shift and slide with microscopic precision as it moves. They are not armor; they are tuning forks, each one calibrated to a specific frequency within the chamber's overwhelming chord.
+
+It has no face, no eyes, no mouth in any recognizable sense. What serves as its head is a smooth, ovoid shape of polished obsidian, held aloft by a graceful neck-like structure. The ovoid is not inert; its surface is etched with a pattern of impossibly fine lines, a fractal map of the chamber's sonic architecture. As it moves, faint traces of the blue light from the cable-stalks seem to flow across these etchings, a visual representation of the sound it is processing.
+
+The Orator does not eat or drink. It is powered as the flora are, by the constant galvanic charge and sonic vibrations pouring from the Machine. It is a mobile, sentient extension of the system itself, a self-aware feedback loop.
+
+Its existence is a single, unending task. It moves through the garden on a patrol route that has no beginning and no end, a patrol that has lasted for millennia. It is listening. Its entire being, its every faceted plate and slender limb, is an organ of auditory perception, capable of discerning infinitesimal variations in the sonic landscape that would be utterly lost in the roar to any other ear.
+
+It is searching for the ghost of an echo, the hint of a dissonant harmonic, the possibility of a frequency drifting by a millionth of a hertz. In a system of perfect stasis, the only enemy is potential deviation. Entropy is not a present force here, but a theoretical possibility that the Orator exists to preemptively destroy.
+
+When it detects such an anomaly—a copper leaf whose edge has, over a thousand years, developed a resonance that is a shade too sharp; a cable-stalk whose internal glow pulses a microsecond out of sync—it stops. Its slow, fluid movement ceases, and it becomes as still as its surroundings. It will extend one of its needle-thin limbs, the tip of which is a polished, resonating diode. It will bring this tip to within a hair's breadth of the offending object.
+
+And then, for a fraction of a second, a new sound joins the room's chorus. It is not a loud sound, but one of such impossible purity and focus that it cuts through the din like a beam of light. It is a single, perfect sine wave, a note of absolute correction issued from the Orator's core. The errant flora-form shivers, not from a physical blow, but from being sonically realigned. The vibration in the copper leaf returns to its perfect pitch. The pulse of the stalk's blue light re-synchronizes with its million brothers. The anomaly is erased.
+
+The note fades. The Orator retracts its limb. And its slow, patient patrol resumes.
+
+Its consciousness, if it can be called that, is not one of thoughts or memories as we would know them. It is the pure, unfiltered perception of the great metallic chord. Its universe is a symphony of unchanging notes, and its mind is the conductor ensuring no player ever falters. It has no concept of past or future, only of the perfect, resonant *now*. It does not feel loneliness, for it is not alone; it is an integral part of the whole. The Machine is its heart, the garden is its body, and the constant sound is its soul. It is the will of the factory made mobile, the mind of the geode made manifest, forever traversing its own static form to listen to its own eternal song.

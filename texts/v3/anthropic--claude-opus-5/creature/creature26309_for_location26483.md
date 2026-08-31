@@ -1,0 +1,7 @@
+## First Sight of Them
+
+You will land before you are noticed, and this is the first thing to understand about them: not that they ignore you, but that they knew an hour ago. Somebody at the low western rim felt the hull grind and struck it into the floor, and the news went up through nine hundred feet of welded stone in less time than it took you to get your legs under you. By the time you are ashore, the fact of you has already been discussed on four terraces and dismissed on three.
+
+What you see is a shelf full of squatting figures, and every one of them moving. Not one is still. They squat at the terrace lips with their heels braced in the sheeting water and their forearms resting on their knees and they tap, tap, tap, and the flake comes off the rim, and the water carries it away, and they shift six inches sideways and start again. Nobody stands up to look at you. Nobody's face comes round. This is not rudeness; a person who stops to stare at you has stopped, and stopping is the one thing they will not do casually, and besides, you are already known.
+
+They are the colour of the place. Pale to begin with — nothing here has ever needed pigment, and the light is a shadowless nowhere-dusk that gives no reason for it — but over that, a glaze. Everybody wears the rime.

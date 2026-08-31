@@ -1,0 +1,57 @@
+Life here is not arranged in a forest’s vertical certainty—canopy, understory, floor—so much as in overlapping thicknesses: film, mat, water, mud, air. The residents are less “a community” than a set of solved problems, repeated in thousands of bodies.
+
+At the bottom of everything, before you can even call it bottom, are the ones you never quite see. In the black mud and the thin water above it, bacteria and archaea do the slow work that makes this place smell faintly sour and metallic. They live on what falls and sinks and can’t fully rot in oxygen, trading compounds back and forth like currency: sulfurous breaths, iron turned from one state to another, methane gathered in patient bubbles that rise and pop with those small wet sighs. In the oldest pools the mud isn’t just sediment; it’s archive. Seeds wait there, hard as beads, and spores wait finer than dust, and the bones of insects and fish wait in layers that only a drought or a digging bill ever disturbs.
+
+On top of that chemistry, life takes the form of skins.
+
+Algae paints the water when the sun is steady, not always green—sometimes brown, sometimes blue-black—depending on which basin is freshest and which has been sitting long enough to thicken. Thin bacterial mats slick the iron-stained grit where water sheets and retreats; they make those surfaces more slippery than they look, and in bright flat light they shine like varnish. In the shallowest films, where water is almost just an idea on clay, diatoms—glass-walled and precise—build a faint dusting that feeds the smallest grazers.
+
+Then come the plants that can tolerate being alternately drowned and baked hard.
+
+Sedges and tough grasses rule because their ambition matches the land’s: they spread sideways, not upward, binding the thin soils where they can and letting go where they can’t. Their roots are more like nets than anchors, full of air spaces to keep from suffocating. In the swales you get clumps like brushes, each clump its own little island that catches blown debris and slows water long enough for silt to settle. Here and there, in the most nutrient-starved patches, plants cheat: small carnivores with sticky leaves close to the ground, or bladder-like traps in the water, taking insects because the soil won’t feed them. Moss and liverwort bruise the stone in damp shade, living off mineral whispers and constant wetness.
+
+Shrubs appear where the ground lifts by a few finger-widths. They’re thorny not for drama but for survival—anything leafy is worth eating when there isn’t much to choose from. Their leaves are small, thick, waxed; their stems are built to resprout after being snapped or drowned. The trees that “make it” do so reluctantly: wide-based trunks, roots flung outward like hands feeling for breath. They don’t form woods. They form landmarks—perches, nesting sites, lightning targets, the nearest thing to a mast in a sea of flat.
+
+If you want to know what truly lives here, though, you listen. The loudness is not decoration; it’s the primary architecture.
+
+Insects are the first layer of that architecture, and they are everywhere the water is not decisively moving. Mosquitoes and midges hatch in batches timed to the pools’ moods, turning the air into a stitched veil at dusk and dawn. Dragonflies patrol like bright needles, each one holding a territory measured in reed clumps and reflected sky; their nymphs are the unseen predators of the shallows, grabbing anything smaller that wiggles. Water beetles, backswimmers, whirligigs—each has a niche defined by surface tension, depth, and the speed at which a pool warms. Ants take the rare firm ground and build up rather than down, raising mounds a few inches above the flood line; after rain you can see them carrying pale larvae like grains of rice to higher chambers.
+
+Spiders solve the openness in two ways. Some build low sheet-webs between sedge stems, catching the constant drift of small flying things. Others hunt on foot across mud that looks too slick to hold a body—light, long-legged, making use of that iron-hard skin when it’s dry enough to bear them.
+
+Amphibians are the place’s pulse.
+
+Frogs here are less “pond dwellers” than “water opportunists.” There are big ones that claim the dependable basins and boom at night until the sound seems to come from the air itself; there are small ones that specialize in the temporary—breeding fast in ditches that might last only weeks, their tadpoles built for speed and crowding. Some lay eggs in floating foam masses tucked under plant mats; others glue strings of eggs to submerged stems in the calmest water, betting on a stable level. After heavy rain, the flats can become a single shallow sheet, and then the frogs seem to appear everywhere at once, voices layered so densely you can’t pick out an individual without concentrating.
+
+The reptiles use the land’s few hard certainties—stone that warms, water that hides.
+
+On the rock ribs, lizards flatten themselves in early sun, skin the color of dried clay or mottled like lichen, so still they read as texture until they blink. In the water are the ones you notice only when they decide to move: snakes that swim with minimal fuss, their heads just above the surface like drifting sticks; turtles that haul out onto the warmest stones and drop back into tea-colored water at the first wrong vibration. In the most permanent pools—those that don’t quite dry even in the harshest weeks—there may be something older and heavier: a thick-bodied ambush predator that lies in the deepest shade under floating mats, patient as the mud itself, taking fish and unwary birds with a single decisive surge. Whether it’s there in numbers or only as rumor depends on how much uninterrupted water the season has granted.
+
+Fish are the quiet miracle of the place.
+
+They live where a visitor insists “there can’t be fish here”—in ditches, in hoofprint chains, in basins that shrink into steaming bowls. Some are small and tough, gulping air when oxygen runs low, hiding in the coolest mud when the sun turns a pool into warm soup. Some are quick breeders that explode in number when the flats flood, then vanish—eaten, dried, or stranded into the mud’s archive—when the water retreats. After a storm, when the landscape briefly connects, you can almost imagine the fish using that fleeting network like roads, dispersing into new basins before the roads evaporate.
+
+Birds turn the openness into a living map.
+
+Wading birds are the most visible: heron-like hunters that stand so still they could be part of the stone until their necks snap forward; stilt-legged pickers that sweep their bills side to side, filtering tiny life from the shallows; heavier birds that walk with deliberate authority through sedge clumps, booming calls that cross basins and come back as faint echoes. Their nests are compromises. Some build in the lone trees, betting on height and distance. Some build floating platforms—rafts of torn vegetation anchored to stems—rising and falling with water level like patient boats. Others nest on the few dry knuckles of ground, relying on camouflage and the fact that sightlines are long enough to see trouble coming.
+
+There are also the birds of the air column: swallows and swifts that feed on the insect veil, hawks that hang over the flats and drop without warning. The raptors don’t need forests here; they need visibility. A mouse running between shrub islands has nowhere to disappear for long.
+
+Small mammals live in a way that looks, from a distance, like constant risk management.
+
+Rodents build their homes at the interface between wet and less-wet: in sedge clumps thick enough to lift a nest above the waterline, in ant mounds, in the roots of those reluctant trees. They travel by habit, using the same long exposed routes because learning new ones costs more than sprinting the known. Their bodies are often built for damp: dense fur, small ears, quick metabolisms. There are likely marsh-haunting rabbits or rabbit-like grazers that browse the toughest grasses and vanish into the nearest tangle; and there may be larger hoofed animals that come to the flats not to live but to feed—walking paths that become the place’s secondary drainage, leaving prints that instantly become nurseries for mosquito larvae and tiny crustaceans.
+
+Where there is that much small life, there are specialists that eat it.
+
+Some predators are almost invisible: snakes that take frogs, frogs that take insects, fish that take tadpoles, insects that take fish eggs. Some announce themselves in the way they make the soundscape “hiccup”—a sudden hush around a strike, then the immediate resumption of noise as if the system has absorbed the loss and moved on. There may be sleek semi-aquatic hunters—otter-like bodies or mustelids—that use the permanent pools as larders, sliding between basins when the water connects and retreating to the deepest channels when it doesn’t. At night, other eyes take over: owls working the open with silent efficiency, and small carnivores that patrol the edges where mud meets grass, sniffing for anything slowed by damp.
+
+Even death has residents.
+
+On drier ground, ants and beetles dismantle bodies quickly, turning them into moving pieces and buried nutrient caches. In water, scavenging fish and aquatic insects reduce what they can reach. But the place’s defining trick is that not everything gets fully recycled on schedule: in the anoxic bottoms, parts of the world are set aside. A feather might last longer than it should. A bone might stay where it fell and slowly sink, becoming one more pale thing held in the dark.
+
+If there are people here—and a land like this often draws them even when it refuses to be “tamed”—they would live the same way everything else does: by respecting inches.
+
+They would build on the firmest rises, not because they’re high but because they’re reliably not-low, putting floors above flood level on short stilts or on stone. They would travel light and seasonally, reading water the way others read roads: knowing which basins will hold, which swales will betray a cart, which iron-skinned flats will carry a footstep in the morning and swallow it by afternoon. Their wealth would be timing—fish when the flats connect, birds’ eggs when water is stable, reeds when the stems are tough and dry enough to cut, frogs and snails when the air goes thick with their abundance. They would learn to listen as well as look, because in haze and mirror-light the ear tells you more than the eye: where the deep pool is (by the kind of frog that calls from it), where the drier ground lies (by the rustle of grass instead of the suck of mud), where something large is moving (by how suddenly the small things stop).
+
+But even without humans, the place feels inhabited because it is: continuously, insistently, in every thin layer.
+
+What lives here is whatever can endure a world that won’t choose between land and water—whatever can make a home on a surface that breathes, on nutrients that have mostly been washed away, on distances that are short in miles but long in exposure. The reward for solving those constraints is space: broad flats full of sound, old stone full of seep, and water that is never quite absent—only redistributed into the next basin, the next film, the next quiet gulp underfoot.

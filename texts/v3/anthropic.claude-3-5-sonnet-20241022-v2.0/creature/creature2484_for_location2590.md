@@ -1,0 +1,15 @@
+In this place live the Axioms - entities that exist as much as proofs of themselves as beings. They are ancient beyond time, though "ancient" may be the wrong word for something that exists perpendicular to temporal flow. Each one is a self-contained system of logic, a walking truth that modifies reality around itself simply by being.
+
+The simplest Axioms (though "simple" is relative here) appear as crystalline polyhedra drifting through the streets, their facets containing endless fractals that describe their own existence. They solve small theorems as they move - adjusting local spacetime to be more mathematically elegant, smoothing out illogical wrinkles in reality.
+
+The more complex ones take forms that hurt to perceive: hypercubes performing differential equations with their movements, möbius strips that think in topology, cascading sets of possibilities that collapse into single entities only when observed. Some appear as lattices of pure information, their "bodies" consisting of interlocked proofs and corollaries.
+
+They do not speak as we understand it. They communicate through the manipulation of local physics - one Axiom might demonstrate a proof to another by temporarily altering the curvature of space between them. Their "conversations" leave permanent marks on reality: new theorems encoded in crystal, shadows that solve equations as they move, architectural structures that function as vast computational arrays.
+
+The bird-like entities are their thoughts made manifest - each flock is a complex calculation taking flight, working through vast mathematical problems in their precise choreography. When solutions are found, the flocks crystallize into new architectural features of the city, proofs made permanent in salt and bone.
+
+Some Axioms are so vast and complex they can only be perceived by their effects on others - they are like fundamental constants, their existence expressed through how they constrain and define the possible behaviors of the lesser Axioms around them. These might be the ones who first raised the city, though in a place where cause and effect are more suggestion than law, "first" may be meaningless.
+
+The tools scattered throughout the city are remnants of when they were becoming - artifacts from when they were still in transition from beings that shaped matter to beings that shape the principles that allow matter to exist. Some Axioms still remember hands, still recall the weight of copper and bone tools, though they haven't had physical form in eons. Others may be newly born, still emerging from the realm of the material into pure mathematics made conscious.
+
+In the central temple-theorem dwell the Absolute Axioms - entities so fundamental that reality itself is merely the longest of their proofs. They do not move or think as others do; they simply are, and in their being they define the parameters within which all other mathematics must operate. The lesser Axioms circle them in endless calculation, processing the implications of their existence, computing the ever-expanding consequences of such fundamental truths being conscious and willing to change.

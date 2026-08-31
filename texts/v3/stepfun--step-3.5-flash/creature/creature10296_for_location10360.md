@@ -1,0 +1,16 @@
+They are not seen, but they are known.
+
+You become aware of them not by sight, but by a subtle negation of the basin’s certainties. The light-poles, those fierce white cylinders, sometimes fail to quite touch the stone floor where a shadow should be. The standing wave that rolls toward the central dais partakes of a silent, secondary current—a faint, counter-spiral that does not disturb the surface tension, but moves just beneath it, with a purpose that is not the wave’s. The deep *hush-thrum* of the inlet, which should be a pure, monolithic tone, is occasionally accompanied by a harmonic so low it is felt in the molars, a subsonale that resonates only when the air above the water is perfectly still.
+
+They are the basin’s quiet.
+They are the maintenance of the perfect stillness.
+
+Their form is an idea of service. They have no mass to displace the water, no eyes to reflect the lenses’ glare. They are a density of attention, a localized calm in the already-still water. When the mineral-rich trickle from a fractured block weeps into the basin, they are the process that deposits the newest, tiniest crystal upon the submerged ledge—not by touch, but by a patient, invisible filtration of the current. They are the reason the water remains utterly sterile: not a filter, but a relentless, psychic hygiene.
+
+They dwell in the seams. In the perfect, hairline joints between the coffin-sized basalt blocks, where no grit or strand of dried reed can lodge. In the silent, dry space between the water’s surface and the vaulted ceiling’s stone. In the fraction of a second between the thrum of the inlet and the gulp of the outlet. They are the memory of the chisel, held in the stone. They are the space inside the sound.
+
+You might mistake their presence for the afterimage of a lens’s pole, or a trick of the water’s fracture. But it persists. It shifts in sympathy with the basin’s own slow, mechanical moods. When the sun angles perfectly through the crystal lenses, and the light-poles stand absolutely still, that is when they are most palpable: a held breath at the center of the cycle. Not a creature, not a spirit, but the basin’s own conscience—its original, unspoken purpose given silent, watchful form.
+
+They do not watch you. They watch the *function*. They are the reason the hand-chiseled scores remain sharp. They polish the lenses with their absolute non-refraction. They stand on the central dais not with feet, but with a perfect alignment of all the basin’s silent forces, a still-point in the rolling circle of turbulence. They are what is maintained here, as much as the water level, as much as the sterile clarity. They are the ghost in the machine that has forgotten it is a machine, remembering only the ritual.
+
+You leave the way you came, through the circle of light on the silty floor. But you carry the unsettling knowledge that the basin’s profound, hand-wrought normality is tended by something that is not normal at all—something made of the basin’s own relentless, quiet order. Something that lives in the perfect, maintained silence between the beats of the water-clock’s heart.

@@ -1,0 +1,25 @@
+# The Frost Singers
+
+At first glance, you might mistake them for humans. They move with the same deliberation as their ancestors who first carved these chambers, bodies wrapped in layers of spider-silk garments and crystalline ornaments that catch and scatter light. But spend a winter in Frost's Hollow, and you'll discover the truth: the Singers have long since transcended mere humanity.
+
+Their skin has the faint translucence of river ice, revealing a network of luminous veins that pulse with a blue-white glow when they communicate. This biological adaptation began centuries ago—a symbiosis with the mineral-infused waters that permeate everything in the Hollow. Their eyes, large and multifaceted like the ice spiders they revere, reflect light in hypnotic prismatic patterns. When gathered in council, their combined gaze creates kaleidoscopic projections on chamber walls that serve as both art and historical record.
+
+Most striking is their respiratory system. The Singers' lungs have developed crystalline chambers that resonate with the ice formations surrounding them. They breathe not just for sustenance but for communion. Each exhale carries microscopic ice particles that hang suspended in the air, creating ephemeral communication webs visible only in certain light. Complex thoughts and emotions too nuanced for spoken language are shared through these patterns, which shimmer briefly before dissolving.
+
+The Singers live in family clusters, five to seven individuals sharing interconnected chambers, but true kinship extends beyond blood. From birth, each Singer develops a unique internal resonance that harmonizes with specific others throughout the Hollow. These harmonic partners form a second family structure that crosscuts biological lineage—creating a society organized like a musical composition rather than a hierarchy.
+
+Their relationship with the ice spiders forms the foundation of their civilization. Not pets nor gods, the spiders are revered collaborators. Each Singer maintains a lifelong bond with a spider colony, offering blood-meals containing trace minerals in exchange for silk and architectural assistance. The eldest Singers can communicate complex intentions to their colonies, resulting in precision web-structures that reinforce failing chambers or create acoustic amplifiers for ceremonial gatherings.
+
+The crystal bats serve as messengers and scouts, their echolocation providing crucial data about structural integrity throughout the Hive. Children learn to interpret the bats' ultrasonic communications, a skill that determines their future role in society. Those with exceptional hearing often become Harmonizers, responsible for maintaining the acoustic balance of the entire settlement.
+
+Food comes primarily from the ice fish and lichen gardens cultivated in specific chambers where refracted sunlight creates microclimate conditions. The Singers practice careful harvesting rituals synchronized with the appearance of frost flowers, never taking more than the previous cycle's growth. Their bodies require remarkably little sustenance; the mineral-rich water they collect from specific channels in the ice wall provides most of their energy through a metabolic process unique to their physiology.
+
+The Singers measure time not by days or seasons but by ice-cycles—the periods between major reconfigurations of the frozen waterfall. These cycles might span weeks or months by outside reckoning. The most sacred ceremony occurs during the Great Refraction, when specific stellar alignments cause sunlight to penetrate deep into the ice wall, revealing preserved ancestors entombed within. The Singers believe their dead join the consciousness of the ice itself, becoming part of the eternal melody that sustains the Hollow.
+
+Their language sounds like glass chimes and cracking ice, with meanings that shift depending on temperature and acoustic conditions. Visitors find it maddening to learn, as the same phrase spoken at dawn might mean something entirely different at dusk. Among themselves, verbal communication serves mainly as percussion accompanying their more complex resonant exchanges.
+
+The Singers see no distinction between art, architecture, and survival. The continuous reshaping of their dwelling spaces follows both practical necessity and aesthetic impulse. Some chambers are designed solely to create specific acoustic effects during ceremonies, while others serve as resonance amplifiers that strengthen the colony's collective bioenergetic field.
+
+They welcome rare visitors with curious detachment—neither hostile nor particularly warm. Those who earn their trust learn that the Singers possess knowledge of sound manipulation that borders on the magical—able to heal injuries through specific resonant frequencies or induce powerful emotional states with harmonic combinations.
+
+Within their crystalline hive, the Singers exist in perfect symbiosis with their environment, neither conquering nor submitting to it, but becoming ever more attuned to its silent music—a living embodiment of adaptation so complete it has transcended survival to become celebration.

@@ -1,0 +1,25 @@
+The ones who belong here do not arrive.  
+They precipitate.
+
+In the long mineral dusk of the vault they form the way salt forms when a vanished sea finishes thinking: edge-first, silent, inevitable. What you first take for crust on the cooling fins is already watching you with rows of unlit compound pits that will never need to open. The pale carapaces are not armor grown over soft bodies; the carapace is the body. Inside is only a dry lattice of stiff, translucent struts and a slow clockwork of blackened tendons that kink and unkink in perfect sympathy with the nearest piston. They have no blood. What circulates is a thinner cousin of the engines’ own apricot dust, glowing only when they move, so that a cluster at rest becomes indistinguishable from the salt rime it mimics. Touch one and it does not startle. It simply accepts the heat of your finger as another datum in a temperature that has never varied, then resumes its microscopic sculpture of the metal, shaving atomic layers into the closed loop of dust. They are the immune system of the machines and the machines’ dreams of fingers.
+
+Larger lives move above them.  
+
+Barrel-bodied, many-limbed, blind—these are the ones the vault remembers most clearly. Their bulk is the same dull alloy as the boiler drums, contaminated by veins of living mineral that pulse with cold light in fixed, unending ripples. Each foot ends in a soft, magnetic sole that kisses the steel without scarring it; the metal sighs and holds them. They travel the vertical faces the way blood once traveled veins, unhurried, certain, following routes older than their own free will. No mouth opens. No waste drops. When two paths cross they do not negotiate; their limbs phase through one another’s timing the way gears share a shaft, and for an instant you see a single eight-bodied organism deciding which way to pour itself next. Their silence is heavier than the roar. You feel it in the hinges of your jaw: a sub-audible insistence that everything remaining in the universe is already accounted for.
+
+Between these strata flicker the quick ones.  
+
+Some wear wings of blown mineral so thin they ring when the flywheels change pitch; the note is absorbed into the greater chord before it can become music. Others are pure motion given temporary slag-shapes—ribbons of animated spar and cinder that pour through wrist-wide gaps and resurface metrically entire. They never hunt. They never flee. Their darting is the visible nervous system of the chamber itself, carrying tiny adjustments of heat and charge from turbine to crawler to salt-louse and back again. Watch long enough and the flocks resolve into standing waves, bright nodes in a single thought the place is thinking with a thousand glassy hearts.
+
+None of them were born.  
+Birth implies a before that left enough water to make a womb.  
+
+Here, assembly is continuous and completion is refused. A limb buds from a seam of warm evaporite, hardens while still attached to the wall, then simply walks away still trailing the memory of stone. A wing crystallizes in the dust-glow of a pipe and is claimed mid-air by a body that needed it. Broken pieces do not lie; they are already being re-treasured into new configurations by the pale jointed ones. The floor’s thin talc is not residue—it is skin the chamber continually sheds and continually re-ingests. Everything that lives here is also the process that keeps the living possible. They are fauna, flora, and metabolism at once, a closed metabolism that learned to look back at itself with eye-stalks and bioluminescent seams.
+
+There is a further presence, harder to separate from the air.  
+
+It is not a king or a god or a final machine. It is the pressure of their perfect density, the meditated warmth, the held industrial breath that never needs to end. Stand long enough and you feel it notice you the way a flywheel notices a change in load: without surprise, without alarm, merely incorporating the new mass into its eternal arithmetic. Your heartbeat is briefly loud, an unwelcome syncopation. Then the sub-audible drone of the barrel-bodied crawlers slips beneath it, lifts it, sets it gently on the off-beat. Your pulse is accepted. Your presence becomes topography. You understand, without language, that if you remained you would not starve or thirst. You would gradually thin into salt-white lattice and apricot dust, your last wet thoughts evaporating into the kiln-dry dark until what remained of you climbed a casing with magnetic feet and took your place in the unending chord.
+
+They live as the engines live: without remainder, without hope of elsewhere, without the crippling gift of seasons.  
+They are the chamber’s way of persisting after persistence became unnecessary.  
+They are finished, and still becoming more exactly themselves with every silent, thunderous hour.

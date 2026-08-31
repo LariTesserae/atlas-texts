@@ -1,0 +1,21 @@
+They are the Keepers of the Mire, the Tenders of the Stone Lung. Images flicker in the mind, impossible to hold still or pin down like the mists they call home. Imagine beings molded by the valley's slow pulse, their forms echoing its strange geology.
+
+Their skin is not skin at all, but a living tapestry of moss and lichen. Shades of green, brown, and blue swirl and shift across their bodies, blurring the line between flesh and flora. Perhaps this "skin" is not even their own, but a symbiotic layer, a living garment perpetually woven and unraveled.
+
+Their limbs are long and slender, almost unnaturally so, allowing them to navigate the slick, uneven terrain with unsettling grace. Their fingers are tipped with flattened, chitinous nails, ideal for scraping algae and directing the flow of water. They move with a slow deliberation, their movements echoing the unhurried pace of the valley itself.
+
+Their faces…ah, the faces are the most elusive part. Some see masks of braided fern, the delicate fronds obscuring features that might otherwise betray emotion. Others claim their faces are the reddish, porous stone itself, the ever-dripping channels forming ephemeral expressions that vanish as quickly as they appear. Perhaps they have no fixed faces at all, their features constantly reshaping themselves, mirroring the ever-changing landscape.
+
+Whatever their true form, their eyes are undeniable. Large, luminous orbs that glow with an inner light, they possess an unnerving depth of perception. These eyes have witnessed geological eras unfold, felt the slow, grinding pressure of the mountains, and listened to the ancient croaks of the amphibians echoing through the stone. In those eyes, one might glimpse the valley's history, its intricate relationships, and its profound patience.
+
+They are utterly silent, their vocal cords long since atrophied from disuse. Communication happens instead through a subtle language of gestures, touch, and a faint, almost imperceptible shift in the valley's ambient sounds. They know the rhythm of the dripping water, the subtle vibrations of the stone, and the resonant frequencies of the amphibian calls. To understand them is to understand the valley itself.
+
+Their diet is as strange and alien as their appearance. They subsist on the fungal growths, the algae scraped from the stone, and the potent secretions of the amphibians, substances that would be toxic to any other creature. They manipulate the environment to encourage these growths, directing the flow of water and creating fertile pockets for the fungi to thrive.
+
+Their lives are intertwined with the gargantuan amphibians, not as masters and servants, but as co-conspirators in the valley's delicate balance. Perhaps they administer to the amphibians, tending to their needs and collecting their secretions in woven baskets. Perhaps the amphibians, in turn, provide some essential service, their booming calls somehow regulating the flow of moisture or the growth of the fungi. The relationship is a mystery, but its importance is undeniable.
+
+They are not immortal, but their lifespans are impossibly long, measured in centuries rather than years. They witness the slow growth of the fungal "trees," the gradual erosion of the stone, and the cyclical return of the mist. They are the living embodiment of the valley's patience, their minds etched with the memories of countless generations.
+
+The tools they leave behind are an extension of themselves, crude stone axes for pruning the fungal growths and woven baskets for collecting the valley's bounty. These are not instruments of destruction but tools of care, used to maintain the delicate balance of the ecosystem.
+
+They are the Keepers of the Mire, the Tenders of the Stone Lung. They are the silent guardians of this verdant, impossible place, their lives inextricably linked to its fate. And as long as the valley persists, humid and loud, a strange pocket of impossible life clinging to the heights, they will continue to tend to its needs, their presence a testament to an ancient and profound symbiosis.

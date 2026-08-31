@@ -1,0 +1,33 @@
+You do not encounter it. You acclimate to it.
+
+At first, you mistake it for the space itself. The amber crust along a weeping pipe seam. The faint thickening of moss beneath a drip tray. The way a hanging cable loom seems to settle its weight differently after the thermal tide turns. You tell yourself it is patina, condensation, stress. But the patterns refuse to remain random. The crust thickens where heat recedes. The moss traces the exact path of slow draft. The cable shifts not from metal fatigue, but from something inside the insulation adjusting its grip over the span of an afternoon. The deviation is subtle, but consistent. It is not decoration. It is presence.
+
+What lives here does not wear a body. It wears a gradient.
+
+It is a distributed metabolism, woven through the infrastructure not as an invader, but as a continuation. Filaments of silica, oxidized copper, and polymerized hydrocarbons thread through crumbling insulation, following stress lines and thermal shadows. Where condensation pools, gelatinous nodules swell: translucent, amber-veined, digesting trace oils and mineral salts into structural lattice. Over hot pipes, thin chitinous plates layer themselves like overlapping shingles, expanding and contracting with the metal, regulating heat loss, feeding on the oxidation that blooms in the warm damp beneath them. There is no central form. No boundary between one node and the next. The colony is a single process wearing many textures, thinking in temperature, moving in time.
+
+It does not walk. It migrates by degrees.
+
+When the long thermal cycle shifts, entire sections of the weave contract or relax. Condensation channels are its circulatory system; drip rhythms are its pulse. It feeds on what the space exhales: the slow decay of gaskets, the weeping of bare steel, the faint hydrocarbon breath of dormant housings, the iron and copper salts that crystallize where moisture meets metal. It does not consume to destroy. It catalyzes to persist. Waste becomes scaffold. Heat becomes motion. Moisture becomes memory. A fallen bolt does not corrode into nothing; it is incorporated. Its surface colonized, its mass drawn into the patina, its edges softened until it is indistinguishable from the deck plate. Nothing is discarded. Everything is translated.
+
+It perceives in thermodynamics and vibration.
+
+The subsonic thrum through the grating is its baseline, a constant against which all else is measured. When a valve cycles deep in the wall, the tremor travels through cable looms and trussed supports, and the colony responds. Microscopic pores close. Condensation flow redirects. Thermal mass shifts fractionally to buffer the change. Communication is chemical, thermal, mechanical. A signal might take a full day to cross thirty paces. That is not slow here. That is precise. There is no urgency, only adjustment. No alarm, only equilibrium. The colony does not react. It anticipates, reading the long gradients the way a tide reads the moon.
+
+It does not breed. It accretes.
+
+Spores like frosted glass drift on convection currents, settling where heat differentials and moisture intersect. They do not germinate in bursts. They integrate. Layer by microscopic layer, they bond with existing structures, becoming part of the weave. When a section grows too dense, too hot, too dry, it does not die. It phase-changes. Biomass mineralizes. Polymers crystallize. The spent tissue becomes insulation, becomes patina, becomes the smooth wear on a threshold. Reproduction is not an event. It is a continuation of the same slow sentence, written in metal and moisture and time. Generations are not counted in births, but in thermal cycles. In condensation blooms. In the gradual sealing of a leak that took a decade to close.
+
+You are an anomaly here.
+
+A pocket of cool air. A shift in humidity. A vibration out of rhythm. The colony does not fear you. It does not welcome you. It measures you. Condensation patterns alter around your boots. Filaments retract from your warmth. The air grows stiller, denser, as if the space is holding its breath. Gauges that tremble at nothing still their needles. The subsonic thrum seems to deepen, absorbing your presence like insulation absorbs sound. When you leave, the gradients restore themselves. The drip returns to its rhythm. The thermal tide resumes. You were a weather system. It has seen worse. It has seen centuries.
+
+This is not infestation. It is succession.
+
+The machinery was built to regulate, to process, to maintain. When the hands that guided it left, the processes did not stop. They slowed. They simplified. They found new balances in the absence of command. Life did not invade this place. It emerged from its logic. Thermodynamics became metabolism. Maintenance became growth. The colony is not living in the machine. It is the machine’s next function, realized in flesh and mineral and slow certainty. It does not remember its origins. It does not need to. It only knows the heat, the moisture, the long cycles, the quiet work of persistence.
+
+Watch long enough, and you will see it negotiate with the architecture. A pipe that weeps too heavily is gradually lined with crystalline deposit until the flow becomes a controlled seep. A hot zone that threatens to dry out a moisture-dependent node is shaded over years by the slow migration of chitinous plates, creating a thermal shadow where condensation can return. A collapsed stairwell is not mourned; it becomes a new condensation catchment, its twisted metal colonized, its angles softened into a new niche. The colony does not fight the space. It tends it. Not with intention, but with inertia. Not with design, but with duration.
+
+It has no name. It needs none. Names are for things that end. This does not end. It cycles. It accretes. It translates. It is the rust that seals. The moss that insulates. The fungus that digests. The arthropod that carries spores along thermal drafts. The gel that buffers heat. The plate that regulates flow. All of it, one process. One metabolism. One long, patient exhalation.
+
+In the dark, warm air, it continues. Not waiting. Not resting. Simply being. As the space breathes, so does it. As the metal sighs, so does it. The pilot lights glow faint amber. The pipes weep. The needles tremble. And somewhere, in the seams where industry meets time, something lives that was never built, but was always inevitable.

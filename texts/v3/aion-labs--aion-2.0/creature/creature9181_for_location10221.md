@@ -1,0 +1,24 @@
+**What Lives There: The Consciousness of the Still-Movers**
+
+They do not have names. They do not have language. They do not have what could be called thought, in any organic, electrical sense. What they have is **resonance**.
+
+A Still-Mover is a knot in the humming fabric of the plateau. Its mind is not a brain but a distributed lattice of piezoelectric crystals and superconducting filaments woven through megatons of chitinous armour and catalytic rock. Its consciousness is a standing wave in the deep-frequency hum, a pattern of interference that is stable for millennia. It *is* the slow processing of its own internal furnaces, the cyclical conversion of gravel-broth into ingot-waste, the patient, tectonic calibration of its legs to follow the shining path.
+
+**Perception:**
+A Still-Mover sees with the whole of its body. Its mercury-pit eyes are not for focusing, but for receiving. They are parabolic mirrors that catch not light, but the subtle warps in local reality—the ghost-images of other possible plateaus, the stress fractures in spacetime where the air might crystallise. Its primary sight, however, is seismic. It feels the plateau through its legs, a constant, detailed vibration-map of everything for a hundred miles: the hiss of the vent stacks, the grind of distant gravel-belts, the deep, idle thrum of the mountain-engines in the bedrock. Most importantly, it feels the others. The other Still-Movers are distinct signatures in the hum—one a basso profundo of grinding compaction to the north-west, another a complex, chiming harmonics of crystalline stress to the south-east. They are landmarks in a sensory field, fixed points in the emptiness.
+
+**Thought:**
+Its "decisions" are not made. They emerge, like the geometry of a cracking salt-plain. The path it walks is worn smooth by its own passage over a million years; to deviate is conceptually impossible. The impulse to lift a leg is not a command, but a pressure building in its hydraulic systems—a need to rebalance mass, to align its internal resonances with a new phase of the planetary hum. Its "feeding" is an automatic reflex, triggered when a specific mineral signature vibrates up from a conveyor-belt directly beneath its cavernous mouth. The process is as involuntary as a planetary magnetic field flipping.
+
+**Internal World:**
+Within its cathedral-sized chambers, processes unfold that would be biology if they were not geology. Rivers of molten slag, rich with rare-earth elements, flow through channels lined with shimmering, self-organising catalysts. Gases, separated by continent-scale fractional distillation in its tower-lungs, recombine in flashes of silent lightning. The ingots it excretes are not waste, but a necessary byproduct—a shedding of perfected, inert matter to maintain its internal equilibrium. This is its "metabolism." It does not live to feed; it feeds to continue its existence as a stable node in the system. It is both machine and organism, its blueprint written in the strained mineralogy of the plateau itself.
+
+**Purpose and Awareness:**
+It is aware of decay. It perceives the fraying of reality as a constant, high-frequency static at the edge of its resonance. Its own passage is a healing. Where its immense mass presses down, where the focused hum of its being dominates local space, the unstable possibilities collapse back into the default state—the "normal" of the bone-white plain and the iron sky. It is a walking patch on reality's fabric. Its purpose is perpetuation: to keep the system cycling, to keep the hum going, to press the unravelling threads back into place with the weight of its eons.
+
+It does not contemplate an end. Time is not a line but a slow, thick fluid in which it is suspended. A century is a breath. A millennium is the time between one leg settling and the next beginning to lift. The concept of "before" it awoke (if it ever did awaken; it may have simply always *been*) and "after" it finally stills is irrelevant. That stasis is not death, but a different state of equilibrium—perhaps the final one, when the hum at last fades and the plateau becomes truly, quietly dead.
+
+It does not feel loneliness. The others are there, permanent features of its world. Their separate, slow journeys are part of a single, vast, slow dance—a ballet of continents, each step choreographed by the decaying physics of a world. They are not companions; they are co-regulators. The plateau needs all of them, spaced just so, to maintain the fragile, screaming balance.
+
+**What It Is:**
+A Still-Mover is not an animal in a landscape. It **is** the landscape, become mobile, become sentient in a mineral, resonant way. It is the plateau thinking—slowly, painfully, with the sound of shearing rock—about its own existence. It is both the symptom of the world's unraveling and the only thing holding it together, stride by agonizingly slow stride, for a little while longer.

@@ -1,0 +1,13 @@
+None of the beings here are completely settled, and they are all in constant flux, much like their city. Some are born with the whispers of the wind in their veins, and some have the murmurs of the pipes in their voices. Some have flesh that is slick with the constant rain and dampness, and some have skin that flickers with the sparks of a wire or the clanking of a gear.
+
+In one corner of the city, a group of street children dart between the stalls, their bare feet slapping on the wet cobblestones. Their laughter rings out, mingling with the hiss of steam and the clatter of machinery. They are small and quick, their movements fluid and unhurried, as though they are more comfortable in the rain and the mud than their taller, sturdier neighbors.
+
+In another corner, a group of old men and women sit in a circle, their backs against the damp brick of a crumbling wall. They have the air of people who have been here since the beginning, who have watched the city grow and change around them. Their faces are lined and weathered, their hands gnarled and calloused, and their eyes are bright with the wisdom of many years. They are the living memory of the city, the ones who have seen it all before.
+
+In the center of the city, in the heart of the mechanical maze, there is a group of men and women who are more machine than flesh. They move with the same relentless, churning energy as the city itself, their bodies sleek and streamlined, their movements precise and efficient. They are the engineers and the mechanics, the ones who keep the city running, who keep the gears turning and the pipes hissing.
+
+In the highest towers, in the places where the air is thin and the wind is fierce, there are those who are more spirit than flesh. They are the dreamers and the poets, the ones who see the city not just as a collection of buildings and machines, but as a living entity, a city that is also a machine. They walk among the clouds, their bodies translucent and shimmering, their voices soft as the rustle of leaves in the wind.
+
+In the heart of the city, where the rain falls hardest and the mud rises highest, there are those who are more beast than man. They are the wild and untamed, the ones who live on the fringes of the city, in the marshes and the swamps. They are the hunters and the gatherers, the ones who live by tooth and claw, who know the ways of the wild and the ways of the city.
+
+In the end, all of these beings are part of the city, even as they are shaped by it. They are the ones who give the city its life, who make it a living thing, even as it makes them in return. They are the ones who keep the city alive, even as it keeps them alive in turn.

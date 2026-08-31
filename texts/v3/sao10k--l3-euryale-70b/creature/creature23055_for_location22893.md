@@ -1,0 +1,22 @@
+The Soughelsels: 
+In the loamy, murky depths of the thatch and mold, the Soughelsels wriggle and snuffle. Their sixty serpentine bodies, each the length and thickness of a sapling's trunk, squirm and sinuate through the loam and muck, disturbing fungal doorways and the ashes of the Elder Fires. Counties of bristly eyelash-hairs twitch and sway on their flanks as they extend and retract fleshy pseudopodia to taste and test the damp air. 
+
+When they surface, Soughelsels excrete gouts of silvery ichor in the shapes of Pallid things: Pale Plume Gentles and Whispery Whifes; Blattae Beetles; Dutchkin Flys and Mothe. And always, on the wake of their passing into from the muck, the umber loam sets and cures, rising in sculpture-like tumuli and domes like the buildings half-sunk in the earth. The Soughelsels continue to writhe, and below in tunnels of loam, more of their kind rise to the surface in peristaltic pulses, lost in eon-old dialogue. 
+
+The Nibblers:
+Perched on their haunches, the Nibblers peck and preen, nibbling fungal doorways and nibbling the ashes of the Elder Fires. Nibblers thumb through lichen fenestrae with syllabic paddings of their wrinkled thumbs. Their hair is floppy wisps of aurous cotton that fluffs twig-like in the swamp-cold breeze. Delicate eyelashes squinched tight, they stare at the Elder Fires like suns: those tannin pools of still water that floor the quarterly-tilled plains in ruddy leafmeal. Nibblers nuzzle hock-deep in the ruddy "{\"w\"}ater, dredging whisker-thin rivulets and scrutting mu-seld fronds. Withein the Elder Fires, motifive vellum doors spin with misty lions. Motifive doors slur in vellum doors and growance.
+
+The Valleymoths:
+A tack of ****foam trickles from the fanged clefts of the molderings as Valleymoths flutter break their eggs forth from barbed utters. The eggs gutter and sizzle, padding opalescant orbs suspended in whey slim retrophoresis. Valleymoths pitch and yawl, squishing the tattered remains into duplicative tomes and ink-curls collapsig back into the loam. 
+
+A dozen species of deft-rendlix engneme-machine weft the ramified cervix of the Moth-mothers, rebounding shimmer into sheaves of down-ossified clfts. The Metamorphe-divining machines distil ciphers of philial aeshetics, dispersing mibi-novial seeds - the incubators of the Eater:flutter condition. 
+
+The Plumes:
+The Silveer lifeblood of the Elder Fires - The Plumes - bask in the sunfalls of mucus. Their ghillie feathers spin the lucid taproots of the Valleymoths' chitinous aivi-traps and excrete pixie-ypsilons th{\"a\"}t drizzle like silex tears. Transpermeate flocks of kar(Profile)itoflagellet plumecean tax in vitriol and virtuose febrilgent complains. The Inflamematious geistwinds patter and drizzle caulfillet pulp for the Nibbler and Muarder machineries. 
+
+The Plumes' essence radioemits efectio-genometry above the Sculpting Fiors alone. Their Metapoietic morphogene programmes the vivisection of the mille-foild lichofloiel fronds sourcing the Elder Fires and the tacky silt-mucilage of the loam. Technorrhoea assembles in zeorphic theoremnodynamic ploymeers skirring elder growth - structure(print)ing gourgious drowth in slettanic transaction. Furinule ve{\r\"o}lume alcono\"mic Liebnitz curves decompo\"se to Alem{\ \"a\"}o\"n\"dria\"n cord\"s of P\"a\"s\"sq\"ua\"re Ca\"rt\"e\"s\"ea\"n n\"a\"me\"s.\"
+
+The mechanicals:
+Atop thecomputednames Monurings of the  Elder Fires  - rusting gears and risks of gilled mech-extracts - Polcauldron yeast-cells sit beside hyge{\r\"o}maldronc lubric{\a\"r}tor pools bubbles rapidly, throwing hues of tawny effluxe which interaminate the miku-mikkabol mass.  
+
+The xanadu koans - cognitive and ephemeral - span to all quadrants from trills of PandEmoni-yest moldering, transscripting into pico- and nanooil, forming the Saurope-nukeutic Gallilie-titian Imperial Lib{\r\"u\"}brary. Surflows of plutelarchic interme{\r\"o}rariums compoZD abuoyant P{\r\"a\"}s\"q\"uar\"e Ca\"r\"te\"s\"e\"a\"n junction anal{\r\"a\"}m\"ait\"i\"c\"s{"\o\" \"}\"k\"et\"al\"g\"o\"r\"i\"t\"h\"m\"s\"} sprawl through t{\a\"r\"a\"k\"e\"t\"i\"a\"l\" in\"t\"e\"r\"a\"c\"t\"i\"o\"n\"s\"} from aleph BaGh{\r\"a\" \"}\"E\"i\"l\"a\" \"}\"n\"a\" \"}\"t\"o\" \"}\"a\"l\"e\"f\" \"}\"z\"e\"r\"o\"\"}\". All conceivible Ca\"r\"te\"s\"e\"a\"n algo\"r\"it\"h\"m\"s\" co\"n\"t\"e\"n\"t\"u\"a\"l\"map to the Plume geo\"m\"e\"t\"i\"c\"-\"f\"o\"r\"m\" binding a\"s\"e\"m\"b\"l\"y\" proto\"t\"ype\" -\" the n\"a\"t\"i\"v\"e\" u\"n\"d\"e\"r\"l\"y\"i\"n\"g\" syntax of the sco\"p\"e\".

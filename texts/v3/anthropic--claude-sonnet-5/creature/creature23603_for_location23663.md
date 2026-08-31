@@ -1,0 +1,33 @@
+**The Tenants**
+
+You will not see one arrive. You will not, in all likelihood, see one at all — not because they are hidden in some burrow or behind some ridge, but because for the overwhelming majority of their existence they are not distinguishable from the plates themselves. This is the first and hardest fact about them: they have made themselves into seams.
+
+**Likeness**
+
+A Tenant at rest is a low convexity along a joint-line, grey-fired, the same coarse mold-texture as the plates that flank it, the same crisp unworn edges. It sits half in the gap between two plates and half atop them, like a thing that grew there or was poured there, indistinguishable in color, in temperature, in the particular dullness of its surface under the flat even light. Where the plates show casting-pocks, the Tenant's hide shows the same pocks, finer, denser, arranged with a faint and troubling regularity, as if whatever process textures the world also, separately, agreed to texture this. A hairline crack runs along the dorsal length of it. It is not injury. It is suture.
+
+It has no visible eyes when still, no visible mouth, no limbs you would call limbs. Only when you have watched one for the better part of a day — and almost no one has the patience or the reason to do this — do you see the crack along its back open by a hair's width, by less than a hair's width, and close again, on some interval far slower than breath, far slower than anything you would call living.
+
+**Dormancy**
+
+This is the Tenant's true occupation: waiting, in a stillness so total it borrows the geology's own patience. It does not hunt, because there is nothing to hunt. It does not graze, because the wire-stalks are not food, not exactly — more on this shortly. For most of a Tenant's existence, which may run to a span of years that would embarrass a human lifetime, it does nothing detectable at all. It is heated by day and ticks faintly as it cools by night, the same fine structural creak the plates make, indistinguishable from them even acoustically, so that the sound you hear at dusk — that you have been told is only the world settling — is in some unknown fraction of its instances a Tenant settling instead, and there is no way, from outside, to know which.
+
+**The Drinking**
+
+It wakes for water. When the convective cells finally discharge their localized violence onto some stretch of plate, the Tenants nearest the falling curtain stir before the rain itself arrives — drawn, it's supposed, by the pressure-drop, the cooling, some sense pressed into them at their own casting that recognizes a debt about to be paid. They open along their dorsal seams fully now, wide as a hand, and what extends from inside is not a mouth or a tongue but something closer to a root system inverted — fine grey filaments, the same wire-texture as the lonely stalks above ground, reaching up and out into the rain rather than down into soil there isn't any. They drink the way the seams drink: by surface, by capillary action, by sheer patient exposure, taking in over an hour what a mouth would take in a swallow.
+
+It is now, and only now, that you would understand the wire-stalks are not separate from the Tenants at all, but their visible signal — the part of the Tenant's filament-system that breaches the surface permanently, slow-growing, leafless, marking the spot beneath which a Tenant waits. The "absurd" spacing of the stalks across the plain, a hundred meters between one and the next, is not vegetative competition or chance. It is territory. Each stalk is a single Tenant's claim on a single stretch of seam, and the spacing is exactly as wide as the joint-network can support without two Tenants competing for the same rare debt of water.
+
+**Birth**
+
+What passes for young are cast, not born. After drinking, rarely, unpredictably, tied to cycles no observer has stayed long enough to chart, a Tenant will extrude into the standing seam-water a scatter of small hard nodules, indistinguishable in color and texture from the grit shed off the plates by heat and wind. These sink into the joint, lodge in its lowest crease, and are buried by the next dust-haze, the next thin skin of particulate. They do not hatch. They wait — for years, plausibly decades — until a rain falls directly and repeatedly enough on that exact stretch of seam to soften what sealed them. When one finally does crack, what emerges is already plate-colored, already pocked in the casting-texture, already still. It finds its place along the joint within hours and does not move again, in any way a passing eye could register, for a very long time.
+
+There is no infancy here, no soft or vulnerable stage visible to a predator, because there is no predator and there was never time built into the design for one. The Tenant is finished at the moment of its cracking the way the plates are finished at the moment of their pouring — total, complete, and yet, in the same breath, still only the first instant of something indefinitely extending.
+
+**Sound**
+
+The plain's silence, you'll recall, has a texture: the tick of cooling material, the creak of seams, the occasional low structural crack carried from far off. It is now worth saying plainly what was only implied before — that some unknowable fraction of that sound is not the world's geology at all but its biology, and that the two have become acoustically, texturally, and almost philosophically inseparable. A Tenant cracking open after a decades-long dormancy makes precisely the sound a plate makes settling into a new seam. No instrument carried onto the Flatlands has yet been built sensitive enough, or patient enough, to tell the foundry's settling from its waking.
+
+**What They Are For, If Anything**
+
+It would be a mistake to call them rare in the sense of scarce — there may be one beneath every fourth or fifth stalk on the whole vast laid floor of the place, which, given the floor's extent, could mean numbers beyond easy counting. They are rare only in the sense that nothing about them invites discovery. They have made permanence indistinguishable from absence. They have taken the world's one rule — that everything here is finished and yet nothing here is done — and lived it so completely that they have stopped being a separate fact about the place at all. They are not inhabitants of the Flatlands Foundry so much as a further tense of it: the foundry, still speaking, in a grammar slow enough that calling it alive or calling it geology turns out, on the Flatlands, to be the same claim filed twice.

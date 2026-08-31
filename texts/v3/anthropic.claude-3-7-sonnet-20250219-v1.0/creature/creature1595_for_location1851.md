@@ -1,0 +1,23 @@
+# The Inhabitants of the Whisperwell
+
+The people of the Whisperwell refer to themselves as the Condensed, though they rarely have cause to name themselves at all. They are not quite human, though they adopt human-adjacent forms when interacting with visitors—a courtesy, not a necessity.
+
+The Condensed have skin with the slight translucency of certain river stones, varying in hue from pale alabaster to deep slate, often with subtle patterns resembling the mathematical carvings of their city. Their eyes contain no discernible iris or pupil, instead presenting as pools of moving liquid that catch and reflect light like the surface of their central well. When they blink—which they do infrequently—a thin membrane slides horizontally rather than vertically.
+
+They are neither tall nor short, but their proportions seem subtly altered—fingers too long and too jointed, necks that can rotate further than seems possible, spines that appear to contain extra vertebrae when they bend. Their movements possess a fluid economy that makes them appear to glide rather than walk, especially when navigating the water-slick streets.
+
+The Condensed are born from the central well itself. On rare nights when certain stars align in patterns meaningful only to them, the still surface of the pool begins to vibrate with complex interference patterns. The water rises in a column and gradually assumes humanoid form, details emerging over several hours until a fully-formed adult steps away from the well, already possessing all communal knowledge of the settlement.
+
+They do not die so much as gradually return to an elemental state. The eldest become increasingly transparent over decades until they are walking outlines filled with the same clear water that runs through the streets. Eventually, they simply release cohesion during a private ceremony at the central pool, their consciousness dissolving back into the collective aqueous memory of the settlement.
+
+Communication among the Condensed occurs primarily through modulations in the omnipresent moisture. What appears to outsiders as silence is actually a complex language of vibrations conducted through water—ripples in puddles, subtle waves in humidity, momentary changes in surface tension that encode meaning. When they must speak aloud for visitors, their voices sound like water moving over stones in a deep cave.
+
+Their society functions without hierarchy. Roles shift fluidly based on need and inclination, with individuals flowing between occupations as naturally as water finding new channels. The factories and workshops primarily produce devices that maintain the delicate hydrological balance of the settlement—tools that encourage water to behave in ways contrary to ordinary physics.
+
+The Condensed do not consider themselves separate from the creatures that share their habitat. The many-legged lizards, transparent butterflies, and phasing birds are understood as different expressions of the same fundamental essence that constitutes the people themselves. The animals function as extended sensory organs for the collective awareness of the settlement, which explains their unnaturally coordinated movements and apparent intelligence.
+
+The true mystery of the Condensed lies in their relationship with time. They experience it not as linear progression but as cyclical pools and eddies. What appears to visitors as individuals going about daily tasks is actually a community engaged in maintaining temporal circulation—preventing stagnation in the flow of events just as they maintain the perpetual movement of water through their city.
+
+Their workshops and water-driven machinery serve a purpose beyond mere industry: they are calibrating instruments that adjust the settlement's position in relationship to multiple simultaneous timelines. The central well is not merely a source of water but a controlled intersection of temporal currents that the Condensed navigate with instinctive precision.
+
+Visitors who stay longer than intended often report feeling increasingly fluid themselves—developing a heightened awareness of moisture, finding their thoughts moving in circular rather than linear patterns, and occasionally glimpsing their reflections rippling even in dry mirrors. The Condensed neither encourage nor discourage such transformations. They simply observe, patient as water wearing away stone, knowing that all beings eventually find their proper level.

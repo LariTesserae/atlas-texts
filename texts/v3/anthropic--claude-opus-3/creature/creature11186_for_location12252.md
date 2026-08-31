@@ -1,0 +1,15 @@
+The inhabitants of this lofty, improbable city are a hardy, resilient people, shaped by the unforgiving environment they call home. They are a diverse lot, with a wide range of physical adaptations that allow them to thrive in the thin air and biting cold.
+
+Many are stout and heavily built, with barrel chests and thick, muscular limbs that speak to a lifetime of physical labor. Their skin is tough and weather-beaten, often adorned with intricate patterns of tattoos and ritual scarring. Some have fur or downy feathers, extra insulation against the persistent chill.
+
+Others are leaner, with long, sinewy limbs and narrow, angular features. These are the climbers and scouts, the ones who venture out into the treacherous landscape to hunt, forage, or explore. They move with a sure-footed grace, navigating the steep slopes and narrow ledges with ease.
+
+Regardless of their physical differences, the citizens share a common set of traits. They are a taciturn, stoic people, not given to excess or frivolity. Words are used sparingly, and actions speak louder than any boast or declaration. They value practicality and efficiency above all else, and have little patience for anything that does not serve a clear purpose.
+
+Yet beneath this gruff exterior lies a deep well of community and cooperation. In a world so hostile, survival depends on the strength of the collective. Families and clans are tightly knit, and neighbors look out for one another with a fierce loyalty. Disputes are settled quickly and decisively, often through ritualized combat or tests of skill.
+
+The people are also deeply attuned to their environment, reading the subtle signs in the wind, the stone, and the living things around them. They have a rich tradition of oral history, passed down through generations in the form of songs, stories, and intricate works of art. These tales speak of the city's founding, of the great heroes and terrible monsters that shaped its history, and of the unbreakable bond between the people and the land.
+
+In their dress, the citizens favor the practical and the durable. Heavy furs, tightly woven fabrics, and treated leathers are the norm, often adorned with intricate embroidery or beadwork that tells the story of the wearer's family and accomplishments. Jewelry is simple but meaningful — a polished tooth from a fearsome predator, a glittering shard of rare mineral, a cunningly wrought amulet of protection.
+
+As they move through their city, the people are dwarfed by the massive structures that surround them, yet they carry themselves with a quiet confidence. They are the masters of this stone labyrinth, the keepers of its secrets and its traditions. In their calloused hands and weathered faces, in their low, murmuring voices and their steady gazes, one can read the story of a people who have carved a life from the very bones of the world — and who will endure, as sure and steadfast as the stone itself, for generations to come.

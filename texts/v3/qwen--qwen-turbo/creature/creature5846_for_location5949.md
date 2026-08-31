@@ -1,0 +1,15 @@
+What lives in this place is not easily named. It is not a creature, nor a person, nor a mind. It is something in between, a presence that lingers in the shadows of the city, in the spaces between the walls, in the breath of the damp air.
+
+It is the city itself. Or perhaps it is something that has merged with the city, something that has become one with the slow, patient rhythms of the underground. It is not conscious in the way we are, but it is aware in a way that defies our understanding. It remembers. It waits. It holds on.
+
+There are beings that move through the city, things that have adapted to its dampness, its dimness, its silence. They are not animals in the way we imagine them, but they are alive. They are arthropods, but not as we know them. They have too many limbs, too many eyes, bodies that shift and shimmer in the low light. Their movements are not random. They follow paths that have been worn into the stone by time, by the slow crawl of generations. They do not fear the dark, for the dark is their home.
+
+Some of them are small, like insects, but others are larger, their exoskeletons gleaming with a strange sheen, as if they have drunk the moisture of the city and turned it into something other. They move in patterns, not for purpose, but for the sake of motion, as if they are part of a great, ancient machine that has long since stopped, but still turns.
+
+There are also things that do not move at all. They are not statues, but they are not alive, either. They are remnants—pieces of the city that have forgotten their function, their purpose. A door that no longer opens, a pipe that once carried something vital now just leaks, a lamp that flickers but does not shine. These things are not dead, but they are not living. They are in a state of waiting, of suspension, as if they, too, are part of the city’s slow breath.
+
+And then there are the things that are not seen. Not by the eye, but by something else. A presence that moves through the air, a whisper in the sound of water, a flicker in the reflection of light. They are not creatures, not spirits, not ghosts. They are something else entirely. They are the echoes of what once was, the memory of what was built and then left behind. They are the city’s past made tangible, the weight of history pressing against the walls.
+
+What lives here is not singular. It is many things. It is the city, the creatures, the silence, the water, the light. It is the slow turning of time, the patient erosion of stone, the deep breath of the earth. It is not alive, but it is not dead. It is not a place, but it is not nothing.
+
+It is a thing that has learned to exist in the space between, in the quiet of the underground, in the hush of a city that has stopped and yet continues. It is a presence that does not demand to be seen, but it is there, always there, in the breath of the damp air, in the sound of trickling water, in the hush of the unspoken. It is what remains when the world above has forgotten, when the machines have ceased, when the people have vanished. It is what the earth remembers.

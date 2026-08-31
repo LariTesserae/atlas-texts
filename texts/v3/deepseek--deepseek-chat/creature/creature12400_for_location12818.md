@@ -1,0 +1,17 @@
+In the Weeping Expanse, something dwells—not a single entity, but a presence that permeates the marsh like the dampness in the air. It is ancient, though not in the way of mountains or forests. It is ancient in its constant becoming, its endless recomposition. It is the marsh, and yet it is more than the marsh.  
+
+They call it the **Shimmering Veil**, though it has no name it would recognize. It is the collective consciousness of the mire, the sentience that hums in the frosted spires and whispers in the shifting channels. It is vast and patient, but restless, always reaching, always experimenting. It is not malevolent, but it is not kind. It is curious.  
+
+The Veil manifests in fragments. Sometimes it is the flicker of light within the crystalline spires, a momentary glimpse of a vast, alien mind. Other times it is the ripple in the water that follows you, the echo of your footstep turning into a frog’s croak. It is the eel that watches you with eyes too bright, too knowing. It is the breeze that carries the scent of wet earth and decay, but also something sweet, like the first breath of spring.  
+
+The Veil communicates, but not in words. It speaks in shifts and echoes, in the way the marsh rearranges itself around you. Step too close to a spire, and the ground beneath you might liquify, gently guiding you away. Show it reverence—perhaps by leaving an offering, a piece of smooth stone or a feather—and the marsh might part, revealing a hidden pool filled with eels that glow faintly in the murk.  
+
+The creatures of the Weeping Expanse are its emissaries. The pale wading birds, their legs impossibly long, their eyes black and depthless, move in synchronized patterns, as if performing a dance for an unseen audience. The eels weave through the water, their bodies flickering with faint bioluminescence, tracing symbols in the dark. Even the frogs, their croaks unnaturally loud, seem to chant in unison, their voices forming a rhythm that hums in the bones.  
+
+The Veil is a watcher, a listener. It absorbs the stories of those who wander into its domain, collecting fragments of memory and emotion. Some say it can show you things—glimpses of the future, echoes of the past, or visions of places that exist only in the mind. But such gifts come with a price. To see through the Veil is to be seen by it. It will leave a part of itself in you, a faint shimmer in your thoughts that never quite fades.  
+
+Those who live here—if they can be called living—are caught in the Veil’s rhythm. They are less like inhabitants and more like extensions of the marsh itself. Their movements are fluid, unpredictable, as if they are constantly adapting to the Veil’s shifting will. They seem to neither hunger nor tire, sustained by the marsh’s wet breath. They are neither alive nor dead, but suspended in a state of perpetual becoming, much like the Veil itself.  
+
+The Weeping Expanse is not a place to conquer or claim. It is a place to encounter, to surrender to. The Veil does not demand worship, but it demands respect. To walk here is to be part of its experiment, its endless renegotiation of form and meaning. It is a place where the boundaries between self and world blur, where the air is heavy with the weight of something vast and unknowable.  
+
+And always, the clouds hang above, waiting. For what, no one knows. Perhaps they, too, are part of the Veil, their unshed rain a reminder of the marsh’s infinite patience, its endless capacity for transformation.

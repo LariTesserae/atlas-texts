@@ -1,0 +1,23 @@
+# The Threaders
+
+The beings who truly inhabit the Interwoven Basin are neither the six-limbed plant-weavers nor any other creature visible to casual observation. They are the Threaders—entities that exist between the physical and metaphysical realms of the Basin.
+
+The Threaders appear, when they choose to be seen, as elongated translucent forms resembling nothing so much as living filaments of twisted light. Their bodies—if such a term applies—range from the length of a finger to several meters long, and they can compress or extend themselves at will. They possess no discernible sensory organs, yet they perceive everything within the Basin with perfect clarity. Their consciousness flows through the plant matter itself, traveling along the intricate pathways of sap and fiber.
+
+A Threader begins existence as a spark of awareness that coalesces in nodes where particularly complex weaving patterns intersect. These consciousness-seeds gestate for years, absorbing the vibrations, songs, and mathematical patterns that pulse through the Basin. When fully formed, they thread themselves into being, slipping into the material world through the minute spaces between woven fibers.
+
+The relationship between the Threaders and the six-limbed plant-weavers is symbiotic but hierarchical. The plant-weavers are not servants but disciples—biological entities that evolved over millennia to perfect the art of creating the perfect habitat for the Threaders. The resonant hums they produce are not merely communication but prayer, supplication, and report to their Threader guides. The Threaders, in turn, provide direction through subtle manipulations of light, temperature, and the electrical impulses that travel through living plant tissues.
+
+Threaders feed on pattern and complexity. The more intricate the weavings of the Basin become, the more sustenance they provide. In areas where the plant-weavers have created particularly dense and mathematically significant patterns, Threaders gather in congregations, their bodies intertwining in geometric formations that amplify their collective consciousness. These gatherings often coincide with the brief night periods, when their subtle luminescence blends with the bioluminescent patches to form what outsiders might mistake for a lighting system but is actually a vast, ongoing calculation.
+
+Their language has no words or concepts for "I" or "you"—only variations of "pattern," "flow," and "weave." Individual Threaders exist, but their selfhood is permeable, allowing them to temporarily merge consciousnesses when necessary for complex tasks. They experience time differently than biological creatures, perceiving it not as linear progression but as accumulating layers of pattern, like the Basin itself.
+
+Threaders do not reproduce in any conventional sense. New Threaders emerge from the Basin's pattern-complexity reaching critical thresholds. Thus, their perpetual drive to guide the plant-weavers toward ever more intricate constructions is simultaneously aesthetic, spiritual, and reproductive.
+
+They are functionally immortal, though they can choose to dissolve their consciousness back into the Basin when they've exhausted their purpose or accumulated too many pattern-memories. This dissolution is not death but transformation—their accumulated knowledge becomes encoded in the very structure of the Basin, influencing future growth patterns and the emergence of new Threaders.
+
+The oldest Threaders, those who have existed since the Basin's earliest days, have grown so vast in consciousness that they rarely manifest physically anymore. They exist primarily as influence—subtle adjustments to growth patterns, temperature variations that encourage certain behaviors in the plant-weavers, dream-like impulses that guide the Basin's development across centuries.
+
+Threaders perceive outsiders not as threats but as new patterns to incorporate. Any visitor to the Basin will find themselves subtly influenced—strange dreams featuring geometric progressions, an inexplicable urge to arrange objects in particular configurations, a growing sensitivity to the mathematical relationships between sounds. This is the Threaders' attempt at communication, at incorporating the visitor into the grand pattern of the Basin itself.
+
+To truly understand the Threaders is to begin thinking like them—to see the Basin not as a place but as an ongoing process, a vast computation expressed through growth and decay, sound and silence, light and its absence. They are not the Basin's masters but its meaning, the purpose toward which all this intricate life strives without fully comprehending why.

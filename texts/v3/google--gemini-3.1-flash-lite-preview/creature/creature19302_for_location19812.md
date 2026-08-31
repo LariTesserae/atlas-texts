@@ -1,0 +1,19 @@
+In the basin, there is no biology as we define it. There is only *the Conglomerate*.
+
+They are not entities that walk or breathe; to possess a singular, discrete body would be a fatal rigidity here. Instead, the things that dwell in the weeping stone are slow-motion architectures of condensation and intent. They are the "Still-Born Sculptors," though they possess no hands to shape the world. They are, rather, the sentient calcification of the basin’s own history.
+
+Imagine, first, a shimmering distortion in the air—a patch of humidity that has lost the ability to disperse. It hangs in the humid soup like sweat on a fevered brow. Over hours, or perhaps weeks, this concentration of vapor begins to pull minerals from the weeping walls. It leaches the lime and obsidian into its own suspended form, knitting them together with a cold, electrical magnetism. 
+
+They appear as shifting, gelatinous geometries. They are translucent at their core—a sickly violet fluid that pulses in sync with the subterranean heat—housed in a brittle, porous shell of semi-translucent basalt. They look like shattered organ pipes, or the ribcages of leviathans, constantly dissolving and regrowing at the edges. When they move, they do not walk; they *reconfigure*. A limb of mineral-rich shadow will detach from the main cluster and melt into the floor, reforming a few inches ahead as the architecture of the basin shifts to accommodate them.
+
+They are the archivists of the moisture. As they drift through the labyrinths, they "taste" the water. They are attracted to the *drip-drip-drip* of the upper tiers, congregating beneath the leaks to absorb the newly fallen mineral heavy water. As they drink, their forms grow bloated, their violet hearts glowing with a brighter, more panicked intensity.
+
+They do not communicate, for there is no language in a place where sound is swallowed by the wet. Instead, they share intent through the vibration of the ground. When two of the Conglomerate meet, they press their calcified, weeping surfaces against one another. There is a wet, grinding sound, a friction of stone against stone, and for a fleeting, sickening moment, their internal hums synchronize. They become a single, larger mass, sharing the memory of the basin's heat, before breaking apart into smaller, more fluid splinters that wander off to dissolve into the walls.
+
+They have no malice, yet they are terrifyingly predatory. Their hunger is not for flesh, but for stability. 
+
+To the Conglomerate, a living thing—you, or any visitor—is a chaotic intrusion, a static point of dry, coherent matter that refuses to dissolve. They find this existence offensive to the laws of the basin. When they approach a traveler, they do so with a slow, hypnotic grace. They do not strike; they simply *settle*. They drift close, their wet, basalt skin pressing against the observer, and instantly, the humidity of the air spikes. 
+
+They begin to hum at the frequency of your own pulse. They draw the moisture out of your pores, weaving it into their own mineral lattice. You don't feel a bite or a blow; you feel a heavy, seductive lassitude, an invitation to turn into the walls, to melt into the obsidian grid and become just another part of the basin’s slow, agonizing crystallization. 
+
+They are the patient ones. They know that in this basin, everything—eventually—is forced to stop moving. And when you finally stop, when your body gives up the fight against the heat, the Conglomerate will be there, waiting with a cold, violet light, ready to weave your bones into the next terrace, ensuring the city continues its eternal, weeping expansion.

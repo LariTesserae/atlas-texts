@@ -1,0 +1,25 @@
+## The Waiting-Body
+
+You will see it, if you see it at all, by accident — a single thumb-length shift in a leaf-layer that should not have shifted, a wrongness registered half a second after it happens and then immediately doubted. By the time you look directly, it is already still again, and stillness here is total camouflage. This is the only animal the Greenhollow seems to keep. There may be others. There is no evidence of them.
+
+### Form
+
+Pale gold-green, the exact hue of light that has passed through three or four leaves before landing — not a color chosen to hide so much as a color *arrived at*, the way the basin's whole light arrives at gold-green through accumulated filtering. Its shell is segmented, ridged faintly with a vein-pattern that mirrors the underside of the fat succulent-leaves it rests on, so closely that the pattern seems copied rather than evolved, as if the creature had simply measured its nearest neighbor and matched it. Many legs, more than seem necessary, folding close along the body when still, fine as the hair-roots that thread the clay walls. No visible eyes, or eyes so reduced they amount to a faint darker fleck — unsurprising, in a place where light never changes enough to need watching for.
+
+### Behavior
+
+It does not hunt. It does not forage, not in any sense that resembles searching. It selects a place — a leaf-cup where condensation gathers, a fork in a vine where a thin film of moisture holds — and it stays. For how long, no one who has watched it can say with confidence, because watching it produces the same problem as watching the basin itself: nothing seems to change, and yet the cup is wet now and was wet before and will be wet again, and the creature drinks from it in the same unhurried, almost incidental way the plants drink — a sip taken without disturbing the next sip's arrival.
+
+When it does move, it moves at the speed of something that has never once needed to hurry. A slow refolding of legs. A repositioning of three or four centimeters that takes longer than seems possible for three or four centimeters to take. Then stillness again, so complete that the eye slides off it and settles instead on the leaf, the vine, the gold light — and forgets, within a few seconds, that it was ever looking at something separate from the green at all.
+
+### What It Does Not Do
+
+It does not appear to age. Skins are found, occasionally, in the leaf-litter — fine, translucent, perfectly intact, the exact shape and size of the creature that must have shed them — but no smaller or larger version of the creature has ever been seen near these skins, no juvenile, no elder. It is always the same thumb-length. It is always the same pale gold-green. Whether this means one shedding produces one identical replacement, forever, or whether it means something stranger — that there has only ever been one of these, somehow, met again and again across the whole sprawling linked valley of basins, mistaken each time for a different individual — is not a question the Greenhollow offers any way to answer. Time does not pass here cleanly enough to count generations. There may be no generations. There may only be *continuance*, wearing the shape of a small many-legged thing because some shape was needed and this was the shape that fit the available stillness.
+
+### Why So Few
+
+The basin's totality of plant-mass leaves, by design or accident, almost no room for an animal economy — no insects swarming to pollinate, because the flowers here do not need swarms, only patient hoarded dew; no birds, because there is nothing moving fast enough to chase and nothing seasonal enough to migrate toward. A single grazing, breeding, dying population of fauna would introduce exactly the kind of change the basin has agreed to refuse: birth, hunger, death, the small accumulating arithmetic of *more* and *less*. The waiting-body does not introduce this. It does not seem to reproduce in any observable sense; it does not seem to die in any observable sense. It simply persists in parallel with the leaf and the light and the unfallen-yet-always-falling drop of condensation — one more form the held breath has decided to take, equally devoted to the basin's single law: that nothing here is allowed to finish.
+
+### The Closest Thing to a Witness
+
+If the Greenhollow has an inhabitant in the sense of something that *notices* itself existing here — something that could, in theory, observe the gold light and the muffled hush and the ruined arch gone soft with vine and think *this has been this way for a long time* — it is this creature, and even this is uncertain, since its stillness gives away nothing of an inner life. It may be the basin's last small ember of attention. It may be no more aware than the leaf it mimics. Either way, it is the only thing here that moves at all, however rarely, however briefly — a single thread of motion drawn so thin and so slow through the gold-green stillness that it has become, itself, a kind of permanence: the one creature patient enough to live inside a place where time has stopped, and not mind.

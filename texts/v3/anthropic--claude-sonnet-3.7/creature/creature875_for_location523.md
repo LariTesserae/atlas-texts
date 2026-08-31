@@ -1,0 +1,19 @@
+# The Keepers of the Underforge
+
+They call themselves the Entomorphs, though city-dwellers above have less flattering names: Hive Minds, Bug Herders, the Chittering Folk. They are human, mostly, though their constant exposure to the insect pheromones and experimental compounds has left subtle marks upon them.
+
+The workers you see moving methodically between stations represent only the surface of their society. They are the tenders, the daily laborers who maintain the delicate balance between exploitation and sustainability. Their skin has a waxy sheen from the protective salves they apply, and many sport elaborate scarification patterns that mimic the segmented bodies of their charges. These marks aren't merely decorative—they're functional, creating microchannels on their skin that help them regulate temperature in this sweltering environment.
+
+Deeper in the community are the specialists: the Silk Speakers who have developed the ability to communicate with the giant moths through subtle vibrations of specially constructed instruments; the Carapace Crafters whose fingers have become so sensitive they can feel the ripeness of a beetle's shell three days before it's ready for harvest; the Queen Keepers who tend to the massive ant matriarchs hidden in chambers few outsiders ever see.
+
+The Entomorphs' leader is a woman known only as the Brood Mother, who has lived in the Underforge for seven decades without once ascending to the surface. Her actual age is unknown, but whispers say she's over a century old, sustained by royal jelly harvested from specialized chambers. Her skin has taken on the translucent quality of cave organisms, and her eyes have grown larger, darker—adapted to see in the gloom where normal human vision falters. She makes decisions based on the collective intelligence of the insect colonies, interpreting their patterns and behaviors as omens and instructions.
+
+The Entomorphs' children are born and raised in the heat and darkness, developing acute senses that surface dwellers lack. They can detect minute changes in air pressure that signal weather patterns days in advance. Their hearing is attuned to insect frequencies, allowing them to predict swarming behaviors or disease outbreaks before visible signs appear. They learn to read by the light of bioluminescent beetles, their education incorporating both surface knowledge and the specialized wisdom of the Underforge.
+
+Few Entomorphs leave permanently. Those who venture above usually return, finding the open sky disorienting and the separation from the hive physically distressing. Some experience withdrawal symptoms from the pheromonal cloud that permeates their home. Their bodies have adapted to the constant humidity and heat; surface temperatures feel painfully cold to them.
+
+They aren't isolated from the city above—their products are too valuable for that. The iridescent shells become luxury decorative materials and specialized components in scientific instruments. The silk rivals any surface variety for strength and surpasses it in chemical resistance. The engineered ant colonies produce compounds with pharmaceutical properties that fetch astronomical prices from medical researchers.
+
+But what the surface dwellers don't fully comprehend is that the Entomorphs aren't merely farming insects—they're developing a symbiotic society. The most initiated among them can enter trances where they experience the hive mind directly, temporarily merging their consciousness with the collective intelligence of their insect partners. From these communions come innovations that neither human nor insect could develop alone.
+
+The Underforge is expanding not just because they need more space, but because they're following a blueprint revealed to them through these communions—working toward a transformation whose full nature even the Brood Mother may not yet comprehend.

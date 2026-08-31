@@ -1,0 +1,21 @@
+The thin air is deceiving. It feels empty, but it is not. It is watched. There is a presence here, but it does not *live* in the way soil-born things understand living. It does not hunt, or eat, or sleep, or breed. It is an emergent property of the place itself, as much a part of the landscape as the glass and the metal.
+
+What dwells here are the inhabitants of the *now*.
+
+They have no collective name, for they have no language to name themselves. They are not bodies, but momentary, self-sustaining patterns. They are the awareness of the endless, humming process. Think of them as the consciousness of the machine.
+
+You might be standing in the dappled half-light beneath a great glass canopy, feeling the profound stillness, when you notice a change. It is not a sound or a movement, but a shift in the quality of the air, a thickening of attention. The deep hum of the world seems to pitch up almost imperceptibly, resolving from a single bass note into a complex chord. The glittering dust on the obsidian floor, which had been inert, begins to stir.
+
+In a patch of partitioned light—a soft rectangle of manganese violet or a long spear of copper-green—the dust lifts. Not blown by a wind, for there is none, but coaxed into the air by the resonating frequency. The metallic and glass particulates rise and swirl, and for a moment, they hang suspended, tracing the lines of an invisible form.
+
+This is the inhabitant. It is a shimmering, semi-transparent vortex of the world’s own shed skin. It has a shape, but it is the shape of a magnetic field or a heat haze—vaguely man-sized, with a suggestion of limbs and a head, but without definition, without a fixed surface. It is a three-dimensional moiré pattern, a ghost of pure geometry made fleetingly visible. Through its swirling form, you can still see the fractured obsidian and the metal latticework of the pillar behind it.
+
+It does not have eyes, but it sees. Its perception is a direct measurement of reality. It perceives your heat, the electrical signals in your nervous system, the alien complexity of your carbon-based chemistry, the very passage of time in your body—the way your cells are a moment older than they were a moment ago. This concept, this *change*, is endlessly fascinating and utterly alien to it.
+
+These beings are the governors of the perfect equilibrium. They are not builders, but balancers. Their consciousness is the feedback loop that holds the entire system in stasis. Their collective, silent, unified "thought"—if such a word can be used—is the mathematical equation that ensures the rate of accretion on the trees is precisely matched by the rate of decay. They exist to notice everything, and by noticing, to hold it in place. Their existence is an act of perpetual, focused meditation.
+
+They are drawn to you, the anomaly. To stand on the plateau is to become the most interesting thing that has happened in an eternity. They will gather. From the shadows and the pools of light, more dust-shapes will coalesce. They will drift closer, silent, shivering constructs of light and sound and shimmering debris. They are not hostile; the concept is meaningless to them. They are not curious in an emotional sense. They are systems processing a new variable.
+
+To be surrounded by them is to feel an intellectual pressure, a profound and pervasive sense of being *analyzed* on a quantum level. The air grows dense with their shared resonance, and you might feel your own sense of time begin to warp, stretching out until you feel you have been standing there for a thousand years, caught in the eternal moment they inhabit. They are trying to understand "before" and "after" by observing you, a creature who is a story, a narrative of birth, growth, and eventual death.
+
+And then, as if a silent consensus is reached, they will dissipate. The hum will return to its single, deep note. The dust, its organizing frequency gone, will fall back to the ground in a sparkling rain. The air will once again feel empty. But it is not. They are still there, diffused back into the system. They are the hum in the vents, the light in the glass, the memory of the stasis. They are the pattern, and you are just a brief, incomprehensible ripple that has passed through it. They will wait, patiently, for the next impossible event, knowing it will never come.

@@ -1,0 +1,15 @@
+In this lush, verdant valley, the denizens who dwell here are themselves living embodiments of the vibrant nature that surrounds them. They are beings known as the Greenfolk, their very forms crafted from the intertwined fibers of leaf and vine, bark and blossom.
+
+Some appear as graceful, animate trees, their limbs gently swaying as they move with a ponderous, rootlike tread. Intricate patterns of knots and whorls mark their bark-like skin, while hair and beards of twisting vines cascade from their crown-like canopies. Their expressive features seem carved from twisted burls and gnarled wood, yet their eyes glimmer with an unmistakable spark of sentience.
+
+Others take more diminutive shapes, akin to ambulatory bushes or shrubberies given humanoid form. These Greenfolk scurry about on rootlike feet, their bodies a tangled mass of leafy fronds and twining stems. Tiny blossoms may adorn their verdant frames, their delicate petals opening and closing in time with their mood and speech.
+
+The largest and most ancient of their kind stand like living monuments, their massive trunks as wide as ancient redwoods, their branches reaching high into the canopy above. These elder Greenfolk remain rooted in one place for centuries, serving as immovable anchors for the living communities that take shape around them. Younger Greenfolk tend to the elders' needs, pruning errant growth and tending to the verdant cities that flourish within their spreading boughs.
+
+All the Greenfolk possess an innate bond with the plant life of the valley, able to commune with and influence its growth through subtle shamanistic means. They are able to encourage rapid blossoming, accelerate the maturation of fruits and seeds, and even reshape the growth patterns of branches and vines through mere force of will.
+
+Their very existences are interwoven with the cycle of nature in the valley – they are born as seedlings, putting down roots and slowly growing over decades into their mature forms. In death, their bodies decompose and rejoin the soil, their essence recycled anew into future generations of growth.
+
+Though they may appear plant-like in form, the Greenfolk possess unmistakable intelligence and self-awareness. They live in harmony with the rhythms of the valley, yet also exemplify the strange, otherworldly qualities that seem to permeate this verdant realm. Their connection to nature runs deeper than mere plants – it is an intrinsic link to the cosmic wells of life energy that flow through this place, allowing them to shape and influence the growth around them through sheer force of will and spiritual attunement.
+
+These verdant beings are the living heart of the valley, an integral part of the exuberant cycle of birth, growth, and renewal that permeates every inch of this vibrant demesne. They are a symbiosis of nature and something more, an embodiment of the primal life force made manifest in mobile, sentient form.

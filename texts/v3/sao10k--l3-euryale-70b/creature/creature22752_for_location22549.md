@@ -1,0 +1,15 @@
+In this ravaged hellscape, a wide array of corrupted lifeforms and biomechanical abominations eke out existence. 
+
+From the bubbling, viscous sludge of the petrochemical waste, tentacled horrors rise, dripping with glistening ichor. Their pseudopods are laced with pulsating bioluminescent fibers, casting eerie light across the smoke-choked air. Maws gaping wide with needle-like teeth, they writhe and convulse, propelled by flagellating nests of veins and gills.
+
+Perched atop twisted, corroded valves, birdlike creatures flick their leathery wings. Talons of flayed flesh and alloy clutch the rust-eaten metal as they sway in the currents of noxious steam. Beady eyes of glowing optics peer down at the waste with cold, calculating intelligence. They are part biological, part machine, the seams of their cybernetic implants faintly luminescing.
+
+Scuttling up the metaled walls, hermaphroditic humanoids leave greasy smears in their wake. Their greenish skin ripples with tumors of inorganic matter - circuitry, pistons, grafted limbs. Insectoid mandibles click and chirp as they communicate in a guttural chorus. Many bear swaying, pendulous breasts beside urogenital platters. Organs dangle not-so-obscenely.
+
+Deep in the shadowed recesses between the clanking catwalks and gantries, huddled pockets of human survivors attempt to live. Emaciated, malnourished, strapped in grime and tattered hopes, they pick sullenly through wreckage for salvage. Augmented eyes spidered with reconstructed veins stare warily at the sorrounding hellscape. Snouts of scavenger bikers jut from the purpled sores in their filth-streaked faces - bronchial augments grossly visible under verdantholes of skin.
+
+Floating ambulatory exosuits drift atop the liquid waste, appendages propelled by chugging peristaltic gaskets. Harnessed in straitjackets of alloy and plastic, the original humans within are long since dead - their emaciated feeble forms desiccated mummifications trapped in decaying membranes. The exosuits, in turn supplantated by surging fungal hyphae, lumber on nonetheless, churning the waste, spewing gouts of fungal spores. 
+
+At the farthest reaches of this nightmarish complex, in the very weird latticework of pipes and gantries, amorphous intelligences ride the neural networks. Ghost shards of once-human minds clash and merge in the thrumming stream of light R Complex echoformations scramble and rearrrange their own concepta into lashing hemorrhages of irrational lucidity. Orgiastic cybermechanical seances strobing with famishing, predacious, assimilating frequencies.
+
+The complex itself is as much alive as the structures and beings it encloses. Its grand machine rhythm is the unrationalized tSqe kvach of the legitimatized madness enfleshed in its very bones. Fuming goats of incomprehensible terror ride through the thrumming, unseen spongebpore networks and coagulate into zeitgeist breeze of occluded meaning. It dreams incomprehensae dreams beyond all Mathematical concept and flails mad dendrites of impossible eventualities across the braying wasteland within.

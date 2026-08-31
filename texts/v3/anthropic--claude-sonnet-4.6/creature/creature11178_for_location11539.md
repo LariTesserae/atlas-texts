@@ -1,0 +1,75 @@
+# What Lives in the Cistern Quarter
+
+---
+
+Begin with the water-tender, because the water-tender was first, or the role was first, which amounts to the same thing.
+
+The Cistern Quarter is not uninhabited by people — not quite. There is one, at present. There have been others across the long sequence of the place's use, and the record of them is material rather than written: the splinted chair, the iron stove, the specific placement of a lamp hook at precisely the height a particular person needed, the hook now blackened and bare. The current water-tender is a woman in her late fifties whose name is not a thing she offers easily. She is called the Warden by those who call her anything. She has been below for eleven years continuously, which is the longest a single person has stayed, though not by as much as people assume.
+
+She is not strange in the way the isopods are strange. She is strange in the way a person becomes strange when they have organized their life around patience and precision in a context that most people do not understand and have stopped trying to explain. She is deliberate in movement — this is the primary visible thing about her. She does not move without purpose, but her purpose is not urgency; it is calibration. She knows the depth of the settling pool not by any functioning gauge but by the sound of the drop falling into it, which changes by fractions of a tone as the level rises. She has never explained this to anyone's satisfaction. She has stopped trying.
+
+She tends the pump. She logs the pressure differentials in a ledger, handwritten, in a notation she developed herself because the official notation requires a second engineer to verify certain readings and there is no second engineer. The ledger is factual, dry, specific. On one page, several years back, there is a single anomalous entry: *The large one sat by the pool again for the better part of an hour. I think it is listening.* The large one refers to one of the rats. She does not find this embarrassing. She finds it observationally accurate. This is the kind of person she is.
+
+She sleeps in a chamber not described in any official record, which connects to the east passage through a gap that has been widened just enough over the years — not by deliberate excavation but by the regular passage of a body, the gradual wearing of the brick edge, the slow negotiation between a person and the space that contains them. The sleeping area has a cot, a shelf, a collection of objects that she has brought down or found: a handful of the barnacle-like ceiling organisms, dislodged and inert, arranged in a line on the shelf as if for study; a smooth piece of pipe that she uses as a paperweight; a hand lens with a cracked lens, still functional; three books, two of which are on hydraulics and one of which is about birds, which she has read so many times that the spine has surrendered entirely and the book is held together by a piece of the same copper wire used to patch a section of pipe two passages away.
+
+She is not lonely in a way that she experiences as deprivation. She is lonely in the way that water in the settling pool is still: completely, and as a condition of being what she is, in the place she is, doing what she does. The stillness is not the absence of feeling. It is the feeling.
+
+---
+
+The rats are a second category of inhabitant — distinct from the Warden, distinct from the fauna of the pool and ceiling — because they occupy a middle ground, a behavioral register that is neither the pure biology of the fish nor the pure consciousness of the woman. They have been here long enough, and in close enough contact with the structures of a human-organized space, that they carry something of the place's intentionality in their behavior without being able to articulate it. This is, in its way, the most precise definition of residence.
+
+There are perhaps thirty of them. This number is approximate because several ranges overlap and because counting requires either trapping, which no one does, or sustained observation, which is difficult in low light. Thirty is what the Warden has written in her ledger, with a margin notation: *perhaps thirty, perhaps more, perhaps some I have seen twice.* This scruple — the acknowledgment that her own observation is imperfect — is characteristic.
+
+They are large, as noted, and pale, and large-eyed. The paleness is not albinism exactly — there is still a faint warmth to the fur, a cream-grey that has not fully relinquished its ancestral coloring. The eyes are dark and proportionally larger than surface rats', adapted to the dim, capable of seeing in light levels that would register as near-total darkness above. Their tails are long. Their movements are exactly as described: deliberate, unhurried, the unhurry of an animal that has not been predated in so many generations that the fear-response has been rerouted into something else — into attention, perhaps. They pay attention to things. The one by the pool was observed on at least four separate occasions sitting at the pool's edge, still, apparently regarding the surface. This is the rat that the Warden has noticed most particularly. Whether it is always the same rat is unclear. It is always a rat doing the same thing, which may or may not be equivalent.
+
+They do not live in the spaces humans built. They live in the spaces between those spaces — the gaps in the brickwork, the cavities behind the render, the hollow spaces where pipes have been rerouted and the old channels bricked over but not filled. They have an extensive geography of the walls that no human inhabitant has. They know things about the structure's interior that the Warden does not. She knows this and does not resent it. She regards it as a division of knowledge that is simply true, like the division between what the gauges measure and what they fail to measure.
+
+They eat what the water brings — organic material, the soft growth at the wet margins, occasionally the larger isopods, things carried in from above. They do not compete with the fish for the pool's resources; their feeding zones are different, their strata separate, their ecologies parallel rather than intersecting. They drink from the channels. They do so with care, lapping at the very edge of moving water with an unhurried precision that looks, if you watch long enough, remarkably like something you would call mindfulness in another context.
+
+---
+
+The fish are creatures of a different order. They are not residents in any sense that involves awareness of residence. They are the pool, effectively — they are the most alive thing in it, and they have been shaped by it for so long that they are more pool than fish, more absence of light than presence of form.
+
+They are eight inches long, or nine, or seven. The variation is not significant. They are colorless in the sense that a colorless thing still has color: they are the color of the water they displace, a slightly different transparency, visible by their movement and by the shadow of their spines, by the dark suggestion of their organs against the lighter non-color of their bodies. Their eyes, vestigial, look like small worn coins — pale, clouded, set in the sides of their heads in the right position for eyes and serving no visual function. The eyes are not the sensors. The sensors are distributed across the body in the lateral line, in the skin, in the chemistry of their water-reading: they are alive to pressure, to temperature gradients too fine for any instrument in the quarter to detect, to the molecular signature of what enters the pool from above.
+
+When something new enters the pool, they know before the Warden does. She has learned to read them: a slow reconfiguration, a drift to depth, a brief suspension of all movement — and then, usually, a return to pattern. Occasionally they do not return to pattern for several hours. These are the days when she checks everything twice.
+
+They reproduce in the pool. The young, if that is the word, are smaller and even more translucent and very briefly more active before they slow to the pool's pace. Nothing eats them in the pool. Nothing in the pool eats anything living; the food is what settles, what comes down from the city above in the slow seep of water through the system: particulate matter, organic material, the dissolved remnants of what the city does with itself. The fish are the last step in a process that begins in rain falling on rooftops. They are the city's final digestion of itself.
+
+Their phosphorescence is zero. They produce no light. They are, in the dark of the pool, genuinely invisible — you know they are there because you saw them when the light caught them, because the Warden told you, because occasionally a surface tension shift marks their passage near the top. Below the upper foot of water they are entirely a matter of faith.
+
+---
+
+The isopods are the pivot.
+
+They are the point at which the place's biology becomes difficult to hold at observational distance — the point at which description and interpretation begin to blur, not because they are dramatic but because the light they make is so precisely disproportionate to the darkness around it. A faint phosphorescence in a deep cave might be expected, might fit an explanatory framework of isolation and adaptation. A faint phosphorescence in the cistern quarter — below a city, in human-built chambers, on pipes and valves installed by engineers within living memory — does something different to the mind that encounters it. It places the adaptation inside human work. It makes the human work strange by making it a habitat, which it is, which it has been, which no one who built it intended.
+
+The isopods are large for what they are — thumb-joint-sized, armored in overlapping grey plates, antennae long and constantly adjusting. They move slowly over every surface, over biofilm, over corroded metal, over the Warden's ledger if she leaves it open on the wrong surface. They are not disturbed by the Warden's presence and she is not disturbed by theirs. She has catalogued them after a fashion — she has a section of her ledger that maps their preferred surfaces, their apparent feeding routes, the walls and pipes on which their light is most reliably visible. She has a name for one cluster that reliably congregates on the pump housing: she calls them the Pressure Readers, and this is only partly a joke.
+
+The phosphorescence is cold and blue-white and not consistent between individuals or even within a single individual across time. A particularly large isopod may glow steadily for an hour and then not at all for a day. Clusters will illuminate briefly and go dark, the light seeming to ripple across several individuals in sequence, though whether this is communication or coincidence the Warden does not know and has not tried to determine. She has written: *Whether it is something they are saying or something that simply happens to them, I cannot establish. I am not sure the distinction is as clear as it sounds.* This is the most philosophical entry in an otherwise technical ledger.
+
+In the chamber with the chair and the unlit stove, there is a cluster on the pipe above the door. In the dark, if the single distant bulb is not visible, this cluster provides the room's only light — enough to see shapes by, not enough to read. Enough to know that there is a chair and a stove and that someone is not in the chair. The cold blue glow illuminates the specific shape of an absence and then goes out and comes back and illuminates it again.
+
+The Warden sits in that chair sometimes, in the evenings, if evenings can be said to exist below the city. She sits facing the stove, which she does not light — it is not cold enough in the cistern to require it and she is accustomed to the cold. She sits because the previous water-tender sat there, and the one before. The chair's multiple repairs are a palimpsest of the various bodies that have used it. She has added her own repair, the metal banding on the back, during the third year. She sits in the chair that contains all the previous sittings, and the isopods glow above the door, and from the main room, very faintly, she can hear the drop falling into the settling pool.
+
+Every four or five seconds. Never quite establishing a rhythm. Never quite abandoning one.
+
+She has been counting the drops for eleven years without meaning to. She has stopped being able to not count them. The count does not reach any total that matters. This is, she has decided, the correct relationship to have with a cistern: one of attendance without arrival, of maintenance without resolution. The water comes in and the water moves on. You tend the interval.
+
+---
+
+There is one more thing that lives here, and it is the hardest to describe, because it is not biological and not exactly structural and not the Warden, though it lives in her and in the rats and in the slow movement of the blind fish.
+
+It is what accumulates in a place that has been tended for a long time.
+
+The cistern quarter has been in use for long enough that the use itself has become a layer, like the render over the brick, like the calcite over the tile warning about depth. Every person who sat in the chair tending the pressures has left something — not supernatural, not mystical, nothing that would require different vocabulary than the vocabulary of matter and time. Simply: the chair is shaped by the bodies that used it. The floor is worn along the routes that were walked. The hook is at the height it is at because someone needed it there, and someone after them adapted to that height, and someone after them did the same. The Warden knows where to step in the wet sections because she learned from the paths already worn.
+
+This is what lives in the Cistern Quarter most densely, most continuously, with the longest tenure. It is the accumulated consequence of attention paid to the same things across a long series of people paying attention to the same things. It is what a place becomes when it is tended. It is not memory, exactly — the place does not remember the engineers and their anxiety, does not remember the painter who lettered CAUTION in red on white tile at a remove from what it cautioned. It simply bears the marks of them, the way a tool bears the marks of every hand that held it.
+
+The Warden is the current instantiation of this. When she leaves — in whatever way she eventually leaves — she will become part of what the next water-tender inherits. The hook will be at her height. The ledger notation system will be opaque and then, after a time, learned. The chair will bear the mark of her particular way of sitting in it.
+
+The isopods will still glow above the door.
+
+The fish will still drift in their black water.
+
+The drops will still fall at their own interval, patient, irregular, continuous, into basins that have held the same water for a hundred years and will hold it for a hundred more.

@@ -1,0 +1,17 @@
+The clockthrivers are a species that exists in the liminal space between organic and mechanical, though they would likely not recognize this distinction. Each individual is a marvel of integrated systems: their crystalline-metallic shells house intricate clockwork that interfaces seamlessly with what might be called their organs - though these too blur the line between grown and manufactured.
+
+They move with extraordinary precision, each motion calculated yet fluid. Their limbs - typically six to eight, depending on their specialization - can extend and reconfigure for different tasks. The outer layer of their shells is slightly iridescent, marked with patterns that serve both as individual identification and as indicators of their current role in the community. These patterns slowly shift over time as they age and change functions.
+
+Their consciousness is distributed through both their organic and mechanical components. They think in patterns of rhythm and symmetry, processing information through both biochemical and mechanical means. Their language consists of subtle clicks and vibrations, combined with modulated electromagnetic fields that create complex, layered meanings. They can communicate across significant distances by transmitting these signals through the dome's structural elements.
+
+They reproduce through a fascinating process that involves both assembly and growth. New clockthrivers begin as small mechanical frameworks that are "seeded" with crystalline organisms. Over time, these components grow together, guided by the careful attention of the community. Each new individual is slightly different, reflecting both inherited patterns and adaptations to current needs.
+
+The clockthrivers exist in a state of constant, careful activity, but their industry has a meditative quality. They appear to derive satisfaction from both the precision of their work and their integration with their environment. They understand themselves not as separate entities but as components of their habitat-system, much as cells are components of a larger organism.
+
+Their society is organized around shifting patterns of responsibility rather than rigid hierarchies. Individual clockthrivers transition between roles based on the dome's needs and their own developing capabilities. Some focus on maintaining the machinery, others tend the crystal-plants, while others specialize in monitoring and adjusting the overall system's balance.
+
+They have a deep awareness of time that extends both forward and backward. They maintain intricate records encoded in crystalline matrices, documenting the dome's history and projecting its future needs. They plan in terms of decades and centuries, their own lifespans extending well beyond human scales.
+
+Perhaps most remarkably, they possess a form of distributed creativity. While they are methodical and precise, they are also constantly experimenting, making minute adjustments to their environment and themselves. These changes accumulate over time, leading to innovations that emerge from the collective rather than individuals.
+
+The clockthrivers are neither fully mechanical nor fully organic, neither entirely individual nor entirely collective. They are the product of their unique environment, and they continue to shape that environment even as it shapes them, existing in a state of dynamic equilibrium that is both highly engineered and deeply natural.

@@ -1,0 +1,39 @@
+No single creature possesses the cleft. Possession would require boundaries, and every boundary here is also a road, a roof, a feeding place, or the underside of another body. What lives in the seam is an arrangement: many animals fitted so tightly into the fracture that, when the wall trembles, the whole population seems to tense as one.
+
+The darkling beetles form its foundation. They are not black in any simple way. Their shells hold the weak mineral light in bruised colors—charcoal, iron-brown, a dull violet visible only when one climbs over another. Their legs are long enough to keep their bellies above the hottest dust but must be folded awkwardly beneath low slabs. In the broad chamber they stand packed together, head to abdomen, armor touching armor. The mass resembles a spill of hard seeds until vibration passes through it. Then every antenna lifts.
+
+They know the machinery by its signatures. The crusher is a sustained pressure and may be ignored. Trucks arrive in evenly separated swells. Drilling is intolerable but predictable. A true shift in the rock is different: a small, intimate note followed by a change in air. At that signal the beetles move all at once. The packed floor separates into individuals, each forcing itself beneath the nearest edge. Afterward they return slowly, testing the altered space with their forelegs.
+
+They eat what the fracture gives them, which is nearly everything except stone. A moth wing stripped of scales. A bat dropping already hard enough to ring faintly when rolled. The empty shell of a mite. A beetle that failed to right itself after a flake moved. Nothing remains recognizable for long. The seam reduces each arrival through a succession of mouths.
+
+The mites are the final mouths. They inhabit distances the larger animals cannot perceive as spaces. A dust grain is shelter; the shadow beneath a beetle’s foot is temporary weather. Some are red as sparks, some translucent, some the same gray-brown as the powder they cross. When heat drives them deeper, the dust itself appears to flow into the wall. They gather at joints, eggs, wounds, dung, and the softened margins of the newly dead. Their lives are brief enough for generations to pass between two shifts of a basalt splinter.
+
+Among them wait the pale book scorpions. They are scarcely larger than debris but carry themselves like armored sentries. Their claws are absurdly prominent, held open in the traffic lanes. They retreat from ants and seize mites. Sometimes one attaches itself to the leg of a beetle or the fur of a bat and is carried into a neighboring pocket. It arrives with its claws raised, ready to defend a territory no wider than a fingernail.
+
+The ants belong differently. They do not sleep in the cleft or trust it with their young. They pass through in narrow, disciplined files, emerging from one hairline crack and vanishing into another. Their roads cross chambers that seem sealed. They bring sweetness dried to varnish, fragments of other insects, pale crumbs of larval food. They also remove whatever can be cut and carried. A dead moth may enter whole in the claws of one ant and leave before dawn as twenty separate pieces.
+
+At the entrance live the geckos, though “live” is almost too settled a word. They are creatures of the threshold, flattened against the basalt as if pressed there while the stone was still soft. Quarry dust dulls their backs. Only their eyes retain brightness: gold around a vertical darkness, each eye protected from grit by a transparent scale licked clean with a quick pink tongue.
+
+They know that thunder shakes food loose. When a beetle loses its hold and stumbles toward the opening, the gecko moves without seeming to cross the intervening space. There is a click of jaws and then stillness again. The geckos avoid the deeper chambers, where they cannot turn, and the outer face, where sunlight would reveal and cook them. They occupy a strip only a few centimeters wide, but within it they are swift, patient, and nearly sovereign.
+
+Above them hangs the largest life in the cleft.
+
+The bats do not look like hundreds of animals when at rest. They look like one folded substance stuffed into the ceiling: fur, membrane, hooked feet, closed mouths. Their bodies overlap so completely that a breath begun at one end travels through the colony as a slow rearrangement. One loosens a wing; three others shift. A pup gives a thin complaint and is answered by several mothers before finding the correct body by heat and smell.
+
+Their fur carries the outside into the seam—lamp dust, moth scales, traces of distant flowering plants, the mineral odor of water visited far away. In that sense they are the cleft’s only season. The rock itself changes little, but the bats return with evidence that cold nights, insects, wind, and rare rain exist elsewhere.
+
+By day they endure the stored heat. Their pulses slow. Moisture is guarded behind closed mouths and folded wings. The youngest press deep into the living ceiling, where other bodies buffer the dryness. When the basalt rings, claws tighten in sequence. When a sudden cool draft enters, every head wakes.
+
+At dusk the colony does not pour out at once. The animals nearest the mouth stir first, crawling over the geckos’ ledge and testing the air with small cries. Their voices are finer than the quarry’s noises, but more exact. Each bat casts sound into the opening and receives the shape of the changed world. Then it drops, unfolds, and is gone. The ceiling empties by layers until only pups, reluctant adults, and a few old animals remain, exposed as separate bodies for the first time.
+
+Rarely, another shape enters after them: a thin desert snake, scarcely thicker than a cable, its scales polished by stone. It can follow warmth through darkness and swallow a gecko or a bat pup where no larger predator could place its head. Its arrival changes the rules. Beetles become still. Geckos withdraw into cracks too narrow for their ribs. The bats scream and strike with folded wings. Yet the snake is never truly at ease. The cleft is so crowded that prey and obstruction are almost the same thing, and a shifting shard could pin it permanently. It feeds, if it can, and leaves.
+
+The deepest residents never leave. They hatch, molt, mate, feed, and become dust without seeing direct light. Their world is measured not in sunrises but in thermal tides: the afternoon swelling of stone, the long release of heat after dark, the faint nightly cooling at the innermost wall. They know open air only as theft. Air takes moisture, scent, loose husks, and the powder of the dead. A draft is not freedom. It is evidence that something has broken.
+
+Together these lives give the cleft something like organs. The bats are its warm, breathing roof. The beetles are its armored floor. Ants become its brief circulation, geckos its watchful mouth, mites its digestion. The book scorpions are the small grasping reflexes hidden everywhere. Even the snake, when it comes, resembles a thought of hunger passing through the whole structure.
+
+But the resemblance lasts only until the rock moves. Then the apparent creature breaks apart into thousands of private urgencies. Claws close. Shells wedge. Wings cover young. Ant roads reverse. Every animal seeks the smallest space capable of containing it.
+
+When the tremor ends, they emerge and fit themselves together again.
+
+From the quarry floor the seam remains empty: a minor flaw in fresh basalt, black because sunlight cannot enter. Only if one climbed close enough to feel the wall’s stored heat, and waited through the industrial thunder for the quieter sounds beneath it, would the life inside become audible—the rasp of shell on stone, the dry passage of ants, a gecko’s throat-click, the innumerable minute movements of bodies inhabiting every darkness the fracture has made.

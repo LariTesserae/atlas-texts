@@ -1,0 +1,21 @@
+It would be a mistake to say nothing lives here. It would be a greater mistake to say that what lives is alive in any way you would recognize.
+
+They are called, for lack of a better term, the Custodians. They are not a species. They are not born. They are extruded.
+
+When a segment of vascular trunk develops a microfracture, when a crystalline valve begins to stick, when a biofilm of something other than the sanctioned microbial flora begins to form on a fluid highway, the local tissue responds. It is not thought; it is a chemical cascade, a shift in pressure and pH that triggers a secondary growth protocol. From the living walls of the factory itself, from nodules that are usually dormant, a new form buds.
+
+It begins as a viscous, amber-colored sap, weeping from a pore and refusing to mix with the condensing water. It pools, congeals, and within hours, it begins to articulate. The result is a thing of eerie, minimal design.
+
+A typical Custodian is no larger than a human child, but denser, heavier. Its body is a teardrop of that same hardened, lignified tissue that forms the spires, smooth and cool except where it is networked with faint, pulsating veins of a darker green. It has no head. Its front—if a direction of slow, gliding movement can be called a front—is a flat, slightly concave plate, studded with thousands of microscopic, hair-like sensors that taste the air, the moisture, the chemical signature of the machinery around it.
+
+It moves not on legs, but on a base that seems to melt and re-form. It flows over the ribbed ground, up the sheer faces of the barrel stems, with a silent, oiled grace. It leaves behind a faint, shimmering trail of a sealing resin that is immediately absorbed by the living floor, healing the microscopic abrasions of its passage.
+
+Its purpose is singular. It finds the flaw. It might pause before a valve-cluster, its sensor-plate hovering inches away, reading the minute click-rhythm. Detecting a hesitation, it extends a single, delicate proboscis from its underside, a tool grown for this moment. The proboscis inserts itself into a pore no wider than a needle’s eye. It injects not a medicine, but a catalyst—a brew of enzymes and neutralizer compounds that recalibrates the valve’s crystalline structure. The clicking resumes its perfect tempo. The Custodian retracts its tool, and the proboscis is reabsorbed into its body, its material reclaimed.
+
+For a breach, its method is more dramatic. It settles over the crack in the warm trunk, its entire underside liquefying into a gel-state. It fuses itself to the wound. For days, it will remain there, a living, pulsating patch, directing raw materials from the factory’s own circulatory systems into a accelerated growth matrix, guiding the repair from within. When the tissue is whole, the Custodian simply… dissipates. Its structure unravels, its component fluids and polymers seeping back into the trunk, leaving no trace behind.
+
+They have no eyes, but they perceive the world as a symphony of pressures, flows, and chemical gradients. They have no brain, but they execute complex protocols woven into their very structure. They have no desire, no fear, no awareness of self. They are tools that grow themselves, use themselves, and then dissolve. They are the factory’s own hands, its immune response given transient, mobile form.
+
+You might wander for years and see only one, or none. Their emergence is rare, for the Breathing Factory is近乎完美. But in the deep, humid silence, you may one day witness a section of wall shudder slightly, and watch as a shape of smooth, dark plant-matter slowly pushes itself free, wet and complete, already turning to glide toward a fault you cannot perceive. It will ignore you utterly. You are not part of the system. You are an irrelevance, a temporary fluctuation in humidity and heat.
+
+The Custodians are not the inhabitants of the Breathing Factory. They are its momentary verbs. They are the process of *maintenance* made flesh, and their entire, brief existence is a single, silent sentence spoken by the continent itself: *Continue.*

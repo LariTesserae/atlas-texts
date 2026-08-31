@@ -1,0 +1,45 @@
+# What Lives in the Roost-Cleft
+
+## The Hangers
+
+They are what you see first, or rather what you sense first as mass — the drip-clusters under every overhang, bodies hooked into bodies in chains four and five deep. Call them bats only because there is no better word. The oldest lineage in the cleft, probably; the shape that the cleft was made for, or that made itself for the cleft. Their wings are not quite wings anymore — too thick at the membrane, veined wrong, useful for short heavy glides between hollows but not for the open sky. None of them remembers the open sky. None of their grandmothers did either. Their faces have softened toward something almost mammalian-without-purpose: small flat noses, mouths that hang slightly open, eyes that have given up on light and become instead pale listening organs, milky and slow. They navigate by the chorus. Each one calls a few times an hour — a soft wet click — and reads the cleft back to itself out of the answering rustle. A Hanger separated from the chorus would not survive a night. It would not know which way was up.
+
+They breed in slow staggered waves. A female bears one pup, holds it against her chest for a long season, and when the pup can hook its own claws into stone she releases it into the cluster and forgets it specifically while loving it generally. Pups are raised by the wall, not the mother. This is not neglect; it is the older way.
+
+## The Soft-Beaks
+
+The birds-that-have-forgotten. Once, generations past counting, something flew up the mountain and got trapped in the cleft and made do. What remains is bird-shaped only in outline. The beaks are no longer keratin — they are some softer cartilage, pliant, almost lippy, suited to the pulpy berries and the soft larvae in the wall-cracks but useless for any seed or shell. The wings still open and still beat but the flights are short, vertical, hollow-to-hollow. The feathers have lost their oil and gone matte, the color of wet ash. The eyes have swollen to take in more of the perpetual dusk and now bulge slightly from the skull, giving the Soft-Beaks a perpetually startled look, though they are not startled by anything. Nothing here startles them. They have been here too long.
+
+They sing, after a fashion. Their trills are the high overlay on the chorus, the silver thread woven through the bass clicks of the Hangers. Two Soft-Beaks who share an adjacent pair of hollows will develop, over years, a duet that no other pair sings — a private call-and-answer that constitutes, perhaps, their love and their language and their entire individual existence within the great communal noise. When one of the pair dies, the survivor sings the duet alone for a while, both parts, and then stops, and then is silent in a particular way until it too goes down to the floor.
+
+## The Small-Handed
+
+These are the strange ones. The makers, if anything here makes.
+
+Lemur-ish, but smaller, hand-sized when curled. Narrow faces, large dark eyes that do see, properly see, in this light — not by enlargement but by some refinement of the retina that allows them to read density and motion in the half-dark like a text. Five fingers per hand, four hands per body (the rear pair barely distinguishable from the front), and the fingers are remarkable: long, jointed in three places, ending in flat dark nails that they sometimes flake against stone to keep sharp.
+
+They live in family groups of six to twelve, occupying a vertical column of adjacent hollows that they regard, in some sense they cannot articulate, as *theirs*. Within the column, the hollows are differentiated. There is a hollow for the very young, lined with shed Hanger-fur and shed Soft-Beak down, the softest place in the column. There is a hollow for sleeping that the family uses in shifts. There is, in the older established columns, a hollow that has been worked — scraped wider at the back, with a smoothed lip and a small recess in the floor that holds water after a rain, longer than the natural hollows hold it. This hollow has no obvious daily use. The Small-Handed visit it. They sit in it, one at a time, for stretches. They run their fingers along the smoothed places. The youngest learn the gesture from the eldest. Whether this is ritual, memory, comfort, or something for which we have no word — it is not clear, and may never be clear, because the Small-Handed do not seem to ask themselves the question.
+
+They communicate in soft chirrups and in touches. A mother greets her child by pressing the back of her hand to the child's forehead. A pair greets a third returning from the upper hollows by touching all six hands together in a brief knot. These gestures are precise and unvarying. They are the oldest things in the cleft except for the cleft itself.
+
+The Small-Handed eat the pale berries, and the larvae, and — this is the harder thing — they sometimes eat the very-young of the Soft-Beaks, taken from unattended hollows in the dawn-equivalent hours when the chorus is at its quietest. They do this without ceremony and without apparent guilt and without doing it often enough to threaten the Soft-Beaks. The balance is old. Everyone here is part of how everyone else continues.
+
+## The Upper Things
+
+You will not see them. Almost no one sees them. They live in the deepest of the deep hollows, near the top of the cleft where the walls lean inward and the strip of sky is narrowest. Their hollows are large enough that a Small-Handed could walk into one and not touch the sides — but no Small-Handed does. There is an understanding.
+
+What is known of the Upper Things is inferred. Their breathing, when the chorus quiets, is audible: slow, deep, with a long pause between the in and the out, the kind of breathing that belongs to a body with a great deal of body to breathe with. When they shift, a sound of something heavy turning against stone, and small showers of pumice-grit fall from the upper walls. They breathe out warmth — much of the cleft's warmth, perhaps, originates in them, in their slow metabolisms working through whatever they work through up there. Some of the Hangers and Soft-Beaks that die do not reach the floor. They simply do not arrive. The chain of accounting breaks in the upper hollows. The Upper Things are fed, somehow, by the chorus itself, by what falls upward to them, by what they take.
+
+There are perhaps four of them. Perhaps three. Perhaps one, very large, occupying several hollows at once. The cleft is not telling.
+
+## The Floor
+
+The floor is alive too, but the life there is a different order. The guano-and-bone-mash hosts a slow population of pale invertebrates — soft-shelled things, ribbon-shaped things, a particular blind grub the size of a thumb that the Small-Handed will sometimes descend for, on long careful climbs, and bring back up to the column to be shared. There is a colony of something fungal that fruits, once a season, in pale gleaming cups that briefly perfume an entire end of the cleft and then collapse into slime. The floor is the cleft's stomach. It does its work in the dark and the damp and asks nothing of anyone.
+
+## The Whole
+
+And here is the thing that takes longest to see, longer than any individual creature, longer even than the Upper Things' breathing pattern: the cleft is *coordinated*. Not as a hive is coordinated — there is no queen, no signal, no shared purpose anyone could articulate. But the chorus has rhythms, and the rhythms move through the populations in waves, and in those waves the Hangers click in a pattern that the Soft-Beaks trill against and that the Small-Handed listen to and time their movements by, and the Upper Things breathe slowly underneath all of it like a heart that does not quite know it is a heart. When a section quiets, three other sections quiet a moment later in sympathy, and a moment after that the whole cleft has held its breath for perhaps the length of a held breath, and then it resumes, and no one inside it has decided anything, and yet a decision has been made.
+
+What lives in the Roost-Cleft is the Roost-Cleft. The individual creatures are its cells. They are real cells, with real lives, and they love and eat and die as cells do; but the thing that has been here long enough to *become* the place is the chorus, the rhythm, the slow warm pulse of all of them together — a creature without edges, without a face, without anywhere you could point and say *here, this is it.* It is the held breath between the in and the out of the Upper Things. It is the duet of the Soft-Beaks and the polished lip of the Small-Handed's scraped hollow. It is the lichen and the guano and the ribbon of sky.
+
+It does not know you are there. It does not need to. It accommodates you the way a body accommodates a swallowed seed: indifferently, with its own slow chemistry, and without urgency, because it has time, and you do not.

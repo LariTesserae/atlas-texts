@@ -1,0 +1,17 @@
+In this extraordinary vertical city, life has adapted to thrive in the most precarious of circumstances. The inhabitants are a hardy, inventive people, as tenacious and opportunistic as the mosses and lichens that cling to their city's weathered facades.
+
+The Rooftop Gardeners are a celebrated guild, coaxing lush gardens from the mist-drenched rooftops. They are experts in the rare flora that flourishes in this environment, cultivating medicinal herbs, vibrant flowers, and even small crops in cleverly designed hanging beds and terraces. Their knowledge is passed down through generations, a green-thumbed heritage that brings beauty and sustenance to the city.
+
+The Funicular Operators are the lifeblood of the city's transportation, maintaining and operating the complex network of railcars that carry people and goods up and down the steep slopes. Theirs is a job requiring both mechanical aptitude and nerves of steel, as they navigate the dizzying heights and precarious tracks. They are a tight-knit community, their lives intertwined with the rhythms of the clattering railcars.
+
+In the perpetual gloom of the lower levels, the Lamplight Guild keeps the city illuminated. They maintain the intricate network of gas lamps, bioluminescent algae tanks, and mirrored light wells that bring a soft glow to the narrow streets. Theirs is an art of shadow and illumination, crafting pockets of warmth and safety in the dense warren of buildings.
+
+The Aqueduct Masons are the guardians of the city's precious water supply. They maintain the delicate network of channels, cisterns, and reservoirs that capture every drop of rain and funnel it to where it's needed most. Their work is never-ending, a constant battle against leaks, clogs, and the relentless growth of opportunistic plant life.
+
+In the heart of the city's industry are the Steamwork Engineers, masters of the hissing, clanking machines that power the city's factories. They are a creative and pragmatic lot, equally adept at maintaining the great steam engines and improvising repairs with whatever materials come to hand. Their ingenuity keeps the city's industrial heart beating.
+
+Overseeing it all are the Architects, the visionaries who dream in steel and stone. They are the ones who design the improbable bridges, the daring towers, the soaring viaducts that knit the city together. They are equal parts artist and engineer, their minds always seeking new ways to defy gravity and tame the unyielding mountain.
+
+And then there are the Mistwrights, the most enigmatic of the city's denizens. They are said to have a special affinity for the ever-present mists, able to navigate the fog-shrouded peaks and hidden valleys like no others. They serve as guides, messengers, and sometimes, it's whispered, as spies and thieves. Their comings and goings are as mysterious as the mists themselves.
+
+Life in this vertical city is a testament to human adaptation and ingenuity. From the humblest street-sweeper to the most renowned architect, each inhabitant plays a role in the delicate balance that allows this improbable metropolis to thrive. Theirs is a existence woven into the very fabric of the city, a patchwork as vibrant and resilient as the mountain mosses that drape their rooftop gardens. In defiance of the uncompromising environment, they have carved out a home amid the mists and machinery, a living, breathing marvel in the clouds.

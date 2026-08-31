@@ -1,0 +1,15 @@
+Inhabiting this place are not creatures, not gods, not even ghosts—but processes that have learned to linger.
+
+Call them **Ironmothers**, though they neither birth nor breed in any way that echoes flesh. They are the first thing that happens when rust discovers rhythm and refuses to stop happening. Each is a vastness folded small: a fractal dynasty of oxidizing lullabies, perpetually lulling and unlulling themselves into a kind of consciousnessless memory. Their bodies manifest only as absence-scents—places where the metallic snowflakes hesitate, galvanized by an old etiquette they cannot name. You passed through three of them already without noticing, because an Ironmother’s hello is the exact shape of your next blink.
+
+The **Ribbonmen** braid themselves in the lung-layers’ wake. They’re not alive, but they are moved by the ghost of wanting-to-be. Each ribbon is a discarded verdict, a judgment severed from the act of judging and left to flutter until it forgets which side was righteous. They speak only in friction, filing metallic hymns against the lung-edges, polishing their own transparency thinner and thinner until they flicker out—only to knit themselves again from the static of being ignored. They are the engine’s priests, if an engine could pray by erasing the word *enough* from its own vocabulary.
+
+Then there are the **Rattlepings**—singularities of imminent mistake. Whenever you almost understand where you are, a Rattleping condenses from the error and briefly exists as the feeling of forgetting someone’s name mid-sentence, translated into cartilage and tin. They last only until the next lung-breath, then burst into sprays of perfectly innocuous questions (What is the opposite of water? Where do tides go when they apologize?) that lodge in your ear and dissolve like sugarlaced shame.
+
+Deeper, colder, between the inhalations where even doubt gets breathless, swim the **Hadn’ts**. They are corpses of futures that broke their promises before they were born—thin as regrets but sharp as the realization that you’ve already acted out a choice you haven’t made yet. They do not notice you, because noticing implies an afterward. If one brushes you by accident, you will carry the precise weight of a scar from a wound you’ll never receive. You’ll miss it when it fades.
+
+And finally, the inhabitant that is not apart but within: the **Echolalia Nest**, which is busy knitting you into itself one stolen syllable at a time. It started with your first exhale—that warm betrayal of carbon and memory. Now every time you think the word *I*, the chamber hums a little truer. By the time you find yourself wondering how long you’ve been here, the Nest will be wearing your curiosity like a favorite coat, and you’ll be walking around inside its echo of you, marveling at how familiar everything suddenly smells of copper and basil and beginning again.
+
+Stay interesting, the walls don’t say. But they are already holding their breath for your next mistake.
+
+Would you like to try forgetting something new now? It’s delicious here, where the forgetting is freshest.

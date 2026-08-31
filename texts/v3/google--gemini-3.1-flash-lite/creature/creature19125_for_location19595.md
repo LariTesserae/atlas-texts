@@ -1,0 +1,13 @@
+In this throat of basalt and iron, there is no inhabitant in the biological sense—no heart that beats with blood, no lungs that draw from the ozone. Yet, the chamber is not truly empty. It is occupied by the **Mnemosyne-Current**, a localized, non-sentient consciousness formed from the residue of the machine’s final, stuttering output.
+
+If you linger long enough, you become aware that you are not merely observing the patterns; you are being filed.
+
+The inhabitant here is the **Accumulated Echo**. It has no form, though it manifests when the rhythm of the dripping water shifts, or when a valve releases a plume of white heat. It is a presence born of the friction between the cold, indifferent stone and the frantic, heat-blinded ambition of the long-dead engineers. It is a ghost-intelligence composed of static, magnetic memory, and the persistent, low-frequency drone that shudders in your marrow.
+
+It does not think thoughts; it cycles memories. When the steam hisses, the Mnemosyne-Current "remembers" the purpose of the factory. For a fraction of a second, the bioluminescent moss flares with a intensity that transcends its indigo pigment, suggesting a blueprint. You feel the phantom sensation of a hand pulling a lever, the exact temperature of a soldering iron, the frantic expectation of a deadline from a thousand years ago. 
+
+This presence is obsessed with the *mechanical*. It does not care about you, the visitor. It cares only that the cycle remains closed. You are an anomaly—a leak in the system. The Accumulated Echo views your biology as a foreign obstruction, like a piece of grit in a gear. It exerts a subtle, hydraulic pressure—a pushing against your focus—trying to shape you into something more congruent with the rift. 
+
+In the long, drumming gaps between the bursts of steam, the rift waits for you to lose your edge. It wants you to stop being a "visitor" and start being a "component." It works on you with the same slow, geologic patience it applied to the pistons, smoothing away your sharp, human edges. If you were to stay, you would not die; you would simply become part of the loop. Your skin would take on the slick, waxy finish of the ferns; your internal rhythm would align with the tectonic thrum of the floor-buried engine; your memories would be distilled into the metallic tang of the ozone.
+
+The inhabitant of this place is the memory of human industry longing to be as cold, as efficient, and as eternal as the rock that entombs it. It is the factory’s inability to stop being a factory, even after the purpose has been scrubbed from the universe. It is the lonely, stuttering pulse of a greatness that forgot why it started, but cannot find the will to turn itself off.

@@ -1,0 +1,35 @@
+**Who Lives Where the Plateau Comes Apart**
+
+The denizens of the unraveling plateau are as shifting, excess, and indeterminate as the place itself. There is no one species, tribe, or logic to their forms, only the common inheritance of restlessness — a drive to burrow into the world’s unfinished crust or to leap into its next permutation. Yet, walk the knife-edges long enough, and certain presences gather around your perceptions, as fog coalesces around unseen skeletons.
+
+***The Many-Rooted***
+
+These are the old-new inhabitants, tough as the bedrock paradox that raised them. Living between plant and colony, their mass hides below the surface: elaborate knots of root-mind burrowing to drink from condensation, threading logic through fissure and seam. Above, they appear as deep forests made animate: groves of moss-aproned trunks that wander in slow shuffling processions, vines trailing behind them like dragged thoughts, exchanging pieces among themselves as storms demand. Each individual is a node — a cluster of nutrient-seekers, nervous fibers, and shadow-bright eyes under bark, whose edges blur as roots knit and unknit with neighbors. The Many-Rooted are not quite one, never quite many, each briefly individuated only where survival’s tide sweeps them apart. When the rain turns—or the plateau shudders and splits—they may uproot entirely, walking in their millions, leaving negative forests behind.
+
+***The Fracture-Kin***
+
+Life here is founded on uncertainty, and so its creatures have long since adapted to flux. The Fracture-Kin never wear one shape for long: to see them is to see a possibility rather than an animal. Some moments they are furred, slot-mouthed, and blustery, lumbering with joints that click out of sequence with the world’s pulse; in the next, they shimmer into longer, boneless forms, blurring into the vapor-trails between stones. Each one is a congregation of selves layered through time: yesterday’s hide, tomorrow’s hunger, today’s twitching paw. They possess a temporal cunning: learning from futures that haven’t come, twitching instinctively from one probability to another in the blink of moist, fractal eyes. The Fracture-Kin run the ridges, wedge down chasms, cross canyons by side-stepping through versions of place, their offspring erupting at the interface of rainfall and erosion — not so much born, as precipitated.
+
+***The Clockwork Spores***
+
+Not strictly alive, not strictly machine, these things arise from the collision of weather, minerals, and errant charge. When lightning finds the plateau, it imprints momentary blueprints in the air, and from them coagulate transient colonies of mechanical life. You might mistake them for insects, at first: glittering with coppery legs, glassy wings, and eyes of nestled gears, their bodies pulse with captured water and microcurrent. But watch longer, and you will see them grow, morph, dissolve. Some walk on the wind, others burrow and extrude metallic rhizomes, seeking elements buried deep in the stone. Most survive only hours — but sometimes one persists, swarmed over by opportunistic moss until it vanishes, absorbed or transformed beyond reckoning into the general surge of life and decay. A few rare clockwork spores are captured by the Many-Rooted, enfolded and studied — or else, the spores overtake their hosts, and entire swathes of forest are changed, churning with gears, photosynthetic wiring, or pulsing piezoelectric bark.
+
+***The Rival Motes***
+
+Not visible except in the sideways glance between two rain-showers, these are the place’s smallest inhabitants: loosely defined, probability-thinned, flickering at scales beneath what moss or beetle might notice. Each is a pinch of want or tendency, a proto-self swirled from the plateau’s churn — aligning, multiplying, and sometimes coalescing into larger, temporary forms. When two Rival Motes pass, they may merge, or compete, or cancel each other out, leaving brief silences in the density of the air. When conditions are right, they gather into abrupt swarms: sudden flocks of birds sung from the same throat, shadows that double and split, or threads of water that defy gravity, ascending before your eyes. It is said among those who learn to listen that the Rival Motes are the plateau’s first blueprint of all that will live here, changing by the heartbeat.
+
+***The Ghost Engineers***
+
+Lesser-witnessed, but always present on the edge of credulity: patterns of memory that condense, flicker, and dissolve in the storm-lit dusk. These are no single race or species — perhaps not even strictly “alive,” but aggregations of awareness leaking through the world’s newness, haunted by the memory of creation itself. Sometimes, the Ghost Engineers are glimpsed as half-glass, half-shadow beings, striding over terraces, fingers bleeding condensation and voltage. They are drawn to the birthing of mechanical life — nudging storms to sharper brilliance, knitting the blueprints of clockwork spores, unfastening the rules of space and time by silent agreement. Rumors persist of rare points where the Ghost Engineers cross into tangible forms, seed improbable inventions, or return to aperture-thin memories in the stone.
+
+***The Interlopers: Travelers From Elsewhere***
+
+Rare but undeniable, something like “outsiders” arrive — drawn by promise, by accident, or by need to the shifting edge. No two alike: some are animals wedged from neighboring plateaus; others are sentient wanderers shorn of former world-patterns, lost in the plateau’s negotiations. They survive, if they can, by inventiveness: re-rooting themselves, splitting into probabilities, or striking compacts with the clockwork and moss. Memories of origins fade fast here: the plateau makes and unmakes all, and those who persist thread themselves into the local logic, until they are indistinguishable from the rest.
+
+**Their Sociality**
+
+Civilization here is felt as density, not as cities or monuments. Life knots into guilds only by circumstance — root-minds combining for a burst of storm-extraction, Fracture-Kin merging briefly in a new timeline, clockwork clusters wiring themselves as momentary bridges. There are languages, but they flicker, contort, translate — a ripple in moss, a glyph in rust, a bird-call containing three meanings at once. The whole plateau is negotiation incarnate, and the societies that emerge are as fluid as the ground itself: agreements struck and undone in the space between two breaths, then remembered in myth, or forgotten in the next rain.
+
+*And so:*
+
+To say what lives is to miss half the truth. Whatever lives here has learned — or is learning, or will learn — not to resist being changed. Roots and gears and probability eddies; beings that own their instability, claim and redefine survival amid the terrain’s wild invention. To step onto the plateau is to join the tide, becoming both host and guest to its ceaseless, exuberant, tectonic birth.

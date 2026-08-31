@@ -1,0 +1,51 @@
+What lives in the basin is accustomed to being overheard by machinery.
+
+The people are not, for the most part, born into romance with the place. They arrive because the water works need hands, because the rail yards need night crews, because somewhere beyond the mountains another city has grown thirsty and signed a contract. Then they stay. The basin has a way of making departure impractical. Clothes acquire its mineral smell. Lungs learn its damp metallic air. A person who has spent enough years judging weather by the ache in a pipe joint or the color of runoff from a wall finds other places unnervingly silent, irresponsibly dry.
+
+Their faces are often weathered young. The wet glare of the streets and the fine grit in the air leave pale creases around the eyes. Most carry some small evidence of their trade even off shift: a pressure-reader’s ink mark on a thumb, rust ground permanently into the folds of a knuckle, a burn at the wrist from steam, blue mineral residue in the seam of a boot. They dress in layers regardless of season. The basin is never simply cold or warm. A person can stand in sun beside a hot discharge pipe while rain collects in the hollow of one shoulder.
+
+There are generations of water workers: intake tenders, surveyors, valve mechanics, dredgers, chemists, line walkers, pump attendants. Children learn the names of infrastructure before they learn the names of streets. They are told not to climb the old red-brick surge towers because the interior ladders are rotten; not to play under raised mains during a purge; not to touch a fence that hums. They know which pools freeze from the bottom first, which retaining walls leak clean water and which leak water that stains the skin orange for a day.
+
+The oldest inhabitants can distinguish districts by sound with their windows closed. The north clarifiers give a deep, patient slosh beneath their motors. The evaporation works make a high, needling wind even when the air is still. The southern lifts have a pulse that travels through crockery and wakes people before the official shift horn. In the west quarter, where the soil moves beneath foundations, people sleep lightly through rain. They wake not at the sound of water, but at its absence: the sudden cessation of drips, the small dry click of settling wood, which may mean pressure has changed somewhere below.
+
+They have a practical superstition, the kind that survives because it causes no harm and sometimes saves a life. A cup left on the sill overnight is inspected in the morning. If the water inside has a skin of pale grit, someone checks the drains. If a dog refuses to cross a particular patch of pavement, the nearest pipe office is called. If a basement smells suddenly of warmed coins, its occupants move their furniture upstairs without argument.
+
+There are few dogs, but those that remain are broad-pawed, mud-colored animals descended from yard strays and guard breeds. They belong to everyone and no one. Their coats are often wet along the belly. They sleep under loading platforms, in the lee of boiler houses, beneath the metal stairs of apartment blocks. They know the schedules of soup kitchens, shift changes, and night trains. During storms they vanish into places people cannot follow, emerging afterward dry, solemn, and smelling faintly of algae.
+
+Cats fare better in the old masonry districts, where the walls are warm with trapped pipe heat and the cistern galleries contain generations of rats. They are narrow animals with dust-gray backs and bright eyes. Some are born with pale mineral streaks across their fur, as if a hand has brushed them with chalk. They sit in doorways during rain, indifferent to it, and stare into drains. Nobody believes they see ghosts. The people of the basin are too busy for ghosts. But nobody interrupts a cat watching a drain, either.
+
+The white-backed birds around the treatment works are the city’s most visible wild citizens. They circle exhaust stacks in weather no other bird tolerates, their undersides flashing in the steam. Their nests are made from wire, grass, insulation fibers, and occasionally the blue plastic tags used to mark pipe sections. They have learned the exact moment a warm discharge begins and rise from roofs in advance of it. At dawn, when the air is cold enough for steam to hold itself in layers, the birds fly through it and disappear one by one, then reappear farther away with their feathers wet and shining.
+
+There are also things that people do not list when asked what animals live in the basin.
+
+In the deepest settling chambers, technicians occasionally report a movement beneath the opaque surface: not a fish, not a current, but a slow turning of pallid shapes where no light reaches. The official explanation is mineral flocculation, aggregate drift, old machinery shifting under sediment. This is convincing enough during the day.
+
+At night, the reservoir guards sometimes see a silver disturbance passing along the fence line from one gate to the next. It does not set off alarms. It moves against the slope of the ground. When it reaches a culvert or overflow channel, it vanishes with the quietness of a lamp being covered.
+
+Children call these things seam-fish, though no one has seen one clearly. They say the seam-fish live in the warm water below the city, where old aquifers meet the abandoned shafts and the forgotten brick channels. They are blind because the earth has no need of eyes. They have long translucent fins, or legs like wet roots, or faces like people who have held their breath too long. Their stories differ, but all agree on one rule: the seam-fish do not come up for food. They come up to listen.
+
+The maintenance workers laugh at this in the canteens. Then, on solitary inspection rounds, they avoid speaking near open access hatches.
+
+Something else lives in the older intake tunnels. This is not spoken of as an animal. It is referred to in the plural when anyone refers to it at all: the listeners, the low ones, those below the gauge. They may simply be the effect of air moving through valves and cracked galleries. In certain passages, a human voice returns altered by distance and pressure. A cough can become a second cough from ahead. A muttered complaint can return as a murmured answer, too low to understand. Engineers have mapped the acoustics and posted diagrams. The diagrams do not prevent workers from touching the tunnel walls as they pass, flat-palmed, as though reassuring something large on the other side.
+
+The city’s true natives may be the mosses.
+
+They occupy the conditions nothing else wants: the shadowed lips of drains, the undersides of corroded walkways, the joints between retaining stones, the wet scars below burst seams. For most of the week they are almost nothing, a dull stain, a powdery darkening. Then rain comes, or a pressure line sweats, and they rise into color. Green, gray, blue-black, sometimes a brief vivid copper where minerals are strongest. They soften hard edges. They drink what leaks. They die back and return. A section of wall can be scraped clean in the morning and wear a new velvet by the end of the season.
+
+There are lichens in the upper cuts of the basin that have begun to take on the colors of industrial residue: rust orange, graphite black, the faint turquoise of oxidized fittings. They spread in maps no surveyor recognizes. Workers who spend their lives on the same routes notice that these maps change before the ground does. A new patch of black lichen on a pale shelf can mean a seep has diverted below. An orange bloom appearing around a bolt head can mean the water has become acidic. Thus the city’s oldest maintenance language is partly botanical. People say, “The wall has gone green,” when they mean there is trouble underneath.
+
+And then there are the residents who are neither employed by the city nor entirely separate from it: the retired, the infirm, the widowed keepers of low apartments whose windows look directly onto pipe racks. They know the settlement in a different register. They keep jars of screws, old transit tokens, bread heels for birds, folded notices from departments that no longer exist. They watch the lamps come on. They report leaks before the gauges do. They remember which building used to be a bathhouse, which empty lot once held a pump station, which shallow pond opened in the rain of a particular year and never afterward drained completely.
+
+Some of them claim the basin has grown more crowded than it looks.
+
+Not with people. With continuities.
+
+Every pipe that has been capped still carries a little sound. Every sealed cistern keeps its temperature. Every demolished workshop leaves buried conduits that lead somewhere, even if no map admits it. The city is full of water moving through old intentions: former routes, former schedules, former ownerships. It carries heat from boiler rooms that have been cold for decades. It carries minute filings of iron, lime from old mortar, traces of soap from municipal baths, coal dust, salt, blood from split hands, tears, spilled soup, machine oil, rain.
+
+The inhabitants live among these mixtures. They are shaped by them.
+
+They tend not to speak of the basin as hostile. Hostility would imply attention. The water has no malice and no mercy; it has gradients, pressures, temperatures, paths of least resistance. The people who thrive here understand this as a form of truth. They build on pilings. They leave room around foundations. They mark the walls and accept that the marks will eventually be crossed. They make homes in apartments trembling gently above transfer lines. They hang laundry where steam will dry it. They cultivate herbs in buckets filled with imported soil. They marry under the amber lamps of maintenance yards and carry their children home past reservoirs that breathe in the dark.
+
+The city lives by sending water away.
+
+But some portion of it always remains: under floors, inside walls, beaded on metal, caught in low ground, stored in the bodies of mosses and birds and people. It waits in the basin’s older channels, listening to the pumps, learning the weight of every new building.

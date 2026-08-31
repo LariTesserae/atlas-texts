@@ -1,0 +1,11 @@
+The beings that inhabit this forgotten realm are as equally enigmatic as the environment they reside in. They are an offshoot from the ancestors of the civilizations that once constructed this subterranean city. Ontogeny has gone in an unforeseeable direction; they have evolved in unusual, unpredictable ways, adaption policies of this dim and water-saturated world.
+
+The principal inhabitants are a band of biomechanical organisms. Their body parts speak of a convoluted amalgamation of biology and mechanics, technology and life. Their forms are mysterious to the outside world, an unreadable arrangement of organic components and forsaken machinery. They have seamlessly merged with their environment, their skins  irregular patterns of fungi and lichen, difficult to distinguish from the rock formations.
+
+They have become one with the landscape; their movement silent, their presence unfelt, since they breathe an atmosphere similar to what is below. Their eyes, little more than vestiges, have evolved to use the faint light better, receiving it, and amplifying it, a biological phenomenon that aids their navigation in the dim light.
+
+Their feeding habits are an adaptation to the lack of vegetation. They have learned to extract nutrients from the water that seeps through the ground and from the minerals of the rocks they have made their homes. The remains of their dead they recycle, and a symbiotic relationship is formed with another creature living below, a wonderful creature that has morphed into living within their bodies.
+
+The beings live a solitary existence, surviving in the half-light of this denied world. They communicate in a strange, haunting language, a whispering sound that travels far in the water-filled caves. They have no greeting, no goodbyes, only an exchange of data, a sharing of knowledge.
+
+Despite their deranged and alien existence, they are fiercely protective of this world they have made their own. Although the above world has almost forgotten their existence, the below world knows no other life but them. And so, the forgotten valley below with its condensed atmosphere, half-light, and peculiar life continues to thrive, a testament to existence in all forms.

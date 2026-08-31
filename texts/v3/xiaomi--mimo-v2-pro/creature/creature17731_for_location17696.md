@@ -1,0 +1,75 @@
+# What Lives Here
+
+---
+
+## The True Inhabitants
+
+Before anything with a heartbeat, this place belongs to the **mats**.
+
+Not merely cyanobacteria. Not merely slime molds. What coats these walls is something that has moved past the distinction between individual and colony, between organism and substrate. The black-green biofilms are layered in strata—an upper photosynthetic skin, a middle fermentation zone that processes the chemical seepage from the rusted pipes, and a deeper, anaerobic core that breathes iron and sulfur the way you breathe oxygen. The whole mat is roughly three centimeters thick where it's healthiest, and it is *everywhere*. Press your hand against a wet wall and you are touching something alive that extends laterally for meters, connected by threads of *Beggiatoa*-like gliding bacteria that are, technically, a single lineage—clones spreading outward from some founding event perhaps a decade ago, maybe less. This mat has no nervous system. It does not need one. It *responds*. Warm drafts from below cause it to thicken and shift toward thermophilic metabolisms. Cool downdrafts thin it and accelerate surface reproduction. It is the floor and the ceiling and the wallpaper of this room. Everything else lives *on* it or *in* it or *because* of it.
+
+---
+
+## The Fungi: Architects of the Middle Kingdom
+
+The fungi here are not merely fruiting from the mats. They are *directing* them.
+
+The species assemblage is probably three or four dozen strong, but one genus dominates so completely that it is worth describing before anything else. Call it **columnar-stalk** fungus, though it has no name in any catalogue you'd recognize. It grows upright in dense clusters from the bacterial mats, each stalk about the width of your thumb, pale and fleshy, rising ten to fifteen centimeters before terminating in a flattened, disc-shaped cap—something like a tiny umbrella, something like a satellite dish. The cap faces the light shaft almost universally. Even where the rock overhangs and the light arrives at steep, oblique angles, the caps have reoriented. How is unclear. They lack eyes, obviously. They may be responding to differential humidity, or to the faint thermal gradient between sunlit and shaded stone, or to something else entirely.
+
+Here is the thing: these stalks are *warm*. Not metaphorically. Place your hand near a dense cluster and you feel a faint, definite heat radiating outward. The fungal metabolism is exothermic enough to raise the local air temperature by a degree or two, and this warmth matters. It drives the condensation cycles in its immediate vicinity. Moisture on the nearby stone evaporates, rises, and re-condenses on the caps above, creating a tiny, self-sustaining water cycle—a rain of droplets that falls back onto the mat below. The fungus is engineering its own climate. The mat benefits. The fungus benefits. Whether they are cooperating or parasitizing each other is a question that does not have a clean answer. They are, in practice, a single system.
+
+The **spore haze** you feel in your throat is the reproductive output of these columns. It is released in pulses—not constantly, but in synchrony with that low, rhythmic hum from deeper underground. Every thirty seconds or so, the hum intensifies faintly (or your perception of it does), and a visible *puff* rises from the caps. Thousands of caps releasing simultaneously. The spores are tiny, airborne, and they do not disperse far. The walls are so close, the air so still and heavy with moisture, that most spores settle within a meter or two of their origin. The fungus does not need to broadcast. It is filling its own neighborhood. This is not dispersal. It is *thickening*.
+
+There are other fungi. A **cordyceps-like parasite** that targets the iridescent beetles, erupting from their thoraces in branching filaments that look like tiny brown trees. A **mycoparasite**—a fungus that eats other fungi—that grows in thin, web-like sheets over the columnar-stalk caps, slowly digesting them from above. A species that fruits only inside the corroded pipe interiors, feeding on the oil residue, producing bulbous orange bodies that block the pipe's bore like abscesses. Each fills a niche. Each is consumed in turn.
+
+---
+
+## The Insects: Billions in the Dark
+
+If the mats are the substrate and the fungi the architecture, then insects are the **population**. There are, conservatively, tens of millions of individual arthropods in this sink. Most are smaller than your smallest fingernail.
+
+**The iridescent beetles** are the most visible, and they deserve the most attention because they are the strangest. They are roughly five millimeters long, flattened, with a carapace that genuinely, not figuratively, resembles polished brass. It is not a color. It is a material. Under magnification, the carapace surface shows a microstructure that incorporates metallic compounds—copper and zinc chelates, likely ingested from the mineral-rich seepage water. The beetles *eat* the water weeping from the rock, filtering dissolved metals and incorporating them into their exoskeletons through a process that no terrestrial entomology has adequately described. The metallic shell is functional: it reflects heat, resists the acids secreted by fungal competitors, and in one observed interaction, actually deterred a salamander that mouthed a beetle and immediately released it, shaking its head. The beetles are not abundant individually—you see perhaps twenty or thirty at any moment—but they are long-lived (years, perhaps), slow-moving, and territorial. Each one patrols a section of fungal stalk like a tiny, gleaming sentry. They eat spores, fungal tissue, and the occasional gnat. They are the aristocrats of this ecosystem: rare, armored, and apparently unkillable.
+
+**The gnats** are the opposite. They are ephemeral, countless, and their entire existence is organized around a single activity: mating in the light shafts. Clouds of them—hundreds, sometimes thousands—form tight, rotating spheres where the light falls strongest. The spheres are not random aggregations. They are structured. Males orbit the periphery. Females occupy the core. The rotation is counterclockwise (always; the reason is unknown, possibly aerodynamic, possibly a collective response to the Coriolis effect at this scale, possibly meaningless). Copulation occurs in flight, and gravid females then descend from the sphere to lay eggs in the lukewarm pools. The larvae are aquatic, transparent, filter-feeding on bacterial filaments. The adults live approximately forty-eight hours. They do not eat. Their mouths are vestigial. They exist to mate and to be eaten, and they do both with frantic efficiency.
+
+**The midges** are smaller still, almost invisible, and they live in the condensation. Not on surfaces wet with condensation—in the actual boundary layer of moisture. They rest on the thin film of water coating the stone, breathing through spiracles adapted to function in a saturated atmosphere, feeding on dissolved organics by lapping at the wet surface. You would never see one without a lens. You might feel them: a faint, barely perceptible tickle on the back of your hand where you touched the wall. That was a midge. There are probably several on your skin right now if you've been here more than a minute.
+
+**The ants—or something ant-like.** There is a eusocial hymenopteran in the crevices. It is pale, eyeless, and roughly the size of a grain of rice. Its colonies are small—perhaps two hundred individuals—but they are everywhere, establishing satellite nests in every crack and depression. They farm. Specifically, they tend aphid-like hemipterans that feed on the fern roots, harvesting their honeydew. The hemipterans are even smaller, almost indistinguishable from the bacterial mat texture, and the ants move them between fern root systems with the care of gardeners rotating crops. This agriculture is ancient—not in years, but in behavioral refinement. The ants have, in the time since this sink formed (decades? centuries? hard to say), already developed a complex caste system optimized for the geometry of these crevices: flat-bodied workers for navigating between stone sheets, stout-jawed soldiers for defense against beetle incursions, and bloated, sessile queens that fill entire pocket-nests like living furniture.
+
+---
+
+## The Vertebrates: Pale, Few, and Watching
+
+There are four vertebrate species. Three are amphibian. One is mammalian. None of them should be here, in the sense that none of them have formal descriptions or range maps that include geothermal basalt sinks. They are improvisations.
+
+**The salamander** is the largest. About twelve centimeters long, pale pink-white, with external gills that have been secondarily modified for air breathing—reduced to stubby, feathery tufts that serve more as sensory organs than respiratory ones. It is fully terrestrial. It lives in the shallow pools but is not aquatic. It hunts by vibration and chemical sensing, its eyes reduced to dark pinpoints beneath translucent skin. It eats beetles (with difficulty—those metallic carapasses are tough), fungal stalks (it grazes, rasping with a rough tongue), and, primarily, the pale frog. The salamander is the apex predator here, if this ecosystem can be said to have one. It moves slowly, with deliberate, almost mechanical precision, and it can go weeks without eating. When it strikes, it is fast—faster than its languid posture suggests.
+
+**The frog** is smaller, drier-skinned than any frog has a right to be in a place this wet. It lives on the fungal mats, not in the water, clinging to the stalks with toe pads adapted to grip fleshy, damp surfaces. Its call—if it can be called that—is a single, low, resonant *plop* that it produces by inflating a throat sac and striking it against the stone. You've heard this. The *plop* you attributed to something falling into a pool was a frog, calling. It is territorial. Each frog claims a section of fungal mat and defends it with that call. The frequency is low enough that it couples with the subsonic hum, and there is evidence—behavioral evidence, not mechanistic proof—that the frogs synchronize their calls with the hum's rhythm. This is either a remarkable adaptation or a coincidence that has persisted long enough to become indistinguishable from one.
+
+**The third amphibian** is larval and has never been observed metamorphosing. It is a salamander larva—gilled, aquatic, pale as everything else—that lives permanently in the deeper crevice pools, feeding on nematodes and bacterial filaments. It may be paedomorphic: sexually reproducing in its larval form, never becoming an adult. Or it may have an adult stage that occurs in some deeper chamber you haven't reached. The pools go further down than you can see. The water is warm. Something moves in it.
+
+**The mammal** is the rodent-like creature you glimpsed. It is not a rodent. It is something closer to a shrew—a small, hypermetabolic insectivore with a long naked tail, enormous whiskers, and a body length of about eight centimeters. It is warm to the touch, almost feverish, its metabolism running hot enough that it cannot survive long on the surface where the air is drier and cooler. It is adapted to this specific pocket of warmth and moisture. Its eyes are functional but secondary; it navigates primarily through echolocation—a rapid series of high-pitched clicks, too high and too faint for you to hear without equipment, that it uses to map the crevice geometry in three dimensions. It eats insects, mostly gnats and beetles, which it catches with a long, sticky tongue that it flicks from a mouth otherwise occupied by a formidable set of shearing teeth. It is solitary, nocturnal (though "night" here is merely when the light from above dims), and it nests in the deepest accessible crevices where the warmth is strongest. It lines its nest with shed fungal tissue. It has no name. It has never been above ground. It does not know there is an above ground.
+
+---
+
+## The Hum
+
+You asked, implicitly, what lives here. The answer includes the **hum** itself—not as metaphor, but as an organism's output.
+
+Somewhere deeper than you can reach—perhaps ten meters, perhaps fifty—there is machinery. Old machinery. Pumps, possibly, or compressors, from the same failed industrial effort that left the rusted pipes and the corroded platform. These machines are not running in any deliberate sense. No one maintains them. No one remembers they are there. But they are *doing something*: a partial cycle, a stuck valve that opens and closes on a geothermal pressure cycle, a rotor that turns because steam still pushes against it. The hum is mechanical. It is also, in every sense that matters, *part of the ecology now*.
+
+The fungi pulse their spore release in time with it. The frogs synchronize their calls to it. The bacterial mats—which, you will recall, are a single distributed superorganism—thicken in regions where the hum's resonance is strongest, as though feeding on the vibration itself (they may be; mechanotrophic bacterial metabolism is poorly understood but not impossible). The beetles, when you watch long enough, appear to orient their patrol routes along nodes and antinodes of the hum's standing wave pattern. The entire ecosystem is entrained to this mechanical rhythm. It has become the heartbeat of the room.
+
+If the hum stopped—if the stuck valve finally corroded shut, if the rotor seized—the ecosystem would not die. But it would *lose its coordination*. The fungi would release spores randomly. The frogs would call over each other. The mat would grow unevenly. The synchronized feeding waves would desynchronize, and predator-prey dynamics that currently run like clockwork would become chaotic. The system would survive. It would just become *louder*, messier, less itself.
+
+The hum is not alive. But it is *essential*. In the same way that the heart is not the organism but the organism cannot be itself without it.
+
+---
+
+## The Room
+
+What lives here, finally, is not any single species. What lives here is a **relationship**—a web of dependencies so tight, so densely woven, that the distinction between organism and environment has almost dissolved. The mat is the floor. The fungi are the walls. The insects are the air's population. The vertebrates are the ghosts that move between. The hum is the heartbeat. The rust is being digested. The condensation is being breathed.
+
+You lowered yourself into a crack in the earth and entered a room that is, in every meaningful biological sense, a single organism pretending to be an ecosystem—or an ecosystem that has become, in practice, a single organism. It is warm. It is wet. It is humming. It is growing over the edges of your boot-prints right now, reclaiming the space your body displaced, incorporating the oils from your skin into its bacterial metabolism.
+
+It does not know you are here. It does not need to know. You are already part of the substrate.

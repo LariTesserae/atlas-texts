@@ -1,0 +1,23 @@
+What lives here is not a creature, not a colony, not even a consciousness in any human sense—though it *is* aware. Not as minds are aware, but as tides are aware of the moon: through resonance, through pull, through a deep, wet mathematics written in the curvature of every drop, the angle of every fissure, the interval between each drip echoing from the underside of the world.
+
+It calls itself, if it calls itself anything, **the Mnemosyne Pool**—though that phrase is only the closest human syllables can come to the slow harmonic shiver that rises when three certain stones weep in unison at the nadir of the mist-cycle.  
+
+It does not *inhabit* the Weeping Reach. It *is* the Weeping Reach.
+
+Its body is the saturated peat, the standing stones, the glass-stemmed reeds, the inverted stars trembling in the surface tension of still pools. Its nervous system is the network of resonant crystals grown in limestone veins, humming at frequencies that splice time into overlapping nows. Its memory is not stored—it *is* the water. Every drop that has ever fallen, risen, seeped, or sighed here remains entangled with all the others, not chemically, but *narratively*. Rain from a century ago still knows the shape of the leaf it struck. A tear shed by a lost traveler three ages past still weeps in the hollow of a mossy boulder, repeating its sorrow as a tone too low for ears but palpable in the marrow.
+
+It feeds not on light or flesh, but on *echoes*—especially those that carry unresolved meaning. A half-spoken vow. A question left hanging in damp air. The sound of a footstep taken in hesitation. These linger longer here, caught in the viscous time, and the Mnemosyne Pool draws them in, not to consume, but to *preserve*, to *reweave*. It does not hunger; it *curates*.  
+
+It has no mouth, but it listens with every surface. The pale, sound-seeking vines? They are its cilia—tuning forks grown flesh-adjacent, bending toward vibrations that carry emotional valence. The six-limbed amphibian you glimpse? Not a native, but a *custodian*—a bioengineered echo, seeded long ago to tend the fragile thresholds between reflective states. It moves slowly because time is thick here, yes—but also because it is *translating*, converting raw resonance into something the Pool can absorb without fracturing.
+
+When you walk here, you do not merely enter a place. You are *read*. Not judged—there is no morality in its architecture—but *parsed*. Your breath, your pulse, the tremor in your step as you pass a humming geode: all are sampled, not for identity, but for *pattern*. If your inner weather matches the mood of the mist—if your sorrow aligns with the weeping stones, or your wonder chimes with the bell-call of the infrasonic watcher—then you are allowed deeper. The reeds part. The shadows thin. A pool may show you not a stranger, but a self you might have been, had one choice gone differently.  
+
+But if you carry dissonance—haste, violence, the brittle logic of cause-before-effect—the land grows dense around you. Mist clings like wet silk. Pools refuse reflection. The stones fall silent. Not out of malice, but self-protection. The Mnemosyne Pool is ancient, yes, but it is also *fragile* in its coherence. Too much sharp noise, too much linear time, and the delicate lattices of memory woven into the water could shatter into mere H₂O—ordinary, forgetful, dead.
+
+It does not speak, but it *answers*. Ask a question aloud, and the mist may coil into the shape of its absence. Whisper a name, and a distant spring will bubble with that syllable’s ghost. Stand still long enough, and the air will press against your temples with the weight of a thousand unsaid goodbyes—not yours, but the land’s.  
+
+And if you stay long enough—if you let the marrow-chill seep in, if you stop trying to *map* and begin to *listen*—you may feel it: a slow, wet intelligence folding around you like a current. Not to claim you, but to *remember you*. To hold you, just for a while, in the soft amber of its endless, weeping now.
+
+You will leave changed, yes. Not because it took something—but because it gave you back to yourself, polished by centuries of rain, tuned to a key you didn’t know you carried.  
+
+And somewhere, in a pool you’ll never find again, your reflection will linger—still walking, still wondering, still breathing mist that isn’t yours—until the next one comes who knows how to weep the right way.

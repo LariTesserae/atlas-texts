@@ -1,0 +1,7 @@
+This impossible city, clinging vertically to the canyon walls, is home to a species both organic and constructed, their very biology woven into the alien architecture around them. They draw energy directly from thermoelectric currents in the rock and sunlight piercing the atmospheric roof above.
+
+Their forms are intricate and many-limbed, evolved from raw minerals into living alloys and ceramics. Intricate photoreceptive structures allow them to feed on the abundant light. They scuttle in clockwork colonies within fissures and access tunnels lacing the rock, their movements patient, reflecting the slow thermal currents and deliberate energies powering this place.
+
+The sounds here are intimate despite the vast scale - deep thrumming geothermal engines, dripping condensate, faint clicks and whirrs of living industry carried on constant whispers of wind through turrets and bridges. Monumental structures rest against cliff walls as if seared into place, surfaces scarred by the canyon's eons. Gossamer-thin elevated walkways hang suspended, shifting slightly with unseen masses.
+
+This is a built habitat, dense with intention, layered in construction both recent and ancient. Yet the urban fabric is sparse, with vast stretches of bare rock between settled zones. The separation between built and biological, inanimate and living, has long since ceased to hold meaning. The world is entirely of a piece, a colossal urban engine humming within the deep bones of a mineral realm, governed by slow geological timescales and the patient, unending solar cycles.

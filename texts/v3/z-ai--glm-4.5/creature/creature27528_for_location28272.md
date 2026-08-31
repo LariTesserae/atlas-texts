@@ -1,0 +1,25 @@
+They are the Architects of the Slush, the pale, frantic things that churn in the silence of the white bowl.
+
+At first glance, they appear pathetic—slick, naked things shivering in the absolute zero. But as you watch them navigate the razor-thin air and the blinding violence of the light, a different picture emerges. They are biological contradictions: soft-bodied engines of hard labor.
+
+Their skin is not fur, nor is it the armored hide of a beast. It is a thick, gelatinous membrane, translucent enough to show the dark, frantic pulse of organs beneath. It lacks pigment, a raw, bruised pinkish-gray that flushes crimson with exertion. This skin is their primary interface with the world. It is hydrophobic on the outside, shedding the freezing water instantly, but hydrophilic on the inside, greedily absorbing the saline mist that hangs in the air. They do not merely drink the weeping of the mountain; they inhale it through their pores.
+
+They stand low to the ground, possessed of a rhizomatic, unsettling anatomy. There is no clear distinction between torso and limb. They are built along the lines of a distorted starfish or a frantic insect given the bones of a primate. They have six limbs, but the designation of "arm" or "leg" shifts depending on the need of the moment. A creature might scramble up a vertical slab of vertebrae using all six limbs for traction, only to freeze mid-climb, bracing with four limbs while the upper two manipulate a heavy block of ice with delicate, human-like dexterity.
+
+Their faces are the most haunting aspect. They are simian, flattened and broad, with wide-set eyes that are almost entirely devoid of white—just deep, liquid pools of obsidian that absorb the blinding light without blinking. They have no external ears. In this place where sound goes to die, listening is a useless sense. Instead, their skulls are ridged with sensory nodes that detect vibration through the stone and the mud. They "hear" the footsteps of a rival through the soles of their feet before they see them.
+
+And then there is the mouth. It is a wide, grimacing gash, filled not with teeth, but with concentric ridges of bone, like a leech’s maw or a geological grinding plate. They eat the stone-scrapings, the frozen mud, and the calcified weeds, grinding them into a paste that fuels their terrifying metabolic rate.
+
+The heat of the plateau does not come from the earth; it comes from them.
+
+There are thousands of them, packed tight into the honeycomb of bone and stone. The "mystery heat source" is the aggregate thermal output of this metropolis. They are living furnaces. If you were to touch one, they would burn you. Their internal temperatures are feverish, barely maintained by the constant consumption of calories and the friction of their endless movement. If they stop, they freeze. If they sleep, they die. Their silence is a function of this heat—the air around them is superheated and thin, creating a thermal barrier that bends sound waves inward. A scream dies in the thermal halo surrounding a single creature.
+
+They are intelligent, but their intelligence is entirely bent toward the immediate geometry of survival. They do not speak. They have no written language. Their communication is a rapid-fire sign language of taps, pushes, and jabs, utilizing the vibration-sensitivity of their bones. When two creatures fight—a common occurrence in the claustrophobic alleys—they do not roar. They slam their bodies together, attempting to crack the other’s shell or rupture their heat-retention organs. It is a violent, silent wrestling match that ends as quickly as it begins, the loser often dragged away not to be eaten, but to be dismantled. Their bones become the beams of a new hut; their fat becomes the mortar.
+
+They are trapped in a Sisyphean loop of masonry. The architectural style of the city—domes, arches, tight spirals—is not an aesthetic choice, but a structural necessity born of the "weeping" geology. They build round to deflect the sliding slush. They build tight to share body heat. But the ground betrays them. The mud is a thief, swallowing the foundations.
+
+When a section of the shanty town slides into the void, the reaction of the colony is instant and terrifyingly coordinated. There is no panic. There is only *work*. They do not mourn the loss of kin; they simply process the new debris. A creature whose leg is crushed in a collapse will be given a splint of ice and put back to work. A creature who is dead is stripped of its bones in seconds, the meat left to freeze while the skeleton is woven into the patchwork wall.
+
+In the blinding white light, they look like a single, squirming organism. The "hamlet" is not a collection of individuals; it is a singular, macroscopic beast made of thousands of pale, interlocking parts, covered in a shell of bone and mud, constantly shedding its skin and knitting it back together, trembling with the effort of holding itself together against the eroding tears of the mountain.
+
+They are the eternally awake, the eternally cold, burning their lives away in silent, frenetic friction, architects of a ruin that is never finished.

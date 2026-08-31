@@ -1,0 +1,15 @@
+In this hidden oasis, there dwells a being as ancient and enigmatic as the sanctuary itself - a creature that is both guardian and ward of this secret realm. It is known as the Mist Weaver, though no mortal has ever given it this name.
+
+The Mist Weaver is not a single entity, but rather a collective consciousness born from the very essence of the place. It manifests as a shimmering, translucent form that seems to coalesce from the mist and moisture that permeates the air. Its shape is fluid and ever-changing, sometimes appearing as a towering humanoid figure with limbs like twisting vines, other times dispersing into a cloud of glowing spores that dance on unseen currents.
+
+The creature's "body" is a marvel of natural mimicry. Patches of its skin resemble the textures of the sanctuary - here the rough bark of an ancient tree, there the smooth surface of a water-worn stone. Delicate ferns and vibrant orchids seem to grow from its form, blooming and withering in a continuous cycle. Its eyes, when they appear, are pools of liquid light that reflect the bioluminescent glow of the fungi.
+
+The Mist Weaver moves with silent grace, gliding through the sanctuary as if it were part of the air itself. It tends to the plants with gentle caresses, encouraging growth and healing damage. When it passes, leaves unfurl and flowers bloom in its wake. It is the unseen hand that guides the tendrils of vines, that shapes the flow of water, that nurtures the delicate balance of this miniature ecosystem.
+
+This being is as much a part of the sanctuary as the stone and water. It was born from the first seeds that took root in the cracks of the abandoned bathhouse, nourished by the persistent trickle of an underground spring and the whispered dreams of a city longing for green spaces. Over centuries, it has absorbed the essence of every plant, every drop of water, every mote of fertile soil, becoming a living embodiment of the oasis.
+
+The Mist Weaver is neither malevolent nor benevolent towards the rare human visitors who stumble upon its domain. It observes them with curious detachment, sometimes revealing itself as a fleeting shape in the corner of an eye or a pattern in the mist that seems almost too perfect to be natural. Those who linger may feel a sense of being watched, of the very air around them being alive and aware.
+
+While it cannot communicate in any human language, the Mist Weaver can convey emotions and simple concepts through subtle changes in its environment. A sense of welcome might be expressed through a sudden blooming of flowers or a warm breeze carrying the scent of rich earth. Distrust or warning might manifest as a thickening of the mist or a momentary dimming of the bioluminescent light.
+
+The creature is bound to this place, unable or unwilling to leave the confines of the sanctuary. It is the heart of this hidden world, the thread that connects all life within it. As long as the oasis exists, so too will the Mist Weaver, eternally tending to its lush domain, a living secret at the heart of the bustling city.

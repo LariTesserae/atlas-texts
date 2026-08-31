@@ -1,0 +1,29 @@
+They are not a population in the way a school of fish is a population; they are a singular, continuous, living architectural layer, a crust of biomass fused so tightly to the obsidian spire that the stone beneath is barely visible. They are a shantytown of flesh, tiered and precarious, clinging to the vertical face in a density that defies the usual logic of territorial spacing. Here, survival is a matter of adjacency, of finding purchase on a neighbor’s shell to reach the nutrient-rich currents above.
+
+To look at them is to suffer from a cognitive dissonance that verges on hallucination. The eye recognizes pistons, flywheels, and hydraulic presses, but the mind recoils at the realization that these are organs. They are beings of "industrial biology," evolved not to hide or hunt, but to process the raw elements of the ocean with the indifferent efficiency of heavy machinery.
+
+**The Anchormen**
+At the base of the cluster, jammed into the tightest fissures of the razor-sharp basalt, are the Anchormen. These are heavy, squat organisms resembling immense rusted bolts. Their bodies are domes of calcified carapace, pitted and oxidized to a deep, burnt orange. They do not attach themselves with byssal threads or secreted glue; they bore in. Around their bases are thick, ringsaw-like ridges of chitin that slowly, agonizingly rotate, grinding into the living rock. You can hear the basin-wide groan of this expansion, a low-frequency tectonic crunching. They are the foundations, the rivets that hold the superstructure of the shantytown against the upwelling currents.
+
+**The Strainers**
+Rising above the Anchormen are the Strainers. These are tall, cylindrical creatures that stand like smokestacks, their bodies segmented into interlocking plates of dark purple muscle. They possess no discernible head, only a gaping, ventral maw that acts as a intake valve. Water is sucked into them with the force of a vacuum, passing through dense, lattice-like internal filters that strain microscopic minerals from the flow.
+
+As they work, their external ribcages—the "pipes" mentioned in the passing current—expand and contract. These are flexible, tube-like organs that sway in the water, looking for all the world like heavy, insulated electrical cables swaying in the wind. They pulse rhythmically, thumping with a hydrostatic pressure that creates visible shockwaves in the surrounding water. When they expel the filtered slurry, it is not a gentle burp but a violent, pressurized cough, a jet of superheated waste that snaps shut like a pneumatic valve.
+
+**The Tectonic Drills**
+Perhaps the most unsettling are the organisms that cling to the vertical overhangs. They resemble bipedal drills, possessed of two massive, jointed "legs" of jagged brown bone that lock into the cliff face. Between these legs hangs a central torso, from which extends a long, rotating proboscis.
+
+This proboscis is not a drill of metal, but a spiral of hardened, diamond-dense keratin. It spins. It does not spin fast; it spins with a glacial, terrifying slowness. A full rotation might take the length of a human watch-shift. Yet, the torque is immense. The rock screams as the bit grinds into it, harvesting bacteria and rare earth elements from the fresh stone. The creature vibrates constantly, a low-frequency *hum* that rattles the teeth of anyone floating nearby. They are mining the spire itself, eating the cathedral that hosts them.
+
+**The Presses**
+In the crevices and sheltered alcoves lie the Presses. These are vast, flat organisms resembling bi-valves scaled up to the size of banquet tables. Their shells are hinged not by a ligament, but by a massive, screw-like muscle that winds tighter and tighter. When they feed, they open their maws to reveal interiors lined with grinding stones—plates of calcified teeth that slide past one another.
+
+They do not chew; they crush. Anything unfortunate enough to drift between their shells—organic debris, smaller creatures, or even stray mineral nodules—is subjected to tons of pressure. The closing of a Press is a geological event. The water around them distorts, compressed by the sheer force of the clamp. They wait, motionless as statues, for hours, then *CLACK*—a sound that echoes through the shaft like a gunshot—followed by a slow, dissolving hiss as they reduce their intake to a fine, nutrient paste.
+
+**The Conveyors and Cables**
+Connecting them all, weaving through the dense clusters like a nervous system, are the Conveyors. These are simpler, worm-like entities that lack the heavy armor of their neighbors. They are long, serpentine masses of bruised-blue muscle, flattened into ribbons. They undulate in waves, not swimming, but crawling over the shells and rocks of the larger creatures. They act as the clean-up crew and the transport network, slithering into the maws of the Presses to steal crumbs, or wrapping themselves around the waste-chutes of the Strainers to feed on the chemical runoff. They are the belts that move the energy from one part of the machine to the next.
+
+**The Atmosphere of the Shantytown**
+There is no grace here. Every movement is heavy, armored, and loud. The water is thick with the "smoke" of their industry—clouds of metallic sulfides and particulate matter that billow from their exhaust ports. The light from above filters through this haze, turning the water into a murky, blue-gray twilight filled with drifting particulates.
+
+The soundscape is deafening in its low end. It is a symphony of friction: the grinding of the drills, the thumping of the strainers, the clacking of the presses. It is the sound of a foundry frozen in time, stretched out across millennia. To float among them is to be a cog in a clockwork of flesh, surrounded by massive, living pistons that pump and churn with a cold, mechanical purpose. They are not animals; they are components, assembled by evolution into a vast, vertical engine that processes the ocean itself.

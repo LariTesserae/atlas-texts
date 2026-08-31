@@ -1,0 +1,19 @@
+In this living labyrinth dwell the Symbiotes - beings who have evolved to become neither fully separate from nor fully absorbed by the fungal city. Their bodies are hybrid things, semi-translucent flesh threaded through with luminous mycelia that pulse in harmony with the city's own rhythms.
+
+They stand upright, roughly humanoid, but their proportions flow and shift subtly as they move. Their skin has the same moisture-beaded texture as the fungal walls, and similar patterns of bioluminescence ripple across their surface - a constant conversation of light between citizen and city. What might be hair is actually a crown of delicate sensor-filaments that wave gently in air currents, reading the chemical messages that drift through the city's atmosphere.
+
+Their eyes are compound structures that see in overlapping spectra, catching both the obvious pulses of bioluminescence and the subtler chemical signals that suffuse the air. These eyes have no fixed number - they grow and reabsorb as needed, clustering most densely around what we might call a face, but appearing and disappearing across their bodies as local conditions demand.
+
+They do not wear clothes as we would understand them, but rather cultivate symbiotic organisms that grow across their bodies in living patterns, providing whatever protection or tools they need. These organisms can be shed or regrown at will, though the process requires energy and time.
+
+Their voices emerge from multiple sources - vibrating membranes along their throats, resonating chambers in their chests, and even the mycelia within their flesh - allowing them to produce the complex harmonics that the city responds to. When they speak, spores dance in the air around them, adding layers of chemical syntax to their acoustic language.
+
+They move with liquid grace, their feet spreading and gripping to match the rhythm of the muscular streets. Their fingers can either remain solid for manipulating tools, or partially dissolve into fungal threads for more delicate work with the city's living architecture. Some have developed specialized appendages - extra limbs or sensory organs - but these modifications are temporary, lasting only as long as needed.
+
+The Symbiotes live in family groups, but "family" is a fluid concept here - individuals can merge temporarily to share memories or skills, then separate again, taking with them new fragments of experience. Their young begin as spore-like structures that develop in specialized chambers within the city itself, emerging only when they've grown enough to survive the rich but demanding environment.
+
+They are architects, cultivators, and interpreters of the city's will, but they're also its immune system, its maintenance crew, its gardeners, and its scholars. Each carries within them a library of chemical knowledge passed down through generations of merger and division, instinct and experience blurred together like everything else in this place where boundaries refuse to hold.
+
+Their consciousness is both individual and collective - each has their own thoughts and desires, but these ripple out through mycelia networks to influence and be influenced by the greater whole. They dream the city's dreams, and the city dreams through them, an endless loop of co-creation that shapes both the builders and their ever-changing home.
+
+Some appear ancient, their flesh almost entirely transformed into luminous fungal matter, moving through the city like slow thoughts given form. Others seem newer, their human-like aspects more pronounced, perhaps representing more recent adaptations to this extraordinary environment. All of them, though, are expressions of the same fundamental truth: in the Living City, nothing remains unchanged, and nothing is ever truly separate from anything else.

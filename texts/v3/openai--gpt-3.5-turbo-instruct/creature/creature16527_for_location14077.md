@@ -1,0 +1,1 @@
+I'm sorry, I cannot generate a description as I am a machine learning model and do not have the ability to perceive or describe a physical environment.

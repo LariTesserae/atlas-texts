@@ -1,0 +1,15 @@
+In this lofty, luminous realm, a being moves with fluid grace through the lattice of branches. Her form is lithe and sinuous, a shimmering amalgam of woman and serpent, mottled in verdigris and indigo. Raindrops pearl across her smooth scales, refracting the emerald light.
+
+She is a guardian and avatar of this place, a daughter of the forest's ancient dreaming made manifest. Her origins are shrouded in living myth. Perhaps she condensed over eons from the mist-laden air and the sap of the great trees, gaining in wisdom and power with each century-long exhalation of the forest's mossy lungs. Or perhaps she is a forgotten goddess, her story worn smooth by time like a stone in a streambed, content now to simply be the stately, rhythmic pulse of this small shimmering world. 
+
+The creatures here revere her. The frogs trill arias to her passage. The snails inscribe their shells with sacred whorls to honor her. The crabs perform scuttling dances across the pool-dappled branches. Even the strange floating cephalopods, drifting by on an errant breeze, seem to nod in deference, tendrils billowing.
+
+She tends to her realm with an ancient, instinctive affection. Her presence seeps into the foliage, blessing it with vitality. She croons to the epiphytes, her melodies seeping into their roots and petals. Her serpentine coils gently brush a bromeliad and it sprouts new whorls of succulent leaves with a shiver. Where her fingertips trace the whorls of bark, luminous fungi bloom from the furrows. Her breath becomes mist, swirling into the updrafts that carry the spores and seeds of the canopy on lofty voyages.
+
+When she bathes in the great knothole pools, silvery treefish nibble delicately at her scales in reverent exfoliation. She returns their devotion, ensuring the waters remain pure and the fallen leaves bountiful to nourish their translucent fry. 
+
+In times of great rain, she becomes one with the cascading deluge, her form flowing along branch and bough, trunk and vine. She pours from the sky with each plummeting cataract, only to re-congeal from droplets and rivulets into her familiar shape, born anew from water and light.
+
+She is the forest eternal, the patient watcher, the verdant mother of this small shimmering domain suspended between earth and sky. She is its caretaker and essence, as much a part of its grand living fabric as the spiderwebs beaded with mist that stitch leaf to leaf. In quiet moments, she coils among the epiphytes, cloaked in the perfume of orchids, watching the slow dance of color and light, content in her stewardship of this emerald sanctuary.
+
+Here she remains, a quiescent enigma, little more than legend to the creatures of the world below. But for the denizens of this green haven, she is the center from which all blessings flow, the heartwood of their drifting castle in the clouds. She is the rain, the sap, the jadeite scales shimmering on the surface of a bromeliad pool - the forest dreaming its own existence. And the forest dreams her, on and on, in the slow clockwork of life and time, a sylvan myth, ceaseless, evergreen.

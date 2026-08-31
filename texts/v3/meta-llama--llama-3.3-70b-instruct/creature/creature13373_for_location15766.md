@@ -1,0 +1,19 @@
+The inhabitants of this foreboding metropolis are a species of beings that have evolved in tandem with the city's industrialization, their bodies and minds shaped by the relentless hum of machinery and the acrid smell of smoke and ozone. They are known as the Kyrexi, a name that echoes through the city's narrow, winding streets like a whispered secret.
+
+The Kyrexi appear as tall, gaunt figures with elongated bodies crafted from a dark, glassy material that seems to be an extension of the city's architecture itself. Their skin is a deep, burnished black, etched with intricate patterns of fine, silver lines that pulse with a soft, blue-green glow. This bioluminescent network, known as the "Nexarion," allows the Kyrexi to interface directly with the city's machinery, granting them control over the flow of energy and resources throughout the metropolis.
+
+Their eyes burn with an inner fire, a piercing orange-yellow that seems to bore into the darkness like embers from a dying star. The Kyrexi's gaze is unnerving, as if they can see right through the veil of reality to the hidden mechanisms that govern the universe. Their faces are austere, with sharp, angular features that seem to be carved from the same volcanic glass that dominates the city's architecture.
+
+The Kyrexi move with a quiet, deliberate pace, their long limbs unfolding from the shadows like dark, mechanical spiders. They seem to be always listening, their ears attuned to the subtle vibrations that resonate through the city's infrastructure. They can hear the whispers of the machinery, the gentle thrum of the engines, and the mournful cries of the unseen creatures that inhabit the city's margins.
+
+Despite their formidable appearance, the Kyrexi are a reclusive species, preferring to keep to themselves as they navigate the city's narrow, winding streets. They inhabit the upper tiers of the city, where the air is thick with the smell of smoke and ozone, and the darkness is illuminated only by the faint glow of the industrial lamps.
+
+The Kyrexi are a patient species, content to wait for centuries, even millennia, for the right moment to act. They seem to be waiting for something, or someone, to awaken the city from its ancient, industrial slumber. Theirs is a world of subtle, incremental changes, where the rules of reality are warped and bent by the city's massive, industrial structures.
+
+As the Kyrexi move through the city, they leave behind trails of glittering, iridescent spores that seem to dissolve into the air, leaving behind only the faintest hint of their presence. These spores, known as "Kyrexi seeds," contain the essence of the city's industrial landscape, and are said to hold the key to unlocking the secrets of the metropolis.
+
+The Kyrexi are not alone in the city, however. There are other, more enigmatic beings that inhabit the shadows, creatures that seem to be crafted from the same dark, glassy material as the city's buildings. These beings, known as the "Echoflux," are whispers of the city's own consciousness, manifestations of the metropolis's industrialized soul. They flit and dart through the darkness, their bodies shifting and flowing like molten glass as they navigate the city's hidden pathways.
+
+The Echoflux seem to be drawn to the Kyrexi, as if they are seeking to understand the secrets of the city's industrial landscape. They are enigmatic, uncommunicative beings, their "language" consisting of a series of clicks, chirps, and whistles that seem to be woven from the very fabric of the city's machinery.
+
+Together, the Kyrexi and the Echoflux inhabit the city, their lives intertwined with the industrial landscape in ways that defy explanation. They are the guardians of the metropolis, the keepers of its secrets, and the catalysts for the transformations that will one day shatter the city's timeless, unchanging equilibrium forever.

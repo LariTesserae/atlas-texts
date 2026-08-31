@@ -1,0 +1,75 @@
+# The Dwellers of the Halls Below the Hush
+
+They are not one thing. They are many things that have agreed, over a long time, to be one thing, the way a hand is many fingers that have agreed to be a hand. When you first see one, alone, sitting in its shallow pool with its legs crossed and its hands on its knees, you might mistake it for a thing complete in itself, a specimen, an example. It is not. It is a fragment of a larger pattern, the way a single note is a fragment of the song it is part of, the way a single block of fitted stone is a fragment of the wall it is part of. To describe one of them is to describe a syllable. To describe them is to describe a language.
+
+---
+
+What one of them looks like.
+
+The skin is banded. This is the first thing you notice after you have stopped noticing the lidless eyes, and you stop noticing the lidless eyes almost at once because they are so patient, so still, that they cease to be a feature and become a quality of the air, like humidity. The banding runs in horizontal stripes from the crown of the head to the soles of the feet, alternating pale and dark in a slow rhythm that is not regular but is not random, the way the stripes in the sedimentary stone are not regular and not random. The pale bands are the color of the ochre. The dark bands are the color of the slate-blue, or the iron-red, or the almost-black — each dweller is banded in its own particular sequence, and no two you see are quite the same. The banding is not paint. The banding is the skin. It is the skin being what the skin is, in this place, in this light, in this water.
+
+The body underneath the banding is shaped roughly like yours, but only roughly, the way a sentence in another language is shaped roughly like a sentence in yours. There is a torso. There are four limbs. There is a head at the top of the spine. But the proportions are off — the arms are longer than you would expect, and there are extra joints in them, a soft secondary hinge at the elbow and another at the wrist, so that when a dweller reaches for something in the water, the hand arrives by a curved path, an arcing path, the way a heron's neck arrives at the fish. The legs are shorter than the arms, and they bend in more places, and the feet are broad and the toes are many and they spread in the water and grip the wet stone with a surety yours do not have. The dwellers are built for water. They are built for stone. They are built for the slow, patient, repetitive work of being in this place for a long time.
+
+The face is the part you keep coming back to. It is flat. It is broad. The mouth is wide and the lips are thin and they do not move much when the dweller is not calling. The nose is two small slits above the mouth that open and close with the breathing. The eyes are the widest part of the face. They have no lids. They do not need lids. There is a third membrane, a pale inner veil, that sweeps sideways across the eye from time to time, a slow horizontal blink that clears the surface the way a windshield wiper clears a windshield. When this membrane is closed, the eye is a flat disc of polished stone-color and you cannot tell which direction the dweller is looking. When it is open, the eye is dark and very deep and very still, and the pupil, if there is a pupil, is somewhere you cannot quite locate.
+
+The hands have too many fingers. You do not count them the first time. You count them the second time and you lose count. You count them the third time and you give up and decide that the number is not the point. The point is what the hands can do, which is anything, which is everything, which is the same patient, fine, slow work that the moss does on the walls, that the water does on the stone, that the small segmented things do in the channels.
+
+---
+
+What one of them sounds like.
+
+The call is a long low vowel. It begins in the chest — you can see the ribs move when a dweller calls — and it rises through the throat and out through the wide mouth and travels down the passage and meets the stone and comes back, and the dweller listens to it come back the way you would listen to your own name said by someone at the far end of a long hall. The call goes up at the end. It is a question. The question is not a question you can translate. It is not *who are you* or *what are you doing here* or *do you have news.* It is the kind of question that is asked by being in a place and continuing to be in it, the way a stone asks a question of the river by being in the river. The dweller asks the place if it is still the place. The place answers.
+
+When the answer comes back, from another chamber, from another direction, it is different. It is higher. It uses different vowels, or what you take to be different vowels. It might be the same vowels shifted up by some interval you do not have a name for. The two calls together are not a conversation. They are a chord. They are two notes of a chord sustained for as long as the breath lasts, and then the breath ends and a new chord begins. Sometimes three dwellers call at once, from three directions, and the chord is three notes, and the three notes are not in harmony the way a chord in your music is in harmony. They are in *agreement,* the way three stones fitted tightly together are in agreement. They hold each other up.
+
+The song, the one the workers sing in the knee-deep chamber, is this calling made continuous. A dweller begins and another joins and another joins and another joins and the calls overlap and answer and rise and fall in a slow tidal pattern that has no melody and no beat and no end. You cannot sing along. You do not have the vowels. But you can feel it on your skin, the way you feel a low sound on your skin even when you cannot hear it, and the feeling is a settling, a calming, an agreement to be where you are.
+
+---
+
+What one of them does.
+
+The dweller sits. The dweller stands in water up to its thighs. The dweller crouches in a low chamber with its shoulders pressed against the ceiling, sorting pale wriggling things into piles. The dweller walks a passage with a pole on its shoulder and a net trailing in the water behind. The dweller carves. You see this once, in a small chamber you almost pass by, where a dweller is sitting cross-legged on the floor with a piece of dark stone on its lap and a small blade of the slate-blue kind in its many-fingered hand, and it is cutting a shape into the stone, slowly, with patient strokes, and the shape is one of the marks above the lintels — the circle with the notch, or the leaf-or-hand-or-flame. The dweller is making a new mark, or re-cutting an old one, or making a copy of an old one for a new lintel. You do not know which. The dweller does not look up. The blade does not slip. The strokes are even. The dweller has been doing this for a long time.
+
+The dweller eats. You do not see this directly, but you understand it from the way the child offered you the pale wriggling thing. The dwellers eat the things from the water. They eat them raw, or whole, or alive, or some combination of these. The thing in your hand is warm and it pulses and it has not struggled and you understand, slowly, that it is not prey in the way you usually mean prey. It is a part of the place that has been gathered and held out. To eat it would be to take the place into yourself. To hold it and not eat it is also a taking, of a different kind. The child did not seem to mind which.
+
+The dwellers sleep. You see this once, in a chamber you enter by mistake, where three of them are lying on the low stone benches with their long arms folded across their chests and their banded skin rising and falling with the slow breathing of the place. They are not asleep the way you sleep. Their eyes are open, the third membrane half-closed over them, and they are aware of you the way the wall is aware of you. They have simply stopped moving for a while. They will begin moving again. The difference between sleep and waking, for the dwellers, may be smaller than you think. The difference between being a dweller and being a piece of the place may be smaller still.
+
+---
+
+How many of them there are.
+
+You do not know. You walk for a long time and you see them in ones and twos and threes and the small crowd in the knee-deep chamber, and you have the sense that you have not seen them all, that there are chambers you have not entered, wells you have not descended, passages you have not chosen, and in those unvisited places there are more dwellers, sitting and standing and crouching and carving and calling and sleeping, and they are all part of the song you can hear but not locate, the way the whole hall is louder than the sum of its waters.
+
+There are children. You saw one. There must be more. The child was half the size of an adult and its banding was finer, closer together, the way the stripes in young stone are finer than the stripes in old stone. It had the same lidless eyes, the same wide mouth, the same too-many fingers. It knew what to do with a guest. It knew to offer. It knew the offering was a confirmation. The adults had taught it this, or the place had taught it this through the adults, or the place had taught the adults this through the children, and the teaching had gone on for so long that no one remembered who had started.
+
+There are elders. You see one in the deepest chamber you enter, where the water is chest-deep on the dweller and the dweller is standing in it with its long arms folded and its banded skin very pale, the dark stripes faded almost to the color of the pale stripes, so that the whole body is a soft uniform ochre, like a stone that has been worn by water until the pattern is almost gone. The elder is very still. It has been very still for a long time. It is not sleeping. It is not calling. It is doing something you do not have a word for, something between breathing and being breathed, and when you pass near it, you feel, on the side of your body that faces it, a faint extra warmth, like the warmth from the vein-rich stone, and you understand that the elder is a kind of hearth, a kind of slow-burning coal, a kind of banked fire that has been giving off heat for so long that it has forgotten it is on fire.
+
+---
+
+How they are with each other.
+
+They are not affectionate. They do not embrace. They do not touch each other except in the work — a hand passing a tool, a shoulder brushing a shoulder in a narrow passage, a child leaning against an adult's leg while the adult fishes. But they are together. They are together the way the stones in the wall are together, the way the notes in the chord are together. They fit. They hold each other up. When one of them moves, the others adjust, the way a wall adjusts when one of its stones shifts, by a fraction, by the width of a thought.
+
+They know each other. They know each other the way your hand knows your fingers, without looking, without asking. The fisher in the next chamber does not look at the other fishers but knows where they are, knows the rhythm of their poles, knows when to lift and when to dip and when to pause, and the three of them work in a single pattern, a single slow breath, and the nets come up at slightly different times so that the pale wriggling things in them are always being lifted and sorted and lowered in a continuous soft cascade.
+
+They are not individuals the way you are an individual. They are individuals the way stones in a wall are stones, the way notes in a song are notes. They have their own banding. They have their own particular place in the chord. But the boundary between one dweller and another is not a hard boundary. It is the kind of boundary that the moss has, the kind that water has, the kind that a single long exhale has, where one part is not quite the next part but the whole thing is one thing.
+
+---
+
+How they are with the place.
+
+They are the place. They are not visitors to it. They are not even inhabitants of it in the way you are an inhabitant of a house. They are the place the way the moss is the place, the way the water is the place, the way the slow pulse in the wells is the place. The hall was made by hands, and the hands were theirs, or the hands were like theirs, or the hands were the hands of ones who came before and taught the ones who came after, and the ones who came after became, over a long time, indistinguishable from the ones who came before, the way a wall becomes, over a long time, indistinguishable from the moss that grows on it.
+
+The dwellers do not maintain the place. The dwellers *are* the maintenance. They are the slow ongoing work of keeping the channels clear, of re-cutting the marks above the lintels, of carrying the small segmented things from one pool to another so the populations stay balanced, of singing the song that holds the place together the way mortar holds stones together. If the dwellers stopped, the place would not collapse. It would forget. It would slowly lose its shape, the way a song slowly loses its shape when no one is singing it, and the moss would close over the carved marks, and the channels would silt up, and the water would spread and pool and stagnate, and the place would become, over a long time, a hill again, an ordinary hill with grass on it and a fissure in its flank that no one notices.
+
+They are keeping the hill from being a hill. They are keeping the fissure from being a fissure. They are keeping the place a place.
+
+---
+
+How they are with you.
+
+You are a thing that has entered the place. You are warm and you breathe out air that is not the same as the air of the place and you move in ways that are not the slow ways of the place, and you hold a pale wriggling thing in your hand without eating it, and the dwellers know all of this about you and have decided that none of it is a problem. You are not prey. You are not a guest. You are not a stranger. You are a warmth the body has accepted, the way a body accepts a warmth that has come in from outside and is not too hot and not too cold. You are allowed to stay because staying is what you are doing, and what you are doing is, for now, compatible with what the place is doing.
+
+The child offered you the pale wriggling thing. This was the confirmation. This was the place deciding, through the child, that you were real and present and had been here long enough to be part of the agreement. The agreement is the distance. The distance is correct. You will not approach them and they will not approach you and the agreement will hold, and the holding is the welcome, and there is no other welcome, and there has never needed to be.
+
+You sit on the bench. You hold the thing in your hand. You listen to the song from below. You are inside the body of something older than the hill. The body is letting you stay. You are letting it stay around you. The agreement holds in the dark.

@@ -1,0 +1,11 @@
+In this 3.1/3 extreme elevation landscape, a vast and intricate array of lifeforms coexist in a state of equilibrium. The damp, cold, and lush environment (3.2/3) is home to an abundant and diverse spectrum of characters (1.2/3), from the minute dwellers of the shadows (2.2/3) to the towering Tree Entities (1.9/3). 
+
+The remote mountain range has carved its own path in rocky formations, forming pockets of isolation for various clans and groups. There are Stepping Stones drifting aimlessly, shifting in between dimensions, and allowing creatures (2.7/3) to move through the rugged terrain. These stones are inhabited by tiny, elusive beings (1.1/3) that appear and disappear like fleeting shadows, making them a favorite subject of legends and stories.
+
+In addition to these transient denizens, the nutrient-rich soil (2.9/3) supports an ecosystem of plants and fungi thriving in the cold and damp conditions. Each plant species plays a crucial role in this balance, providing food, shelter, or medicine to other creatures. The Mushroom Sporelings, for example, protect the land from the encroaching forest spirits (0.7/3), while the Watery Rooties breathe life into stagnant pools (2.0/3).
+
+Lurking in the shadows (2.5/3) are the haunting spirits that impart the landscape with mystery and allure. This darkness (0.6/3) serves as a canvas for the strange (2.1/3) and peculiar, compelling creatures (1.7/3) that live in the niches and crevices of this environment.
+
+The Smallscale Industry (2.4/3) has managed to carve out tunnels and passages, harnessing the power of the engine within the mountain, without disrupting the intricate ecosystem (2.8/3). These structures (1.5/3) provide shelter for specialized creatures, like the벌집처럼 오는 크훌러_Api, that protect the mines from potential invaders.
+
+This landscape is home to a diverse and intricately balanced ecosystem, shaped by a unique convergence of dampness, cold, and lush vegetation. It is a world in which the darkness of shadows and the power of engines coexist, and where no creature or plant is inconsequential in the ever-shifting balance of this highly stratified ecosystem.

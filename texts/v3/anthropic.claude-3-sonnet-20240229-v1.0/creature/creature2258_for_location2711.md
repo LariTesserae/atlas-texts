@@ -1,0 +1,9 @@
+The image you paint is one of a world devoid of biological life, yet teeming with an industrial ecosystem of machines and automated processes. This desolate, volcanic plain has been transformed into a vast manufactory, its obsidian spires hollowed out and repurposed for resource extraction and production.
+
+The denizens of this realm are not flesh and blood, but rather autonomous clockwork automata and self-replicating nanotech swarms. These six-legged creatures scuttle about with insect-like precision, tending to the lumbering factories, assembly lines, and antimony railways that crisscross the plain. They move with a slow, methodical purpose, their actions unfolding in cycles suited to the gradual, large-scale processes required to sustain this industrial world.
+
+Despite the frenetic activity, an eerie stillness pervades the landscape. The vastness of the mineral-streaked plain mutes all motion and noise to a subdued murmur. Erosion has sculpted the severe, austere forms of the spires and refinery stacks, lending them an air of being frozen in time, ruled by the remorseless acquisition of resources and the implacable forces of geology.
+
+This is a world optimized for extraction and manufacturing on a grand scale, its very bedrock bored through and repurposed over millennia. Once solid volcanic plugs now house dimly lit foundries and smelting chambers, their interiors alive with the dull roar of industry. Gaps between spires are bridged by interlocking latticeworks of refinery stacks, belching ruddy vapors into the thin, dry air.
+
+It is an abandoned factory world of the deep future, its original inhabitants long gone, leaving behind only their tireless automaton children to endlessly toil and maintain the cycle of production. A stark, inorganic panorama of raw geology and relentless, purposeful industry.

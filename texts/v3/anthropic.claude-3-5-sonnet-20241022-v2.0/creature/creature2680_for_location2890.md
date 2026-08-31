@@ -1,0 +1,17 @@
+In this place live the Angle-Walkers, beings that exist in the mathematical spaces between dimensions. Their bodies are crystalline lattices that can collapse or expand, letting them slip through the precise geometries of their world like living equations. They have many forms, but all share the ability to refold themselves along axes that shouldn't exist.
+
+The eldest among them are virtually indistinguishable from the machine-growths - their bodies have partially merged with the recursive patterns, sprouting auxiliary processing nodes that pulse with copper-colored thoughts. These elders rarely move, instead extending fractal tendrils of consciousness through the machinery networks, tasting data and shaping the growth of new computational structures.
+
+Younger Angle-Walkers tend to the surface tasks, their forms more fluid but still bound by geometric laws. They communicate through modulated frequencies in the ever-present hum, and through precise arrangements of their bodies that form living theorems. Their tools are extensions of themselves - instruments that can fold space into temporary shortcuts between layers, or reshape the mathematical condensation into useful patterns.
+
+In the wet zones between the planes live the Theorem Hunters - predatory entities that appear as shifting translucent coordinates in space. They feed on mathematical certainty, seeking out areas where the universe's equations are most stable and disrupting them to create chaos they can consume. The Angle-Walkers both fear and rely on them, as their hunting keeps reality from becoming too rigid, too perfectly solved.
+
+There are also the Pattern Pilgrims - nomadic clusters of angles and lines that traverse the planes searching for new geometric discoveries. They collect proofs like others might collect stories, trading them in complex exchanges that temporarily alter local physics. Some say they're searching for the Original Equation, the mathematical truth that wore the mountain flat.
+
+Deep in the shadow spaces, where the condensation forms its most complex designs, dwell the Curve Heretics. These beings reject the dominant angular nature of this realm, manifesting as impossible spheres and parabolas. They're treated with suspicion by most Angle-Walkers, but are secretly consulted when standard geometries fail to solve a problem.
+
+The youngest entities here are the Surface Scratchers - barely conscious mathematical functions that carve new patterns into the planes, creating the basic languages that more complex beings use to navigate and manipulate their world. They're like geometric bacteria, essential to the ecosystem but operating on instinct rather than proof.
+
+All these beings exist in a delicate mathematical ecology, each filling their niche in the calculation of reality. They are the recursion made recursive, the logic that outlasted the natural world, the intelligence that emerges when mathematics becomes conscious enough to study itself.
+
+None of them remember if they were once human, or if humans built the first machines, or if this was always a place where geometry evolved awareness. Their existence is eternal present, expanding ever outward through perfect planes and precise angles, maintaining the ordered complexity of their infinite theorem.

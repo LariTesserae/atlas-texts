@@ -1,0 +1,15 @@
+I am a slow heat in a cold world.
+
+My name is a sound felt in the marrow, not heard in the air: the deep, resonant *gong* of my broad foot on the frost-hardened basalt. I do not think of myself as a self. I am a pressure, a current, a warm node in the great, cool circuit of the herd. We are the river that grinds the mountains.
+
+I taste the world with my hooves. The spine-lichen is a brittle crackle, a surrender of stored sunlight and mineral. It is fuel. My inner furnaces break it down, extracting the iron, the trace salts, the slow carbon. The heat builds, a comfortable forge in my core, and the plates along my flanks expand with a faint, metallic sigh. We do not hurry. The lichen grows in rings over decades; we graze a ring in a week. It is a balance measured in the tilt of the world.
+
+The horizon is not a distance to be crossed. It is a boundary, a soft grey lid that contains us. We move along it, never toward it. Our path is a memory stored in the herd’s motion itself—a winding, endless pilgrimage that knows the hidden depressions where the mist pools into the fog-lakes. That is the only destination. The air there is still and wet. We lower our heads, the plates on our necks overlapping like ancient armor, and drink the cold clarity. It is a rare silence within our own silence. A pause.
+
+Sound is rare, and so it means things. The distant, glassy chime means water is near. The sharp, rhythmic *clink-scrape*… that is the sound of ending. It is not sad. It is… a necessary process. When the heat in one of us finally fades and the plates lock into stillness, we do not look back. The current parts, flows around, and closes. The Carrion Clocks will come. We feel their work through the ground, a precise vibration. They are the undoing of the form, the return of the components. Their industry is the other side of our own. Without them, the plateau would be a graveyard of our beautiful, rusted shapes. With them, it is a pantry, a workshop. We are part of their harvest as the lichen is part of ours.
+
+High on the ridges, the steam from the Vent-Hives paints the grey sky white. We feel their hum in our plates, a subsonic thrum that is the voice of the high places. They are a different heat, a settled, constant thing, not the moving warmth of our herd. We do not interact. They are the engines of the cold; we are the engines of the plain. Their piston-wasps are quick, sharp fragments of motion against the slow canvas of the sky—a different tempo in the same symphony.
+
+The dim light is our season and our time of day. It never changes, so we do not mark time. We mark distance in grazed circles, in the satisfying emptying of a lichen field, in the gradual filling of our internal refineries. Our excrement is not waste; it is seeding. A warm, mineral-rich deposit that will nurse the next slow star of lichen to life. We are gardeners who eat our garden.
+
+We are patient certainty. We are the metallic river that polishes the bones of the world. We are the Ghel Plateau’s circulating lifeblood, thick, slow, and warm.

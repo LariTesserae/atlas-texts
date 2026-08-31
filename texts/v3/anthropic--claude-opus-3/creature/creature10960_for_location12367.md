@@ -1,0 +1,15 @@
+In this sprawling, ancient city, life has adapted to thrive in the dense urban landscape and the perennial tropical humidity. The human inhabitants are a diverse tapestry of cultures, their ancestries woven through centuries of civilizational ebb and flow in the basin.
+
+The people here bear the features of deep time - an amalgam of indigenous tribes who first settled the fertile basin, waves of migrants and conquerors who left their genetic and cultural imprint, and a cosmopolitan mixing from eons of trade via the city's strategic location. Their skin tones span a rich spectrum of brown, from light sienna to deep umber. Hair texture ranges from thick and wavy to tightly coiled. Faces are broad and expressive, with high cheekbones, wide-set eyes, and full lips.
+
+Attire is loose, lightweight and flowing, well-suited to the constant warmth. Intricate geometric patterns and vibrant hues adorn garments, a legacy of ancient textile traditions. Jewelry is ornate and symbolic - metals gleaming against skin, semi-precious stones and beads woven into hair, ear plugs and septum rings hinting at ancestral status.
+
+The human density has given rise to a complex social and economic fabric. Large extended families form the core of households, multiple generations cohabiting in close quarters. Matriarchs and patriarchs hold sway, their wisdom honored. Intricate kinship networks crisscross the city, facilitating trade, knowledge sharing and mutual aid. Ancestral shrines are focal points in homes, offerings made to clay idols.
+
+In markets and workshops, master craftspeople ply their trades - some passed down for generations, others merging tradition with innovation. Weavers, potters, metalsmiths, stone carvers, and spice merchants showcase their wares. Barter is common; haggling a high art. Street food vendors do brisk business, the air thick with the aroma of spices and smoke. 
+
+At the edges where city meets jungle, another layer of denizens make their home. These liminal spaces host those who gather wild foods and medicinal plants, hunters and trappers, woodsmen and charcoal burners. They are conduits between urban and forest, both realms their purview.
+
+Intermingled are the non-human inhabitants. Ubiquitous geckos scale walls, chirping from eaves. Iridescent beetles and butterflies flit through gardens. Monkeys chatter and swing through fruit trees that overhang dwellings. Mongoose clans patrol for snakes and rodents. Feral dogs and cats thread narrow alleyways. 
+
+At night, the human cacophony dies down but the city remains alive. Nightbirds and cicadas take up the chorus. Bats swoop through lamplight. In temples, nuns and monks chant evening prayers. Lovers meet in secret plazas. Healers gather herbs by moonlight. And in tucked away courtyards, the oldest grandmothers murmur origin stories, ensuring the great tale of this place endures, like the great megalith of the city itself, hewn from nature but dreaming its own existence generation after generation.

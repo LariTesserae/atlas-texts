@@ -1,0 +1,23 @@
+Beetles know the ceiling by heart.  
+They were born under it, and under it they will arch and harden, their shells drinking the sour light until each carapace becomes a little lantern of oil-slick color—peacock throat, bruised plum, the green of a bruise healing. They climb the ribs of stone as if reading braille that tells them where the wall has been hurt last, polishing trails into lacquer that glazes over by dawn and remembers their weight like a language. When they pause at the rim of a pool, they do not drink; they taste the iron in the water as if checking whether the year has turned.
+
+Skinks keep the ledges company.  
+They are less residents than conversations—crests combed back like questions, tails that flicker in semaphore whenever the jelly-light dims. A skink will sit for entire afternoons with its belly pressed to stone, not to warm itself but to hear the room. Its tongue reads the wall for salt that tastes like last season’s flood, for copper that means the seams are sighing again, for the faint metallic tang of something hunting at the edge of hearing. When it moves, it leaves behind a brief coolness, as if the stone has agreed to keep a secret for a moment.
+
+The hunters are patient architects.  
+They unspool at dusk, long-limbed and jointed like hinges learning their own angle, descending from hanging gardens where vines braid around memory. Their silk is not for capture but for mapping: threads that hum with the vibration of footfall, of wing, of water shifting in its sleep. They reweave the map each night, because the low ceiling presses close and distances change when no one is looking. When they strike, it is not with violence but with geometry—folding a body into a shape that fits neatly into the stomach of a larger quiet.
+
+Amphibians negotiate the margin between water and not-water.  
+They carry the ponds on their skin, a film that holds heat and refuses to let it go. In the saucer-pools rimmed with salt and ghost-rings, newts court in languages of posture and tremor, their throats pulsing like small hearts learning Morse. Their eggs, laid in capsules like tiny lamps, glow faintly in the fungal dark, teaching the stone how to hold light without owning it. When the drip quickens and the pools shiver, the amphibians do not flee; they count the spill as calendar, as permission.
+
+Carnivorous flora practice hospitality.  
+Their petals purse into cups that offer not nectar but enzymes, their stems coil like springs remembering old tension. Leaves close when stared at for too long, as if shy of attention, reopening only after the air has apologized with a cloud of cinnamon-rust spores. Some vines have learned to mimic the warmth of living stone, inviting beetles to rest only to discover, too late, that rest can be a kind of digestion. Yet there is a politeness to the hunger: nothing is wasted, and even regret feeds back into the green.
+
+Crabs with enamel-cracked shells patrol the floor.  
+They use the fallen lintel as a bridge over streams that are more memory than water, hauling fragments of pottery between nests of fern like librarians returning books to shelves they did not choose. Their claws click a metronome against stone, keeping time for a room that otherwise measures in breaths and drips. When the heat climbs, they retreat into crevices where the air is thinner, carrying their shade with them as if it were a small, loyal animal.
+
+Mosses are the archivists.  
+They swell translucent as lungs after each seep, holding breath and flood both, then contract into velvet scars that record the season’s excess. They line the fault lines, reading tremors like braille, and when spores drift up in clouds, the mosses catch them like thoughts caught before they can finish. Their green is layered, darker at the throat, lighter at the lip, as if lit from within by something borrowed and careful.
+
+And the stone itself lives, in its own slow way.  
+It learns the direction of feet, keeps grooves that remember flow, holds warmth in the shape of old fires. It has folded into a room that remembers height, that remembers how a shout can scrape its scalp. It offers cracks as nurseries, splits as song tunnels, shelves as beds for creatures that have learned to flatten themselves into possibility. The stone dreams in heat and damp, and when the jelly-light dims, it dreams of a sky with unfamiliar constellations, reflected in a pool that offers not the ceiling but something older, something patient, something that waits for you to kneel close enough to drink.

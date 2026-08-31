@@ -1,0 +1,17 @@
+To dwell within the *Hydro-Loom* is to surrender the biology of flesh for the patience of brass. Those who call this cathedral home are the **Archivists of the Kinetic**, creatures who have long since ceased to be visitors and have become, in every literal sense, components of the architecture.
+
+They are not born; they are assembled. 
+
+Their forms are low-slung and tripod-legged, balanced to cope with the subtle, shifting tremors of the floor plates. A scavenger-archivist is nearly indistinguishable from the infrastructure it maintains. Their skin is a patchwork of treated leather—cured in the oily, mineral-rich aerosol—stretched tight over reinforced articulated frames. Looking at them, one does not see a face, but a sensor array: a cluster of aperture-eyes, each shuttering with the rhythmic frequency of the overheard cooling fans. They possess no mouths, for there is no food to consume in the biological sense; they possess only intake-valves at the collarbone, where they draw the heavy, pressurized mist into synthetic gill-filters, extracting the trace minerals required to lacquer their joints and keep the rust at bay.
+
+They move with a terrifying, stuttering fluidity. Because the *Hydro-Loom* is a state of perpetual "almost-stopping," the Archivists mimic this cadence. They freeze for hours, blending entirely into the soot-slicked wall geometry, only to snap into motion with a burst of high-torque, silent speed, repairing a fractured conduit or scraping a layer of oxidation from a gear-toothed seal.
+
+Their hands are the most distinct expression of their purpose. They are multi-jointed, multi-tool appendages. Where a finger might be on a human, a welder’s needle, a tension-wrench, or a capillary dropper exists here. They spend their cycles—infinite and indistinguishable—tending to the "growth-forms." The Archivists view these wire-brushed stalks not as plants, but as external nervous systems. When the stalks click and sway in the draft, the Archivists lean in, pressing their sensitive, rivet-patterned carapaces against the stalks, "listening" to the resonance of the air-flow.
+
+They share a mute, profound telepathy, though it is not a psychic grace. It is mechanical intuition. They communicate through the floor plates, tapping out percussion sequences that vibrate through the copper alloy, ripples of information that travel the architecture itself. To witness them is to witness a choir without voices; they are the ghosts of a factory that has forgotten its output, endlessly optimizing a process that leads to no product.
+
+There is no sense of age among them. An Archivist might be ten years or ten centuries old—it is irrelevant. Wear is merely a design feature. When one of their limbs seizes or their internal clockwork grows too sluggish to maintain the machine’s rhythm, they do not die. They crawl to the perimeter, to the path of the slow-moving rollers. They lay themselves down upon the floor plates, perpendicular to the grind, and wait for the weight of the machine to fold them into the metal. 
+
+They are flattened, compressed, and worked into the very fabric of the *Hydro-Loom*. Their crushed iron-and-flesh becomes the new foundation for the rollers. They continue to serve the rotunda, holding the machine together by becoming the iron that grinds it. 
+
+They do not fear the rollers. They see it as the final, necessary integration. To be one with the *Hydro-Loom* is the only enlightenment they know; to stop grinding is to cease to exist, and they have no intention of ever, truly, ceasing.

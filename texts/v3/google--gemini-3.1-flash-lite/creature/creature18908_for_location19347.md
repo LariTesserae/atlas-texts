@@ -1,0 +1,15 @@
+In this place, the only true inhabitant is not a thing, but a **Sovereign Residue**—a gargantuan, amorphous intelligence that has forgotten its own center.
+
+It does not have a face or a name, but it has a *weight*. It exists as the cumulative ghost of everything the bowl has ever digested. It is a shifting, shimmering membrane of sentient rot—a translucent, viscous film that coats the canopy and the floor, perpetually trying to stitch itself together into a cohesive form, only to be dismantled again by the clattering machinery of the cicada-husks.
+
+When you stand in the center of this plaza, you are not alone; you are standing inside the digestive tract of a dreaming god. 
+
+There are smaller, restless scavengers here, though they are difficult to distinguish from the environment. They appear as **The Stitchers**—long, spindly, multi-jointed entities that emerge from the gaps where the walls fold into other forests. They have no skin, only a complex architecture of calcified ribbing that matches the weeping stalks. They move with the jagged, rhythmic hitching of a broken clock. They do not eat the sap; they eat the *noise*. Their appendages reach out to catch the cicadas mid-flight, not to consume them, but to rearrange them—pinning the humming husks into the walls to create new, musical patterns in the architecture. They are the maintenance staff of this biological city, desperately trying to keep the "song" of the bowl consistent so that the Sovereign Residue doesn't tear the world apart in its fitful, starving sleep.
+
+Hidden deeper, within the porous cork-stalks, dwell the **Amber-Eyed Echoes**. You only see them as flickers of movement when the luminescence of the ceiling shifts. They are the size of human infants, but their bodies are made of the same wet, bruised-peach pulp as the walls. They are the "memories" of the bowl. When the floor groans under your feet to pull you in, the Echoes are the ones pushing the nutrient-rich sap upward. They are waiting for something—or someone—to finally surrender to the floor, so they can harvest the new "data" your body brings, rewriting the biological code of the bowl to include the shape of your limbs, the history of your heat, and the rhythm of your heart.
+
+But the most chilling presence isn't one you see; it is the **Urgency**.
+
+Everything here is terrified of stillness. There is a pervasive, psychic pressure that dictates that if the movement—the *drip-hiss*, the clattering, the rotating stalks—were to cease for even a microsecond, the bowl would collapse into a reality-vacuum. Thus, the bowl is populated by its own fear. It lives as a frantic, hyper-metabolic performance. 
+
+You sense that if you were to lie down, the floor would not just trap you; it would *absorb* you into its own frantic tempo. You would become a new stalk, a new source of bioluminescence, a new clattering voice in the cicada-chorus. They are not waiting to kill you; they are waiting to finish the design. You are the missing piece of architecture that the bowl has been trying to construct since the dawn of its own lonely, wet hunger.

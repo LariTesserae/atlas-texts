@@ -1,0 +1,15 @@
+Here lives the Salt Dancer - though that's not quite right, because it's not quite a single being. It's more like a coincidence that keeps happening, a pattern that forms and reforms in the interface between salt and sky.
+
+You might first notice it in the way mist eddies differently in certain spots, curling into temporary geometries that echo the hexagonal plains below. Or in how patches of algae arrange themselves into spirals that seem too precise to be random, yet shift and dissolve before you can be sure of what you've seen.
+
+Its most visible manifestations occur at twilight, when the light is uncertain and the air is thick with moisture. The Salt Dancer takes form in the space between water and air - a translucent, crystalline shape that grows like frost forming in reverse. It builds itself from salt spray and mist, incorporating the iridescent wings of brine shrimp and stray feathers from the wading birds. These components orbit around a central absence, like a school of fish moving as one body.
+
+The being is in constant flux, simultaneously dissolving and reforming. Parts of it catch the light like cut glass while others remain almost invisible, creating an impression of complex internal geometry that's impossible to fully grasp. It moves with deliberate slowness, each motion rippling out across its form like waves through the shallow waters of the salt flat.
+
+The Salt Dancer doesn't seem to notice human observers, or perhaps it simply operates on too different a timescale to interact with them. Its attention, such as it is, appears focused on the endless cycles of the salt flats themselves. It participates in these cycles - helping to seed the crystalline formations that grow between floods, guiding the path of evaporation, perhaps even playing some role in the hatching of the brine shrimp.
+
+The birds know it's there. They'll shift their formations to accommodate its presence, creating negative space in their flocks that marks its passage. Sometimes, in the deep quiet of noon when the heat has driven most life into stillness, the flamingos will arrange themselves in precise geometric patterns that mirror the Salt Dancer's crystalline structure, standing motionless for hours like living components in some vast diagram.
+
+Local tribes have long known of its existence, though they speak of it obliquely and by many names - the Pattern in the Salt, the Tide's Memory, the Geometry of Thirst. Their stories say it was born when the ancient sea first began to dry, and that it will continue its slow dance until the last salt crystal dissolves or the sea returns to reclaim its own.
+
+It is neither fully alive nor completely inanimate, neither solid nor liquid nor gas, but something that exists in the margins between these states. Like the salt flats themselves, it operates on geological time - patient, persistent, eternally engaged in the slow work of becoming and unbecoming, as regular and as mysterious as the tides it remembers.

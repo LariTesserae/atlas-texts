@@ -1,0 +1,87 @@
+# The Residents
+
+---
+
+The frog was here before the pumps.
+
+This is speculative—you cannot ask a frog, and the technicians' logs do not mention amphibians until Entry 34, when someone scribbled *frog?* in the margin beside a note about condensate collection—but the frog behaves like a thing that was here first. It lives in the lowest gallery, where the water pools in basalt hollows and the light from the cleft above has attenuated to something less than light, more like a rumor of light. Its calls come in the predawn hours: a single low note, repeated at intervals of eleven seconds, lasting approximately two seconds each. The technicians have timed it. The regularity is uncanny. The sound is not quite a croak and not quite a tone—something between, flattened by the acoustics into a resonance that harmonizes with the pumps in a way that makes the teeth ache.
+
+The frog is small. No one has seen it clearly. The lower gallery is accessed by a ladder whose lower rungs have rusted through, and no one has bothered to replace them because there is nothing down there that needs maintaining. Occasionally someone shines a light over the edge and sees ripples in the pooled water, movement that could be a frog or could be displacement from the pump vibration or could be nothing at all. The frog exists primarily as a sound. An assertion. A voice in the dark that says: *something lives here, down where you do not go.*
+
+It is possible there is more than one. It is possible the frog has been many frogs, a lineage descending in the dark for forty years, each one learning the same note from the one before, singing the same song to the same wet walls. The lifespan of a frog in a place like this is unknown. There are no predators. There is constant water. The insects that breed in the upper pools occasionally fall or are carried down by the seep, arriving dazed and fluttering at the surface of the frog's pool, and the frog takes them. It is a life. It is enough.
+
+---
+
+The geckos are four. There have always been four, or at least four visible at any given time, and the technicians have named them according to their territories: North Pipe, South Pipe, Turbine, and Ledge. The names are functional. North Pipe stays near the northern pump housing, hunting insects that collect in the warm air around the motor casing. South Pipe favors the southern housing, where the condensate drips heaviest and the midges cluster. Turbine patrols the steel cabinet of the hydro-electric housing, where the vibrations dislodge insects from the machinery. Ledge—Ledge is the one the technicians see most often, because Ledge has claimed the catwalk near the control room door, and Ledge watches.
+
+All four are the same species: a small house gecko, hemidactylus, with translucent skin that shows the dark pulse of organs beneath. Their toes splay on the wet iron and they move with a deliberation that seems impossible in something so small, each step considered, each turn of the head a calculation. They hunt by waiting. A gecko will find a position on a pipe or a wall where the insects pass—where the seep creates a small rivulet that draws the midges, where the warmth of a motor housing encourages flight—and it will wait there for hours, motionless except for the occasional twitch of its tail. Then: a flash of tongue, a swallowed insect, and the waiting resumes.
+
+The geckos know the Spire's rhythms. They know that when the pressure gauge on the northern pump ticks above the red line—which happens every eighteen days, when the filter needs changing—the vibration changes and the insects scatter differently. They know that the technicians arrive from above, clanging on the ladder, and that this means a brief period of disruption followed by a longer period of stillness in which hunting is good. They know the sound of rain on the exterior, which they cannot hear directly but feel as a change in the seep rate, a quickening of the walls, and they position themselves accordingly.
+
+Turbine and South Pipe have fought twice. The technicians observed this: a brief tumbling encounter on the catwalk, tails whipping, throats pulsing, resolved in seconds when Turbine retreated to its housing. The boundaries are otherwise respected. How they are negotiated—by scent, by sound, by some gecko protocol invisible to human attention—is unknown. But the peace holds. Four geckos, four territories, in a space thirty meters across. It is a density that requires diplomacy, and the diplomacy is maintained.
+
+Ledge watches the technicians. This is anthropomorphism, probably. But when the monthly visit comes and the technician climbs through the gallery, Ledge will be on the railing outside the control room, head tilted, dark eyes unblinking, following the human's movement with an attention that the other geckos do not share. Ledge is the eldest, or appears to be—the largest, the most faded, the slowest to flee when a hand approaches. There is a calm in Ledge that the others lack. As if Ledge has seen enough visitors to know they come and go, come and go, and the Spire remains, and the insects remain, and the waiting remains, and there is no reason to fear something that will leave.
+
+---
+
+The fig is the architect.
+
+This is not metaphor, or not only metaphor. The strangler fig began as a seed deposited in a crevice near the cleft—carried by a bird, probably, or by wind, a single unlikely arrival in a place that receives almost no colonists. It germinated in the seep. It sent roots downward along the interior wall, finding the constant water, drinking, extending. It sent a stem upward toward the light, a pale questing thing that hardened over weeks into wood. And it grew.
+
+Now its root curtain covers a third of the gallery's eastern wall. The roots descend in parallel lines, some as thick as a human arm, some hair-fine, all of them pressed flat against the basalt where the water runs, drinking, always drinking. Where a root crosses a seep-line, it swells slightly, engorged, and the water below that point is diminished—the root has taken what it needs. The root curtain has a texture and a density that the bare wall lacks. Moss grows on the roots. Liverworts cling to the bark. Small insects nest in the crevices between root and stone. The fig has created a habitat within a habitat, a surface more hospitable than the basalt it covers.
+
+And the fig has hidden the control room door. The door is there—a steel hatch, slightly ajar, opening onto the closet-sized room with its bakelite switches and analog gauges. But the roots have grown across it, framing it, obscuring it. A technician who didn't know it was there would walk past. The fig has, without intention, without design, made the door into something that must be known to be found. A secret. A threshold that reveals itself only to those who already understand what lies behind it.
+
+The crown of the fig is visible from the gallery floor only as a darkness against the light of the cleft—a shadow that moves in the updraft, leaves rustling in a wind that does not reach the lower levels. From the ledge near the summit, you can see it clearly: a full crown, healthy, glossy with moisture, its roots descending into the Spire's interior like the pillars of some organic cathedral. The fig is thriving. It has found the perfect situation—endless water, reliable light, protection from wind and storm, a structure to support its weight. In return it gives nothing and takes nothing that the Spire was not already giving and taking. It is a resident in the purest sense: it lives there, and its presence changes the place, and it asks no permission.
+
+The fig will outlast the pumps. When the motors fail and the technicians stop coming and the infrastructure oxidizes into powder, the fig will still be here, drinking from the aquifer, extending its roots, slowly filling the gallery with wood and leaf and the small ecologies that cling to its bark. It has time. It has nothing but time.
+
+---
+
+The mosquitoes are the Spire's voice.
+
+This is not the metaphor it appears to be. Consider: the Spire is a resonant chamber, a cylinder of stone that transforms the sound of falling water into a layered chorus. Every sound that occurs within the gallery is altered, amplified, extended. The pumps become a heartbeat. The dripping becomes a rhythm. And the mosquitoes—the mosquitoes become a whine, a constant high-pitched presence that varies in intensity with the population but never fully disappears, that harmonizes with the water and the pumps to produce the characteristic sound of the Spire: a chord in three movements, mechanical and aqueous and organic, never the same twice, never fully different.
+
+The mosquitoes breed in the standing water that collects in every horizontal surface—pump casings, abandoned buckets, the boles of the fig's root curtain, the shallow pools that form on the catwalks after heavy seep. Their life cycle is rapid: egg to larva to pupa to adult in a week, and the adults live only long enough to mate and bite and lay eggs in the next available pool. They are the only residents who complete their entire existence within the Spire's walls. The geckos may venture to the exterior ledge. The fig's crown breaks the cleft and touches open sky. But the mosquitoes are born in the gallery, live in the gallery, die in the gallery, their bodies falling to the wet stone where the geckos find them or the water carries them to the lower levels where the frog waits.
+
+The technicians hate them. The monthly visit involves a certain amount of slapping and cursing, and the control room has a can of insect repellent on the shelf, half-empty, its label curled with moisture. The repellent works for minutes at a time. Then the mosquitoes return. They always return. They are the Spire's most reliable inhabitants, the ones who will be here no matter what, who reproduce and consume and reproduce again in a cycle as constant as the pumps, as the water, as the slow growth of the fig's roots.
+
+If the Spire has a consciousness—and the weirdness of the place suggests something like intention, if not thought—the mosquitoes may be its neurons. A distributed network of tiny sensing bodies, each one touching the air, the water, the skin of whatever enters, each one contributing its whine to the chord. It is a thought too large and too small to be thought. But it is a presence. A living hum in the wet dark.
+
+---
+
+The technician who comes most often is named Carvalho, and Carvalho will not admit to living here, but Carvalho is here more than anywhere else.
+
+The schedule says monthly. Carvalho comes twice a month, sometimes three times, taking the long climb through the cloud forest and up the exterior ladder because the interior ladder is worse, rusted and swaying, and Carvalho does not trust it anymore. The schedule says a visit should take four hours: check the pumps, change the filters, log the pressure readings, inspect the turbine, test the chemical station's remaining reagents, verify the outflow pipe's integrity. Carvalho stays overnight.
+
+There is a place to stay. Behind the control room—hidden by the fig's root curtain, as if the fig conspired to create a small privacy—there is a alcove where the original builders stored equipment. Someone, perhaps Carvalho, perhaps a predecessor, has laid a foam pad on the stone floor and hung a hammock from two pipe brackets and installed a small camp stove on a metal shelf. The alcove is dry, or drier than the gallery; the fig's roots seem to absorb the seep before it reaches this wall, and the air here is merely humid rather than saturated. Carvalho sleeps in the hammock, listening to the pumps, and wakes to the same sound, and does not distinguish between the two states.
+
+Carvalho is fifty-three. Has been climbing the Spire for eleven years. Knows the pressure readings by heart: the northern pump runs at 4.2 bar, the southern at 3.8, the difference due to a slight blockage in the southern intake that has persisted since before Carvalho's time and that no amount of chemical treatment has resolved. Knows that the fig's root curtain extends 2.7 centimeters per month along the eastern wall. Knows that Ledge will be on the railing when Carvalho arrives and will still be there when Carvalho leaves. Knows the frog's schedule, the eleven-second intervals, and has lain awake in the hammock counting them until sleep came, and has woken to find that the counting continued in dreams.
+
+Carvalho does not discuss the Spire with colleagues. The provincial water authority is a bureaucracy that requires reports in triplicate and does not require feelings. The reports say: *pumps operational, turbine operational, outflow nominal, structural integrity adequate.* They do not say: *the place is getting to me.* They do not say: *I think about it when I am not there.* They do not say: *I have started to dream in the rhythm of the pumps, two beats per second, and in the dreams I am standing in the gallery with my palm pressed to the wet wall and the wall is warm and I can feel something on the other side, something vast and patient, and it is not the aquifer.*
+
+Carvalho has not told anyone about the room behind the fig. It is not in any schematic. It is not on any inventory. It is a space that exists because the fig grew and the water fell and the stone held, and Carvalho found it and made it a place to lie down, and now it is a place where Carvalho lies down, and the Spire holds Carvalho the way it holds everything: without acknowledgment, without refusal, with the patience of something that has time to absorb whatever enters it.
+
+Carvalho is not a resident. Carvalho would insist on this. Carvalho has an apartment in the town below, a wife, a daughter studying engineering in the capital. Carvalho has a life outside the Spire.
+
+But the Spire does not care about the distinction. The Spire is patient. The Spire has time.
+
+---
+
+And there are others, if you count the small ones, and you should count the small ones because they outnumber everything else combined.
+
+The nematodes in the seep-water, microscopic, living their entire lives in the thin films of water that run down the basalt, generations passing in the time it takes a rivulet to travel from the cleft to the pool. The springtails in the moss, hopping between fronds, eating the decomposing matter that accumulates in the velvet pads. The mites on the geckos' skin, parasitic but not harmful, a parallel colony that travels with its host and knows the territories as well as the geckos do. The mold spores germinating in the chemical station, on the clouded glass bottles, on the leather of Carvalho's boots left overnight in the alcove. The bacteria in every wet surface, breaking down, building up, cycling the mineral and the organic in a process so slow and so constant that it is indistinguishable from the weathering of the stone.
+
+The Spire is not a place that contains life. It is a place where life is a property of the stone and the water, as intrinsic as the mineral deposits, as the rust, as the condensation. Everything wet, everything slow, everything being gradually reclaimed. The boundary between the living and the non-living here is not a line but a gradient, a transition from basalt to lichen to moss to liverwort to fern to fig, each one bleeding into the next, each one a different speed of the same process: the Spire becoming something other than what it was, accumulating residents, accumulating presence, accumulating the slow hum of lives being lived in its galleries.
+
+---
+
+At night—or what passes for night, the cleft admitting only starlight and the glow of clouds reflecting the distant town—the Spire is most itself.
+
+The pumps do not change. The pumps do not know night or day. But the geckos become more active, hunting the nocturnal insects that rise from the pools. The fig's leaves rustle in the updraft with a sound like whispered conversation. The frog begins its count: one, two, three, eleven seconds between each, patient as a metronome. The water falls, and falls, and falls. Carvalho, if present, lies in the hammock and stares at the ceiling, which is not a ceiling but the underside of the gallery above, a surface of dark wet rock glimpsed through the root curtain, and the darkness makes it infinite, a sky of stone going up and up and up into the cleft where the stars are visible, a few of them, refracted by the mist into smears of light.
+
+The Spire holds all of this. The pumps and the frog and the geckos and the fig and the mosquitoes and the nematodes and the mold and the sleeping technician and the water, always the water, the water that is the Spire's reason and medium and voice. The place does not have a consciousness in any way that consciousness is understood. But it has a presence—a quality of *being here* that is more than the sum of its residents, that emerges from their interleaving, their density, their patience.
+
+Something lives here. Not someone. Something. A distributed, patient, mineral-and-water-and-chlorophyll thing that has been growing into itself for sixty years and has not finished, that absorbs what enters and incorporates it and continues, two beats per second, water on stone, water on metal, water on water.
+
+Stay long enough and you will feel it: not a thought, not a welcome, but an *opening*. A space that can hold one more. A wet wall against your palm that is warm and steady and does not push back.

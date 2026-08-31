@@ -1,0 +1,32 @@
+They do not have names; the living things here exist in number, kind, and role, not in stories. It is a multitude, each shape honed not by slow, creative drift but by the abrupt conditions of this raw sink in the crust—a world cracked open, then locked, its initial chaos informing all that follows. Life in this cleft plain may appear at a glance as a motley riot, but look longer, and its order becomes apparent. These are not the denizens of a fairy-tale cave or the root-pale shadows of the deep underworld; they are stone’s first tenants, rough-edged and tenacious, older than rivers yet newer than forests.
+
+**The Birds—Or Not Quite Birds**  
+The air is ruled by creatures that seem built for half-light and stone-mist, not for the open sky. Their wings are short, ragged at the edge; their flight is staccato and direct, churning the thick, cool air in bursts. They have beaks, but these are wrong—in places, the beak thickens into a bony plate, ridged almost like a shark’s jaw. The feathers are infrequent, patchy: tufts of dun and grease-grey protruding between slick, almost reptilian skin. Their eyes gleam oil-black, ringed by pale flesh; you see intelligence there, but it is not for you.  
+They settle on promontories of stone and sometimes hang from overhangs, toes digging into cracks. Their calls are not songs, but syncopated knocks and fluted wails—a language of stone, echo-mapped, locating one another without seeing. They feed on everything: insects, fallen flesh, the gleam of marrow in an abandoned bone, seeds, or the small soft reptiles no bigger than a thumb.
+
+**The Swarming Things**  
+In gaps between stone—just enough moisture, never quite enough dark—move the arthropods. Wings are essential here, but mostly for brief flights, rising in iridescent, dust-mottled columns only to settle again. Their exoskeletons are pale, almost colorless; in the dull blue day, their bodies gleam faintly with the wet. Antennae are long—sensory canes for probing the constant thin mist. They move in pulses, never a constant buzz, always one poppy burst of presence, then an empty quiet. Nests—if you call them that—are thick matted skeins pulled from underground, pimped out of root and grit, dragged between cracks in the stone.
+
+Among them are things that pinch and gnaw—mandibles wide and splayed. One, the size of a child’s finger, is always the first to rise from a puddle after rain, bashing through the ground-litter to seize the drowned and the weak. Others have wings shaped like guttered glass, darting by the score from one pool to the next, their hunger the tick that starts the food web’s clock again and again.
+
+**The Mammals and Near-Mammals**  
+They are night-things who have only ever known half-light, built like shadows: pale, silky-furred or near-bald, with huge, glossy eyes adapted for the chill blue gloom. Here is a rodent for whom the world is only ever vertical—its feet splay wide on sheer faces, claws tiny crampons. There, a thing more akin to a weasel, yet stretched, wiry, with a tail prehensile for lashing among the rare bushes and lapping dew from shadowed leaves.
+
+Others burrow. Their noses are pointed and pink, skin-stripped for sensitivity; they work the little soil caught between slabs, emerging in tense, hyper-alert bursts to snatch at whatever falls or wanders unwarily overhead. Their nests are not simple excavations but complicated systems of shallow chambers, always skirting the rock’s edge where the damp lingers longest.
+
+Some, more specialized still, have something like hands: digits flexible and tipped with keratin, able to wield a smooth stone, to crack a bone, to turn flat rocks and find what squats beneath. They use, but do not transform; the stone is stone, left where it was after.
+
+**The Large Presences**  
+They are not common. To cross a long bare stretch of the sunken field and meet a giant—by which here is meant anything bigger than a badger—is an event. You hear them from far off: heavy, dull tread, sometimes a scraping horn or the low grind of teeth on stone. They are squarely built, neck thick, body low, with hooves spread to navigate slick rock and hidden crevices. Their fur is patchy, often caked with earth or drooled slime. Their eyes too are big, rimmed with an expression like mild caution—it is good, in a land with so little cover, never to bet instinct on a new stimulus.
+
+Some giants bark, deep and echoing; others simply snort and move on. Rarely, the earth shakes as they cross near a pool ringed by a turn of brittle reeds, all life in the valley holding breath and withdrawing to cracks until the presence is gone.
+
+**The Restless, The Hidden**  
+There are things that do not quite show themselves. Eyes behind stone, glints in the deep gaps—reptilian, perhaps, or something ghostlier, clinging to stone ceilings and following the movement of prey with a tongue or claw that never quite reveals itself. They govern the habits of all the smaller things, their presence as unyielding as the stone itself.
+
+**What Unites Them**  
+They do not build. The nearest thing to culture is a pile of gathered bones—scavenged, gnawed, shuffled aside. Paths are made and erased with every tread. Knowledge passes in genes, in repeated behaviors: how to find water in fog; which cracks never dry; the hidden calculus of when to move and when to stay still. No single animal claims the space for itself, nor any family lay a lasting mark on this hidden plain. There are watchers and the watched, kill and clamor; life here moves only as fast as the day’s drip, the rhythm that governs all else.
+
+They are resilient, patient, implacable. They have survived—perhaps even thrived—by doing nothing new. In constant dusk, with little to love besides life itself, they have learned endurance. Eyes adapted to gloom, bellies to scarcity, feet to sharp stone; nerves steady and keen, ever-ready. Their beauty is not in the individual—few are pretty—but in the crowded, constant life that before you seemed part myth, yet is here in the open, pell-mell and pressing, thriving, asking only to go on as it has always done.
+
+It is not that time has stopped, but that it circles, spinning in the plink and chorus and scurry of every day in this sunken world. These are the residents—everywhere and nowhere, each shaped to a niche at once fleeting and forever. They keep no names, leave no trace, and need no myth: only the ongoing act of being, as steady and certain as water’s drop on stone.

@@ -1,0 +1,17 @@
+In this eerie, abandoned city, a strange and ancient race of beings lingers on, their presence more felt than seen. These creatures, known as the Xel'thari, have adapted to the harsh, thin air and perpetual twilight of their mountain realm over countless millennia.
+
+The Xel'thari are a gaunt and elongated species, their bodies seemingly stretched and distorted by the strange energies that suffuse their city. Their skin is a pale, translucent grey, shot through with faintly glowing veins that pulse with the same phosphorescent light as the mineral deposits that riddle the city's foundations. Their eyes are large and luminous, reflecting the eerie light of their surroundings like polished obsidian.
+
+The Xel'thari move through their city with an unsettling grace, their long, spindly limbs enabling them to navigate the winding pipelines and conveyor systems with ease. They seem to meld with the shadows, their forms blurring and shifting at the edges of perception, making it difficult to distinguish individual beings from the city itself.
+
+The few times they are glimpsed directly, the Xel'thari appear to be engaged in inscrutable tasks, manipulating the city's anachronistic technologies with a deft and practiced touch. They work silently and with a single-minded focus, as if driven by a purpose known only to them.
+
+Despite their apparent mastery over the city's machines, the Xel'thari themselves seem to be in a state of slow decline, their numbers dwindling as the aeons pass. It is unclear whether this decline is due to the gradual depletion of the city's resources, or some other, more esoteric cause.
+
+The Xel'thari communicate with one another through a series of haunting, resonant tones that echo through the city's vast spaces, blending with the hum of the obsidian monoliths and the distant grinding of ancient machinery. These eerie vocalizations seem to carry meaning beyond mere language, conveying complex emotions and abstract concepts that defy translation.
+
+In rare moments of rest, the Xel'thari can be found gathered around the strange, geometric mineral formations that grow throughout the city. They seem to draw some form of sustenance or energy from these deposits, their already luminous eyes flaring with an inner fire as they commune with the pulsing, crystalline growths.
+
+There are whispered legends among the few outsiders who have glimpsed the Xel'thari and their city, tales of the creatures' vast and ancient knowledge, and of the incredible technologies they once commanded. Some even speculate that the Xel'thari themselves are not entirely of this world, their origins inextricably linked to the strange, iridescent material that comprises the city's most enigmatic structures.
+
+Yet for all their mystery and apparent power, the Xel'thari seem to be a race in twilight, their great works slowly crumbling around them as they labor to maintain some inscrutable balance or purpose known only to them. Whether they are the last guardians of an incomprehensible cosmic order, or simply the fading remnants of a long-forgotten civilization, the Xel'thari and their city remain an enigma, haunting the lonely mountain heights like a half-remembered dream.

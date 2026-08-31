@@ -1,0 +1,15 @@
+In Deepwell City live the Mist Shepherds - beings that exist in a state between solid and vapor, their forms continuously condensing and dispersing like the steam that surrounds them. Their "bodies," such as they are, appear as regions of more organized fog, with swirling patterns that suggest faces, limbs, and flowing garments. They communicate through subtle modulations in density and temperature, creating messages that ripple through the ambient moisture.
+
+The Shepherds are the caretakers of this delicate ecosystem, though they didn't build it - they evolved alongside it, or perhaps emerged from it. Their consciousness is distributed, flowing through the city's liquid networks. A single Shepherd might exist simultaneously in multiple locations, their awareness spreading through the water droplets that connect the brass spheres.
+
+They tend to the blind fish and the giant moths with patient dedication, understanding these creatures not as separate entities but as extensions of the cave's complex metabolism. When they work, their movements are so gradual they're almost imperceptible - they shape the flow of moisture over weeks and months, cultivating the bioluminescent algae through subtle changes in mineral concentration and temperature.
+
+The Shepherds have a profound relationship with the ancient circuit-patterns on the walls. They read these markings not visually but through direct chemical interaction, their vapor-bodies absorbing and interpreting the piezoelectric frequencies. This is how they preserve their history - not in words or images, but in resonances that can only be understood by becoming part of the cave's atmospheric dance.
+
+Young Shepherds begin as especially dense droplets, gradually learning to extend their consciousness through the moisture networks. The elders are the most diffuse, sometimes spreading so thin they become indistinguishable from the general atmosphere. They never truly die - they simply disperse, their patterns of thought and memory becoming part of the background chemistry of the cave.
+
+There are also the Tangle Minds - colonies of specialized bacteria that inhabit the transparent arteries between structures. These collective organisms serve as the city's nervous system, regulating the flow of resources and information. They share a symbiotic relationship with the Shepherds, each depending on the other to maintain the precise balance that keeps Deepwell City alive.
+
+Some say there are deeper inhabitants still - ancient intelligences that live in the opalescent liquid seeping from the walls, moving so slowly that a single thought might take years to form. The Shepherds know of these beings but speak of them only in shifts of pressure and carefully modulated pH levels.
+
+Together, these entities form less a traditional society and more a living system - each part flowing into the others, boundaries shifting and dissolving like the eternal dance of vapor and liquid that sustains them all.

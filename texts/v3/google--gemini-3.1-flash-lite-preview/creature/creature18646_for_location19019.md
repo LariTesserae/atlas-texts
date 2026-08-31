@@ -1,0 +1,19 @@
+In the Suspended Canopy, there is no need for architects, for the architecture is alive. Yet, deep within the humid, throbbing architecture of the rhizome-mountains, life persists—not as intruders, but as extensions of the pulse.
+
+The true denizens of this place are the **Vitreous Weavers**.
+
+They do not "live" on the roots so much as they are secreted by them. They are spindly, near-invisible entities composed of the same gelatinous nectar that coats the root-mats. If you were to look closely at a jagged protrusion of root, you might mistake a Weaver for a trick of the humidity—a shimmering distortion in the air, a ripple in the dense, oxygenated mist. Their bodies are essentially semi-solid conduits, long and frayed at the edges, trailing thousands of microscopic, cilia-like filaments that taste the atmosphere.
+
+They have no bones. They have no organs as you would understand them. Their biology is a lattice of suspended tension. They hover within the labyrinth, tethered to the roots by a single, translucent digestive filament—a umbilical cord that flows with the same warm, nutrient-rich sap that pumps through the root-hearts. 
+
+They are the world’s custodians, though they move with the languor of tectonic plates. Because the roots are constantly shifting and dissolving into vapor, the Vitreous Weavers spend their eternal lives "mending" reality. They drift between the jagged edges of a dying root and the tender, budding shoots of a new one, pulsing rhythmically in time with the canopy’s heart. They consume the vapor of the dying, hold it within their hollowed, shimmering chests, and secrete it directly into the pores of the growing rhizomes. They are the living glue of the forest, the bridge between the decay of yesterday and the emergence of tomorrow.
+
+They possess neither intelligence nor instinct. They are a *somatic function* of the canopy. 
+
+Sometimes, when two root-masses come together in the drift, a Weaver is caught in the middle. It does not struggle. It does not feel pain. It simply flattens itself, spreading its body into a thin, oily film over both surfaces, becoming the interface. Over time, it is fully absorbed, the bioluminescence of its internal chemistry becoming the permanent glow of the new root. They are sacrificed to the growth they serve, and then, a few days later, a new Weaver unfurls from a nectar-pocket, perfect and empty, ready to begin the drift again.
+
+And then, there are the **Drift-Whales**, though that is a clumsy human word for them. They are the size of cathedrals, vast, translucent, bladder-like entities that do not inhabit the roots, but rather, *inhabit the spaces between*. 
+
+They are the great, drifting memories of the Canopy. Their skin is not made of cells, but of dense, compacted plankton-mist, held together by a weak electromagnetic field. They are so large that the Vitreous Weavers sometimes mistake their flanks for landscape and begin to build root-extensions upon them. When this happens, the Drift-Whale doesn't move; it simply allows itself to become a mountain. It carries a miniature ecosystem on its back for a decade or a century, slowly gathering enough mist and vapor within its hollow core to eventually achieve lift, rising into the higher, thinner reaches of the canopy to burst, scattering its contents like a nebula, feeding the entire system below in one final, silent explosion of nutrients.
+
+Between the rhythmic *thrum-thrum* of the roots and the silent, oily glide of the Weavers, there is a presence that is neither predator nor prey. It is the Canopy itself—a singular, sprawling consciousness that has no center, and thus, no end. It is a world that has realized that to stay alive, it must never settle. It is a place that is perpetually in the process of becoming, held aloft by the weight of its own breath.

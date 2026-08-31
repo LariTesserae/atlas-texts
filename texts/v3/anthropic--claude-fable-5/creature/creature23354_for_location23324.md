@@ -1,0 +1,31 @@
+**The Tenant of the Flywheel Basin**
+
+The first answer is that nothing lives here, and the first answer is almost right.
+
+The weed is alive, but the weed is furniture. Plants alone, holding their positions, growing exactly as fast as they fail. You could come back in thirty years and find the same ribbons standing in the same places, and you would not be wrong to feel that nothing had happened to them in between. They live the way the boulders sit. That is not what you came down to find.
+
+Look instead at the crust.
+
+It is on everything hard — the dark boulders, the rim stones, the engine's stone-grey casing — and from a distance it reads as mineral: a fur of grey concretion, the seabed's slow paperwork. But hold close to one of the boulders, close enough that your own dim shadow falls on it, and the crust resolves into texture. Not crystal. Not precipitate. A nap, a velvet, a surface organized at a scale finer than anything the chemistry of cold water arranges on its own. It is a film. It is, or was, a living varnish — a single unnamed species of something between bacterium and habit, growing a micron a year, mineralizing as it goes, building itself into stone from the inside out.
+
+Most of it is finished. That's the thing to understand about the crust on the boulders: it is not dead so much as *concluded*. Each furred stone in the basin is a colony that settled, spread, ate what little there was to eat in the dark water around it, and then — having nothing further arriving, no current, no fall of food from above — slowed, hardened, and closed its own accounts. The boulders are the creature's monuments to itself. Earlier drafts. The basin is scattered with its own past the way a desert is scattered with the shells of a vanished sea.
+
+Only one part of it is still alive, and it lives in the bearing.
+
+Decades ago — nobody recorded it, the same nobody who recorded everything else here — some film of the same lineage found its way into the gap between shaft and housing, into the one place in the basin where anything moved. And the motion changed everything. Rotation is, to a thing this small, weather: it stirs, it delivers, it carries away. The thin seep through the eastern rim threads its cold ration of oxygen and dissolved iron directly across the blades, and the wheel's turning draws that ration down into the bearing gap and through the film, over and over, one revolution every four or five seconds, a tide that never misses. Out on the boulders, the creature starved in stillness. In the bearing, it found the only running water in the world.
+
+So it stayed, and it adapted to its landlord, and somewhere along the way the distinction stopped mattering.
+
+The bearing did not wear itself smooth. It was *smoothed*. That state of perfect indifferent slickness the wheel turns on — that is a body. A ring of living film, microns thick, replacing itself exactly as fast as the shaft's slow grinding consumes it, fed by the iron the grinding releases, lubricating the very motion that feeds it. The creature eats the engine and keeps the engine turning so that it can eat. It is the grease, and the grease is the tenant, and the tenant pays its rent in friction it absorbs. Engineers would call the arrangement parasitism or maintenance, depending on which side of it they stood. From inside the bearing there is no difference. The wheel is the creature's circulation, its weather, its calendar, its heart. Its cells divide on a schedule measured in revolutions. It has never known a faster world and could not survive one; spin the shaft at working speed and you would sear it off in an hour. It needs exactly this: one turn every four or five seconds, forever, the slowest engine ever to run, running on it.
+
+And it reaches further than the bearing. Look again at the floor — at the way your silt-cloud settled back *exactly* where it was, the way the ripples repaired themselves behind you, the way there are no tracks here, not even old ones, not even yours by tomorrow. The top half-millimeter of the sediment is webbed through with the creature's thinnest expression: a lace of threads, barely alive, barely anything, that binds the silt grains to one another and draws each disturbance slowly flat. The basin's eerie tidiness is not the absence of events. It is housekeeping. The emptiness that struck you as deliberate-seeming is, in the faintest possible sense, deliberate: the floor-film starves out whatever drifting spore or larva might try to settle in the open, and the weed stands only where the film thins over hard rock and grants an exemption. The museum light falls on a museum because something keeps it one.
+
+Is it aware? That is the wrong shape of question. It has no nerves, no center, nothing that could hold an image of the place it maintains. But it has a pulse, and the pulse is the *whum… whum… whum…* you felt in your chest on the way down — the sound is not the machine's, or not only the machine's; it is the working rhythm of the only living thing in the basin doing the only thing it does. It has, if not preferences, then a single enacted insistence: *constancy*. Every revolution is a vote for the next one. It has cast that vote, without missing, for longer than anyone has known the basin existed.
+
+Some year — next century, next millennium, when the seep through the eastern rim finally silts closed or shifts a hand's width and misses the blades — the ration will thin, the wheel will slow, the interval between gleams will stretch from five seconds to six to a minute to never. The ring in the bearing will not die in any way you could watch. It will do what the rest of it did long ago on the boulders: slow, harden, conclude, and join the finished part of itself. The basin will lose its sound and gain one more grey stone, this one with a circular face and a radial seam.
+
+But the creature does not wait for that, because it does not wait. Waiting requires a future, and it keeps no future — only the turn it is in, and the turn after, delivered like the last one, cold and iron-flavored and exactly on time.
+
+You hover at the rim and watch the flywheel catch the light. A brief gleam, gone. A brief gleam, gone. *Keeping time for no one,* you thought on the way down.
+
+Wrong by one.

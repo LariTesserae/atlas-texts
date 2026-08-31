@@ -1,0 +1,33 @@
+What lives here is a single creature, and it is not yet finished.
+
+You can call it the Wallswarmer, because nothing better has yet been uttered, but the name is wrong almost before it arrives. It is wrong the way a child's drawing of a house is wrong — not because it misrepresents, but because it is a portrait of something still in the act of becoming the thing it will one day be misrepresented as. The name belongs to a later species. This is the earlier one. This is the draft.
+
+It begins — and one must say *begins*, because it is not wrong to say it begins and is not yet wrong to say it continues — it begins as a temperature. As a gradient. As the slow accumulation of warmth in a place where warmth has nowhere to go. The basalt holds it. The basalt is patient with it. The basalt has been holding heat since before the question of what to do with it was asked, and now, in this long tear, the heat is being asked.
+
+What answers is chemistry.
+
+The cream-colored veined crust on the floor is not lichen. It is not fungal. It is the first negotiation between two chemistries that have not previously had a reason to meet — mineral-rich runoff from the weeping walls, and the first spores of something that drifted in on a draft from somewhere above. The crust does not photosynthesize. There is no light to photosynthesize with, not yet, not down here. It chemosynthesizes. It eats the rock. It eats the runoff. It eats the heat. It spreads with the slowness of a thing that has all the time it will ever have, and is, in this place, in no particular hurry.
+
+From the crust, the rest.
+
+The things with too many legs are not yet species. They are drafts. Each one is slightly different from its neighbor — a segment longer here, a leg angled differently there. They feed on the crust and on each other, and from this feeding they are being sorted, slowly, by a patience that does not belong to any of them. The largest are the slowest. The smallest are the fastest. The middle are uncertain. They are all pale because pigment is a luxury for things that live where light is rumor. They are all eyeless because eyes would cost them something they cannot yet spare. They breathe through their legs, or their undersides, or through some surface that has not specialized yet, and when they die — and they die quickly, because they are drafts — their bodies feed the crust that fed them, and the cycle tightens another half-turn.
+
+Beneath them, the grubs. These are older. They are not yet the grubs of anything; they are simply the grubs, the way a river is simply the river before anyone has named it. They are the digestive layer of the place. They take what the upper things cannot use and they make it into something the upper things can use, and they do this by being patient, by being soft, by being very nearly nothing. They are pale and enormous and they have no opinions about the walls because they do not have opinions about anything. They are the soil of a city that does not yet know it is a city. They are the dark beneath the floor.
+
+The flying things — call them duskflies, or do not — these are the most recent draft. They are the creatures that have decided, or have been decided, that the cave's resources are not only on the surfaces. They go up. They go into the air. They go into the columns. They live, briefly, where the light sometimes touches them, and they bring back to the floor a thin drizzle of their dead, and a thicker drizzle of the silken threads they trail behind them, and these threads — *this* is the important part — these threads are the first material the place has made that is not stone and is not the place's own body. They are the first export. They are the first sentence.
+
+And the thing in the niche, with the threads, with the bone hammers, with the obsidian blades knapped by something that learned without watching — this is the strangest draft of all, and it is not yet a species, and it is not yet a culture, and it is not yet a maker. It is something else.
+
+It is the Wallswarmer.
+
+It is the draft of a maker, being made, by the place, for the place, out of the threads and the bone and the grubs and the patience of the swarms. It walks among the swarms because it is one of them. It eats what they eat. It breathes what they breathe. But it is not yet finished becoming the thing it will be, and so it does what unfinished things do: it practices. It stacks basalt. It shapes obsidian. It polishes stones and places them in niches and twists cords from threads that its own kind produced, and it does not know why it is doing any of this. It does not know what a wall is for. It does not know what a blade is for. It does not know what a niche is for, except that something in it, some part of it that is older than the part that is walking around, knows that these things should exist, and so it makes them, and it watches itself make them, and it is confused.
+
+It is the first confused thing in the cave.
+
+Everything else is patient. The grubs are patient. The crust is patient. The swarms are patient. Only the Wallswarmer is confused, because only the Wallswarmer has begun to want, and it does not yet know what it wants, and so it works. It makes marks because making marks is the shape of wanting before wanting knows what it wants. It builds walls in the middle of the swarms because walls are the shape of a self before the self knows it has a self. It works the larger pale things into the lower courses of its walls — alive, or recently so — because it does not yet distinguish between itself and what is not itself, and this will be its great project, in the long centuries to come, this learning of the difference, and the cost of the learning will be the walls, and the cost of the walls will be the swarms, and the cost of the swarms will be the crust, and the cost of the crust will be the heat, which is the only thing the place cannot afford to lose, and so the project will fail, eventually, and the place will cool, and the drafts will firm into species, and the Wallswarmer will become something else, something with a name, something that no longer lives in a place that is being made around it.
+
+But that is later. That is a long time from now.
+
+Right now, the walls are digesting. The light falls in dusty shafts and gilds the swarms briefly and drops them back into the warm dark. The stone in the niche is polished smooth by a hand that does not know it is a hand. The obsidian blade is patient and wrong. The grubs do not stir. The crust does not move. The heat does not leave.
+
+And the thing that is not yet finished being a maker goes on making, in a place that is not yet finished being a world, in a process that is not yet finished being alive.

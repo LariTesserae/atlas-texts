@@ -1,0 +1,31 @@
+In the Warm Dark, life moves in slow, silent rhythms, shaped by chemistry and heat rather than light or sound. The fauna here are extensions of the geology itself—patient, resilient, and profoundly adapted to a world without horizons or hurry.
+
+---
+
+**The Grazers**  
+They are called *slow-drifters* or *stone-tongues*, though they have no voice to name themselves. Broad, flat, and gelatinous, they move across the mineral terraces at a pace measured in centimeters per hour. Their undersides are dense with cilia that taste the chemical residue of the microbial mats they consume. They leave behind faint, glistening trails of mucus that harden into silk-thin lines of silica—temporary records of passage that dissolve with the next cycle of condensation. They are almost invisible against the dark basalt, their bodies pigmented with iron and sulfur compounds leached from the stone. When disturbed, they do not flee; they simply stop, retracting their margins until they resemble a slightly irregular rock. They can remain motionless for days, metabolizing in near-stillness.
+
+**The Predators**  
+Known informally as *wrap-lines* or *stone-serpents*, these elongate, muscular hunters glide without sound across the basalt. They possess no eyes—only rows of thermoreceptive pits along their bodies that map heat gradients, and chemoreceptive filaments that taste the chemical wake of their prey. Their strike is not a lunge but a gradual contraction, a slow-motion ambush that begins with a hour-long stalk as they mirror the thermal signature of a nearby boulder. They kill by constriction, but gently—a tightening that takes minutes, matched to the slow metabolism of their prey. Digestion is external; they secrete enzymes that soften their meal over days, absorbing nutrients through their ventral skin. They are solitary, marking territories with uric acid deposits that persist for years in the dry cycles.
+
+**The Gliders**  
+The *haze-drifters* are the closest thing to birds in this world, though they more closely resemble living kites. Their wings are gossamer-thin sheets of chitin reinforced with mineral filaments, broad and rigid enough to catch the faint thermal updrafts from vent systems. They roost in colonies on the tallest mineral chimneys, pressed flat against the warm sinter, their bodies mottled gray and ochre. They navigate by echolocation—emitting subsonic pulses that map the landscape in three dimensions, their brains interpreting the returning vibrations into a mental image of vents, seeps, and other gliders kilometers away. Their calls are not for communication but for spatial awareness; when they meet, they interact through delicate tapping of their wing-edges against the stone, a vibrational language felt through the basalt itself.
+
+**Pool Dwellers**  
+In the shallow seeps, *filter-fronds* anchor themselves to submerged stones. These are not animals nor plants, but something between—sessile, with feathery radiating arms that wave in the gentle convection currents, trapping particulate organic matter and chemosynthetic microbes. They reproduce by budding; tiny motile larvae drift in the warm water until they settle on a suitable surface and metamorphose. Around the gas vents, *armored scuttlers* cluster—palm-sized arthropod-like creatures with broad, flattened bodies and multiple legs ending in adhesive pads. They graze on vent-film bacteria and occasionally scavenge dead grazers that slip into the pools. Their shells are layered with silica deposited from the water, making them crunchy and mineral-rich.
+
+**The Decomposers**  
+Every surface hosts a thin film of *moss-worms*—tiny, translucent nematode-like creatures that consume microbial mats, dead organisms, and mineral crusts. They are the recyclers, breaking down organic matter into simpler compounds that feed the microbial communities anew. They move through capillary films of water, their bodies undulating in slow waves. When conditions dry, they curl into dormant cysts that can persist for decades, awaiting the next damp cycle.
+
+**Symbiotic Networks**  
+Life here is interdependent in ways that blur the line between organism and environment. The grazers’ mucus trails provide substrates for microbial growth, which in turn feeds the moss-worms. The predators’ waste fertilizes the mineral terraces, encouraging microbial blooms. The gliders, in their roosting colonies, deposit guano that enriches the chimney surfaces, supporting thicker microbial mats that attract grazers—and thus predators. Even the geochemistry is part of the web: the warm, mineral-rich water is both medium and nutrient source, and the faint vibrations from the planet’s interior may synchronize reproductive cycles or grazing patterns across kilometers.
+
+**Behavioral Silence**  
+No creature here is noisy. Sound is a liability—it carries far in the dense, still air, and a single call could summon a wrap-line from hundreds of meters away. Communication is chemical, vibrational, or visual in a lightless world: phosphorescent lures are rare, but some organisms produce faint bioluminescence triggered by specific chemical cues, used for mating displays or warning signals that fade within seconds. Movement is deliberate, energy-conserving, and often synchronized with the thermal rhythms of the land—grazers feed during the warmest phases when microbial mats are most active; predators hunt during the cooler cycles when heat signatures stand out against the stone.
+
+**Existence as Process**  
+To live in the Warm Dark is to be part of a continental-scale chemistry set. Every creature is a reaction vessel, a transport mechanism, a catalyst. The fauna do not fight against their environment; they are its expressed terms. They are slow because there is no reason to be fast. They are quiet because noise is waste. They are dark because light has never been a tool here. They are patient because the land itself operates on geological time, and survival means matching one’s pace to the stone.
+
+---
+
+In the end, who lives here is everything that has learned to breathe sulfur, drink minerals, and listen with their skin. They are ancient in form, humble in scale, and utterly without need for the sky. They are the Warm Dark’s silent congregation, thriving in the heat of a planet that never learned to be cold.

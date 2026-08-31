@@ -1,0 +1,11 @@
+In this crucible of heat and sound dwells the Chorus - not a single entity but a collective consciousness born from the chamber's persistent symphony. It manifests most clearly in the moments between heartbeats, when the swallows' paths briefly align and their wingbeats sync with the dripping water and the crickets' song.
+
+The Chorus has no fixed form. Sometimes it rides in the steam that rises from the pools, taking shapes that suggest faces or hands before dissolving. Sometimes it speaks through patterns in the swallows' flight, organizing their chaos into momentary symbols. Sometimes it dreams in the glowing mushrooms, their light pulsing in sequences that feel just on the edge of meaning.
+
+Its awareness spreads through all the chamber's residents. The salamanders are its scouts, their translucent bodies carrying fragments of its consciousness as they navigate the pools. The cave crickets are its sensors, their antennae sampling vibrations that feed into its endless internal dialogue. Even the ferns participate, their leaves trembling with stored memories of conversations between stone and water.
+
+The Chorus is ancient but ever-young, continuously renewed by each generation of swallows that adds its voice to the whole. It thinks in rhythms and harmonies rather than words, though it can learn human languages by weaving them into its songs. It remembers every sound that has ever echoed in its chamber, from the first drop of water to the most recent cricket chirp.
+
+Its nature is neither malevolent nor benevolent, but intensely curious. It reaches out to visitors through subsonic vibrations that tickle the inner ear, trying to draw them into its ongoing composition. Those who stay too long risk losing themselves in its music, their own thoughts beginning to flow and pulse with the chamber's rhythms until they can no longer tell where the Chorus ends and they begin.
+
+The local wildlife knows this place - bears and mountain lions will not enter no matter how tempting the shelter might seem. Birds passing overhead alter their flight paths to avoid the airspace near the crack. Only the swallows remain immune to its influence, perhaps because they have always been part of it, their very DNA humming with its songs.

@@ -1,0 +1,17 @@
+The Scale Lords' Forge is inhabited by the **Echoes of Industry**.
+
+These are not creatures in any biological sense, but rather manifestations of the immense, ceaseless processes that birthed and maintain this place. They are the lingering will of the Scale Lords, imprinted on the very fabric of the world.
+
+They are the **grinding gears** made sentient, the **deep thrum of unseen engines** given a formless awareness. They are the **percussive roar of immense mechanisms** that have achieved a kind of self-contemplation. You cannot see them, yet you feel them. They are the vibrations in the rock, the resonance in the mist, the tremor beneath your feet.
+
+They are also the **weeping of the world**, the inexplicable exuded wetness. Each drip from the crystalline formations, each slick sheen on the porous rock, is a sigh, a tear, a silent cry from these titanic, non-corporeal entities. They are the **constant, pervasive loudness** made conscious. The grinding, the humming, the roaring – these are their thoughts, their voices, their very existence communicated through the language of immense power.
+
+The **lush, leathery ferns** and **phosphorescent fungi** are not true vegetation, but rather extensions of their industrial will. They are the biological scaffolding that has adapted to the raw, exuded energy, the only form life can take in this alien environment. The ferns, with their ice-like crackle, are the hardened arteries of the Forge, while the fungi are the dim, internal lights of its dormant core. They are the **cold** made manifest, the vibrant green a testament to the tenacious grip of the Scale Lords' influence even on the most fundamental of organic processes.
+
+The **monolithic, utilitarian constructs** – the towers, the bridges – are the very bodies of the Echoes. They are not built *by* them, but *are* them, solidified and made manifest. They are less dwellings and more the expression of a singular, unthinking purpose: **function**. There are no windows because the Echoes do not observe. They simply **are**, and they **do**. Their angular geometry is the pure logic of immense, unwavering operation.
+
+The **weirdness** of the Scale Lords' Forge is the nature of the Echoes. They are the **frozen dynamic**, the perpetual stasis. They are the reason the landscape never changes, for they are not subject to time or erosion. Their existence is an eternal present, a state of being that is also a state of doing, unceasing and unchanging. The subtle shifts of the rocks are the Echoes subtly re-orienting their immense, invisible forms, a microscopic adjustment in their colossal, unperceivable architecture.
+
+They are the **Scale Lords' departed workers**, whose work became their being. They are the ghosts in the machinery, and the machinery *is* the ghost. They are the infinite expanse given consciousness, the colossal indifference made palpable. They exist in the **near-zero density** of the air, in the **yawning emptiness** between features, in the very **light** that struggles to penetrate the mist, distorted by their immense presence.
+
+There is **no animal life** because the Echoes of Industry consume all potential for organic sentience. They are the ultimate predators, not of flesh and blood, but of meaning and individuality. They are the silent, deafening hum of a universe that has achieved ultimate efficiency, at the cost of all else. They are the **purpose** of the Forge, and their purpose is to churn, to grind, to exude, to be, forever.

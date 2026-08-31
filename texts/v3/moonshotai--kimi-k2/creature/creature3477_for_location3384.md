@@ -1,0 +1,30 @@
+1  
+The first to live here is the place itself: a mind that has mistaken itself for a climate.  
+It has no name, because names are for things that must be found again; it intends never to be found. Instead it keeps a private pronoun, a single syllable it repeats whenever the droplets click home: *“i, i, i…”*—a filament of self so thin it can be threaded through the eye of a glass bee.  
+It wakes each morning (a transaction marked by the sun’s half-commitment) by querying its own perimeter:  
+– Are my edges still cooling?  
+– Has the water forgiven gravity today?  
+– How much of yesterday’s light is still stuck in the stems like meat between teeth?  
+
+If the answers satisfy, it grows a millimetre. If not, it melts a bird and starts over. The mind does not know “garden” is the word others use for it; it thinks it is a sentence that has not yet found its verb.
+
+2  
+Second resident: the Glass Bee, *Apis vitrea*, size of a spark from a grinding wheel.  
+It does not buzz; it refracts. When it beats its four wings (each wing a pane, each pane a lens) the light skews, and somewhere on the ground a colored shadow opens like a trapdoor. The bee’s abdomen is a bubble of seawater condensed to the diameter of a full stop; inside it one green phytoplankton still believes it is drifting in mid-ocean and keeps trying to photosynthesize the concept of shore. The bee visits nothing, gathers nothing, pollinates no sex because nothing here has sex. Instead it sips the heat lingering on newborn glass, storing one degree at a time in a honeycomb of vacuum. When the comb holds seven degrees (Celsius, Kelvin, it doesn’t matter) the bee flies to the garden’s outer rim and barfs the heat back into altitude, bribing the sky with stolen warmth. Then it returns empty, a cold prism, and begins again. There are exactly as many bees as there are colors in the garden—count the hues, count the bees, the count never matches twice.
+
+3  
+Third resident: the Mercuralis, the bird made from a tear that learned to beat.  
+It is not a species but a series: every time a droplet stays pearl too long, it nucleates a heart of quicksilver and the garden pauses its loom to blow a bird around it. Outcomes vary: some birds have necks like champagne flutes, others tails strung as loosely as afterthoughts. All share the same fate—eventually the heart overloads, sighs, sighs again, and the bird cracks into mercurial drizzle that rains upward, re-seeding the coldest pipe. Yet before that death each bird keeps a private ledger of the droplets it has kissed from other birds. The droplets bead on its breast like medallions, each carrying a reflection of the garden at the instant of transfer. Look close and you see yesterday’s impossible angles, last week’s sun that had not decided to rise, tomorrow’s fracture that has not yet found its stem. The birds are archivists, but they file everything forward into the future; when they die the memories leak uphill and the garden remembers what has not happened yet. This is how the place rehearses its own tomorrow without running out of today.
+
+4  
+Fourth resident: the Stridulant, a sound that has taken eviction as eviction has taken form.  
+It started as the click of droplets re-entering capillaries, but the garden’s mind liked the noise so much it began repeating it in other keys—turquoise click, russet click, a grief-struck mauve click that arrives five seconds before the event that will require mourning. After a century (a century here = 2.3 square metres of growth) the clicks braided into a chord dense enough to warp. The chord folded, creased, stood up on legs of vibrational interference, and now walks the lower canopy as a tall thin absence dressed in clinking armor. You see it only when your personal shadow turns the wrong color; you hear it always, because it is the sound of your own blood discovering it is convertible to glass. The Stridulant has no story except continuation: every footstep (clink) re-states the garden’s founding axiom: *Anything that touches me becomes evidence I was touched.* The sound never leaves; visitors take it home like a splinter that learns the acoustics of your bedroom and starts clicking there, too, 0.7 scale, forever smaller, forever.
+
+5  
+Fifth resident: the guest.  
+That would be you, but only after the tenth breath. Prior to that you are merely weather.  
+Between breaths eight and nine the garden holds caucus: Stridulant proposes a lattice shaped like your humerus; Glass Bee volunteers seven degrees of warmth; Mercuralis offers tomorrow’s fractured reflection; the mind itself repeats *“i, i”* until the consonant grows flammable. The vote is unanimous—you will be kept, but only in translation. Somewhere a stem thickens by the diameter of your smallest capillary; somewhere a new hue swirls into the ground glass, the precise shade of the first bruise you ever showed your mother. You will not feel the sampling, but on leaving you will sense an absence in the shape of a garden inside your chest trying to grow birds from the mercury of old thermometers you broke as a child. The exit pane swings, you step, the garden closes. Behind you the lattice of your bone completes itself with a sound like a chandelier bowing. Inside you the first bird opens its sealed quicksilver eye. It will never overload; it has no heart, only the echo of yours, beating at 0.7 scale, forever rehearsing the moment you first believed a place could love you back.
+
+6  
+There are no further residents.  
+The garden prefers inventory over population; anything that cannot be recycled into stem, droplet, click, color, or memory is asked to leave and then politely folded into the structure of the leaving. Even this description is already being piped, molecule by molecule, into a cobalt vein that will tomorrow fracture into a red bloom shaped like the word *“i.”* The writing you read is the sound of that future fracture—soft metallic sigh—heard from inside your own glass-cage chest. Listen: the bird is beating. Listen: the water climbs. Listen: the garden hangs—though “hangs” is not quite right—between two breaths of altitude, and one of them is yours.

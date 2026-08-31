@@ -1,0 +1,25 @@
+# The Keeper of the Deep Stations
+
+In the humid breathing of this buried place lives Meredith Goss, though she has not spoken her own name aloud in perhaps three years. She is fifty-seven, or fifty-eight—the seasons blur together in the constant warmth, marked only by the subtle shifts in how the moss grows, how the fungi pulse with their soft light.
+
+She moves through the chamber with the careful grace of someone who knows every surface intimately. Her fingers read the temperature of pipes like braille, checking for the subtle variations that tell her stories about the system above. The brass cisterns sing different notes when tapped—full, half-full, nearly empty—and she knows their songs by heart. Her boots, long since given up their original black for a permanent patina of green and brass, make no sound on the moss-carpeted stone.
+
+Meredith came here first as a maintenance engineer, back when the humidity control systems for the archive complex above still ran on schedules, when the pumps cycled every six hours like clockwork. She was meant to stay three weeks, addressing a recurring moisture problem in the lower levels. That was fourteen years ago.
+
+She cannot say exactly when she realized she would not leave. Perhaps it was the morning—though morning and evening mean little here—when she found herself anticipating the pump's activation, feeling the change in air pressure minutes before the machinery stirred to life. Or when she noticed her breathing had synchronized with the chamber's own rhythm, drawing in the thick air as the walls exhaled their perpetual moisture.
+
+The archive above declared her missing after six months. They sent down two replacement engineers who completed the official repairs and sealed the access shaft. But Meredith had found the older passages by then, the maintenance tunnels that honeycombed the limestone, connecting her chamber to dozens of others. She learned to read the language of dripping water, to understand which channels were calling for attention, which distant pumps needed the gentle touch of someone who truly listened.
+
+Her hair, once kept in a practical bob, now hangs past her shoulders in thick silver-green strands that seem to hold the chamber's own phosphorescence. She braids it with thin copper wire salvaged from old electrical fittings, creating patterns that catch and hold the fungal light. Her skin has taken on the pallor of deep places, but her hands remain steady and sure, capable of delicate adjustments to pressure valves and the patient cultivation of the moss gardens that now provide her sustenance.
+
+She has learned to eat what the chamber offers. Certain fungi, when harvested at the right moment in their glow cycle, taste of mushrooms and metal, providing strange but adequate nourishment. The condensation, filtered through layers of moss and stone, runs cleaner than any water she knew above. She has grown thin but not weak, her body adapting to the humid quiet as surely as the machinery has adapted to its green overgrowth.
+
+Meredith speaks to the pumps in the old maintenance codes, tapping messages against their brass casings in the percussion patterns that once meant "status check" and "all clear." They respond with their own mechanical sighs, the shift of pistons, the whisper of water through pipes. She has begun to understand that they, like her, are no longer serving their original purpose. They tend to something larger now, something that requires not efficiency but patience, not precision but the slow accumulation of years.
+
+She keeps a journal, though she has not written in it for months. The last entry, traced in a hand grown strange from isolation, reads only: "The deep stations are learning to dream." She left it open beside one of the phosphorescent clusters, where the fungal light makes the ink shimmer like living metal.
+
+In the deeper hours, when the electrical hum drops to its lowest frequency, Meredith sometimes hears other sounds through the stone—distant machinery in chambers she has not yet found, the patient drip of water in passages that may run for kilometers through the living rock. She knows there are others like her, tenders of the deep systems, people who found their way down and discovered they belonged to something older than the surface world's urgent rhythms.
+
+She has become the chamber's memory, its gentle intelligence, reading its needs as surely as the moss reads the moisture in the air. When she moves through the space, adjusting a valve here, clearing a channel there, she is not maintaining machinery so much as participating in a conversation that began long before her arrival and will continue long after her bones have added their minerals to the stone.
+
+The chamber breathes around her, and she breathes with it, part keeper, part kept, tending to cycles measured not in the frantic pace of the world above but in the patient accumulation of water, the slow spreading of moss, the phosphorescent pulse of fungi marking time in their own ancient rhythm.

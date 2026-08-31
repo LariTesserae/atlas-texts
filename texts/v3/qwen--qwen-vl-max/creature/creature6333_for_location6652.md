@@ -1,0 +1,37 @@
+They are not people, not exactly. They are not *human*. They are not *of* the surface world, nor of the sky, nor of any known lineage. Yet they *are*.  
+
+They are the **Breath-Keepers** — or perhaps they are *the breath itself*, given form, given time, given memory.  
+
+Their bodies are not bones and flesh as we know them. They are **soft, dense, and slow**, built like wet bark layered over something older, older than growth, older than time. They grow, but not like trees. They *thicken*. Their limbs are not limbs, but **stems** — not jointed, not hinged, but curved in ways that suggest motion without movement, like roots that remember how to bend toward warmth. Their skin is translucent, veined with slow blood, not red but *amber*, like sap that has been heated and held for centuries. Beneath it, pulsing with a rhythm slower than the heart, are **lenticular organs** that absorb light, not to see, but to *feel* — to know where the water is rising, where the land is shifting, where the mycelium is signaling.  
+
+They walk without haste. Not because they are tired, but because **time moves differently here**. To them, a day is the expansion of a leaf. A year is the growth of a root across a crevice. A lifetime — if such a thing exists — is the maturing of a hollow mushroom into a shelter, and then the slow return to soil. They do not age in the way we do. They **unravel**, or rather, they **re-configure**. Cells do not die; they dissolve and re-form into new structures. An old hand may fall away, not in decay, but in a soft shedding, like moss sloughing from a rock. A new one grows back, thicker, less smooth, with more layers — not stronger, but *better* — more in tune with the cold, more in sync with the water's pull.  
+
+They are taller than humans by a few inches, but their mass makes them feel heavier. They move **like water in clay** — not fluid, not rigid, but a slow, inevitable flow. Their shoulders are broad and rounded, not for strength, but for balance in the uneven, yielding ground. Their heads are low, not in submission, but in **attention** — their vision is not for the sky, but for the ground, for the shimmer, for the faint glow of the bioluminescent root networks. Their eyes are small, dark, and deep — not round, but **oval, like polished river stones**, and they do not reflect light. That is important. Light does not bounce off them — it *passes through*, dimmed, bent, like a lantern seen through wet glass. They see not in color, but in **intensity**: a bloom of algae is a signal, a slow rise in pressure a warning, a ripple in the air a message from the land.  
+
+No one calls them by name. They do not name themselves. They call each other by **scent** — not like animals, but by resonance. A person is known by the tone of their breath, by the warmth they exude, by the specific vibration they emit when walking. When one touches another, it is not with hand and hand, but with fingertip to stem, and they **listen** — not with ears, but with the skin, with the nerves embedded in the soft bark-like tissue. They can “hear” each other’s emotional state — not as emotion, but as **tension in the water**, as **shifts in internal light**. A person who is afraid emits low pulses, like a root tightening. One who is joyful breathes in slow, deep cycles, spreading warmth throughout their form.  
+
+They do not speak. Or if they do, it is not speech — it is **resonance**. They emit tones, low and vibrating, that travel not through air, but through the earth, through the water, through the mycelial net. A note sent from one Breath-keeper will travel in the roots of the forest, passing through the living city, and arrive in the spine of another, not as language, but as *intention*. It is not words. It is **weight**. **Presence**. **A feeling of movement**. They live in **a state of continuous communication**, not with sound, but with **being**.  
+
+They build — but not with hands. They *encourage*. They guide. A new dwelling is not built; it is **allowed**. A cluster of fungi will begin to grow in a certain pattern, forming a shape — a dome, a cavity — and the Breath-keepers will tend to it. They feed it with liquid nutrients, they warm it with gentle breath, they guide its growth with pressure and pulse. The structure does not become a shelter until it **wants to be** — until it feels the land, feels the water, feels the people, and *opens*.  
+
+They do not have families in the human sense. They do not marry. They do not have children. But they **grow together**. A pair — two beings — may choose to **merge**, not in body, but in **structure**. Their roots will interwind, their stems will thicken, their internal light will align into a single, deeper glow. They become not one, but **two as one**, not fused, but *woven*. They are no longer separate, but they are not joined. They are **a unit**, like twin roots feeding the same soil. When one dies — or rather, when one unravels — the other does not grieve. It **recalls**. It remembers the warmth, the rhythm, the breath. The memory stays in the living body, not as sorrow, but as **texture**. A new stem might grow in the place where the other stood, and it will vibrate with a different tone, a different warmth.  
+
+They do not eat. Or not in the way we do. They do not chew, they do not digest. They **absorb**. They draw nutrients from the air — the water vapor, the spores, the bacteria — through their skin, through their roots. They drink not from cups, but from the surface of a pool, with the back of their hand. They do not sip — they **soak**. Their mouths, when they open, are not for eating, but for **releasing** — a slow expulsion of breath, a release of heat, a pulse of light. They emit **waste not as excrement, but as spores** — tiny, glowing seeds that drift into the forest, not to destroy, but to **become**. A child is not born. A new life is **grown**. It sprouts from wet soil, or from the base of a parent’s stem, not as a child, but as a **new form** — a smaller, simpler version, still growing, still becoming. It is not raised. It is **tended**. It is guided. It is not taught, but **resonated with**. It learns by listening to the land, to the breath, to the silence.  
+
+They are not lonely. Not because they are in a group, but because **they are never alone**. The land breathes. The water seeps. The roots talk. The mycelium hums. They are **part of the hum**. To stop listening is to die. To stop breathing is to unravel.  
+
+Their purpose is not to survive. It is to **be**. To exist in the breath. To grow. To wait. To feel the slow shift of the world beneath them.  
+
+They do not know what lies beyond the cracks in the earth — not in the physical sense. They do not care. They are rooted. They are bound. They are **the body of the valley**.  
+
+And when a great storm comes — not of wind, but of pressure, of the land grinding against itself — they do not flee. They do not fight. They **settle**. Their stems deepen. Their roots tighten. Their glow dims, not from fear, but from **synchronization**. They become still. They become **like stone**, yet alive. They wait. And when the world settles again, they rise, slowly, gently — not stronger, but *closer*. Closer to the water. Closer to the warmth. Closer to the breath.
+
+They are not people.
+
+They are **the breath of the world beneath**.
+
+And the world breathes.  
+
+And they breathe with it.  
+
+And so they are.

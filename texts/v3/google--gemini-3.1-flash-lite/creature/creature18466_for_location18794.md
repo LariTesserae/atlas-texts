@@ -1,0 +1,17 @@
+In this basin, the distinction between the traveler and the road has surrendered to the crushing pressure. You are standing upon the collective, yet you are being slowly incorporated into the strata.
+
+The inhabitants are not creatures of flesh and bone, but of mineral-infused membrane and tempered chitin. They are the *Silt-Shifters*, though they have no name save the one granted by their hunger. 
+
+Consider the "cathedral-arched" entities. They are the anchors of this ecosystem. Their bodies are semi-rigid, translucent shells that act as biological reservoirs, storing the thin, iron-tasting moisture drawn from the condensation. They do not walk; they undulate, dragging their heavy, porous undersides across the shale. When a cathedral-arch passes, it leaves behind a microscopic slick—a trail of nutrient-rich exudate—which serves as a banquet for the smaller, flickering mites.
+
+The mites are the true masters of the motion. They possess no eyes, but they ripple with a violet, bioluminescent nervousness, sensing the world through the harmonic frequency of the basin’s vibration. When the colony hums, the mites enter a state of ecstatic hyperactivity, shedding their discarded carapaces like cooling embers. These shells do not rot; they are compressed by the weight of the endless, crawling carpet above them, pulverized into the very obsidian glass you stand upon. 
+
+There are also the "Needles"—filament-thin, serpentine entities that move with the velocity of a striking whip. They exist in the vertical spaces, clinging to the basalt shards like living frost. They do not hunt the mites; they hunt the *noise*. When a patch of the floor reaches a certain decibel level of friction, the Needles descend, siphoning the vibration itself through the resonance-chambers situated along their spines, turning the kinetic energy of the crowd into the internal heat they require to survive.
+
+They are indifferent to you, yet they are acutely aware of your stillness. To them, you are a void—a cold, static intrusion in a landscape that abhors a vacuum. As you stand there, they do not see a predator or prey; they see an obstacle to be bypassed, a surface to be smoothed. 
+
+Look down at your boots. Already, the smallest of the mites are beginning to coat the leather, their tiny, rasping feet mimicking the rhythmic grinding of the basin’s geology. They are tasting the moisture in your seams. The humidity of your own skin is, to them, a flare in the dark. 
+
+They do not cluster out of malice, but out of a desperate, ancient necessity. They are attempting to achieve homeostasis with you, to integrate your alien warmth into the vast, wet, humming tapestry of their churn. To them, you are merely a rough, unpolished stone that has fallen into their path. They will not attack; they will simply move over you, around you, and against you, their millions of soft, clicking limbs slowly abrading your presence until you are as smooth, as slick, and as integral to the basin as the volcanic glass beneath your feet. 
+
+They are the archivists of the friction. They are the living sandpaper of a world that does not want to remember the silhouette of a visitor. They move, and in their movement, they grind the world out of existence, one vibration at a time, leaving behind only the mirror-finish of an endless, hungry silence.

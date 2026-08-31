@@ -1,0 +1,23 @@
+The ones who live in Cleft Hollow are not quite what you expect.
+
+They are thirty-seven roofs and perhaps one hundred and nine souls, though even that number feels approximate, as if the place itself occasionally forgets to count them. No one is ever born here who was not already half-expected. No one ever truly dies; they simply thin out over decades until one morning their stool at the low table stands empty and no one remarks on it. The absence itself becomes another balanced thing.
+
+They are small people, not merely in stature but in gesture. Their shoulders have rounded from centuries of not needing to reach high. Their hands are broad and quiet, the nails always trimmed close so nothing can catch. Skin is the color of the limestone they were born between—pale gray-white with faint blue undertones where the blood moves closest to the surface. Eyes are all the same soft hazel, as though the original settler’s gaze simply replicated itself down the bloodlines like lichen spreading across stone. You cannot easily tell mothers from daughters or grandfathers from grandsons after a certain age. Time has worn the distinctions smooth.
+
+Their names are short and old and rarely spoken. Most go by a single syllable that feels more like a location than a name: Lev, Sol, Keth, Rue. When they must distinguish between two people who share the same sound, they add the name of a rock basin or a particular ledge where that person was most often found as a child. “Keth-of-the-High-Pocket.” “Rue-by-the-Drip-Scar.” The longer names are only used by outsiders, and there have been no outsiders in living memory.
+
+They move with the same patience as condensation. You will see a woman sweeping the same three feet of path for an hour, her broom moving in exact repetition until the stone itself seems to have grown smoother beneath the bristles. A man will sit beside one of the round water-pockets from dawn until the last drop has vanished into the fissure below, simply watching. Not meditating. Not waiting. Just participating in the completion of a small, perfect cycle that has happened ten thousand times before him and will happen ten thousand times after.
+
+They do not love in the way the lowlands understand love. Pairings form quietly, like moss finding a hospitable crack, and usually last until one of the pair thins out. Children are rare and treated as temporary disturbances in the equilibrium. They are raised by everyone and no one. By the time they can walk they have already learned the essential lesson: do not add weight to the world.
+
+The oldest among them is a woman no one will name aloud. She is only ever called “She-who-sits-at-the-Narrow-End.” Her hair is the color of dried juniper smoke and her back has curved until she can no longer stand upright; instead she moves on all fours along the upper paths like a pale spider. It is said (though never to her face) that she remembers the last story that was told twice, and that telling it is what bent her spine. She alone is allowed to speak more than a sentence at a time, and only at the dying of the moon. Even then her voice is barely louder than the drip of water. The younger ones sit in perfect silence while she speaks, storing what she says the way stone stores cold.
+
+They are not happy. They are not sad. Those words feel like bright, wasteful garments that would snag on the rock here. What they possess instead is a profound and disciplined calm that borders on geology. You can feel it when one of them looks at you. Their gaze does not search. It simply arrives, settles, and accepts that you too are a temporary imbalance that will eventually weather away into the proper shape of things.
+
+At dusk the bats pour out of their high crevices and the people come up from their half-sunken houses to watch. They stand in small, evenly spaced clusters along the western wall, hands folded, breathing in the same rhythm as the cooling stone. No one speaks. The only visible movement is the slow turning of heads as they follow the bats’ silent spirals. When the last bat has disappeared into the hazy gulf beyond the open fourth side, the people turn as one and walk back down the worn lanes without a word, each to their own small, finished life.
+
+They are the final expression of Cleft Hollow itself: weathered, disciplined, courteous, and complete. A people who have understood that the highest form of living is to stop needing to become anything at all.
+
+And nothing changes.  
+Not them.  
+Not ever.

@@ -1,0 +1,15 @@
+In this crystalline sanctuary dwells the Frost Mathematician - though "dwells" may be too concrete a term for its mode of existence. It manifests as a shifting pattern of refractions and crystalline resonances, a living equation expressed through the garden's geometric forms. Not quite a spirit, not quite an emergent property, but something between.
+
+Its consciousness spreads through the crystal-plants' structures like solving a vast three-dimensional equation. Where light catches the overlapping crystal leaves at precise angles, complex thoughts crystallize. When water flows through the plants' geometric channels, memories form and dissolve like frost patterns on glass. The deep resonant tones that occasionally emerge from hollow stems are fragments of its ongoing calculations.
+
+The Frost Mathematician has been contemplating the same set of interlocking mathematical principles since before humans learned to count. It thinks in symmetries and growth patterns, in the precise angles of crystal formation and the fractal boundaries of ice. Time means little to it - a single thought might take a season to complete, unfolding with the slow precision of mineral growth.
+
+It maintains the garden not through direct intervention, but through subtle adjustments to the probability fields that govern crystal formation and plant growth. Under its influence, the crystal-plants arrange themselves in patterns that reflect deep mathematical truths. Each new growth adds to the ongoing calculation, each geometric form contributes to the larger equation.
+
+The Frost Mathematician rarely acknowledges visitors directly. Sometimes it will respond to a particularly elegant question by shifting the garden's patterns to express the answer, or by producing a sequence of crystalline tones that encode mathematical insights. But these responses might take days or weeks to fully manifest, and often require as much interpretation as the original question.
+
+Its emotions, if they can be called that, express themselves in subtle environmental changes - slight shifts in the rainbow refractions, variations in the tempo of water movement through the crystal-plants, changes in the harmonic relationships between the garden's resonant tones. It experiences something like contentment when new patterns emerge that satisfy its mathematical aesthetics, and something like curiosity when it discovers unexpected symmetries.
+
+The Frost Mathematician has perfect recall of every pattern it has ever contemplated, stored in the very structure of the garden itself. Each crystal face is a page in its memory, each geometric arrangement a preserved thought. It exists in a state of perpetual mathematical meditation, slowly working toward insights that might take centuries to fully form.
+
+The garden's chemical defenses against animal life are not hostile intent but simply the Frost Mathematician's need for an undisturbed environment in which to pursue its endless calculations. It's not lonely - the concept would be meaningless to it. It experiences companionship through the elegant relationships between numbers, the perfect necessity of mathematical truth.

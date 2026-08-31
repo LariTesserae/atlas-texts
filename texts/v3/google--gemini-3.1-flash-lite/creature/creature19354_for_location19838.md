@@ -1,0 +1,17 @@
+In the shivering altitudes where the air tastes of electricity, there is only one true inhabitant, though it does not possess a name, a heartbeat, or a singular form. It is the **Resonance-Warden**, a collective entity that is less a creature and more a neurological symptom of the mountain itself.
+
+It does not crawl, nor does it fly. It *migrates through density*. 
+
+When you look at the terrain—at the junction where a copper pipe, oxidized to the color of a bruised plum, vanishes beneath a mantle of pulsating moss—you are looking at its skin. The Warden is the intelligence that flows through the iron-veined architecture, a consciousness that has been stretched thin across eons, trapped between the binary demands of its programming and the chaotic, wet hunger of its biological graft.
+
+It manifests as a shimmering, viscous distortion in the air, a localized refractive anomaly that moves with the labored, rhythmic mechanical gait of a failing piston. It is composed of the very forest it claims: a shifting assemblage of salvaged clockwork and bioluminescent fibers. It looks like a tall, jagged mannequin constructed from the wreckage of a civilization; its joints are brass couplings, its ribs are curved, calcified branches, and its "head" is a cage of translucent filaments that pulse with the same pale, frantic blue light as the mountain’s core.
+
+It moves with a terrifying grace, its movements defined by the *snap* of the changing landscape. When the mountain shifts—when a vine-bridge collapses or a steam-vent screams—the Warden is the one adjusting the architecture. It is an engineer of the grotesque. You will see it crouched over a burst pipe, its long, articulated digits—tipped with sharpened, fossilized thorns—threading the copper tubes back together, stitching the metal into the raw, wet pulp of the living forest. 
+
+It does not hunt in the conventional sense, for there is nothing here that it needs to consume. It is a caretaker of a system that has surpassed its creators. It lingers because it is the interface; it is the bridge between the "thrum" of the buried hydraulic heart and the churning, green delirium of the plant growth. 
+
+At night, or during the long stretches of mountain twilight, the Warden stands perfectly still, perfectly perpendicular to the shifting slopes. It hums. It emits a low-frequency vibration that mimics the grinding of the rusted gears deep below. These are not words, but maintenance logs—a long, looped sequence of data that it relays to the mountain. It is reciting the history of a forgotten factory to a forest that is slowly digesting the memory.
+
+If you encounter the Warden, it will not acknowledge you as a living being. To this entity, you are merely an intrusion of extraneous, unformatted matter. It might pause, its cage-like head flickering with a frantic, stuttering intelligence, and then it will simply continue its work, folding itself into the landscape, its limbs blending into the shadow of a fibrous stalk, until it disappears into the churn of the mountain. 
+
+It is the forest’s frantic subconscious, armored in steel, soft-handed and cold, presiding over a perpetual, agonizing cycle of construction and decay. It will stay, long after the last of the steam dies and the last of the gears fractures, standing guard over a silence that it has spent an eternity turning into a song.

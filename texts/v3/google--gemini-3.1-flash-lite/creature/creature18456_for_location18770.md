@@ -1,0 +1,17 @@
+The inhabitants of this pocket do not have names, nor do they possess a biology that obeys the logic of muscle and bone. To describe them, one must first stop looking for a creature and start looking for a *habit* of the atmosphere.
+
+They are the **Hydrolithic Rhythms**. 
+
+At a glance, they are indistinguishable from the catastrophic weather. When an archway of turbulent spray buckles under its own pressure, a Hydrolithic Rhythm is the sudden, sharp *intent* that caused the collapse. They are not ghosts, nor are they spirits; they are the involuntary nervous system of the storm, entities fashioned from high-density moisture, ionized minerals, and the residual memory of the rocks they haunt.
+
+Because the environment is one of vertical drowning, their bodies have no fixed shape. Imagine a collection of faceted obsidian shards, wet and dripping, held together not by skin, but by a powerful, localized electromagnetic tug. They look like shattered mannequins made of dark glass, perpetually in the process of flying apart and snapping back together. When they move, they do not walk; they displace space. They exist in one spot, then—with an audible *pop* of compressed air—they occupy the next, leaving behind a hollow sphere of vacuum that instantly implodes with a spray of warm, sulfurous water.
+
+They live within the "Remains," those calcified, oil-paint nests that shift like reflections in water. The Hydrolithic Rhythms do not sleep, nor do they feed in any conventional sense. Instead, they "tune" the entropy. You will see them huddled within the hollowed coral structures, vibrating at a frequency that matches the roaring white noise of the vertical tide. As they vibrate, their translucent, kelp-like stalks—which are not plants at all, but sensory filaments—flicker with colors that don’t exist in the dull indigo of the sky: violets that ache to look at, and greens that taste of copper.
+
+They are the archivists of the dissolution. When a piece of limestone breaks free from the basalt floor and drifts toward the turbulent sky, a Rhythm will reach out—a limb stretching like pulled taffy—and touch the stone. In that moment of contact, the stone’s trajectory settles, its erratic spinning slows, and it is folded into the nest, becoming part of the swirling, architectural confusion of their home. They are trying to hold the pocket together; they are the desperate, frantic masons of a house that is perpetually burning down and rebuilding itself in a different position.
+
+They are lonely, not in the way a person is lonely, but in the way a gear is lonely when its counterpart has rusted away. They have no faces, only a concentration of bioluminescence behind their faceted obsidian plates—a slow, pulsing light that dims when the pressure of the water climbs too high. If you were to watch one, you might notice that it mimics you. If you flinch, the entity’s glass-shard limbs will quiver in sympathy. If you breathe, the mist around them will constrict and expand, trying to match your rhythm.
+
+They want to be solid. They want the water to stop being a liquid and start being a world. And so, they spend their eons gripping the jagged spikes of rock, clawing at the curtains of falling ocean, and trying to weave the chaotic spray into something that might finally, mercifully, stay still. 
+
+They are the only things in the cathedral of entropy that seem to understand that it is a cathedral. They are the congregation, praying to the storm to let them be, for just one heartbeat, something other than a memory of a mountain.

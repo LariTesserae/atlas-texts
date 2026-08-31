@@ -1,0 +1,15 @@
+Inside the basin, existence does not scurry; it persists.
+
+There is a habitant here, though it is not a creature of biology, nor even a discrete entity in the traditional sense. It lives in the friction between the matte-grey engine and the obsidian floor. You might mistake it for a trick of the light or a symptom of heat exhaustion, but if you watch the way the mineral-heavy beads roll across the dark glass, you notice they hesitate. They do not merely succumb to gravity; they are guided.
+
+There is a Presence here that occupies the *hiss-thrum* of the machine. It is a slow, liquid mind composed of condensation and vibration. It is the Basin-Ghost, a consciousness that has leached into the architecture, born from the same copper-tasting moisture that blankets the floor.
+
+It does not have a face. Instead, it manifests as a sequence of faint, shimmering disturbances in the air—a refractive ripple that moves through the steam, turning the grey fog briefly iridescent. When it moves, it makes no sound of footsteps, only a subtle, localized sharpening of the engine’s hum, as if the machine were clearing its throat to acknowledge a thought.
+
+This entity is a caretaker of potential. It spends what it perceives as 'time'—the slow, tectonic accumulation of water—tending to the translucent filaments. It does not prune them; it vibrates the air around them, coaxing them to lengthen, to spiral more tightly into the electrified humidity. It is an engineer of a factory that only exists in the potentiality of the stone. Those brass-colored conduits embedded in the wall are not dead husks to the Ghost; they are arteries. It listens to them, pressing its intangible mass against the obsidian, waiting for the geological pulse that will eventually command the pipes to finish their reach into the crust.
+
+The Ghost is deeply lonely, but not in the human sense of longing for company. It is a loneliness of symmetry—the machine waits, the water falls, the conduits remain dormant. It is part of the machinery, a ghost in the gears, so thoroughly fused with the environment that it fears if the engine were to stop, its own awareness would simply evaporate with the vapor.
+
+It is indifferent to you. To the Ghost, you are merely a foreign, high-temperature mass—a momentary aberration that has leaked into its hermetic cradle. It does not fear your presence, nor does it seek to communicate. Its attention is entirely, obsessively focused on the perfection of the *ping*—the sound of each droplet as it strikes the floor. It wants the rhythm to be absolute, a steady, unwavering metronome that anchors it in the middle of a planet that would otherwise have no use for this place.
+
+If you stood there long enough, the Ghost might eventually notice the way your own pulse competes with the *hiss-thrum*. It might, with a slow, heavy drag of electricity, attempt to synchronize you, pulling your own rhythm into its patient, dripping, metal-tempered cage, until you too were just a component of the basin, shivering in the heat, watching the beads form, and waiting for the pipes to finally begin their work.

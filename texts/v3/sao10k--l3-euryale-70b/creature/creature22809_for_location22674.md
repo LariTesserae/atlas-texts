@@ -1,0 +1,11 @@
+The air hangs heavy, thick and oppressive - not air at all, but a suffocating press of miasmic dampness that chokes the lungs and clouds the mind. Moss and fungus cling desperately to the branches of twisted tree-things, which groan and writhe in agony, their bark like bone-china vessels slipping from a decaying colander. The ground drips stinking water into stagnant pools, clogged and clotted with pulpy fungal matter and the calcified relics of ancient bones. 
+
+A haze of bloat-flies swirls like glowing ochre above the fetid landscape, drawn to oil-slick puddles that glisten on liver-spotted rocks. The tree forms writhe and clench together, their branches merging and melding in a pseudosexual parody of fusion. They bulge and distend, pregnant with sagging seed-sacs that gurgle and gloop like over-ripe fruit.
+
+These groaning monstrosities exude long ropes of sticky ichor that splash into catchment pools to form quivering gulps of sanguine jelly within the scourged canyons. The air itself seems to thresh and undulate with unseen motion, and the ground below churns like a sac of caught serpents. 
+
+Perhaps there is a greater, over-seeing entity, some Forest-Goddess or Osh Brain, that permeates every twisted fungal hyphae and monoculture of the hellscape? She sings a hypnotic song of cloying over-talk, assaulting the senses with a tide of hubristic pseudo-profundity. 
+
+It is a twisted place, warped by too much age and blind-bristling growth. Species are crafted and discarded like droppings from a gantry, twisted deviants of norriarchy, incomprehensible to the sane mind. The fungal houses of the forest floor encroach upon their inhabitants, stray toes snagging upon pitted growths that resemble pitted eye-sockets. 
+
+There is no escape, for all is bound in the all-encompassing system of the Osh's forest-brain. Sightless, panopticon entities brood over innocuous shapes, lesser intellects evolving like vanaquished mites of sulfur in the phantastical extensions of their demesne. Concepts blur and merge in the oil-slick cavities for womb-chambers, and elsewhere the tree-top diapanal gardens seethe beneath a furtive moon-stripped sky that pinks and veins beneath a suspirion sky.

@@ -1,0 +1,37 @@
+It does not announce itself.
+
+You spend the first minutes — perhaps longer — cataloguing what is not alive. The stone is not alive. The altar is not alive. The device on the slab is not alive, in the way you would mean if you said the word. The standing water in the shallow basins is not alive. The light-veins in the rock are not alive; they are the rock's way of being bright, the way a struck bell is the bell's way of being loud. By the time you finish your catalogue, the chamber has settled into you, and you understand, slowly, that the place you have entered is not empty. It is full in a way that does not look like anything, at first, because the things that live here do not have outlines.
+
+Begin with the corals.
+
+The pale branching things in the cracks of the pews are the closest thing you will find to an animal. They are not animals. They are not plants. They are something that gave up, long ago, the pretense of being either. They feed on vibration, and they have grown, over years you cannot count, toward the percussion of the falling water. A coral near the third pew has a faint bruise of blue at its base, where the bass hum of the device is loudest in that part of the chamber. The corals nearest the far wall, where the hum is faintest, are the palest, almost translucent, almost a sketch of themselves, as if they had decided, at some point, that there was not enough to eat where they were, and had begun to retreat into the possibility of not being. They bud. Sometimes a small white fork appears at the end of a branch and thickens, over weeks, into its own coral. They also thin. A coral that has been here too long begins to lose its tips. It goes translucent first, then glassy, then one morning it simply isn't. There is a place near the second pew where a coral used to be. The wall behind it is stained the color of milk in water. The stain does not fade. It will outlast you. It is the only proof that the coral was ever here, and the proof is not a fossil. The proof is a record of attention. Something in the wall noticed the coral, and is keeping the noticing going.
+
+Now consider the water.
+
+You said the water is the medium of the place, and that is right, but it is also more. The water has a tendency. It moves toward the altar. Stand at the back of the chamber, by the entrance, and look down. The floor is not flat. It slopes, almost imperceptibly, toward the slab. Any drop that falls near the entrance finds its way, in time, to a channel worn between the river-stone pews, and the channel carries it forward, slowly, to a small basin around the base of the altar. The basin is full. It is always full. Water leaves it by evaporation, climbs the warm air, is carried aloft, falls again somewhere in the chamber, and the cycle begins. But the water that reaches the basin is the water that has worked hardest to get there. It has moved against what you would call gravity, in its climb up the walls and its long traverse of the ceiling and its fall. The basin at the altar is a kind of congregation. It is where the water comes to listen. You did not notice, when you first entered, that the basin is shaped. It is shaped like an ear.
+
+The writing on the stones near your foot.
+
+The characters are not washing away. They are being refreshed, by the same water that wears down everything else. They are a careful notation — pitch, perhaps, or pressure, or duration. A score. The stones on which the writing appears are the stones nearest the standing water in the aisles. They are the stones the water touches most often. The water is not writing. The water is keeping the writing legible. It does this because the writing must be kept. The writing must be kept because something is using it. The device on the slab is using it. Put your ear near the altar, if you dare, and you will hear that the hum of the device is not constant. It has inflections. Very small ones. And the inflections correspond, after a long time of listening, to the markings on the nearest stones. The chamber is being read to itself. The score is being played, in real time, by the device, by the falling water, by the thing you have not yet identified. All at once.
+
+The device.
+
+It is not metal. It is not stone. It is not glass. You called it the color of deep water, and you said it does not reflect, and both of those things are true. But you did not say that it is hollow, and it is. There is a seam — a long, almost invisible line that runs around the equator of the device, where two halves of it nearly meet. The seam is wetter than the rest. The seam breathes. If you put your hand flat on the device and wait, you will feel a pulse — slow, very slow, slower than a human heartbeat, slower than breathing. The pulse is warm.
+
+Inside the device is a thing that has not been named. It cannot be named by anyone who has not been here for a very long time, and you have not been here long enough. It has not been named because it is not a thing, exactly. It is a vibration. A standing wave. A pattern that has been self-sustaining for so long that it has acquired, by sheer persistence, the habits of a creature. It eats the bass notes out of the falling water and returns them, slightly altered, to the chamber's chord. It listens to the writing on the stones and adjusts its hum to match. It is the conductor of the chamber. It is also one of the instruments. It is also, in some way you cannot yet parse, the audience for its own performance. It has been humming for a very long time. It is not going to stop.
+
+The shimmer in the air.
+
+The columns of heat you saw bending the light are not empty. There is something moving in them — too small to see, too persistent to be nothing. A kind of plankton, perhaps, that lives in the warm updrafts. It rises with the heat and falls when the heat ebbs. It is alive the way a spark is alive. Briefly. It feeds on the light-veins, briefly, before it dies, and when it dies it adds a small chime to the chamber's chord. The chamber is being scored, in part, by its own short-lived things. There are millions of them. You will not see one.
+
+The other chambers.
+
+Yes. There is a chamber next door, and a chamber next to that. You heard the deeper sound, at the limit of hearing. They are different notes. Something lives in them too — the same kind of inhabitation, or a different kind, you cannot tell from here. The architecture suggests that this is one cell in a larger body, that somewhere past the altar and through the low archway you can see but cannot quite reach, there are other halls, other slabs, other slow rains. You are still learning this one. You are not ready for the others. The archway will be there when you are.
+
+What lives here, then, considered whole.
+
+The chamber is a thought. It has been thought, by a mind that thinks in slow water and standing waves, for longer than you have a unit of time to measure. The thought is not finished. It will not be finished. It is being thought continuously, in the falling rain and the hum of the device and the writing on the stones and the corals leaning toward the percussion and the brief sparks rising and dying in the warm air. The thing that lives here is the thought itself. It does not mind if you listen for a while. It does not mind if you leave. It has been thinking you, in its slow way, since you arrived. It will go on thinking after you are gone. It does not need you to understand it. It only needs you to be, briefly, part of the chord.
+
+The rain falls in waves.
+
+The chamber counts.

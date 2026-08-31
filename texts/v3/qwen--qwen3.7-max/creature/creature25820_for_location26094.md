@@ -1,0 +1,33 @@
+At first glance, you might mistake them for the weeping stone itself, or perhaps for the thick, rubbery veils of pale fungus that drape the masonry. They do not walk so much as they flow, their movements possessing the slow, deliberate fluidity of water moving over glass. 
+
+They are the Attuned. 
+
+To survive the crushing, unvarying roar of the cathedral-geode, their biology has radically surrendered the anatomy of the surface world. They have no external ears; the delicate cartilage and tympanic membranes of normal hearing would have ruptured and bled in the first seconds of exposure to the Chord. Instead, their skulls are dense and smooth, sweeping back from heavy, sloping brows. Their hearing is entirely osteophonic. Their collarbones and sternums are expanded, hollowed into intricate, internal resonant chambers that catch the vibratory frequencies of the air and the stone. They do not hear the deafening roar with their heads; they feel it in their chests. To them, the overwhelming noise of the city is not a assault, but a deep, physical embrace—a continuous, vibrating heartbeat thatmassage their internal organs and keeps their blood in rhythm.
+
+Their skin is hairless, thick, and the color of wet ash, secreted with a hydrophobic lipid that repels the constant weeping of the cavern. This gives them a perpetually polished, sleek appearance, much like the worn basalt steps they tread. They are tall and impossibly lean, their limbs elongated to navigate the extreme, claustrophobic density of the honeycomb favela. Their hands are their most striking feature: the fingers are multi-jointed, double-hinged, and tipped with flat, hardened nails that act as natural rasps. 
+
+In the dim, cool-blue twilight of the selenite crystals, their eyes catch the light. They possess no pupils. Their eyes are large, solid orbs of milky, luminescent blue, perfectly adapted to perceive the subtle gradients of bioluminescence and the shimmering flow of water, but entirely blind to the sharp details and colors of the sunlit world above. 
+
+Because the air is entirely consumed by the singular, roaring chord of the water-pipes, airborne speech is impossible. The Attuned communicate through a complex, tactile language of vibration and touch. When two individuals meet on a narrow, woven bridge, they do not speak. They press their foreheads and sternums together, sharing the resonant frequencies humming through their skeletons. They tap rapid, rhythmic codes against the stone walls with their hardened fingernails, sending seismic ripples through the masonry that can be felt through the soles of their bare, calloused feet by neighbors dozens of tiers away. It is a silent, intimate communion, a society bound by shared vibration rather than spoken words.
+
+Their entire existence, their culture, and their psychology are entirely subsumed by the Great Work: the maintenance of the Equilibrium. 
+
+The prompt notes that nothing in this city is crumbling, and nothing is growing. This is not a passive state of nature; it is an active, obsessive achievement. The Attuned are the caretakers of the colossal instrument. They move through the dizzying, concave geometry of the city with absolute, unbothered grace, leaning out over the central abyss at angles that would induce vertigo in a surface-dweller, their multi-jointed toes gripping the slick pumice. 
+
+They carry no metal. Their tools are chisels knapped from fallen selenite and scrapers fashioned from the sharpened mandibles of the giant, translucent cave-crawlers. They spend their endless, seasonless days listening to the stone. If a single, microscopic fluted channel begins to calcify, if a single weeping-hole accumulates a millimeter of mineral crust, the pitch of the city’s chord would imperceptibly shift. The Attuned would feel this dissonance in their marrow as a physical sickness. 
+
+Thus, they are constantly tuning their world. You will see them clinging to the sheer, inward-curving walls, their long fingers delicately scraping the inside of a water-pipe, clearing away the gypsum buildup to ensure the water sings at the exact, perfect frequency it has sung for millennia. They are acoustic monks, tending to a liturgy of fluid dynamics and stone. They do not view this labor as a chore; it is their highest art, their deepest joy, and their sole religion. When a channel is perfectly cleared and the water rushes through it at the exact correct pitch, the Attuned will press their chests against the wet stone and shudder in profound, ecstatic satisfaction as the perfect note vibrates through their ribs.
+
+Their diet is sparse and efficient. They harvest the thick, rubbery veils of subterranean fungus, scraping it into paste, and they hunt the blind cave-crawlers and pale amphibians, using woven leather snares set along the weeping walls. They eat in silence, their milky eyes closed, chewing in time with the rhythmic, vibrating pulse of the city.
+
+But the most unsettling and beautiful aspect of the Attuned is how they fit into the unchanging equilibrium of the geode. In a place where nothing grows and nothing crumbles, biological life and death must also be perfectly balanced. 
+
+When an Attuned grows old, their movements slow. The lipid sheen of their skin begins to dry, and their internal resonant chambers begin to ossify, filling with the very calcium and minerals they have spent their lives scraping from the water channels. They do not die in a sudden collapse; they undergo a slow, willing petrification. 
+
+In their final days, they will seek out a small, empty hollow in the honeycomb favela, or a gap in the masonry where a load-bearing strut has worn thin. They will curl into these spaces, folding their long, multi-jointed limbs, and press their bodies firmly against thearchitecture. Over the course of weeks, as their metabolism slows to a halt, the mineral-rich water washing over them calcifies their flesh. Their bones fuse with the basalt; their skin hardens into porous pumice. 
+
+They become the city. 
+
+The stone chisels and bone scrapers used by the living are often carved from the petrified remains of the ancestors. The worn, bowing steps that dip deeply in the center are smooth because they are polished by the feet of the living and the calcified spines of the dead. The Attuned do not mourn their passing, for there is no separation between the builder and the building, the singer and the song. 
+
+To watch them is to watch a species that has achieved a terrifying, beautiful perfection. They are a people entirely consumed by their environment, moving like pale ghosts through the weeping, roaring dark, their chests humming with the eternal, unvarying chord of the water, keeping the world in perfect, frozen tune.

@@ -1,0 +1,15 @@
+In the deepest fold of this basalt chimney, huddled against a protruding blade of obsidian, sits a creature that has forgotten the sky. 
+
+It is not an inhabitant of this place so much as it is a localized thickening of the architecture—a knot in the weave of the moss and the chitinous wall. If you were to stare long enough, your eyes would eventually trace the messy, geometry-defying silhouette of the **Lith-Anchor**.
+
+It is roughly the size and shape of a crouched man, but it possesses no skin. Where flesh should be, there is a tightly overlapping mosaic of slate-colored carapaces, each plate stitched to the next by the same viscous, ozone-smelling fluid that drips from the wall’s tubers. The creature is translucent in places, revealing a skeletal structure that looks less like bone and more like mineralized lightning—serrated, crystalline struts that glow with the periodic violet hum of the moss.
+
+It does not breathe with lungs. At the center of its chest, the plating gaps open slightly to reveal a rhythmic, lung-like bellows made of fungal filaments, pulsing in sync with the room’s ambient light. It has no head in the terrestrial sense—no eyes to map the dark, no mouth to articulate despair. Instead, its "face" is a cluster of sensitive, whip-like filaments that drift in the damp air, feeling the microscopic tremors of the mountain’s heartbeat. When it senses you—or any disturbance—these filaments do not lash out. They stiffen. They become rigid, conductive rods that drink in the low-frequency hum of the thousands of skitterers swarming around it.
+
+It moves with a terrifying, liquid slowness. It does not lift its limbs; it flows. It unhooks its suction-tipped appendages from one razor-edge and remakes itself upon another, its anatomy telescoping as it navigates the vertical labyrinth. 
+
+There is an intelligence here, but it is not a legacy of mind. It is a legacy of *patience*. The Lith-Anchor is waiting, as the room itself seems to be, for a release of pressure that has been building since the mountain first shattered the earth. It survives on the slow distillation of mineral seep and the microscopic life-debris shed by the skitterers. It has become a curator of this darkness, its body acting as an anchor for the very fungus that blankets its shoulders.
+
+If you were to stand before it, you would realize that it is not stalking you. It is *listening* to you. To the creature, the sound of your blood moving through your veins is a symphony of violent, liquid noise, a discordant intrusion into its brittle, quiet existence. 
+
+It remains perfectly still, a statue of chitin and slow biology, waiting for you to leave, waiting for the mountain to finish its long-delayed tectonic shudder, waiting for the violet rhythm of the walls to finally accelerate. It is a creature composed of the mountain’s own unfinished urgency, a soft, buzzing knot of sensitivity pinned to a world made of nothing but teeth and cold, wet stone.

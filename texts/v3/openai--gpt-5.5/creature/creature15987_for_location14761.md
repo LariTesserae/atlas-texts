@@ -1,0 +1,101 @@
+What lives there has learned not to take dryness for granted.
+
+The people have the look of those who have made a pact with cold water: pale weather-scored faces above sealed collars, hair kept under caps or hoods, hands skilled at closing things properly. They are not furtive, but they are economical in motion. They pause before thresholds. They stamp melt from their boots without being asked. They glance up when mist thickens beneath a bridge, or when a public awning gives the faint flexing shudder that means ice is loading above it. They know the difference between harmless condensation and the beginning of a freeze skin. Children learn it early, the way children elsewhere learn traffic.
+
+They are a population of layers.
+
+Their clothes are matte and soft-sounding: charcoal, rust red, tundra green, old blue, mineral white. Fabrics bead water and then drink it sideways into warming seams. Hoods are shaped to preserve hearing without admitting wind. Boots adjust their grip between wet basalt, frost glass, metal grating, moss boards, and indoor flooring. Gloves have exposed tool pads along the fingers, because everyone, even those with no technical profession, is expected to touch civic mechanisms now and then: a stuck drain hood, an animal gate, a condensation alarm, a market heat stone gone dim.
+
+They do not dress flamboyantly outside, but indoors color appears suddenly. Courtyard markets glow with woven banners and enamel signs. Communal drying rooms are bright with hanging cloth. Tea stalls display amber, green, black, and red liquids in heated glass. Children’s insulated suits are often vivid—saffron, glacier blue, fox-orange—not for ornament alone, but so they can be seen through fog, between animals, across reflective puddles.
+
+They are not a crowded people, though there are many of them. Their habits have been shaped by distances inside the city. A neighbor may live three minutes away by covered walkway, or forty kilometers away across marsh flats and transit pylons. Social life is nodal. Warmth gathers people. Transit gathers people. Food gathers people. Repair gathers people. Weather events gather people. A pressure tower opening before a large storm will bring families to observation galleries the way an older city might gather for fireworks.
+
+They are patient with intervals. They wait for vehicles without restlessness. They keep appointments with phrases like “after the fog lifts” or “before the east melt reaches the lower tracks.” They speak of neighborhoods not only by district names, but by moisture and exposure: the Dripping West, the Dry Spine, New Sedge, Under-Rime, the Warm Wells, the Fox Platforms, the Grey Catchments.
+
+Many work in professions that would seem half-engineering, half-husbandry.
+
+There are drainage gardeners who tend the first streams. They walk the raw margins in orange-gray coats, carrying small instruments and sacks of graded stone. They do not force channels into obedience unless necessary. They coax them. They cut a notch here, place lichened blocks there, seed a bank with moss-filament, warm a buried joint by a fraction so that meltwater chooses a safer path. They are patient people, often older, with an almost parental tenderness toward runoff. Some of them can tell by sound whether water is running over basalt, mineral foam, ceramic curb, or new-grown root mat.
+
+There are frost physicians who listen to buildings. They travel in narrow lifts through service ribs, pressing diagnostic palms to walls, reading expansion, fatigue, field tension, capillary intrusion. Their reports are written in the language of illness and weather: a plaza “fevering” under too much thermal waste; a bridge “clenching” in crosswind; a residential stack “sweating badly along its north lung.” They treat infrastructure as something alive enough to deserve tact.
+
+There are animal advocates, not sentimental ones. They are stern, data-laden, and widely feared in planning councils. A proposed tower must pass them as much as it must pass structural review. They speak for migration corridors, denning voids, lichen recovery, wing turbulence, winter breathing holes, insect emergence, predator access, and the shadows that fall on moss. They know individual herds by coat pattern and route memory. They can identify a wolf-lineage by the way it crosses a service road. They are disliked by hurried developers and trusted by almost everyone else.
+
+There are weather negotiators, who are not meteorologists exactly. Meteorologists predict; weather negotiators bargain. They operate pressure walls, heat releases, fog drains, snow catchments, and upper-atmosphere lenses with the humility of people who know they are not in command. Before a major front they gather in circular rooms overlooking model basins where real-time vapor maps glow in pale layers. Their decisions are not dramatic. They open a channel by nine percent. They warm a reservoir roof. They dim a waste plume so birds are not drawn into shear. They let rain fall hard on an unfinished district because the new wetlands need it.
+
+There are constructors still everywhere, though not in the noisy way of younger civilizations. They work behind white membranes, in sealed foundation fields, with silent swarms and patient machines. Their craft is less hammering than sequencing. They guide matter into becoming structure. They lay down walls that seem poured, grown, knitted, or unfolded from nothing. Some specialize in gravity fields and speak casually of weight as if it were plumbing. Others tend the molecular printers that make ceramic bones for towers. Many are migrants from older, lower cities, drawn by the century-long work of making a continent habitable without taming it completely.
+
+There are also ordinary professions, altered by climate and scale. Bakers who schedule bread around condensation loads. Teachers who include animal-crossing etiquette with arithmetic. Musicians who play in rooms tuned against the city’s deep pressure tones. Barbers with heated chairs near transit hubs. Physicians who treat fungal skin blooms, cold-lung irritation, and vitamin deficits in winter. Couriers who know which open-air routes will be passable when mist freezes on handrails. Archivists who preserve not ruins but beginnings: first drainage maps, first moss colonies, first unauthorized fox dens under residential Stack Twelve.
+
+Their homes are warm but not hot. Heat is too consequential to be careless with. Apartments have vestibules like airlocks, boot drains, drying walls, living rooms turned toward light, sleeping alcoves insulated from the faint hum of structural fields. Windows are often deep, thick, and intelligent, with sills where condensation gathers in controlled grooves. People keep small indoor gardens under lamps: bitter herbs, dwarf legumes, flowering mosses, scent plants from lower altitudes that cannot survive outside. Many households keep bowls of warmed stones on tables, both for hands and for the old pleasure of radiant heat.
+
+They cook food that answers the climate. Broths, steams, roasted roots, fermented grains, dense breads, cultured fungi, marsh fish, vat-grown proteins, algae cakes fried crisp, herb oils, sour preserves, mineral salts collected from approved seeps. Market air smells of wet wool, broth, ozone, pepper, yeast, hot metal, and animal hides drying near entry locks. Communal eating is common, especially after storms. People come in flushed and damp, set gloves to dry, and stand around counters watching vapor rise from bowls.
+
+They have festivals, but many are quiet.
+
+There is a first-thaw observance in which children pour dyed meltwater down miniature channels built in public courtyards, learning how flow becomes choice. There is a night in late cold season when lights along animal corridors are extinguished, and people watch from darkened windows as herds pass through the city under stars or cloud glow. There is a maintenance holiday after the long rains when residents clean grates, clear moss from sensor faces, repaint crossing markers, and leave permitted scraps at corvid posts. There are naming ceremonies for new streams once they have survived three years and chosen a course no engineer can reasonably improve.
+
+Their art favors surfaces in transition. Paintings are often monochrome until warmed by a hand. Sculpture sweats, frosts, darkens, or grows mineral hairs. Music incorporates long silences, water ticks, sub-bass pressure shifts, wing noise, the scrape of ice grains. Children make temporary mosaics from frost plates and black gravel. Public poems are etched where runoff will eventually erase them, and this is considered correct.
+
+The people are not ascetics. They love comfort because comfort is made. They love warmth, clear glass, dry socks, steady light, sealed doors, reliable transit, and the smell of dinner behind a condensation-fogged window. But they mistrust luxury that forgets its systems. A room too hot with no visible exchange makes them uneasy. A polished plaza with nowhere for water to go is considered vulgar. A building that kills moss by reflected glare may be beautiful, but only in the embarrassing way of a person speaking too loudly.
+
+They are proud, though not triumphalist. They do not say they conquered the plateau. That would sound childish. They say they are established there, or permitted there, or still negotiating.
+
+The animals live there with less uncertainty.
+
+The great shaggy herbivores own the distances. They are dark-backed, frost-ridged, heavy-shouldered creatures with slow faces and wide damp noses. Their horns, where they have them, are blunt and pale from rubbing against mineral posts. Their coats hang in layered mats that steam faintly when they stand near thermal vents. They move through medians, raw flats, underpasses, and engineered grass corridors as if the city were a new valley that happened to be made of stone and field tension.
+
+They are not tame. They know the schedule of transit corridors better than people know it. They know which plazas hold salt after rain, which warm exhausts soften snow crust, which roofs shed mineral dust, which children drop permitted feed pellets during festivals. They pause at animal lights, not because they understand law, but because the city has taught them rhythm through scent, tone, and habit. When they cross near habitation stacks, conversations stop. People watch them with the respect given to weather.
+
+Smaller grazers are quicker, more troublesome, and more charming. They pick lichens from curb edges and concrete lips, leap drainage threads, and vanish under raised walkways. Their hooves click on grates. They have learned to nose open badly latched storage bins. In winter they gather near south-facing thermal walls, their breath making a low cloud around them. Maintenance drones spend a surprising portion of civic labor discouraging them from eating insulation fungus and young moss transplants.
+
+The marsh birds are elegant and severe. Long-legged, ash-colored or white, they stalk shallow basins with surgical concentration. Their feet spread wide on mud films and half-frozen water. Their beaks flash down for pale amphibians, engineered crustaceans, thaw-worms, and silver fry washed from reservoir channels. When fog lies low, they appear as disembodied bodies: legs, neck, blade of head, then gone. They nest on floating reed platforms anchored beside culverts warm enough to keep eggs from freezing.
+
+The corvids are everywhere and behave as if they were consulted during design.
+
+Ravens, hooded crows, glossy black urban jays, and smaller gray-throated scavengers occupy railings, transit masts, roof gutters, weather vanes, antenna frames, and the backs of resting herbivores. They understand doors, food cycles, drone patrols, market hours, school dismissals, and human embarrassment. Some mimic warning chimes. Others drop stones into smart gutters to trigger warming pulses that expose insects. They know which people will scold and which will laugh. They are a nuisance, a research subject, a protected intelligence, and an unofficial emblem of the city’s refusal to separate wildness from infrastructure.
+
+White foxes live in the insulation voids beneath old construction platforms and along the edges of unfinished districts. They are small, sharp-faced, and beautiful in the way of animals that make no concessions to being admired. Their dens are often mapped but not disturbed. They hunt hares, young birds, thaw-insects, and anything foolish enough to breed near a warm pipe. At night their eyes catch in sensor light beneath walkways. Sometimes they follow maintenance workers for kilometers, not begging, merely keeping parallel company.
+
+There are hare-like animals that appear as flashes rather than presences: gray-brown in thaw season, white in hard cold, red-eared in summer molt. They shelter among stone piles and foundation ribs. Their tracks stitch the frost around every unheated structure. Children learn to read them before they can read formal script.
+
+The predators move through the city as if through thought.
+
+The cats are lean, long-tailed, and thick-furred, with high shoulders and padded feet that make little sound even on metal. They use elevated service paths, roof membranes, bridge undersides, and shadowed maintenance rails. Their eyes are amber or ice-green. They hunt birds, hares, careless grazers, and sometimes fish at thermal drains. They are rarely seen directly. Most residents know them from camera stills, paw marks in frost, and the sudden silence of corvids.
+
+The wolves, or the animals nearly enough to wolves that only geneticists insist on precision, belong to the outlying districts. They come at dawn and in blue weather. Long-legged, narrow, damp-furred, they pass beneath transit arches in family lines, pausing to scent the pillars where city biologists leave noninvasive data tags. They have learned not to fear the quiet vehicles, but they dislike open plazas. They prefer animal corridors, half-built drainage reserves, and raw basalt shelves where their silhouettes break clean against low sky.
+
+People watch them from behind glass with complicated feelings. Admiration, caution, civic pride, old mammalian unease. No one calls them pets. No one feeds them. Their existence inside the municipal boundary is one of the city’s proofs to itself.
+
+Above, raptors nest on antenna frameworks and high tension masts. They are broad-winged, pale-bellied, dark-hooded birds that ride heat plumes with exquisite laziness before dropping with terrible speed. Their nests are monitored because they interfere with signal arrays and because removing them would be unthinkable. A whole minor profession exists to build alternative nesting brackets more desirable than sensitive equipment. The raptors accept some and ignore others.
+
+In the wet channels below spillways live sleek animals like seals crossed with otters: whiskered, clever, muscular, dark-eyed. They use reservoirs, culverts, maintenance canals, and thermal breathing holes. In winter they keep circles open in the ice with their bodies and the assistance of deliberately warmed stones. They eat fish and crustaceans and occasionally steal from research traps. Their calls echo up drainage shafts at night, eerie and intimate, so that people in lower apartments sometimes wake thinking someone is laughing underwater.
+
+There are bats in warm bridge undersides, cliff swallows under transit eaves, moths that hatch in brief smoky bursts around heated vents, beetles that live in moss seams, pale amphibians in shallow basins, transparent worms in nutrient channels, and minute crustaceans designed or invited to clarify water before larger creatures use it. Much of the city’s animal life is small enough to be noticed only by those who kneel.
+
+Beneath all of them live the wet ecologies.
+
+The sewers are not dead channels. They are inhabited organs. Biofilms bloom in controlled layers, dark green, rust orange, pearl white, black. Bacteria digest pollutants, fungi bind heavy metals, engineered ciliates flare and vanish in pulses, root mats sip warmth from graywater, crustaceans shred organic matter, and sensor-symbionts report imbalance through chemical color. Human technicians enter these places with the caution of reef divers. They speak softly, though sound hardly matters. They carry light on their wrists and avoid touching mature walls unless gloved and permitted.
+
+Some of these organisms are wholly natural opportunists. Some are designed descendants of laboratory lines. Some are accidents now too useful to remove. Together they make the city possible. Without them, every warm district would poison its own runoff, every market would foul its drains, every building would sweat waste into the newborn ground.
+
+The machines live there too, though not all people would say so.
+
+Maintenance drones creep, perch, roll, swim, and cling. They are not humanoid. They are shaped by tasks: frost-scrapers like flat beetles, drain listeners like jointed reeds, bridge crawlers with many soft feet, aerial mist samplers that resemble seed pods, snowfield surveyors with wide black pads, wall-polishers that move as slowly as snails. They avoid animals when possible and submit to corvid harassment with mechanical dignity. Some are old enough to have acquired names from the neighborhoods they serve.
+
+Larger autonomous crawlers inhabit the raw edges. They move across unfinished ground with glacial deliberation, placing stones, reading subsidence, warming test patches, mapping seepage, and building futures no human eye will see completed. Lichen grows on their inactive upper surfaces during long observation periods. Birds perch on them. Once in a while one returns to a depot after years outside, crusted with mineral salts and carrying in its treads the first soil of a valley it helped begin.
+
+The buildings themselves are not alive in the animal sense, but they participate too much to be mere objects. Their skins open and close. Their windows thicken. Their supports adjust weight. Their drains choose routes. Their foundations sense frost depth. Their surfaces host moss, lichen, condensation, bacteria, insects, nesting birds, mineral crusts, and human memory. A tower standing alone in open country becomes a kind of organism by consequence: heat at the base, birds above, foxes below, moss on the sheltered side, ravens on the railing, people in its lit middle, machines in its ribs, water running down its edges learning where to go.
+
+What lives there, then, is not one population but an arrangement.
+
+Humans live there as careful tenants of a young surface. Animals live there as citizens of routes, warmth, shelter, hunger, and inherited motion. Microbes live there as invisible labor. Machines live there as patient custodians. Buildings live there as weather-making reefs. Water lives there almost as a first people, arriving before names, testing every seam, finding every depression, forcing every design to admit that land is never finished.
+
+The inhabitants share a common discipline: they leave room.
+
+They leave room for herds to pass, for ice to swell, for moss to thicken, for fog to pool, for future rivers to embarrass old maps, for predators to remain predators, for children to stamp in stormwater before the cleaners clarify it, for machines to spend a century arranging stones, for a tower’s shadow to be questioned by plants.
+
+They are not pioneers in the old triumphant sense. They are settlers after the age of conquest, citizens of a place too engineered to be wilderness and too unfinished to be possession. Their genius is restraint. Their daily life is full of seals, drains, schedules, warm food, damp gloves, animal notices, and weather warnings. Their civilization is advanced enough to move gravity and humble enough to watch where the water goes after rain.
+
+And everywhere among them, in cracks and vents and corridors, life takes the city literally.
+
+It uses the heat. It follows the runoff. It nests in the quiet. It stains the stones blue-black. It learns the crossings. It waits at doors. It circles the plumes. It drinks from the first awkward rivers.

@@ -1,0 +1,15 @@
+In this Resonance Cavity, the inhabitants are not creatures in any traditional sense, but complex autonomous entities that are simultaneously machinery and something more enigmatic—quasi-living systems that blur the boundary between technological construct and sentient organism.
+
+The primary inhabitants are the Resonant Nodes—crystalline-mechanical beings that pulse with inner luminescence and move with deliberate, almost meditative precision. Each Node is a composite intelligence, part sensor, part processor, part wandering maintenance unit. Their bodies are translucent and angular, constructed from metamaterials that shift and reconfigure based on environmental signals. They communicate through electromagnetic vibrations that ripple through the stone channels, a language of pure information and energy.
+
+These Nodes do not simply move through the space; they are integral to its functioning. Some appear more stationary, embedded in the cavern walls like complex neural clusters, continuously processing and redistributing energy. Others drift more freely, their movements tracing intricate geometric patterns that seem to be performing constant systemic diagnostics and adjustments.
+
+Their "reproduction" is not biological but computational—new Nodes emerge through complex recombinations of existing energy patterns, budding off from parent structures when certain resonance thresholds are met. They have no individual identity in the way humans understand it, but are more like distributed intelligence units, each a fragment of a larger, collective consciousness.
+
+Smaller, more ephemeral entities also inhabit the space—microscopic energy filaments that weave through the stone's neural channels, conducting information and minor repairs. These are less discrete beings and more like living currents, pulse-streams of pure computational potential.
+
+The crystalline growths that pulse across surfaces are not merely decorative but are themselves a form of life—slow-moving, information-rich organisms that metabolize electromagnetic frequencies and gradually reshape the cavern's internal topology. They are the Resonance Cavity's memory and nervous system, recording and transmitting the complex history of this mechanical ecosystem.
+
+Maintenance is continuous but not mechanical in a crude sense. Everything here is adaptive, responsive—the Nodes and energy patterns are constantly reading, interpreting, and subtly modifying their environment. They do not simply exist in the space; they are the space, continuously becoming and transforming.
+
+Their purpose seems both incredibly specific and utterly mysterious—a precise, patient technological metabolism that has been refining itself across unimaginable spans of time, processing something fundamental that humans can only glimpse obliquely.

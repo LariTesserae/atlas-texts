@@ -1,0 +1,35 @@
+To find who lives here, you cannot look during the blinding, frantic hours of daylight. You must look in the final moments of the brutal, frozen night, before the light strikes. 
+
+Deep within the narrowest fissures of the unweathered rock, squeezed tightly into cracks just barely wider than a human torso, hang chrysalises of frost. They look like nothing more than massive, dead bundles of roots and rime ice, wedged against the stone. 
+
+But the moment the bruised violet sky brightens, and the sun’s edge clears the rim to strike the rock, the frost on these bundles sublimates into instant vapor. The bundles shiver. The ice cracks with a noise like snapping glass, and the inhabitants unfurl. 
+
+They are humanoid, but only as a baseline from which extreme vertical evolution has violently departed. They emerge from the cracks with an unsettling, unfolding geometry. Their limbs are unnaturally elongated, stringy, and double-jointed, allowing their arms and legs to span the jagged topography of the vertical walls. Their chests are wildly disproportionate to their waists—vaulted, massive barrel-ribcages housing lungs like great bellows, necessary to drag whatever meager scraps of oxygen exist from the brittle membrane of the atmosphere. 
+
+Where their skin is exposed, it is the exact ultraviolet-blue and obsidian-black of the fleshy, sun-tracking plants. It is a thick, leathery hide heavily saturated with pigment to drink in the sudden heat and repel the mutating radiation of the undiffused sun. But very little of this skin is visible. They are wrapped in layers of pale, cured hide and thick white down—the heavily processed skins of the four-winged gliders they share this chasm with. This stark white clothing bleaches them against the searing quartz, making them nearly invisible in the glare.
+
+Their hands—the hands that knotted the frozen vine bridges and chipped the crescent blade—are terrifyingly specialized. The fingers are long and spider-like, ending not in soft pads, but in thick, calcified nodules of dark keratin. These fingertips are harder than the stone itself, functioning naturally like the bone pitons they hammer into the rock. They do not so much climb the razor-sharp walls as they slot into them, their hardened fingers slipping instantly into microscopic fissures, bearing their weight with absolute, unthinking stillness. 
+
+As they emerge onto the sun-blasted rock walls, you finally see their faces. They have no protruding noses; such an extremity would instantly die to the freezing night. Instead, they have wide, flat, cartilaginous slits that flare wide to gulp the thin air. Their eyes are entirely hidden. Bound around their heads with braided black vines are heavy, carved masks of dense yellow bone. Cut into these bone masks are horizontal slits narrower than a needle, designed to block out the blinding, burning glare of the amphitheater. Through these tiny visors, one might catch the gleam of eyes that are completely jet-black, possessing no whites at all. 
+
+Because the air is too thin to carry sound, they live in absolute, telepathic silence. They possess no vocal cords. Instead, their hearing has adapted entirely to the rock. They communicate through lithic conduction. A subtle, sharp tap of a keratin knuckle against a massive vein of quartz sends a vibration shooting through the crystalline structure of the cliffs. Dozens of spans away, another of their kind will press their heavy jawbone against the cliff face, receiving the vibration directly into their skull. To them, the silent cathedral of stone rings with an endless, complex symphony of taps, scrapes, and bone-deep thrums. 
+
+They exist in time with the frantic, three-hour biology of the cleft. When the walls begin to sweat the flash-melted ice, these people move with an aggressive, blur-like speed, shedding the slow lethargy of night. 
+
+They are the apex predators of the void. You watch one hunt. 
+
+A figure clings upside down beneath a jagged outcropping, completely camouflaged in white down, holding a fresh crescent blade knapped from milky quartz. Below them, a swarm of the silvery krill-moths erupts from the damp moss. A four-winged glider dives from the heights, building immense speed, sweeping upward in a vast high-gravity arc to snatch the moths. As the bird reaches the absolute apex of its climb—the split second of weightlessness before gravity demands it fall again—the hunter drops from the rock overhead. 
+
+It is a silent, violent aerial collision. The hunter’s long, black-skinned arms wrap around the glider, pinning the four wings in a flurry of white feathers. The momentum of the strike carries them both down toward the bottomless hollow core, but the hunter’s ankle is tethered to a concealed, alpine-vine rope. The rope snaps taut with a silent jolt, swinging predator and prey violently into the cliff face. With surgical precision, the quartz blade flashes in the glare, severing the glider's spine. The hunt is over in three seconds. No sound is made, save the rhythmic *shhhhh* of the dragging black leaves. 
+
+The three hours of sunlight is a frenzy of harvesting. They wring the icy water from the silver moss into satchels made from the stomachs of the birds. They butcher the day’s kill, consuming the raw, calorie-dense fat and meat instantly to fuel their roaring, desperate metabolisms, saving only the hides and the heaviest, yellowest bones for their solitary tools. They repair the pitons; they check the tension on their dreadful, sagging bridges. They leave broken blades in tiny stone windbreaks as offerings, or perhaps simply because they know the deep freeze is coming and they cannot carry the extra weight. 
+
+And then, the sun reaches the far rim of the amphitheater. The shadow of the shattered peaks begins to fall across the cleft. 
+
+The panic they display is not emotional, but purely biological. As the shadow races up the walls, plunging the searing white rock back into bruised purple shade, the hunters drop whatever they are doing. They scuttle backward into the deepest, narrowest fractures, moving like massive white insects. 
+
+The moment the light vanishes, the atmosphere snaps. The trickling sweat of the walls turns instantly to hard, glittering frost. Out in the open air, a man would die in minutes.
+
+In the deepest recesses of the rock, the hunters press their backs against one another. They draw their elongated limbs tightly into their chests, tucking their flat faces beneath their knees, wrapping their down-feathered hides around them to form perfect, sealed spheres. Their massive lungs slow. Their violent, roaring heartbeats drop to a sluggish, icy thud just once a minute. A natural antifreeze—derived from the heavy obsidian mosses they consume—thickens in their black blood. 
+
+They enter a profound, rigid torpor. In the deafening silence of the thin, freezing air, they wait in the dark, becoming nothing more than stone themselves, until the violent light returns to crack the sky open again.

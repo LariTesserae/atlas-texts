@@ -1,0 +1,17 @@
+In this ancient, overgrown city, life has adapted to the cool, misty environment and the omnipresent vegetation. The inhabitants are a strange amalgamation of plant and animal, their forms shaped by the pervasive weirdness that permeates the urban jungle.
+
+The Verdant Ones, as they call themselves, are a reclusive and enigmatic species. Their bodies are a fusion of flesh and foliage, with skin that ranges from pale green to deep, mottled brown, and limbs that often sprout leaves, vines, or even delicate flowers. Their eyes are large and luminous, reflecting the colors of the surrounding greenery, and their movements are slow and deliberate, as if in constant communion with the plants around them.
+
+The Verdant Ones have no central governance or social hierarchy. Instead, they live in small, interconnected communities scattered throughout the city, each group occupying a particular tree, building, or network of vines. Communication between these communities occurs through a complex system of plant-based signaling, with messages conveyed through the rustling of leaves, the release of specific fragrances, or even the pulsing of bioluminescent spores.
+
+The diet of the Verdant Ones consists primarily of sunlight, absorbed through their plant-like skin, and supplemented by the occasional insect or small mammal. They have little need for material possessions, as the city itself provides all the shelter and resources they require.
+
+The Verdant Ones possess a deep, almost mystical connection to the plant life that dominates the city. They can communicate with the vegetation on a fundamental level, influencing its growth patterns and shaping the urban landscape to their needs. This symbiotic relationship allows them to navigate the winding, organic pathways of the city with ease, as the plants themselves guide and protect them.
+
+In times of danger or distress, the Verdant Ones can merge even further with the greenery, their bodies becoming indistinguishable from the leaves and vines around them. This ability to blend seamlessly with their environment serves as a powerful defense mechanism against the few predators that roam the city.
+
+The Verdant Ones have little interest in the remnants of the city's industrial past, seeing the rusted machines and crumbling factories as mere substrates for the growth of new life. They do, however, hold a deep reverence for the ancient stone structures that have endured the passage of time, viewing them as sacred spaces where the boundary between the natural and the artificial is at its thinnest.
+
+In these sacred spaces, the Verdant Ones conduct strange and esoteric rituals, their plant-like forms intertwining with the stone and metal in a mesmerizing dance of life and decay. These rituals are believed to maintain the delicate balance between the forces of nature and the lingering energies of the city's past, ensuring the continued survival of both the Verdant Ones and the urban jungle they call home.
+
+As the cycles of life and decay continue in this ancient, green city, the Verdant Ones remain as eternal guardians, their existence inextricably linked to the ever-shifting, ever-growing landscape of plant, stone, and metal. They are a testament to the resilience and adaptability of life in the face of even the most bizarre and challenging circumstances.

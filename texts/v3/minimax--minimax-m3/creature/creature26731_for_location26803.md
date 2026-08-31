@@ -1,0 +1,9 @@
+The growth lives here. It is the most public of the inhabitants, and the most shy.
+
+It hangs from the arches in long curtains that brush the floor. It climbs the columns in dark wet-looking filaments that lift, slightly, on a slow afternoon, toward the high windows. It puddles in the corners in dark pools of itself, where two curtains have touched and knit so seamlessly that the join cannot be found. It drinks the light. Where the light touches it, it deepens in color. Where the light withdraws, it pales. Inside it, something moves — slowly, like sap, like blood, like attention.
+
+The growth is not moss, because moss needs water. It is not lichen, because lichen needs stone it can feed on, and there is no raw stone here — only worked stone, only tile and brick and polished slab, only surfaces sealed with something harder than themselves. The growth is something else, something that does not require what the rest of life requires. It has made itself out of what is here: warmth, light, the cedar-and-fig exhalation of the place's own long patience. It is the place's most visible way of being a creature. It is also the place's most visible way of being patient.
+
+Where the growth is thickest, there are shapes inside it.
+
+Slow shapes. They bulk against the filaments and then disappear, leaving the green to sway for a long time afterward. They are the size of a curled fist, or a small cat, or an unborn thing. They show you an edge, a curve, the suggestion of a limb folded against itself, and then they sink back into the green and the green ruffles behind them. They are not larvae. They are not young. They are the growth's way of having a digestive system, or its way of dreaming. They move through the filaments the way a thought moves through a brain: slowly, with purpose, leaving the green disordered in their

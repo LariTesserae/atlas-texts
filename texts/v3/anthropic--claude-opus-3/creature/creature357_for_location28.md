@@ -1,0 +1,15 @@
+In the deepest hollows and densest groves of this eerie vegetal megastructure, a strange form of life has evolved in symbiosis with the engineered plants. At first glance, they resemble floating, iridescent bubbles - spheres of translucent, shimmering biomaterial that drift lazily through the hazy air. 
+
+But these beings, known as the Zephyria, are far more than mere bubbles. Each is a living airship, a colony of specialized microorganisms bound together in a delicate, gas-filled membrane. Bacterial engines propel them on jet streams of metabolic gases, while embedded sensor colonies allow them to navigate by tapping into the electromagnetic fields pulsing through the plants.
+
+Inside their pellucid bodies, the Zephyria host entire miniature ecosystems - tiny forests of engineered algae, fungal nodes that interface with the vascular data-streams, and intricate microbial "factories" that produce novel compounds and materials. They are part habitat, part processing unit, part living ships for communities of symbiotic microbes.
+
+The Zephyria have evolved a complex lifecycle in tandem with the plant-scape. Their embryonic "sporelings" begin as small, drifting globules, gradually accruing mass and complexity as they filter-feed on airborne nutrients. Upon reaching maturity, they migrate to the ruins of the ancient structures, nestling into alcoves and chambers to undergo a metamorphosis.
+
+In this pupal stage, the Zephyria secrete special polymers that solidify into intricate, latticed "scaffolds," using the ruins as templates. Within these microfabricated frameworks, they cultivate specialized organs and subsystems, transforming into their adult form - no longer just passive bubbles, but living modules integrated into the greater architecture of the ruins-cum-superorganism.
+
+Adult Zephyria assume various roles as dictated by the particular structures they've bonded to. Some act as mobile sensor arrays, their membranes studded with complex protein antennae. Others become living chemical reactors, processing the exotic compounds harvested by the plants. Some even harbor nascent machine intelligences, brains of bioelectronic circuitry suspended in their gasbags like bioluminescent chandeliers.
+
+At the end of their lives, the Zephyria dissociate into clouds of "deconstructor" spores that swarm over exhausted sections of the scaffolding, breaking it down to be reabsorbed and recycled by the placental vegetation. And so the cycle begins anew.
+
+Far from mere creatures eking out an existence in an alien world, the Zephyria are the living embodiments of the ancient biotechnology that suffuses this place, vital subcomponents in a vast living machine of unguessable purpose and literally inhuman scale. Through them, the strange half-mechanical, half-biological soul of this world finds expression - a ghost in the machine and sap in the circuits, a dream of silicon and cellulose spun out beneath strange stars.

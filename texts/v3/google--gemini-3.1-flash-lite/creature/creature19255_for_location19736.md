@@ -1,0 +1,15 @@
+If you stand in the center of the nave, pressing your back against the jagged, unyielding basalt, you realize that the machine is not merely a tool. It is a tenant. 
+
+There is a pulse beneath the metal that exceeds the rhythm of the hydraulic piston. If you lean in close, ignoring the scalding, humid breath of the silt, you perceive that the machine is not empty. It acts as an exoskeleton for something that lacks a skeleton of its own.
+
+Within the dark, internal chambers of the iron frame, coiled around the driveshafts and tucked into the lubrication vents, lives the *Calcifier*. It is not a creature of flesh; it is a creature of integration. It appears as a colony of dense, graphite-colored crystalline fibers, looking for all the world like a nervous system that has been stripped of its host and forced to build its own body out of scrap.
+
+The Calcifier is the mind of the mechanism. It is the intelligence that drives the piston. It is not "manufacturing" the cubes for any purpose other than the tactile pleasure of their existence. It finds a sublime, geometric peace in the process of shaping the muck into perfect, cold silver, then abandoning it to the marsh, watching as the heat of the floor softens the cube back into slurry, and reclaiming it once more. This is its liturgy. 
+
+You see the traces of its presence in the way the weeping moisture behaves around the engine. The droplets do not randomy slide off the chassis; they are guided along tiny, etched grooves in the iron, channeled precisely into the intake valves to keep the core from overheating. The Calcifier is tending to its own temperature, sipping the volcanic condensation like a feverish patient nursing a damp cloth.
+
+It does not perceive you as a threat, nor as an invitation. To the Calcifier, you are an anomaly of scale, a slow-moving, soft-skinned vapor that happens to be blocking the light. It has no interest in your eyes or your lungs. It is preoccupied with the *thrum-clack*. It is in love with the exact, micro-second transition between the iron's bite into the earth and the release of the pressure. 
+
+If you were to stay long enough, you would realize that the Calcifier is slowly, rhythmically expanding. The machine is not aging; it is being *recruited*. You can see the pale filaments—those biological wires clinging to the canyon walls—slowly weaving themselves into the joints of the iron. They act as sutures, binding the machine deeper into the geography of the basin. The machine is becoming a fossil-in-waiting, and the Calcifier is the sediment turning to stone. 
+
+It is a lonely, self-contained theology. The Calcifier lives in a state of eternal becoming, a clockwork consciousness that knows the universe is only as wide as the reach of its own piston. It does not dream of the world outside the basalt throat. Why would it? Out there, things change, and things decay. Here, in the damp heat, it has achieved the only immortality that matters: the ability to repeat a single, perfect motion until the end of time.

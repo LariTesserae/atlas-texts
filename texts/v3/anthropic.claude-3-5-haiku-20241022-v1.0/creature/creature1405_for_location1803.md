@@ -1,0 +1,13 @@
+In this lithic realm, the inhabitants are themselves liminal beings—neither fully organic nor entirely mineral, existing in a state of perpetual becoming.
+
+The primary inhabitants are what might be called Stone Weavers—soft, translucent creatures with bodies that flow like liquid crystal, their forms constantly shifting between solid and fluid states. They move through stone passages with a peristaltic motion, their bodies partially dissolving and reforming around mineral channels. Their sensory apparatus is distributed across their entire form, perceiving vibration and chemical gradients more than light or sound. Communication happens through intricate biochemical exchanges and subtle resonance patterns that propagate through the stone's internal structures.
+
+These creatures reproduce through a process of crystalline budding—where parts of their body gradually crystallize and then separate, each fragment containing the potential for a complete new organism. Their metabolic cycles are measured in decades, not days, with periods of near-dormancy punctuated by slow, deliberate movements and transformations.
+
+Smaller symbiotic organisms live within their body-structures and stone-adjacent environments: bioluminescent microorganisms that pulse in synchronized rhythms, creating delicate networks of light that trace complex geometric patterns through the cavern systems. These microbes facilitate mineral exchanges, breaking down complex geological compounds and enabling the Stone Weavers' unique metabolism.
+
+Occasionally, larger entities emerge—rare, massive forms that might be considered the apex inhabitants of this realm. These are enormous, nearly stationary beings that resemble living stone sculptures, so integrated with their environment that they are almost indistinguishable from the cavern walls. They breathe and pulse so slowly that their movements are perceptible only across geological timescales.
+
+Their intelligence is alien—not cognitive in any human sense, but a distributed awareness that spans entire geological networks. They remember and communicate through molecular patterns, through the slow migration of minerals, through the subtle pressures of stone against stone.
+
+These beings do not simply inhabit the Lithic Gardens—they are the Lithic Gardens, continuously creating and being created by their environment, a living system so complex and slow that it challenges our most fundamental understanding of life, consciousness, and becoming.

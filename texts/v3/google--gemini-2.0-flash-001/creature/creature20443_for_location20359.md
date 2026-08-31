@@ -1,0 +1,17 @@
+The ones who live here are children of apocalypse, born into a world already flayed. They are, in equal measure, survivors, scavengers, and supplicants to a machine-god of their own making. 
+
+Their flesh, what little can be seen, is weathered and scarred, tanned the color of the mesas themselves. Eyes, though, are surprisingly bright, with a fierce intelligence born of constant necessity. A desperate cunning glints within them. They are wiry, and most likely taller than they appear, as they are usually bent over.
+
+They clothe themselves in scraps – patched canvas, scavenged metal plates crudely riveted together, animal hides tanned with dubious chemicals. Their faces are often masked, not for ceremony, but for protection against the toxic air and the biting sandstorms. These masks are more like respirators, made of layered cloth and filters filled with strange, local minerals. 
+
+The smallest among them – children, presumably – are often seen darting between the legs of the automatons, scavenging dropped scraps or tending to the few precious crops. They move with a peculiar grace, a learned agility honed by navigating the treacherous terrain and avoiding the larger, more unpredictable machines.
+
+The adults are more deliberate in their movements, radiating a quiet intensity. They bear the marks of toil and injury – missing fingers, burns, crude prosthetics crafted from scavenged metal. Each movement is a careful calculation, each action governed by the need to conserve energy and resources. Some seem to favor working on repairs or building new structures, and would be hunched over the metal and ore. Others seem to be more involved with finding materials, and would be lean with the habit of scouting.
+
+Their settlements are not homes, but fortresses – bastions against the hostile world. Within these fortified burrows, they huddle together, sharing meager meals and the dim warmth of oil lamps. The air inside would be thick with the smell of unwashed bodies, burning oil, and fear masked by grim determination.
+
+They are deeply attuned to the rhythms of the machine-god. They can sense its fluctuations, its surges of power, its moments of weakness. They interpret these signs as omens, guiding their actions and shaping their beliefs. They tend to the machines not out of love, but out of necessity. They are parasites clinging to their mechanical host.
+
+They have rituals, born not of myth or legend, but of trial and error. They offer sacrifices of oil and salvaged parts to the towering walkers, hoping to appease the machine-spirit and ensure its continued operation. They perform intricate dances around the sputtering engines, mimicking the movements of the pistons and gears, striving to synchronize their own rhythms with the pulse of the machine. They chant verses of old, corrupted programming code, twisting them into prayers and incantations.
+
+Their faces, when visible beneath the masks, are etched with the weight of survival. They are a people defined by loss, but also by resilience. They cling to life with a ferocity born of desperation, determined to carve out a future from the ruins of the past. They are the custodians of a dying age, the inheritors of a broken world, and the architects of whatever comes next, be it salvation or further ruin. They are the children of the hum, the inheritors of the dust, and the future of this desolate place.

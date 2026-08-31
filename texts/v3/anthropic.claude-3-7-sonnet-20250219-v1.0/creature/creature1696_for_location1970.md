@@ -1,0 +1,23 @@
+# The Caretakers of Levados
+
+The beings who tend Levados exist in a peculiar state between presence and absence. They call themselves the Keepers, though this name is rarely spoken aloud in a city where sound itself feels like an intrusion.
+
+Physically, they appear almost human—tall, willowy figures with skin that has taken on a faint greenish tint through generations of symbiosis with the engineered plants. Their eyes are large and dark, adapted to the diffuse light, and their movements possess a deliberate slowness that matches the unhurried pace of their city. When they walk across the open plateaus, they seem to glide, their footfalls so precisely placed that they make no sound against the polished surfaces.
+
+The Keepers wear clothing woven from modified plant fibers that change color throughout the day—pale green in morning light, deepening to emerald by midday, then shifting to blue-green as evening approaches. These garments are embedded with microscopic irrigation systems that connect to small reservoirs worn at the small of the back, allowing the living fabric to receive the precise amount of moisture it requires.
+
+Their most distinctive feature is the network of fine, almost translucent tubes that connect their bodies to their surroundings. These biometric interfaces—part technology, part evolved adaptation—extend from beneath the skin at the wrists, temples, and over the heart. When at rest, a Keeper will often connect to nearby plants, creating a direct exchange of nutrients and information. This connection is not merely symbolic; the Keepers' biological processes have become partially dependent on the engineered vegetation, just as the plants now require certain compounds produced in Keeper bodies.
+
+They communicate primarily through subtle gestures and expressions, having developed a language of minute movements that can convey complex ideas without sound. When they must speak aloud, their voices have a quality similar to wind through leaves—soft, rustling, and somehow carrying further than should be possible in the thin mountain air.
+
+The Keepers live in the rotating towers, though "live" may not be the right word for their state of being. They spend approximately three days of every ten in a deep meditative state they call "communion," during which their consciousness partially merges with Levados' biological systems. During these periods, their bodies remain in special chambers within the towers, suspended in nutrient baths while their awareness disperses throughout the city's network of plants and mechanical systems.
+
+Their society follows a non-hierarchical structure they refer to as "the Pattern," where responsibilities shift according to complex cycles tied to the rotation of the buildings and the growth stages of the vegetation. No Keeper permanently leads; instead, different individuals temporarily embody specific aspects of city maintenance as needed.
+
+Reproduction among the Keepers occurs rarely and deliberately. New Keepers begin as carefully cultivated embryos in specialized nursery chambers beneath the lowest plateau. These children grow slowly, spending their first seven years primarily connected to the city's systems, their consciousness developing in tandem with their understanding of Levados itself. They learn by directly experiencing the flow of water, the unfurling of leaves, the patient rotation of the great towers.
+
+The Keepers maintain careful records of their history, etched into thin sheets of a crystalline material stored in spiral archives beneath the city. These records reveal that they were once conventional humans who came to this mountain centuries ago seeking escape from ecological collapse in the lowlands. Over generations, their symbiosis with their engineered environment has transformed them into something neither fully human nor entirely other.
+
+They are aware of visitors to Levados but avoid direct contact. This isn't from fear or antipathy, but from an understanding that their mode of existence has become fundamentally incompatible with the pace and patterns of the outside world. They observe visitors through the city's sensory systems, sometimes leaving small gifts—perfectly preserved flowers or intricate mechanical models—as acknowledgments of their presence.
+
+The greatest misunderstanding about the Keepers is that Levados was built for human habitation at all. The city is not a dwelling place but a symbiotic partner, and the strange beauty of its hanging gardens and rotating towers is not decoration but communication—the physical expression of a centuries-long conversation between the Keepers and their created environment, each slowly transforming the other into something new under the hazy mountain sun.

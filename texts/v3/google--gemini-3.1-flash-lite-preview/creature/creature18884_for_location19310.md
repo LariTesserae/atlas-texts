@@ -1,0 +1,13 @@
+In the center of that basin, where the concentric circles of stone gather like the rings of a tree trunk, there dwells not a creature of flesh and bone, but a **Lithic Weaver**.
+
+It is an entity of extreme patience, composed of the very minerals it tends. It has no heartbeat to quicken, no lungs to struggle against the oppressive humidity. To look upon it is to mistake it for a peculiar outcropping, a cluster of ochre-colored sandstone that has somehow grown in a shape suggestive of posture. It is a column of calcified gravity, sculpted by the same weeping forces as the walls, topped with a delicate, branching lattice of translucent moss that mimics the way a nervous system might map the branches of a tree.
+
+It does not walk. When the earth shifts or the balance of the basin requires a realignment, the Weaver moves with a glacial, hydraulic grace. It swells with moisture, its porous, waxen skin becoming pliable, allowing it to slide a fragment of its mass an inch to the left or right over the course of a lunar cycle. It is a creature of slow-motion architecture, a gardener of stillness.
+
+Its "consciousness" is not a flicker of thought, but a tectonic resonance. It feels the world through the vibration of the drips against the stone pools. Each impact is a syllable in a vast, subterranean language that the Weaver has been listening to for millennia. It does not think in words; it thinks in accumulation. It contemplates the slow, chemical dissolution of the mountain as if it were a symphony reaching its final, sustained note.
+
+There are no eyes upon its face—only faint, concave depressions where the weeping walls have etched paths for the water to channel down its "shoulders." Through these, it tastes the humidity, absorbing the vaporous mineral salts that drift in the stagnant, warming, sweet air. 
+
+If you were to stand before it, you would not see it blink. You would only notice that, as the hours pass and the mist begins its heavy cycle of shedding, the Weaver might appear slightly altered—a curve in its shoulder more pronounced, a patch of velvet-moss pushed a shade further toward the center of the ring. It is the custodian of the basin’s inertia. It exists to ensure that nothing happens with haste, that every grain of sand finds its destined place in the circle, and that the silence remains undisturbed by the frantic, brief, and messy heat of the world below.
+
+The Lithic Weaver is the mountain’s way of dreaming of itself—a slow, wet, crumbling masterpiece that has forgotten it was ever part of the rock, and has instead decided to become the witness to its own eternal erosion.

@@ -1,0 +1,25 @@
+# The People of Vaulthome
+
+The Vault-dwellers—as they call themselves in their language of scents and subtle hand positions—are human, yet distinctly adapted to their underground existence. Standing slightly shorter than their surface counterparts, their bodies have evolved over countless generations for efficiency in the perpetual twilight.
+
+Their skin maintains a translucent pallor that would appear unhealthy above ground but serves them well below. Beneath this near-porcelain exterior runs a network of faintly visible veins that seem to pulse with the same rhythm as the Heart-Column. Their eyes have grown large and dark, with expanded pupils that rarely contract even when brought near the brightest light-moss reserves. These eyes can discern subtle variations in the blue-green glow that would be imperceptible to surface dwellers. Many elders develop a second, translucent eyelid that protects against the rare shaft of direct sunlight that might penetrate from above.
+
+Their movements are deliberate and efficient, conserving energy in an environment where calories are precious. They walk with a distinctive gliding step that minimizes impact on the sensitive floor-moss. From childhood, they learn to move in harmony with the subtle respiration of their living homes.
+
+Vault-dweller society is organized into kinship groups called "breathcircles," typically comprising three to five families who share communal pod-clusters. Each breathcircle specializes in tending particular fungal varieties or cultivating specific wall-vine behaviors. The most respected are the Columnists, who interpret the Heart-Column's pulses and serve as the settlement's historians and decision-makers.
+
+Their language, Breathspeech, relies primarily on carefully modulated exhalations carrying cultivated scents from specialized glands that develop in adolescence. These scents combine with subtle hand gestures to create a rich vocabulary that can convey complex concepts without disturbing the chamber's delicate acoustic balance. Children born without the ability to produce these scent-markers are given special roles as "Outspeakers," trained to communicate with rare visitors from other settlements.
+
+Vault-dwellers possess an intuitive understanding of symbiotics that surface botanists would envy. From early childhood, they learn to "listen" to the wall-vine's subtle communications—its contractions, expansions, and temperature fluctuations. Most can identify dozens of fungal varieties by touch alone in complete darkness. This knowledge isn't considered mystical but practical—as essential as literacy might be above ground.
+
+Their spirituality centers on the concept of "flow"—the movement of nutrients, water, and energy through interconnected systems. They believe consciousness itself is another form of flow, temporarily housed in bodies but ultimately returning to the greater circulation. Death is viewed as "rejoining the greater flow," with the deceased carefully placed in dedicated decomposition chambers where their nutrients directly feed new growth.
+
+The Vault-dwellers' relationship with time differs fundamentally from surface concepts. Rather than counting days, they measure cycles of the wall-vine's expansion and contraction. Age is reckoned in "pulses" (roughly equivalent to months) and "full flows" (similar to years). The oldest rarely live beyond sixty full flows, their bodies eventually becoming too sensitive to the subtle toxins that accumulate in their fungal diet.
+
+Despite their isolation, Vault-dwellers are not xenophobic. They maintain relations with several neighboring underground settlements, exchanging cultivars and knowledge through a network of messengers called "Pathfinders." These specially trained individuals navigate the ever-shifting tunnels between settlements, carrying concentrated scent-messages preserved in sealed gourds.
+
+The most distinctive Vault-dwellers are the Gardeners, who develop symbiotic relationships with specific fungal strains. Through deliberate exposure from childhood, they cultivate patches of specialized fungi that grow directly on their skin—typically on backs or upper arms—in intricate patterns that denote their family lineage and personal achievements. These living decorations provide both status symbols and practical benefits, as some varieties can detect environmental toxins or approaching pressure changes.
+
+For all their biological adaptations, the Vault-dwellers remain recognizably human—they laugh (though quietly), form deep emotional bonds, create art (primarily tactile sculptures and scent-compositions), and wonder about their place in the world. Their children play games of stealth and sensory recognition in the maze-like peripheral chambers, while adolescents engage in courtship rituals involving the exchange of personally cultivated scents.
+
+They are not primitive survivors but sophisticated adapters who have found harmony in an environment most surface dwellers would find utterly alien—their civilization neither advancing nor declining, but existing in dynamic equilibrium with the living cathedral they call home.

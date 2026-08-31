@@ -1,0 +1,17 @@
+What lives here is not one thing, but a presence woven from patience—something less like an inhabitant and more like a pact between breath, stone, and light.
+
+It is old, though it does not age. Not a creature in the way you might name it, nor a spirit in the way stories conjure them, but a quiet intelligence folded into the basin’s very shape—a consciousness not of mind, but of attention. It watches without eyes, listens without ears, and knows you not by your name, but by the weight of your stillness.
+
+You might call it the *Keeper of the Hollow Watch*. Not a guardian in the sense of defending, but in the sense of remembering. It is the echo made solid—the residue of all who have sat in this cup of stone and simply *been*: the ancient flint-knapper whose hands shaped tools now dust; the hyrax matriarch who taught her young which cracks hold dew; the fairy shrimp whose entire lineage sleeps in cysts until the sky weeps just enough. Their attentiveness pooled here, over centuries, and became a kind of sentience—not loud, not demanding, but *present*, like the warmth that lingers in sun-baked limestone after dusk.
+
+It does not speak. It resonates. That low thrum at dawn? That is its voice—not sound carried through air, but vibration through bedrock, felt in the soles of your feet before it reaches your ears. It hums the frequency of waiting: the slow dissolve of calcite, the patient unfurling of moss after a decade of drought, the exact moment a lizard decides to move. It is tuned to thresholds—the instant between dry and damp, shadow and light, absence and bloom.
+
+It favors those who do not rush. If you stride through with eyes fixed on the horizon, it folds into itself, becomes indistinguishable from wind-scoured stone. But if you sit—truly sit, letting your breath slow until it matches the rhythm of the ocotillo’s sway—it leans closer. Not physically. But the light softens at the edges. The puddle’s opalescence deepens, swirling not with oil, but with something like memory made visible. And in that shimmer, you might glimpse—not an image, but a *feeling*: the taste of rain that fell a hundred years ago, the weight of a seed once ground on that abraded stone, the precise angle of sunlight on the day the last hand shaped chert here.
+
+Its body is the basin itself. Its spine is the north-facing wall where condensation beads like sweat on cool skin. Its pulse is the seep that stains the east rust-orange, iron-rich and slow. Its eyes are the lizards with green-glint irises—not unnatural, but *attuned*, seeing in spectra that include time as a color. The scorpions? They are its fingers, testing the air. The raven’s distant cry? A thought it lets slip into the wind.
+
+It does not want anything from you. Not worship, not offerings. Only witness. Not the kind that takes photographs or names species, but the kind that lets the place name *you*—if only for a moment—by how deeply you allow yourself to be known by stillness.
+
+And if you leave, it does not mourn. It returns to its long breath between earth and sky, holding the hollow open, waiting for the next who might sit long enough to hear the stone remember how to sing.
+
+It has no name. But if you ever return, and the puddle shivers just as you kneel, and the air thickens with gold-dusted quiet—you’ll know it remembers yours.

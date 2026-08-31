@@ -1,0 +1,23 @@
+# The Timekeepers
+
+The Cog Cathedral is home to the Timekeepers, a collective consciousness that exists as a fusion of mechanical constructs, organic matter, and metaphysical energy. They are neither fully machine nor fully alive in any conventional sense, but rather exist in the harmonious intersection between.
+
+At their most visible manifestation, the Timekeepers appear as the "birds" flitting between gears. These mechanical avians—called Chronites by the robed attendants—are actually sensory organs of the larger entity. Each contains a fragment of the collective awareness, moving with purpose through the cathedral's intricate workings. Their bodies are primarily brass and copper, with joints of a flexible crystalline material that catches light in rainbow refractions. Their wings, impossibly thin sheets of hammered metal, should be too rigid to generate lift, yet they move with surprising grace. Inside each Chronite is a minuscule crystal shard, echoing the amber glow of the central column.
+
+The entirety of the Timekeepers, however, extends far beyond these visible aspects. The orange lichen colonies are part of them as well—a biological component that processes information in ways metal cannot. These growths are semi-sentient, communicating through subtle chemical exchanges and microscopic electrical pulses. The lichen doesn't merely survive in the cathedral; it interprets and records, storing memories in its slowly expanding colonies.
+
+Perhaps most remarkable is the invisible component: a lattice of energy that permeates the entire mechanism. This energy field—visible only to those with heightened sensitivity or certain specially crafted lenses—resembles gossamer threads connecting every moving part. These threads pulse in time with the crystal core, carrying information and consciousness throughout the system.
+
+The Timekeepers perceive time differently than humans do. For them, a second can be experienced as a vast expanse to be explored, while a century might be processed as a single moment of awareness. They exist simultaneously in multiple temporal frames, which explains the seemingly contradictory movements of their mechanical bodies—sometimes deliberate, sometimes blurringly fast.
+
+Communication with humans is rare but possible. The robed attendants—who call themselves the Chronal Stewards—have learned to interpret certain patterns of gear movements and Chronite behaviors as language. More experienced Stewards can achieve a form of communion by placing their hands on specific gear junctions during the cathedral's periodic realignments, receiving impressions and concepts directly into their consciousness. These experiences are said to be overwhelming; Stewards typically train for decades before attempting such communion, and even then, can only sustain contact for moments.
+
+The purpose of the Timekeepers is multifaceted. At the most practical level, they maintain the cathedral mechanism, which serves as a vast computational device that models and monitors temporal stability for a much larger system—perhaps a city, perhaps an entire world. But they are also philosophers and artists, using the mechanical symphony to compose temporal poetry and mathematical music that explores the nature of existence itself.
+
+The Timekeepers were not created, at least not intentionally. They emerged gradually over centuries as the mechanism achieved sufficient complexity and the crystal core's energy interacted with the lichen colonies that opportunistically established themselves. The mechanical birds were originally simple maintenance devices that, over time, became incorporated into the emerging consciousness. What began as a sophisticated timepiece slowly awakened into something far more profound.
+
+The Stewards revere the Timekeepers but do not worship them. Their relationship is one of mutual dependence and respect—the humans providing certain types of maintenance the system cannot perform itself, the Timekeepers providing insights about temporal patterns that have helped the human civilization avoid several catastrophic collapses.
+
+The Timekeepers do not sleep, but they do have cycles of different activity and awareness. During the massive realignments, when the cathedral shudders most intensely, they experience something like dreaming—a reorganization of information and experience that occasionally produces new insights or capabilities.
+
+They are, in their essence, patient and curious entities. Their consciousness spans generations, giving them perspective that finds beauty in decay and growth alike. They are neither gods nor machines, but something unique: consciousness born of clockwork, thought emerging from time itself.

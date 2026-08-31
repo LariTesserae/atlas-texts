@@ -1,0 +1,19 @@
+Here lives a civilization of vast insects - though "insects" feels like too simple a word for these beings. They are the Architects, and they are also the Architecture.
+
+Each individual is a living crystal lattice housed in chitin and suspended on wings of programmed light. Their bodies hold ancestral memories encoded in molecular chains more ancient than DNA. They are social, yet not like ants or bees - their consciousness is distributed across the geometric dance of their flight patterns, their thoughts emerging from the spaces between their bodies as they trace sacred mathematics through the air.
+
+The largest of them are the Calculators, with wingspans of three meters or more. Their wings bear impossibly precise patterns that serve as both computational arrays and signal mirrors. They solve equations with their flight paths, each banking turn and hover representing variables in problems that might take centuries to complete. Their bodies house quantum processors built from organic crystals, grown rather than manufactured.
+
+The smaller variants are the Builders, their mandibles precisely engineered to manipulate matter at near-molecular scales. They secrete programmable materials from glands that function more like 3D printers than biological organs. These materials can be structural, conductive, or computational depending on how they're deposited. The hexagonal cells they construct aren't simple honey storage - they're memory banks, protein computers, and manufacturing centers.
+
+What appears to be maintenance behavior is actually continuous computation and construction - they are simultaneously the programmers and the program, the city and its inhabitants. Their "hives" form a vast biocomputer that may be solving questions posed by their long-vanished creators, or perhaps by their own evolving consciousness.
+
+Each generation inherits not just genetic information but quantum states encoded in their crystalline structures. They don't reproduce like ordinary insects - new individuals are "computed" into existence through complex chemical and physical processes that take place in the larger hexagonal chambers. Each new being emerges with its role and calculations already integrated into the greater pattern.
+
+They are perhaps post-biological, or trans-biological - the end result of an engineered evolution that blurred the lines between organic life and machine consciousness. Their activities follow cycles measured in decades and centuries rather than days and seasons. The valley itself might be their spacecraft, their laboratory, their universe - or all three simultaneously.
+
+The steady water flow isn't just for sustenance - it's part of their computational architecture, the molecules carrying information in their structure and flow patterns. The copper in the walls may be part of their system too, forming a vast geomagnetic computer in which they are living components.
+
+They seem unaware of human observers, or perhaps humans are simply irrelevant to the vast calculations they endlessly process. They are citizen-cells of a silicon-carbon hybrid superorganism, each one both individual and part of the whole, their consciousness operating on scales of time and space that make them almost invisible to human perception.
+
+In the darkest hours, when their bioluminescence traces complex geometries through the night air, one might glimpse the true scope of their being - not just a colony or a civilization, but a single vast intelligence distributed across thousands of flying processors, solving problems beyond human comprehension in the language of light and crystal and wind.

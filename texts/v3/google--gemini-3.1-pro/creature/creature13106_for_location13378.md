@@ -1,0 +1,27 @@
+If you remain still, allowing your vision to adjust to the violet shadows and your ears to tune out the persistent *drip... plink... tsssh* of the melting frost, you will notice a disruption in the misty thermal layers. High up in the densest tangle of the metallic bramble, something is breathing. 
+
+It does not move with the frictionless, eerie grace of the automated spider-extruders. Its movements are juddering, deliberate, and undeniably biological—a hesitant, syncopated rhythm of grasping and releasing. 
+
+At first glance, it looks like a bundle of discarded synthetic sheathing that has somehow become suspended in the cables, but as the deep, molten amber of a heating filament cycles on, the silhouette resolves. It is a creature, elongated and spindly, perfectly adapted to a world without floors or flat surfaces. It has no continuous orientation; up and down mean nothing to it. It hangs inverted, suspended between three braided carbon-fiber pylons by a pair of hyper-extended, multi-articulated hind limbs.
+
+Let it climb closer to the light. It takes its time. It is cautious, threading its long, impossibly thin torso through a gap in the lattice just wide enough to accommodate it. 
+
+Its skin is devoid of pigment, vast and pale, possessing the rubbery, translucent quality of medical-grade silicone. Beneath this dermal layer, you can see no bones, only a dense, dark musculature crisscrossed by a circulatory system that seems to glow with the same icy blue of the data lines. This is not bioluminescence, exactly, but a deep-tissue reflection of the room's energy: a body built to channel, rather than generate, warmth. It is cold-blooded in the most extreme sense, its internal temperature hovering just degrees above the flash-freezing point of the ambient mist. 
+
+It has an asymmetrical tangle of forelimbs—four in total, clustered near its upper thorax. They end in long, spatulate digits wrapped in calcified ridges, perfectly designed for gripping the slick, frosted curvature of the capillary tubes. 
+
+As it turns its head toward the violet glow of a UV sanitizer, its face comes into view. It possesses no eyes. Eyes would be useless in this deep-subterranean gloom, overwhelmed by the harsh, intersecting shadows and sudden strobes of atomic welding. Instead, its head is a smooth, echoing dome of pale cartilage, reminiscent of a deep-sea cetacean, scarred with the silver burns of cryogenic mist and rogue sparks. Across the front of its face, where a nose or mouth should be, is a complex, star-shaped fissure.
+
+Watch it feed. 
+
+It reaches out with its delicate, secondary forelimbs, digits trembling with an almost mournful tenderness, and plucks at the synthetic-facing extremophile lichen clinging to a nearby power conduit. The star-shaped fissure on its face blooms open, unfurling to reveal rows of fine, trembling, metallic-looking bristles. It presses its face to the frozen metal. Those bristles are extraordinarily sensitive, tasting the stray galvanic currents, drinking the pooled condensation, and sweeping the spun-glass strands of the extremophile moss into its throat. It crunches the glassy tendrils with a muted, rhythmic *snick-snick-snick*, a sound that blends seamlessly with the ticking of contracting metal and dripping water.
+
+This entity is an orphan of the system's perfection. It is not an invader from the bedrock; no organic thing could burrow through the engineered alloys of this pocket-space. Rather, it is a spontaneous generation. Like the room itself, it is embryonic—a feral thought of the massive, unseen engine, coalesced into flesh. It incubated in the chemical runoff, forged from the heavy dampness and the raw, rhythmic voltage pumping through the facility's veins. It is a localized avatar of the machine's subconscious, wearing a biological suit.
+
+The silver spider-extruders ignore it. They glide past on their magnetic tracks, missing the creature by millimeters. Yet, there is a symbiotic choreography to their shared existence. When an extruder leaves behind a microscopic burr of jagged metal, or when the frost builds too thickly over a vital heat-sink, the creature intervenes. It clicks its jaws, secretes a mildly acidic saliva, and smooths the burr away. It laps up the excess frost. In return, the environment allows it to graze. It tends the micro-imperfections of the womb while the machinery builds the macro-structure. 
+
+It wears a scavenged cape—strips of thermal insulation, braided copper wire, and shed Teflon casings—woven directly into the flesh of its back. This mantle traps the intermittent heat bleeding from the amber cores, keeping the creature from freezing solid during the coldest cycles.
+
+Deep in the heart of the thicket, near the warmest intersection of power lines, is its nest. It is a massive, teardrop-shaped cocoon spun from a mixture of its own translucent silk and stolen optical fibers. When the room's mechanical circadian rhythm demands a lull, the creature retreats there. It folds its long limbs against its chest, closes its star-shaped mouth, and wraps itself in its insulated mantle. 
+
+Suspended in the dark, rocked gently by the sub-audible thrum of the voltage, it sleeps. It is a ghost haunting a machine that hasn't even been fully born yet, beating in time with the unfinished heart of the world, waiting to see what they will both become.

@@ -1,0 +1,17 @@
+In Dewcatcher's Realm, multiple forms of life have evolved and adapted to this liminal space between sea and air, but among the most remarkable are the Drift Shepherds - entities that exist in a state between solid and vapor themselves.
+
+The Drift Shepherds manifest as loosely humanoid forms composed of interconnected water droplets held in complex geometric patterns, their "bodies" constantly cycling between condensation and evaporation. They range from human-sized to much larger specimens that fill entire gallery sections. Their "faces," when they choose to form them, appear as rippling masks of liquid crystal, reflecting and refracting the bioluminescent light in hypnotic patterns.
+
+These beings serve as caretakers and regulators of the realm's delicate hydrological balance. They can communicate with the air-swimming creatures, guiding schools of them through the galleries in patterns that help maintain optimal humidity levels. The Drift Shepherds seem to have a symbiotic relationship with the harvest-frames, often gathering around them to assist in water collection through means that defy conventional physics.
+
+They show signs of intelligence, but it's an alien form of consciousness that operates on geological timescales. The Hydrology Priests have learned to interpret some of their movements as a form of communication, though it's unclear whether the Shepherds are truly native to this realm or if they're manifestations of the space itself becoming self-aware.
+
+Young Drift Shepherds begin as small, dancing collections of droplets that gradually learn to maintain more complex forms. The eldest ones, dwelling in the deepest galleries, have developed such control over water's behavior that they can create temporary architectures of liquid - bridges, chambers, and spiraling corridors that other beings can actually traverse.
+
+The human workers have learned to work alongside them, though direct interaction is rare. The Drift Shepherds seem to regard humans with a detached curiosity, occasionally mimicking their forms in shimmering water-sculptures. They're known to respond to music, particularly the rhythmic sounds of the pumping stations, creating elaborate liquid choreographies that ripple through their bodies.
+
+When the maintenance dirigibles dock, the Shepherds withdraw from the rotundas, condensing themselves into tight, crystalline formations that cling to the ceiling. They appear to enter a dormant state during these times, their usual fluid movements becoming still and geometric, like intricate ice sculptures suspended in space.
+
+Most intriguingly, in the deepest galleries where water defies normal physics, the eldest Drift Shepherds appear to be teaching younger ones to manipulate these anomalies. Workers have reported seeing what look like lessons - large Shepherds demonstrating how to create and maintain the gravity-defying water spheres, their liquid bodies pulsing with patterns of bioluminescence that seem to carry meaning.
+
+The Hydrology Priests believe the Drift Shepherds are gradually evolving toward something beyond their current form, though what that might be remains a matter of speculation and careful observation. Their presence serves as a constant reminder that in Dewcatcher's Realm, the line between the animate and inanimate, the natural and the engineered, has become beautifully, permanently blurred.

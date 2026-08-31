@@ -1,0 +1,27 @@
+# What Lives There
+
+The first assumption to discard is that something *lives* there in the sense the word usually carries — born, fed, dying. Nothing in the Lacuna Verdant was born, and nothing there can die, because dying is a kind of change, and change is exactly what this basin has set to zero. So when something is finally seen — and it is, eventually, always seen — understand that you are not looking at an organism that survives here. You are looking at a *function* that the place keeps performing, because the equation that resolved into fracture-plates and blue-veined fronds apparently required a term for motion, and so it generates one, the way a sum generates a remainder whether or not anyone wanted it.
+
+## Form
+
+It is fox-sized because fox-sized is, evidently, the shape this particular remainder takes — low, quadrupedal, four-limbed in the manner of something that once needed to run from or toward something, though there is nothing here to run from and nothing worth running toward. The resemblance ends at silhouette. Look at it directly and the edges do the thing the fronds do, the soft static shearing where outline should be — not blurred, exactly, more like a signal that hasn't fully committed to occupying that particular set of coordinates, the way the frond commits to a position while throwing two incompatible shadows. It is not unclear because your eyes are failing. It is unclear because it is mid-resolution, perpetually, the way a held note is always mid-vibration even when it sounds constant.
+
+It has no visible eyes that hold a gaze, no mouth that could be called for eating, because the question of what it eats was never load-bearing in whatever process produced it. It does not hunt. It does not graze. It moves the way the chime-note moves through the fronds — *toward*, briefly, and then away, as though acknowledging something and then retracting the acknowledgment.
+
+## Recurrence
+
+You will ask whether it is the same one each time. The basin does not support the question. Individuality requires a boundary that holds across separate moments, and moments are not separate here in the way they are for you. It may be more accurate to say: every time conditions in some thicket call for a small mobile presence — a gap in the design that wants filling, the way an underdetermined equation wants a value — the basin produces *this*, the fox-shaped solution, fully formed, with no memory of the last time it was produced because there was no last time in any sense that would let memory accumulate. It is not reincarnated. It is not even repeated. It is the same answer arrived at again because the question hasn't changed.
+
+This is why it leaves no tracks. Tracks are evidence of a body's passage through time, a record that something was *here* and is now *there*. But it isn't passing through time. It is being computed, locally, continuously, in the same way the fracture-plates are continuously being not-eroded — an active stillness disguised as passive presence.
+
+## Behavior
+
+It moves through the undergrowth at a pace that looks, almost insultingly, like curiosity — pausing at thickets, tilting its shorn-static head the way the fronds tilt toward the chime, as if it too is included in whatever call that note makes. Perhaps it is. Perhaps the distinction the mind wants to draw — *this is the animal, that is the plant, that other thing is the ambient tone* — doesn't survive contact with a place that resolved itself once and stopped revising the categories along with everything else. The fox-shape, the chime, the hum under the teeth: possibly three observations of one underlying thing, the way a chord is one event heard as three notes only because your ear insists on counting.
+
+It does not flee from you. It does not approach you. It treats your presence the way the mat treats your footprint — registering it, very briefly, as a local disturbance to be quietly absorbed back into the solved state, with no more alarm than an equation shows when a redundant term is dropped from both sides.
+
+## What It Is Not
+
+It is not a guardian. Guardianship implies a threat worth guarding against, and the basin has no model for threat, having already excluded the only thing that could threaten it, which is time. It is not lonely, not curious in the way that word implies want, not aware of itself as singular or rare, because rarity is a comparison across a population that doesn't apply when there is only ever one correct value for the variable it represents. It is not a remnant of some vanished ecology, because nothing here vanished — vanishing is change, and this place doesn't do that anymore.
+
+It is closest, if a comparison must be made, to the rotating lattices suspended inside the translucent stalks: a small, internally consistent motion held inside a larger thing that has otherwise stopped moving, present not because the larger thing needs it, but because a perfectly static system is, perhaps, indistinguishable from a dead one, and whatever resolved this basin into its final form left one gear turning — not to power anything, just so that something, somewhere in all that stillness, could be seen to be in motion, and the place could go on being called, by anyone unfortunate enough to wander into it, *alive*.

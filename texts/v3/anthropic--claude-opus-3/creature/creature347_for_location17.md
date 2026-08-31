@@ -1,0 +1,15 @@
+In the floating cities above the storm-tossed seas, a strange and hardy folk dwell - the Stormriders. Pale of skin from lives spent out of the sun's reach and lean of build from generations of subsisting on algae, bioluminescent fish and what little they can grow in their meager gardens, the Stormriders are a people forged by the challenges of their drowned world. 
+
+In each city, extended family clans form tight-knit communities, fiercely loyal to each other. They often bear clan markings tattooed in swirling patterns that evoke crashing waves, storm clouds and lightning. The oldest families claim ancestry tracing back to the Time Before the Drowning, an era now cloaked in myth.
+
+The Stormriders are master engineers and builders by necessity, endlessly maintaining and expanding their precarious cities against the ravages of salt, wind and tide. From a young age, children tinker with machines, learning to repair and improve the aging technologies that keep them alive. The most promising become Keepers, an esteemed role tasked with keeping their city's ancient beating heart - its mighty engines - running. 
+
+Some rare individuals are born with an uncanny attunement to the strange energies powering the city cores. Known as Stormcallers, they can sense approaching squalls and particularly large waves, warning the city in time to batten down. A few are said to even be able to summon lightning from the roiling clouds or calm the turbulent seas for a time. 
+
+Donning pressure suits and respirators, salvage crews descend into the churning waters, braving the treacherous depths to scavenge vital tech from the scattered ruins of other cities claimed by the unforgiving sea over the ages. The boldest - or most foolhardy - hunt the monstrous abyssal creatures, dragging their pale carcasses back to the city to feast on their alien flesh.
+
+An adventurous few take to the skies in ramshackle, engine-powered gliders, riding the updrafts and dancing between lightning bolts. These daring aeronauts, known as Skyfish, act as scouts and explorers, searching for other cities to trade with. Some even claim to have glimpsed the fabled Dryland in the far distance, though none have managed to fly far enough to reach it.
+
+The Stormriders are a superstitious people, weaving stories around the strange world they inhabit. Some worship the bioluminescent sea life, believing their glowing dance to be a sign from the gods. Others revere the massive storm systems, leaving offerings of scrap metal and fish oil to appease the Sky Leviathans. The most secretive speak in whispers of the Undying Ones, the pale deep-sea creatures said to be older than the Drowning itself.
+
+An indomitable people in an impossible place, the Stormriders cling to life amid the endless rain, riding lightning and waves as they dream of a sunnier world that may never come. But still they endure, one hard-won day at a time, in their lonely cities above the seas.

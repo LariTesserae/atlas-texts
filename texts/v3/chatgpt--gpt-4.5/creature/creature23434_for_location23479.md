@@ -1,0 +1,19 @@
+Beneath the surface, nestled in the warm, shadow-veiled hollow, dwell the Slow Keepers.
+
+They are quiet custodians of this peculiar subterranean place, neither wholly mechanical nor entirely vegetal, but drifting somewhere between. Their forms, faintly humanoid, blur softly at the edges, woven from an intricate mesh of filamentous roots interlaced with threads of copper and corroded metal wire. Their limbs—delicate yet strong—move with patient deliberation, almost indistinguishable from the gentle sway of vines in the humid breath of the cavern.
+
+The Slow Keepers have no distinct faces, only subtle depressions and faint glowing nodes, arranged in clusters like the stars of an unknown constellation, softly pulsing with muted phosphorescence. Each individual Keeper has its own unique pattern of light—a fingerprint of gentle radiance. These patterns shimmer slowly, signaling to one another across distances through quiet waves of illumination, conveying meaning in slow cycles of brightening and dimming, an unhurried language shaped by eons of darkness and silence.
+
+They feed upon the latent electricity that leaks quietly from abandoned engines and ancient cables, drawing sustenance from faint sparks of residual current, or from the barely perceptible hum of ancient machinery. In return, they tend and repair, carefully knitting frayed wires back together with dexterous, root-like fingers, maintaining the careful balance of their small domain.
+
+Their lives are cycles of profound patience. They gather near moisture pockets, gently guiding droplets along pathways carved into rock and metal, ensuring these life-sustaining pools remain filled, pure, and reflective. The Slow Keepers themselves never enter the pools directly, but pause at their edges, softly drawing patterns with their copper fingertips on the water’s surface, leaving behind brief phosphorescent ripples, transient as whispered thoughts.
+
+Each Keeper emerges from beneath the soil slowly, pulled together from seedlings of copper, mineral dust, and strands of living root matter, cultivated carefully over decades. They mature over spans measured not by days or seasons, but by generations of delicate changes, their forms growing slowly more complex, their language richer in nuance.
+
+Their movements are careful dances of intention. They step deliberately around rusted machinery, pausing reverently beside old engines as if listening to stories whispered softly through metal and time. At moments, a group of them might gather, forming quiet circles around especially intricate or mysterious remnants of industry, communing silently, their pulsing illuminations creating slow, rhythmic harmonies that gradually reveal hidden significance in these forgotten artifacts.
+
+Though solitary by nature, the Keepers share a collective understanding—an innate, patient communion of purpose and care. They embody the spirit of gentle restoration, guardians of entropy’s slow reclamation. They accept the quiet inevitability of corrosion and collapse, but intervene subtly, prolonging, preserving, and shaping the gentle beauty of decay. Their essence weaves through the very fabric of the cavern’s delicate ecology, a symbiosis of industry, vegetation, and mineral.
+
+In their slow life, there is no hurry—no urgency. Only the deep, measured rhythm of caretaking, of maintenance, of quiet reverence for the small miracles of existence. And though they lack words, stories flow endlessly through them, written in pulses of soft light, in careful touches, in quiet, thoughtful tending.
+
+Here, in this cathedral beneath the earth, life itself moves in whispers, in pulses, in the warm darkness. The Slow Keepers dwell patiently, ever present, ever gentle, the silent heart and guardians of their quiet, forgotten world.

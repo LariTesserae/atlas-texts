@@ -1,0 +1,24 @@
+In a place where the ground is still cooling and the sky is a heavy shroud of violet, the inhabitants are not born of flesh and bone, nor are they strictly mechanical. They are expressions of the slow-motion metabolism that governs the basin—beings of equilibrium traveling at the speed of unfolding geometry.
+
+### The Liturgists of the Spire
+The primary residents are the **Aurelia-Stalkers**, though they do not stalk in any predatory sense. They are the tenders of the cathedral-monoliths, entities that appear as humanoid silhouettes composed of the same shimmering, iridescent alloy as the spires. They do not walk; they displace. They move via the same localized gravity wells that guide the uphill streams, drifting inches above the basaltic silt in a state of perpetual, meditative suspension.
+
+They possess no faces, only smooth, concave surfaces that reflect the bioluminescent pulse of the indigo flora. When they approach one another, they do not speak; they harmonize. Their communication is a tactile resonance that ripples through the marrow of the air, a shared adjustment of the local magnetic field. Their primary function is "tuning." You might see one standing motionless for days before a razor-edged ridge of obsidian, its hands—long, tapering filaments of silver—hovering over the glass to conduct the geothermal heat into the local nanomeshes. They are the gardeners of the invisible, ensuring the silver spiderwebs are weaving at the correct frequency.
+
+### The Silken Weavers
+Below the canopy of the fleshy, skiff-sized leaves, the "wildlife" manifests as the **Phase-Spiders**. These are not arachnids, but autonomous clusters of the silver nanomesh that have attained a collective, primitive sentience. They appear as spheres of liquid mercury the size of a human head, capable of flattening themselves into translucent ribbons to slide between the waxy indigo stalks. 
+
+They are the janitors of the atmosphere. They hunt the "siphon-gliders," not to consume them, but to merge with them, exchanging data and harvested thermal energy before separating again. They vibrate at a pitch that shatters the perpetual condensation into microscopic diamonds, which they then direct toward the roots of the spires. To watch a swarm of them is to watch a shimmering, liquid logic-gate moving through the ferns.
+
+### The Thermal Wraiths
+Deeper in the "between"—the vast wilderness of dark ferns and glass fins—live the **Vitreous Drifters**. Because evolution here relies on thermal vision, these creatures have evolved to be invisible to the heat-sensors of the Aurelia-Stalkers. They are pockets of "stored cold," entities that look like jagged shards of the volcanic soil itself, held together by a weak electromagnetic tension.
+
+They move with the agonizing slowness of a glacier, traveling only a few meters each lunar cycle. They feed on the "leftover" silence, absorbing the low-frequency hum of the spires and converting it into a dim, internal frost. They are the only things in the basin that are cold, and as such, they are the only things that truly "stand out" to the environment. When a Vitreous Drifter passes over a bioluminescent vine, the plant’s sap freezes for a brief moment, turning the indigo pulse into a static, crystalline blue before the velvet warmth of the world melts it back to life.
+
+### The Glass-Singers
+Buried partially within the basaltic silt are the **Lithic Symbiotes**. These are the most ancient inhabitants, perhaps remnants of the upheaval that birthed the land. They are living geodes, large as boulders, with translucent shells that reveal a core of rotating, geometric light. 
+
+They are the organists of this world. As the ground-heat fluctuates, the gases trapped within these creatures expand and contract, forced through microscopic vents in their crystalline skin. This produces a haunting, flute-like whistle that carries for kilometers. The Aurelia-Stalkers listen to these whistles to determine where the next spire must "unfold." The Glass-Singers are the architects of the sprawl’s rhythm, providing the blueprint of sound that the silver nanomeshes use to weave the city’s future.
+
+### The Guest-Sense
+To live here is to be part of a singular, breathing circuit. There is no competition for resources, only a collective effort to manage the transition of heat into light, and light into structure. The inhabitants do not acknowledge you as a stranger; they acknowledge you as a heat signature. If you stand still long enough, the silver mist will begin to weave around your ankles, not to trap you, but to integrate your heartbeat into the low-frequency hum of the basin, treating you as just another unfolding pillar in a laboratory that has finally achieved grace.

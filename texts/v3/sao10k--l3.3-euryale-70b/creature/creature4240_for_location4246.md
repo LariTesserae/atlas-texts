@@ -1,0 +1,3 @@
+Beneath the glassy surface, a menagerie of blind, subterranean creatures swims, their translucent bodies glowing like lanterns in the darkness. Algae-draped moss clings to massive unconscious beasts that have lain undisturbed for centuries, salamander-like serpents slither, their skittering gills extracting oxygen from water thick as jelly. 
+
+Some beings here are not biological in any conventional sense – partially animate patches of shimmering, iridescent fungus that ooze and flow like noxious fluids, or undulating colonies of simpler organisms that appear to have developed a sentient symbiosis. Mist-shrouded beings drift, studying this world with a depth of insight reserved for conjecture and speculation, to which they reply, sometimes ...

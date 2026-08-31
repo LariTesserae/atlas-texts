@@ -1,0 +1,17 @@
+In this marvel of human construction, the inhabitants are as varied as the landscapes they've created. While there are no 'natives' in the traditional sense—everyone here came from somewhere else—at this point, generations have been born within the city's stone and steel walls. These individuals have grown up with the constant din of growth and the stark beauty of the mist-shrouded mountains as their horizon.
+
+The citizens of this city are, as a whole, a community of tinkerers, engineers, architects, farmers, and explorers. Many dedicate their lives to the ongoing expansion and maintenance of the city, pushing the boundaries of what is possible in this high-altitude, artificial environment. Others specialize in the cultivation of the city's crops in the vertically stacked gardens, ensuring that the delicate ecosystem is maintained and that food is abundant for the populace.
+
+Children are taught from a young age about the mechanics of the city, how water is harnessed, how the gardens are tended, and how the engines purr to life beneath their feet. They learn about the history of this place, how it was carved out of rock and technology over centuries, and the well-planned, careful management of its resources.
+
+As a result, the people here have a deep respect for planning and preservation. They live in harmony with their creation, understanding that every change must be meticulous, every expansion considered. They are a community of problem-solvers, of creatives, of hands-on thinkers who find joy in the marriage of nature and industry that they call home.
+
+But alongside these engineers and caretakers, there are also the storytellers, the artists, and the explorers. There are those who venture into the depths of the city, who delve into its uncharted corners and rumor-filled spaces in search of new life, new sounds, and new landscapes to marvel over. There are the authors who write of the city's history, of its champions and villains, of the struggles it has faced and the marvels it has achieved.
+
+A culture of innovation and discovery thrives here. New inventions emerge regularly, solutions to unique problems that only this place poses. The city holds festivals for the unveiling of new engines, new greenhouses, and new residential districts. Celebrations fill the streets with laughter, music, and the hum of excitement.
+
+Yet, in the quiet hours, when the city sleeps and the storm outside rolls in, enveloping the dome in a heavy veil of darkness, the residents of this place gather around fires, in small cafes, or in the great halls. They share stories of the city's past, of its mythical beginnings, of the dreamers who first saw a metropolis where others saw only stone and sky.
+
+They tell tales of the deeper, unknown places within the city, where the sound of running engines is replaced by the silent glide of hidden waters and the shadows that lie just beyond the edge of the light. They speak of creatures seen in the depths, of scaled beasts that swim in the dark waters beneath, and of beings that roam the higher reaches of the city, where the towers stretch toward the clouds and the air is thinner still.
+
+This is a city of endless possibility, of magic in the machines, of nature harnessed and bent to will. But it is also a city of stories, of myth and legend. Here, as in no other place, the lines between what is real and what is imagined blur until the city itself becomes the greatest story, ever-changing, ever-expanding, and forever unique.

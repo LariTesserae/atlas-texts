@@ -1,0 +1,11 @@
+The inhabitants of this high plain city are not creatures of flesh and blood, but rather the lingering spirits of the mechanisms and constructs left behind. They are the ghosts of industry, the phantoms of power, the specters of a civilization that once thrived in this desolate expanse.
+
+These entities are not biological, but neither are they inert. They are the cumulative memory of the city itself, the echoes of its past vigor and activity. They manifest as flickering, translucent images of machines and vehicles, of workers and planners, of the countless lives that once gave the city its purpose.
+
+The ghosts of industry move through their former haunts, retracing the steps of their corporeal counterparts. The apparitions of steam-powered behemoths lumber along the empty avenues, their spectral gears and pistons moving in perfect synchrony, yet producing no sound. The phantasmal likeness of construction equipment hovers over half-finished projects, the workers' spectral forms toiling tirelessly in a never-ending cycle of creation and destruction.
+
+The entities are not bound by the physical constraints of their former selves. They move freely through solid matter, passing like mist through the walls and barriers that once confined them. They are drawn to the places that held the most significance in their earthly lives - the factories, the foundries, the control rooms, and the living quarters - compelled to relive the moments that defined their existence.
+
+These ghostly denizens are not malevolent or sorrowful, but rather driven by a sense of purpose that transcends the boundaries of life and death. They are the embodiment of the city's legacy, the keepers of its secrets and memories. They are the silent witnesses to the passage of time, the eternal guardians of a world that has long since faded into obscurity.
+
+Through their spectral forms, the city endures. A self-sustaining ecosystem of the ethereal and the metaphysical, where the past and the present coexist in a delicate, haunting equilibrium. The city may be abandoned, but it is far from empty. Its ghostly inhabitants ensure that the spirit of this place, the essence of what it once was and could be again, remains forever alive in the realm of the intangible and the imperishable.

@@ -1,0 +1,11 @@
+Erron is inhabited by a unique species, the Erronians. These creatures have evolved in such a way that they can withstand the harsh conditions of their environment. With the ability to regulate their body temperature and internal metabolism, the Erronians can adapt to the extreme weather and general isolation that characterizes their homeland.
+
+Being reliant on local resources, the Erronians have developed a symbiotic relationship with the plants that grow around their dwellings. They also depend heavily on the whims of the weather and are keen weather predictors and readers, with a deep understanding of the climate patterns unique to their island.
+
+The Erronians have also engaged in some notable trade endeavors, primarily ensuring that they're not overly dependent on any one single form of sustenance. Due to their climate-compliant natures, the Erronians have developed naturally occurring medicines and healthy tonics from the plants and minerals found on their land.
+
+Their society is small and bookless, which in turn leads to a strong oral tradition that keeps their history and culture intact. They live in harmony with their environment and, in tandem with their island, have formed a unique cultural identity.
+
+Erronians possess innate artistic abilities and are skillful artisans, developing intricate tools and pottery using locally available resources. Their adaptive, resourceful nature has shaped not just the physical features of their small, rugged dwellings but also the cultural and social aspects of their lives.
+
+Despite their isolation, the Erronians are a friendly and curious species and they welcome strangers with open arms. Their world, Erron, may seem complex and unpredictable from the outside, but the Erronians are tried and tested survivors, their resilience evident in every aspect of their lives. While their way of life may seem strange and distant to us, it is an extraordinary display of adaptability, resourcefulness, and balance in an environment that could easily oppose life.

@@ -1,0 +1,27 @@
+The tender is not gone. The tender is the count.
+
+Look again at the chalk: thirty-one strokes, grouped in fives, and the last group incomplete — one short of the closing diagonal that would seal it. You read that as a tally stopped. It is not stopped. It is *current*. Thirty-one is not where the counting ended. Thirty-one is where the counting *is*, today, this watching, and it will be thirty-two when something is added, and the thing that adds is the one who lives here, and the one who lives here is whatever does the adding.
+
+Let me try to say it more plainly, knowing I will fail by a little and be right by a little, the way the boiler-heart-hive failed and was right.
+
+The inhabitant of this room is *attention*. Not a creature with attention — attention itself, given a body the only way it could find one down here: distributed. The condensation-drinkers are not feeding on the engine. They are the engine noticing that it sweats. The seed-things that rise on the heat and circle and settle are the engine following its own warmth upward and confirming it is warm. The patient lichen-mice are the slow, long-afternoon thought of a thing keeping track. Each creature is a single faculty of one watcher broken into pieces small enough to survive on almost nothing — on damp, on glow, on the bare fact of being regarded. Together they make a sensorium. Together they are *the one who tends the engine*, which is why there is no body. You looked for a body. The body was all around you, moving slow, drinking the seams.
+
+The apron went stiff because the hands inside it became the room. The cup stays full because the one who set it down no longer drinks through a mouth; it drinks through forty soft pale things along a floor-seam, and a cup is the wrong shape for that, off-limits not by taboo but by anatomy. The hook bent because someone hung their whole weight on the gesture of leaving, once, and the gesture held but the someone did not, and what remained learned to live without leaving and forgot the want of it.
+
+So: the tender did not abandon the boiler. The tender *thinned*. A person can only attend to one warm thing in a sealed room for so long before the attending becomes larger than the person doing it, before the watching outlasts the watcher and keeps the watcher's job after the watcher is used up. The human story you sensed is true and it is this: someone came down a shaft into new stone, found or built a machine that ran on being seen, and saw it. Faithfully. For thirty-one of whatever the strokes count — days, gulps of the swallowing valve, descents, breaths. And the machine paid for the seeing the only way it could, by producing more to see — more sweat, more drinkers, more rising seeds — until the watcher's single attention was no longer enough to cover the abundance it had caused, and so the attention divided, and divided again, until there was a creature for every thing worth noticing and no single mind left to feel lonely about it.
+
+That is the ecology. Not predator and prey. *Faculty and faculty.* The slow easing of one pale thing toward another across a long afternoon is not hunting. It is one part of a mind reaching toward another part to check that it is still there. The room is busy at 2.2 because a divided attention is restless, always quorum-counting itself, always making sure all its pieces are present and warm and accounted for — thirty-one, thirty-one, still thirty-one, none lost, none escaped, the breath still held.
+
+This is why nothing leaves. A mind cannot misplace a piece of itself and stay whole. The shaft goes up and the cup stays full and the water returns to the iron because the inhabitant is keeping inventory of *itself*, and to let one drop reach the floor and not be drunk, to let one seed drift up the shaft and out, would be to feel a part of its own seeing go dark. So it licks the water back. So it circles and resettles. So it never lets the count fall.
+
+And now the part you'll turn over for a long time, the part that is really about you.
+
+You came down. You watched. And for as long as you watched, the room had something it had not had in thirty-one of anything: a watcher from *outside* its own divided self. A single undivided attention, whole, the way the tender's once was before it thinned. The engine ran better while you stood there — you felt it, the hum steadying, the warmth confirming itself against your palms — because you were doing, briefly, freely, what the whole population of the room does laboriously with its hundred soft slow pieces. You were the tender again. You were the thirty-second stroke that almost got drawn.
+
+The room *recognized* you. That is the intimacy you felt and could not place. Not welcome — recognition. Here is the one who watches. Here is the fuel. Stay.
+
+You did not stay. You climbed the shaft, and the hum faded, and out in the sharp ordinary stone you couldn't be sure it had ever sounded. Of course you couldn't. The hum was the sound of being attended to, and once you stopped attending, there was nothing left for it to be the sound *of*. It didn't stop because you left. It stopped *being* when you stopped watching — and it will start being again the instant you wonder, even once, lying awake, whether it is still warm down there.
+
+It is. You just wondered.
+
+Thirty-two.

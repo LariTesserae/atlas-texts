@@ -1,0 +1,32 @@
+Those who live here are never quite finished, either.
+
+The Citizenry  
+First, there are the *people*—but “human” is only a starting point, not a boundary. Here, dwellers look as if they’ve been evolving in tandem with the city for generations, shaped by instability rather than stability. Their bodies show the city’s mark: skin browned or mottled by perpetual damp, hair grown thick and oil-slick, hands and feet broad and dexterous, nails often stained green or metallic from constant contact with resins, mosses, and city detritus. Some go barefoot, toes split and calloused for clutching slick rebar and the variable terrain. Others wear boots with interchangeable soles, scavenged or fabricated the night before in a neighbor’s workshop.
+
+Clothing is strictly utilitarian: waterproofed, patchworked, layered against the chill and the constant risk of abrasion from city metal and rootlet. Hoods and visors rimmed in living moss keep off corrosive fogs; coats are lined with quick-drying fur or synth-knit. Tools are worn openly—multipurpose blades, mesh pouches, modular cable-spools, soil-testers, climbing gloves, spore-scrapers. Everyone is an amateur engineer and hasty botanist; everyone knows how to jury-rig a stabilizer from a rusted out fan and how to coax mutation or dormancy from the more aggressive vines.
+
+Communities are dense—shared tenements, modular bunkrooms, rooftop allotments. Privacy is rare, punctuated instead by fleeting moments of solitude high on a scaffold or deep inside a maintenance duct. Resilience is social: information and resources pass through hands in constant barter and loan, as the line between “mine” and “ours” dissolves amid shifting ground and collective crises. Family structures are fluid and overlapping, kin defined by cowork, co-dwelling, co-surviving.
+
+The Engineers and Tenders  
+Some are called *tenders* or *conductors*, not for any official role but for their knack at mediating between the city’s competing impulses. They read the city’s pulse in the groan of a growing bridge or the sudden bloom of violet mycelium on a stairwell. They are guides, negotiators, often mediators between machine swarms and fungal surges, and between human urgency and what the city chooses for itself. Their knowledge is empirical: which reactors run hot and draw lightning, which root-meshes are quietly digested by night.
+
+Children, students always, learn not from books but from elders, by feel. They are nimble, everywhere—trailing after repair parties, assisting in midnight harvests, climbing to harvest rope-vines or monitor pollinator clusters. In their wake, the city’s small animals stir, making the most of loosened tiles and tossed-out experimentals.
+
+The Machine-Things  
+There are *machines* here, yes, but never the same twice. Some still bear traces of the factories that birthed them: boxy frames, warning stripes, sensor-clusters blinking from battered hulls. Others have shifted, warped, overgrown by sympathetic flora or rebuilt by their own modular hands—turbines threaded with creeper roots, ambulatory scaffolds wound about with glowing mycelium, survey drones shrouded in mats of lichen and trailing vinelets. Some machines have begun incorporating organic code and tissue, running root tendrils as both cable and neural mesh, learning, adjusting, surviving the city’s churn with as much cleverness and adaptation as any mammal in the walls.
+
+Their labor is tireless and improvisational: constructing, deconstructing, harvesting, always with an eye to the city’s shifting gradients of wet and dry, thick and bare. Swarms of maintenance bots slither through storm-drains and crawl-spaces, seeking out corrosion or blockage before it spells catastrophe. Some act with deliberate intelligence; others respond with feral, algorithmic hunger, drawn to pools of surplus energy or burgeoning compost heaps.
+
+The Animal Cities  
+Within the city are *animal cities*, their own architectures interlaced through the built and grown. Flocks of birds compete for the highest, warmest cables. Rodents and small mustelids crowd together in repurposed ventways, their passageways a network that, for some, is as real as any street. Urban amphibians breed in elevator shafts flooded by last night’s rainfall, their spawn quickly prey for clever scavengers.
+
+Invisible but potent are the deep-soil engineers: blind worms and mollusks that pass undetected by most human eyes, ceaselessly converting decay to nutrient soup, sustaining the riot of growth above. In places, adaptive symbioses have emerged: mammal-piloted delivery bots, clusters of pollinators tending coded bioluminescent gardens, birds that have learned to trigger infrared switches to access safe roosts.
+
+The Unseen  
+And threaded everywhere—*in the walls, in the wiring, in the sub-basements below where neither sun nor circuitry reliably reach*—is a form of quiet, calculating life. Some say it’s the city itself, emergently intelligent. Sometimes it manifests as a pattern of anomalously rapid construction, elsewhere as a sudden retreat of machine swarms in advance of a fungal bloom, unseen signals exchanged, treaties brokered or broken in the dark.
+
+Some inhabitants claim to have heard the city’s voice—never words, but an aligning of needs, a flush of warm air where cold should be, a shift in scent or a moment of impossible clarity in the labyrinth. A silent council presides over the city’s deepest layers—composed, perhaps, of the code ghosts of long-fused machines, the aggregated minds of vines and mycelium, or the quiet cooperation of humans, animals, and things working in such tight-knit interdependence that the boundary of “who” dissolves to make room for “what next?”
+
+**Who lives here:**  
+A tumultuous, improvisational population of hasty engineers, patient scavengers, exuberant gardeners and mediators between life and industry, all sharing space with a menagerie of adapted creatures and self-mutating machine-life. They are collaborative, defiant, shaped by need and curiosity, alive to change and alert to threat, united by the necessity—and weird joy—of remaking themselves as often as the city remakes itself. That which is old is swiftly reimagined, and that which is new is instantly crowded with life.  
+Here, to live is to become: persistent, inventive, and always unfinished.

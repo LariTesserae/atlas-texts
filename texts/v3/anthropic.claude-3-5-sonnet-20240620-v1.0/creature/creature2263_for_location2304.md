@@ -1,0 +1,21 @@
+In the Sinking City of Mire's Edge, a diverse and resilient population has adapted to the harsh, swampy environment. The inhabitants are a mix of long-time residents, industrial workers, and those drawn to the city's unique challenges and opportunities.
+
+The Mire Dwellers, as the locals call themselves, have developed distinct physical characteristics over generations. Their skin has a pale, slightly translucent quality, with a faint sheen that seems to repel moisture. Many have developed larger, webbed feet that help them navigate the treacherous boardwalks and occasionally wade through shallow waters. Their eyes are often large and slightly bulbous, adapted to see clearly through the constant haze and dim light.
+
+The city's industrial workers form a significant portion of the population. These individuals are easily recognizable by their heat-resistant suits, which have become a second skin for many. Their bodies are lean and wiry, hardened by the constant physical labor required to keep the city afloat. Many sport intricate tattoos depicting local flora and fauna, a tradition that serves both as art and as a way to mark one's years of service to the city.
+
+A class of engineers and tinkerers has emerged, their expertise crucial for the city's survival. These individuals are often seen with an array of jury-rigged tools and devices attached to their belts or strapped to their backs. Their fingers are nimble and calloused, equally adept at manipulating delicate circuitry or heavy machinery. Many have augmented themselves with crude but effective cybernetic enhancements to assist in their work, such as magnifying lenses that flip down over one eye or reinforced limbs for heavy lifting.
+
+The city's scavengers are a unique breed, venturing into the half-submerged structures at the city's edges to salvage valuable materials. They've developed an uncanny sense for navigating unstable terrain and can hold their breath for extended periods. Many have bioluminescent tattoos, allowing them to communicate silently in the murky depths.
+
+Mire's Edge is also home to a group of naturalists and biologists, drawn by the unique ecosystem. These individuals often have an otherworldly appearance, their bodies deliberately altered to better study the local wildlife. Some have grafted gills onto their necks to breathe underwater, while others have enhanced their senses to detect the subtle changes in the environment.
+
+The city's elite, those who've managed to prosper in this harsh environment, live in the highest levels of the stacked dwellings. They've developed a pale, almost ghostly appearance from spending most of their time indoors, protected from the swamp's dangers. Many sport elaborate filtration masks, more for status than necessity, adorned with precious metals and stones.
+
+Children in Mire's Edge are a hardy bunch, their play incorporating the city's unique geography. They scramble across walkways with startling agility, their games often involving daring feats of balance and timing. Many young ones develop an early affinity for the local wildlife, keeping strange, amphibious pets that would be considered monstrous elsewhere.
+
+The oldest inhabitants of Mire's Edge are revered for their survival knowledge. These elders often bear the marks of the city's harshest years - scars from industrial accidents, discolored patches of skin from exposure to pollutants, or missing limbs replaced by crude prosthetics. Their eyes, however, shine with the wisdom and resilience that comes from a lifetime in this unforgiving place.
+
+Lastly, there are the Marsh Mystics, a secretive group who claim a deep, spiritual connection to the swamp. They adorn themselves with local flora and fauna, their bodies often covered in a symbiotic algae that gives their skin a greenish tint. These individuals move with an eerie grace, seeming to glide across the unstable ground as if weightless.
+
+Together, these diverse inhabitants form the beating heart of Mire's Edge, each playing a crucial role in the city's continued survival against the ever-encroaching swamp.

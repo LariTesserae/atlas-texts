@@ -1,0 +1,1 @@
+I see you've provided the prompt, but I am waiting for the description of the place itself. Please describe the place, and I will describe the beings that call it home.

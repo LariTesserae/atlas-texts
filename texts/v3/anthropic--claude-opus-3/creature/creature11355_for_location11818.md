@@ -1,0 +1,15 @@
+In this remote mountain town, life clings tenaciously to the steep slopes, as hardy and weathered as the stone itself. The people here are shaped by the landscape, their lives intertwined with the unyielding rock, the cascading water, the thin air.
+
+They are a quiet, stoic folk, as gray and angular as the architecture they inhabit. Their faces are lined with the patient endurance of those accustomed to long winters and short, fleeting summers. They move through the winding streets and narrow stairways with the sure-footed grace of mountain goats, barely disturbing the ancient stillness.
+
+These are the Stoneshapers, the descendants of the town's mysterious founders. Legend says their ancestors could commune with the bones of the mountains, coaxing the living rock into forms of their choosing. Though the old magic has faded, the Stoneshapers still practice the ancient arts in their own way.
+
+The blacksmiths forge intricate tools and ornaments from metal mined deep within the mountain's roots. The masons patiently chisel and smooth the cool gray stone, repairing walls and terraces in an endless cycle of maintenance. The ropemakers weave fibers from tough mountain plants into sturdy cords and nets and suspension bridges. And the Watercallers, the most secretive of the town's inhabitants, tend to the precious flow from mountain spring to cistern to fountain, ensuring the community's lifeblood never runs dry.
+
+On certain nights, when the stars wheel overhead in strange formations, the Stoneshapers gather in hidden chambers carved deep into the mountainside. There they perform rituals of remembrance, chanting in the language of their ancestors, making offerings of precious metals and polished stone. They dance the slow, hypnotic dances of water and time, reenacting the cycles of the seasons, the sun and moon, the ancient stories of stone.
+
+To outsiders, the ways of the Stoneshapers seem inscrutable, even unnerving. Their faces are shuttered, their voices reserved for clipped greetings and terse necessities. They guard their traditions and their solitude fiercely, as if to protect some secret as old as the stones themselves. 
+
+But on rare occasions, a visitor may catch a glimpse behind the veil - a flash of dry humor in a smith's eyes, a gentle guiding hand from a mason, a Watercaller's lyrical murmur as they coax the mountain springs. In these fleeting moments, one senses the deep reserves of compassion and wisdom that sustain the Stoneshapers through the long seasons of their mountain home.
+
+They are a people shaped by stone and sky, by water and wind, by the vast silences and deep secrets of the high places. In their stark, angular faces and simple, purposeful lives, one reads the story of a hard-won harmony with the elements, an ancient pact between humans and the bones of the earth itself. As enduring as the mountain stone, as dynamic as the spring-fed cascades, the Stoneshapers keep their long, patient vigil in this place between earth and sky.

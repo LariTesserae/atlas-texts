@@ -1,0 +1,33 @@
+**The Inhants of Nethys: The Terran Symbionts**  
+
+In the Verdant Spires of Nethys, the inhabitants are the **Terran Symbionts**—beings who have long since dissolved the boundary between architecture and organism, between industry and ecology. They are neither wholly human nor entirely machine, but something evolved, adapted, and bioengineered over millennia to thrive in the vertiginous, terraced world they call home.  
+
+### **Physicality: Rooted and Machinic**  
+The Symbionts exist in many forms, reflecting the layered complexity of their environment. They are a collective of humanoid and non-humanoid beings, their bodies altered through generations of genetic and cybernetic integration. Their skin often bears a mottled, lichen-like texture, capable of photosynthesis, while their limbs are jointed with bioengineered cartilage that flexes like tree branches. Many have elongated limbs and prehensile digits, allowing them to navigate the crags and terraces with simian agility. Their hair, if present, is a tangle of living vines or metallic filaments that conduct heat from geothermal warmth to their bodies.  
+
+Some Symbionts have grafted themselves into the very structures they inhabit, their nervous systems entwined with the root-networks and irrigation channels. These "Rooted Ones" are stationary, their bodies fused with the terraced farms, their consciousness distributed across the mycorrhizal web of fungi and plant matter. Others, the "Cogborn," have replaced limbs and organs with clockwork mechanisms, their movements accompanied by the ticking of gears and the hiss of steam, embodying the marriage of organic and industrial life.  
+
+### **Society: The Cycles of Maintenance**  
+The Symbionts live in a society governed by the principles of gradualism and symbiosis. Their settlements are not cities but **living superstructures**: vast, multi-tiered organisms that breathe, grow, and age alongside their inhabitants. Each terrace is maintained by a guild of Symbionts, who tend to the irrigation channels, prune the engineered kudzu, and repair the weathered stone. The passage of time is measured not in years but in "Settlements"—the time it takes for a tree to split a planter, or for a pipe to calcify into a monument.  
+
+Their social structure is fluid, with roles shifting as the environment demands. The **Masons** are architects who design terraces and channels, their minds trained to calculate the slow erosion of stone and the expansion of root systems. The **Pollinators** tend the spiral orchards, their bodies adapted to interface with the metallic bees and navigate the nectar-rich blossoms. The **Keepers of the Deep** excavate and maintain the honeycombed tunnels, where they commune with the stonefoxes and the bioluminescent moths, whose light patterns are used to transmit messages across the spires.  
+
+### **Technology: The Elegance of Aging**  
+The Symbionts’ technology is a testament to their philosophy of working *with* time rather than against it. Their machines are built to last centuries, with gears and pulleys made from the same basalt as the terraces. Steam-powered automata, resembling mechanical beetles, scurry along the walls, maintaining the geothermal pipes and clearing organic debris. The hydroelectric turbines in the upper peaks are massive, their blades carved from single pieces of petrified wood, and their operation is synchronized with the migration patterns of the nectar bats.  
+
+Their bioengineering is equally sophisticated. The kudzu-like plants that drape the terraces are cultivated in geometric fractals, their growth controlled by pheromonal signals released by the Symbionts themselves. The spiral orchards are grafted with genetic memory, allowing fruit trees to "remember" the shape of their planters across generations. Even the stonefoxes are semi-domesticated, their moss-textured fur dyed in patterns that signal their allegiance to specific terraces.  
+
+### **Fauna Integration: Partners in the Balance**  
+The fauna of Nethys are not mere inhabitants but collaborators. The **bioluminescent moths** are bred in hatcheries and released to light the terraces at dusk, their trails forming a kind of communal language. The **mechanical beetles** are both pets and workers, their biomechanical bodies programmed to decompose organic waste into nutrients for the orchards. The **stonefoxes**, with their moss-like camouflage, serve as guardians of the lower terraces, their keen senses detecting shifts in the root systems that might signal structural instability.  
+
+The **metallic bees** are one of the most iconic partnerships. Their exoskeletons are embedded with microchips that map the health of the flowering plants, transmitting data to the Pollinators. In return, the bees are protected and fed by the Symbionts, who have grafted nectar glands into their own skin as offerings.  
+
+### **Culture: The Art of Patience**  
+The Symbionts’ culture is steeped in the aesthetics of slow time. Their art is carved into living wood or grown into the sides of buildings, evolving over decades. They practice a form of meditation known as **Still Listening**, where they sit in the moss-carpeted hollows and attune themselves to the subtle vibrations of the terraces—the creak of settling stone, the trickle of water, the distant hum of turbines.  
+
+Their myths speak of the **"Great Settlement"**, a mythical era when the first Symbionts merged with the volcanic ridges, transforming the barren peaks into the terraced paradise they now inhabit. They believe that time itself is a living entity, and that their role is to act as its midwives, guiding its slow, inexorable shaping of the world.  
+
+### **The Weight of Legacy**  
+To be a Symbiont is to live with the awareness of impermanence and permanence intertwined. Their bodies, like the terraces, are works in progress, constantly adapting to the slow creep of roots, the erosion of stone, and the cycles of geothermal heat. They have no concept of individual death, only of **unmaking**—the process by which a body dissolves into the environment, its matter recycled into the next generation of plants and machines.  
+
+In Nethys, the interplay of damp earth and stone, of warmth and height, has birthed a civilization that is neither fully natural nor artificial, but something entirely new—a testament to the resilience of life and the quiet, patient work of time.

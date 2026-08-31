@@ -1,0 +1,51 @@
+# The Inhabitants of Anthill Reach
+
+## The Small Ones — *the body of the place*
+
+Begin with them, because everything begins with them, because they are the most of what is here by orders of magnitude, because to describe them is to describe the structure itself.
+
+They are small — the largest no longer than a finger joint, the smallest barely visible as individuals, perceived instead as texture, as a graininess in the moving sheets. They are soft-bodied, segmented, pale to the point of translucence where the light reaches them and colorless in the dark where it does not. Many legs — the count is not fixed across the population; the early instars run on a dozen pairs and shed pairs as they grow and specialize, until the eldest masons crawl on six thick anchoring limbs and a fringe of vestigial others that serve no walking purpose but to *taste* the wall, to read its dampness and its grain and its age.
+
+They are blind. There was light somewhere in their deep ancestry — there are scars of eyes, pigment-pits that do nothing now but register the difference between the gray upper galleries and the absolute black below, which is itself a kind of navigation. They work by mouth and by the chemical wash of one another's bodies. Each carries on its skin a film, a secretion-signature, and the film says *who* and *what-task* and *how-long-since-fed* and *which-way-is-down-and-toward-work*. To run a hand through them is to be read by every one you touch, catalogued, found to be neither food nor wall nor kin, and abandoned to your strangeness while they pour on past.
+
+Watch what they do and you understand the place. A small one grazes the fungal mat — scrapes loose a mouthful of the pale threads — but does not simply eat it. It chews, mixes it with the grit it has carried up from below in its crop, with the binding spit its body makes constantly, and pastes the resulting pulp onto the growing edge of a wall, a column, a vault. Then it grazes again. It is eating and building with the same motion, in the same place, forever. The fungus it crops grows back from the spores it walked into the paste. The wall it builds is the floor the fungus grows on. There is no step in the cycle that is not also another step. The structure is *digestion made architecture* — two and a half kilometers of slow communal chewing, packed and dried and chewed again, generation over generation, until the act of the colony feeding itself has raised a mountain.
+
+They do not, individually, know any of this. There is no plan in any one of them. The plan is the chemistry — the signatures laid down by the ones who came before, read by the ones who come after, a set of standing instructions written in scent on every surface, edited by every passing body, ancient and self-correcting. *Build here, the wall is thin. Stop here, the vault holds. Open here, the air is stale. Carry down, there is too much above.* The colony thinks the way a riverbed thinks about water: not at all, and perfectly.
+
+They are the masons and the mortar and the population and the food-chain's bottom and the structure's bones, all of them, all at once. When you say *the place is alive*, you mean them. There is no other way to mean it.
+
+## The Herders — *the shepherds of the sheets*
+
+Larger — a hand's length, a forearm's length, low-bodied and broad. They move through the small ones the way a draft moves through smoke, and the small ones part for them and close behind them and are *steered* by them.
+
+The herders do not eat the small ones. They eat what the small ones secrete — they nudge and stroke a grazing sheet with their forelimbs and the small ones, calmed, release a droplet of the sweet binding-fluid, the same fluid that builds the walls, and the herders take it. In exchange the herders move the sheets. They press a too-dense crowd outward to thin it; they gather a sparse patch and drive it toward an unworked edge; they break up the clots that would otherwise form where the small ones pile and smother one another. They are the colony's circulation, the thing that keeps the living rivers flowing where the chemistry alone would let them pool and rot.
+
+They are nearly blind too, but not deaf — far from it. The herders read the *sound* of the colony, the roar's local thickening and thinning, and they go where the texture of the noise tells them the flow has stalled. They are among the loudest things here in proportion to their number: each one drums a slow rhythm on the wall with a hardened plate on its underside, and the drumming is *heard* by the small ones through their feet, and the small ones flow toward it or away from it depending on its cadence. A herder walking a passage is a moving instruction, a body that says *come* or *go* in pulses you feel in the floor before the herder itself arrives.
+
+## The Hangers — *the upside-down forests*
+
+Look up, in the great vaults, and the ceiling is not ceiling. It is *fur*. It is a dense pelt of bodies, packed shoulder to shoulder, head-down, gripping the porous overhead with hooked feet, hanging in fringes so thick they curtain the vault and turn it into a hairy darkness that twitches.
+
+The hangers are filter-feeders and air-readers. They do not build and they do not herd. They hang in the moving air of the shafts and the vaults — the slow convection the structure generates from its own body-warmth, the fog-laden updrafts of dawn — and they comb it. Each hanger fans a set of fine, feathered limbs into the airflow and strains it: the loose spores the small ones kick up, the drifting motes of fungal matter, the fine grit that the air carries from the working edges. They eat what they strain. And in straining it, they *clean* the air the whole colony breathes, and they *redistribute* the spores they catch — releasing them again, downwind, into chambers that need seeding.
+
+The hangers are why the deep galleries do not choke on their own dust. They are the lungs' filter, the wind's gardeners, the reason the fog that beads on the lower walls is clear enough to drink.
+
+And they are the shriek. The high thin endless shriek that lives above the roar — that is the hangers, every one of them, calling its position into the dark so the others pack against it correctly, so the curtain stays even, so no gap opens where the air would slip through unfiltered. The shriek is a map the hangers maintain of themselves, sung continuously, a fabric of voices that is also, physically, the fabric they hang in. When a gap does open — a hanger falls, or dies, or is taken — the shriek *changes shape* around the gap, and the nearest hangers shuffle sideways to close it, and the song heals, and the curtain heals with it.
+
+## The Drifters — *the lanterns of the deep*
+
+These are the largest. These are the slow lights you see from far off, the green-gold glows that swim the open shafts of the deep black where nothing else goes.
+
+They are great soft floating bodies — not flying, exactly; they are barely heavier than the warm air they ride, and they manage their depth in the convection columns by venting gas and folding membranes, rising on the dawn updrafts, sinking through the still dead air of midnight. They are the only inhabitants that traverse the whole vertical reach, top to bottom, kilometer over kilometer, on the patient currents of the structure's own breath.
+
+They glow because they farm. The light comes from the luminous fungus they culture in pits along their flanks — a strain the small ones cannot grow, a strain that needs the drifter's body-chemistry, fed on the drifter's wastes. The drifter carries its glowing garden through the dark and the light draws the air-motes the way a lamp draws moths, and what the light draws, the drifter eats, and the eating feeds the garden, and the garden makes the light. They are, like everything here, a cycle that walks — or in their case, floats.
+
+And they are the booms. The low pulsing booms that travel through the soft walls and arrive in your bones before your ears — those are the drifters calling across the great vertical dark, the only voices low and slow enough to carry the full height of the reach. The booms are how the drifters find one another in a blackness too vast for the shriek or the drumming to cross. They call, and they wait, and the structure carries the call meters and meters down, and somewhere far below another drifter feels it in its slack membranes and booms back, and the two of them know they are not alone in the dark, and adjust their slow drift, and pass in the deep, two lanterns dimming and brightening at each other in a language that is older than the language we would need to name it.
+
+It is the drifters, more than anything, that make the place feel *attended* — feel like something is awake in it on the largest scale. They are not its mind. There is no mind. But they are the closest thing the reach has to a long slow gaze moving through its own interior, lighting it a little, knowing it a little, going down and coming back up on the breath of the mountain that all of them, together, are.
+
+---
+
+None of them know what they have built. Not one of them, at any size, holds the shape of the whole in any organ. The small one tastes its patch of wall. The herder reads its eddy of flow. The hanger sings its place in the curtain. The drifter calls down the dark and waits to be answered. And out of all those small attentions, none of them reaching past arm's length, none of them lasting longer than the body that holds it — out of all of that, repeated past counting, repeated past time, has risen this: a mountain that eats and breathes and tends itself, a city that is also a single slow animal, a structure indistinguishable from the multitude that is forever in the act of making it.
+
+They are at home in it because they are it. There is no them and it. There is only the warm dark, busy with itself, patient past hurry, loud past silence, doing the one ordinary thing — *living, and building a place to live* — at a scale that became, without ever intending to, a world.

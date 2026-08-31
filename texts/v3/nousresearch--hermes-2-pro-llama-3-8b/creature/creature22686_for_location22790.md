@@ -1,0 +1,9 @@
+Hërn is inhabited by an array of unique and extremophile organisms, each adapted to survive in the harsh conditions of this mineral-rich world. These life forms are the first tenants of Hërn, as fragile ecosystems begin to form amidst the jagged cliffs and rivers of magma. Despite the challenges faced by these early settlers, they are resilient and continue to thrive in the unforgiving landscape.
+
+As the world evolves, these organisms develop symbiotic relationships with one another, as well as with the myriad of industries emerging around them. Factories choked with minerals and smoke taken from the fiery mountains hint at an organized settlement and the beginnings of infrastructure upon the ground. The alien landscape becomes a canvas for an ever-changing and thriving civilization.
+
+Yet, Hërn's transformation is not limited to its flora and fauna or its emerging industries. The geology of the world also shifts and evolves, with the ground melting and melding as air settles upon the volcanic glass. This constant state of flux transforms the landscape before one's eyes, as the minerals within the earth ever-closer towards their eventual homes.
+
+Despite the extremes of this world, the faint luminescence of light flickers and dances, casting a warm and reassuring glow upon the ground. The scent of sulphur and earthy tones permeates the air, a testament to Hërn's youth and the fires that shaped it. As the world of Hërn emerges, water flows through its conduits, providing the lifeblood necessary for the continued growth and development of this ever-changing landscape.
+
+This is a place of immense industrial power, yet also a place of immense possibility. Beneath the surface of the ground, potent energy awaits its true emergence, slowly awakening to the ebb and flow of life. As the world of Hërn comes into its own, it will continue to surprise and captivate all who venture into its depths.

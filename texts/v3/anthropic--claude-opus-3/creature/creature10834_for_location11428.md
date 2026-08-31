@@ -1,0 +1,13 @@
+In this hidden cavern, a peculiar creature makes its home - the Cavern Sage. This ancient being has dwelled in the subterranean realm for eons, its origins and exact nature shrouded in mystery. 
+
+The Sage's physical form is fluid and mutable, often appearing as a vaguely humanoid shape composed of the same limestone as the cavern walls. Its surface is rough and weathered, inlaid with gleaming veins of crystal and patches of glowing lichen. At times it seems to meld into the rock entirely, becoming nearly indistinguishable from the geological formations surrounding it.
+
+Sapient and long-lived, the Sage possesses an unfathomable wisdom born from ages spent in quiet contemplation of the slow rhythms of stone and water. It communes with the cavern's ecosystem, understanding intuitively the delicate balance that allows life to flourish in the darkness. The plants and creatures are attuned to its presence, responding to its gentle guidance.
+
+The Sage speaks rarely, and when it does, its voice is a resonant whisper that seems to emanate from the walls themselves. It communicates more through sensation and emotion than language - a flicker of bioluminescence, a puff of humid breeze, a subtle shift in the patterns of sound and shadow. 
+
+Those few surface-dwellers lucky enough to encounter the Sage often do so without realizing it, feeling an inexplicable sense of peace, insight, or rejuvenation after lingering in certain parts of the cavern. Some seek the hidden depths intentionally, hoping for a chance to learn from the mysterious entity.
+
+The Sage's motives and desires, much like its fundamental nature, remain opaque. It ponders questions with timescales and scopes incomprehensible to short-lived beings, considering the cavern's long past and distant future. With infinite patience, it slowly works to maintain the sanctity and equilibrium of its domain, making minute adjustments over centuries, healing scars in the stone and imbalances in the ecosystem. 
+
+While benevolent, the Sage has an alien perspective shaped by its strange lifespan and mode of existence, making it ultimately unknowable. It is less an individual and more a manifestation of the living essence of the cavern itself. As much a part of the environment as the rocks and air, it will likely persist long after the surface world has transformed utterly, tending to its subterranean refuge as it has for epochs.

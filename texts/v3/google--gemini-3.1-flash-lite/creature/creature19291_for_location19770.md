@@ -1,0 +1,17 @@
+To inhabit a world that has ceased its own becoming, one does not live so much as one *persists within the grain*. 
+
+There are no animals here, no nervous systems frantic with heat and hunger, no eyes to blink against the gloom. Yet, the place is not truly empty. It is populated by the **Sedimentors**—entities that are less like creatures and more like the inevitable calcification of the forest’s own indecision.
+
+They are the pale, fibrous exfoliations of the landscape itself. When the great, moss-knit trunks pulse, they occasionally leave behind a hardened node—a tear in the fibrous architecture that does not heal, but instead extrudes a mass of tangled, semi-sentient filaments gathered from the world’s own debris. 
+
+A Sedimentor begins as a clot of amber-thick sap and stray metallic shavings, caught in a damp crevice. Over cycles that span centuries, these fragments stitch themselves together. They possess no bones, no organs, and no volition. They remain hunched, translucent spheres of calcified resin and rusted wire, clinging to the underside of the mountain-sized roots. If you were to touch one, you would find it cold—a localized absence of the world’s warmth—and it would feel like pressing your palm against a cold, wet gear encased in garden mulch.
+
+They are the archivists of the stillness. Because the world is a factory that has forgotten its purpose, the Sedimentors act as a subconscious registry of the parts. They move only when the pressure of the planet’s internal fluids shifts, forced to migrate a few millimeters to accommodate the expansion of a vein or the slight, groaning tilt of a rusted piston. 
+
+They do not have faces, for there is nothing to view. Instead, they have "senses" of density. They are sensitive to the friction of silence. If a single drop of condensation falls in a chamber a mile away, the Sedimentor vibrates as if struck by a bell. This is their only form of communication; a slow, shivering resonance that passes from one knot of resin to the next, a ripple of industrial anxiety that never accumulates into a thought, but lingers as a soft, rhythmic humming.
+
+They are the living punctuation marks of a sentence that was never finished. 
+
+Sometimes, a Sedimentor will grow too heavy for its anchor. It will detach from the moss-ceiling and fall, an agonizingly slow drift through the humid, stagnant air. Upon impact with the digestive floor, it shatters, and its constituent parts—the flecks of copper, the strands of neural-vining, the hardened sap—are slowly assimilated back into the ground. They are absorbed, digested, and eventually extruded again in a new location, destined to become another knotted sphere, another static witness to the long, wet slumber.
+
+They do not dream. They do not fear the rot, for rot cannot exist where the machine has already perfected the stasis. They simply are, and in being, they provide the only friction in a dimension of total fluidity. They are the dust within the clockwork, the tiny, silent interruptions that keep the factory from being quite as smooth as a void, ensuring that the planet-sized lung still feels the weight of its own paralyzed existence, forever waiting for a breath that was promised, but never arrived.

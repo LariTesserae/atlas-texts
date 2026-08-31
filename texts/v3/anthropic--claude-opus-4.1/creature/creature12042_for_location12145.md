@@ -1,0 +1,41 @@
+## The Dweller
+
+She has no name for herself—names are for creatures that meet others of their kind.
+
+The woman who lives in the Breathing Chamber might have been human once, or might still be, depending on how you define such things. Time has made the question irrelevant. She's been here long enough that her breathing has synchronized with the stone's moisture cycle, inhaling as the walls perspire, exhaling as they dry. Long enough that she can predict where each gossamer floater will drift hours before it arrives there.
+
+Her skin has taken on the limestone's pallor, though whether from lack of sun or from some deeper change is uncertain. Veins show through it like the creatures that float through her domain—blue-green traceries that seem to photosynthesize in the light columns, though surely that's impossible. Her hair grows in impossible length, white as root fiber, and she's woven it into nets that hang at different heights throughout the chamber. Not to catch the floating creatures—she would never—but to feel them, to know their movements through the faintest vibrations in the strands.
+
+She wears what might have been clothing once, now transformed into something between fabric and living membrane. It changes color with the moisture levels, darkening when the chamber inhales, paling as it exhales. Patches of it have taken on the iridescent quality of the films that grow in the water basins. She cultivates these patches, feeding them with careful drops of her own saliva mixed with dissolved minerals she's learned to extract from the stone.
+
+Her movements are glacially slow, deliberate as the floating creatures. She might take an entire day to cross from one light column to another, pausing for hours in positions that would cramp any normal human body—but her joints have loosened, her muscles learned to lock in place without effort. She can stand on one foot for a full moisture cycle, arms spread wide, feeling the air currents that the floaters ride.
+
+She feeds on the rainbow films, yes, but also on the dissolving flowers from the hanging roots. She's learned to catch them on her tongue before they fully fade, tasting their transformation from solid to air. Sometimes she presses her mouth to the perspiring walls and drinks directly from the stone. Her teeth have become translucent, like cave fish bones.
+
+But it's her eyes that have changed most. The pupils dilate and contract with the phosphorescent glow of the walls, independent of the actual light levels. She sees things others cannot—the heat trails the floaters leave in the humid air, the electromagnetic patterns in the limestone that predict where the next moisture cycle will begin. Her eyelids have become nearly transparent, so she can watch even while appearing to sleep.
+
+She tends to things. The placement of those water basins is not entirely natural—she's spent decades imperceptibly deepening them with her fingernails, guiding the water drops to where the rainbow films grow best. She maintains the bacterial colonies that create the phosphorescence, moving them to new spots when old colonies fade, feeding them with carefully composed solutions of her own design. The scratches on the wall are hers, a counting system that tracks cycles within cycles—moisture, light, the reproductive patterns of the floaters, the blooming of the root-flowers, all interconnected in ways only she understands.
+
+At the center of the chamber, that smooth stone is her seat, worn to fit her body perfectly over countless sittings. But she rarely uses it now. She prefers to hang from her hair-nets, suspended in the empty air like the creatures she watches, sometimes for days at a time, sustained by the humid atmosphere and the nutrients her changed skin pulls from the light.
+
+She sings, but not with her voice. Her body has become an instrument played by the chamber itself. The air moving through her nose creates harmonics with the thrumming of the stone. Her heartbeat, slowed to match the moisture cycle, adds a rhythm felt in the walls. The floating creatures respond to these vibrations, clustering and dispersing in patterns that might be language, might be dance, might be worship.
+
+She remembers things, but not in words. She remembers in the taste of different moisture cycles, in the feeling of seasons changing above, marked only by subtle shifts in the light angles. She remembers the first time she saw the gossamer creatures birth—splitting like bubbles that refuse to pop, each half as complete as the whole. She's witnessed this thousands of times now, maybe tens of thousands, and each time she makes a new mark on her wall, recording some minute variation only she can perceive.
+
+Her fingers have grown longer, with extra joints that shouldn't be possible. She uses them to weave the air itself, creating invisible barriers and channels that guide the floaters' movements. Over years, she's learned to shepherd them into formations—mandalas of living glass that exist for moments before dispersing. She does this not for any purpose but the doing itself, art that no one else will ever see.
+
+When she must relieve herself, she does so in specific spots she's chosen for how they'll affect the chemistry of the films. Her waste is no longer entirely human—it crystallizes like the residues the films leave behind, adding to the paper-thin terraces. She's becoming part of the chamber's ecology, a large, slow creature among the small, slow creatures.
+
+She doesn't sleep, exactly. She enters states where her metabolism slows even further, where she might not move for weeks. During these times, the floating creatures sometimes land on her, treating her body like they do the walls—something solid but benign, part of the landscape. They leave traces on her skin, microscopic changes that accumulate over time. She's becoming more like them, perhaps, or they're becoming more like her.
+
+Her presence has changed the chamber in subtle ways. The floating creatures live longer here than they would elsewhere—she's seen this in other caves, before she settled here, back when she still wandered. Something about her breathing, her vibrations, her careful tending, extends their gossamer lives. The rainbow films grow in patterns now, fractals that mirror the neural pathways visible through her translucent skin.
+
+She is the chamber's memory, its consciousness, its dream of itself. She is the only witness to its slow miracles, the only one who knows that the phosphorescence isn't random but follows mathematical patterns that repeat every seventeen years. She knows which of the floating creatures are descendants of which, tracking genealogies of soap-bubble bodies across generations.
+
+And she is waiting, though she no longer remembers for what. Perhaps for the chamber to complete some cycle so vast she's only witnessed a fraction of it. Perhaps for her transformation to finish, for her to become light enough to float with the others, to join their eternal drift between the columns of sun. Perhaps simply waiting to see what happens next, in this place where next might mean tomorrow or might mean a thousand years from now.
+
+She is happy, if happiness can exist in such slow motion. She is part of something that needs her, even if that something is just the continuation of patterns, the maintenance of balances, the observation of beauty too subtle for any hasty eye to see.
+
+When wind blows across the holes above, she lifts her face to feel the air pressure change. When rain falls, she tastes the difference in the humidity. When the floating creatures reproduce, she midwifes them with movements so gentle they don't know she's there.
+
+She is the keeper of the Breathing Chamber, and the chamber keeps her in return, sustaining her with light and moisture and the slow, deep rhythm of stone-time. They breathe together, patient as the earth itself, while the world above spins through its frantic days and the gossamer creatures drift through their stately paths, and everything continues its perfect, pointless, essential dance.

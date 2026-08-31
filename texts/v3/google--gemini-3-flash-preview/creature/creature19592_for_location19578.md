@@ -1,0 +1,26 @@
+In the Ossuary of the High Humidity, identity is not a matter of outline, but of vibration and viscosity. To live here is to be part of the "slow-motion thickening," where the boundary between a creature and the air it breathes is as porous as a sponge.
+
+### The Translucent Shepherds (The Glass-Bells)
+The most visible—or rather, the most perceptible—inhabitants are the **Glass-Bells**. They are less like animals and more like atmospheric organs. Their bodies are composed of a gelatinous, high-density water that is slightly more saline than the surrounding air, allowing them to "float" by buoyancy rather than flight. 
+
+They do not have faces. Instead, their interiors are filled with delicate, fractal filaments of bioluminescent fiber that pulse in time with their heartbeats—a slow, deep thrum that sounds like a subterranean bell struck underwater. They are the archivists of the humidity. As they drift through the needle-pylons, their long, stinging tendrils (fine as hair) brush against the stabilized light structures, siphoning the data stored in the water vapor. They are living hard drives, carrying the ancestor-memories of the post-physical civilization in the fluid of their bells. When two Glass-Bells collide, they do not fight; they merge for a few hours, exchanging heat and history in a silent, glowing embrace before pulling apart, each now carrying a piece of the other.
+
+### The Silk-Sliders (The Blind Colossi)
+On the "spine of the beast"—the undulating clay mounds—dwell the **Vitreous Megafauna**. These boat-sized amphibians possess skin that feels like wet, heavy suede. Having no use for eyes in a world of total shadow, their heads are smooth, domed sensory arrays covered in millions of microscopic pits that "taste" the vibrations of the air.
+
+They move with a terrifying, liquid grace. Because the law of the land is Adhesion, they do not simply walk; they bond to the clay and peel themselves away with that characteristic sound of tearing silk. They are the "gardeners" of the empty lushness. They feed on the towering fungi, not by chewing, but by pressing their wide, flat bellies against the stalks and absorbing the nutrients through osmosis. They are incredibly long-lived, their heartbeats occurring perhaps once every twenty minutes. To a Silk-Slider, a human would appear as a frantic, flickering spark—a being moving so fast it is almost invisible.
+
+### The Lingerers (The Echo-Parasites)
+Not everything that lives here is biological in the traditional sense. In the pockets of dense, static vapor, there are the **Acoustic Wraiths**. These are localized weather patterns that have attained a primitive, predatory sentience. Because memories and sounds linger in the humidity, these "creatures" are formed from the trapped echoes of the Glass-Bells' whistles and the hum of the pylon-tech.
+
+They resemble shimmer-ghosts—distortions in the steam that look like heat haze rising from a road. They survive by "mimicry-trapping." They find a sound—the splash of a droplet or the sigh of a sliding amphibian—and repeat it with perfect, hypnotic frequency. This creates an acoustic gravity that draws other life-forms toward them. Once a creature enters the Wraith’s pocket of air, the Wraith feeds on the kinetic energy of the visitor’s movement, slowing the victim down until they become part of the stillness, adding their own muffled heartbeat to the Wraith’s cacophony.
+
+### The Root-Claw Moss (The Slow Predators)
+The flora itself is a patient hunter. The **Pale Velvet Moss** that carpets the void between the fungi is sensitive to the infrared signature of biological heat. It does not possess a brain, but it possesses a collective intentionality. 
+
+If you were to sit down on the ancient clay, the moss wouldn't attack. Instead, it would begin to "weep" toward you. The white, sightless fronds extend at the rate of millimeters per hour, guided by your warmth. Their goal is not to consume the flesh, but to incorporate the visitor into the terrain. They grow over boots, over limbs, and eventually over heads, secreting a numbing, nectar-like pheromone that induces a deep, dreamless sleep. Many of the smooth mounds on the plateau are not geological at all; they are the encysted remains of large creatures that stayed still for too long, now perfectly preserved in a tomb of living, glowing velvet.
+
+### The Attendants (The Pylon-Ghosts)
+Lastly, there are the **Light-Iterants**. These are flickering, humanoid silhouettes composed of the same hard-matter as the pylons. They are the "shadows" of the post-physical civilization, left behind like a burnt-in image on an old screen. They are not ghosts in the spiritual sense, but glitches in the atmosphere’s data storage. 
+
+They are found near the hovering white rings, performing repetitive, graceful gestures—reaching for jars that aren't there, or tending to invisible machinery. They are silent. They do not interact with the amphibians or the glass-bells. They are part of the "settled ending," continuing a routine of maintenance for a world that has already achieved its final state. They are the lonely curators of the Ossuary, moving through the soup of nectar and steam with the indifference of statues.

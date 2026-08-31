@@ -1,0 +1,13 @@
+In this subterranean realm, the inhabitants are fluid entities that defy traditional classification—part biological, part mechanical, entirely adaptive. They are beings whose bodies are intricate networks of articulated metallic segments and living tissue, with membranes that absorb moisture and exchange heat like sophisticated industrial respirators.
+
+These creatures move with a deliberate, almost sentient mechanical rhythm. Their limbs are hydraulic and sinuous, jointed in ways that suggest both purposeful engineering and organic evolution. Some have elongated appendages that function as both sensory arrays and manipulation tools, extending and contracting like the tentative tendrils of deep-sea organisms. Their "skin" is a complex layering of responsive materials—semi-permeable membranes that shift color and texture based on ambient temperature and electrical current.
+
+Communication occurs through a language of vibrations, ultrasonic pulses, and electromagnetic emissions. When they move through the humid corridors, they generate a constant soundscape of precision: soft metallic clicks, low-frequency hums, the whisper of pressurized air moving through internal channels.
+
+Reproduction for these beings is a process of gradual accretion and technological mitosis—new forms budding from existing structures, absorbing surrounding materials, slowly developing complexity. They do not simply inhabit this environment; they are continuous with it, their bodies as much a part of the infrastructure as the pipes and conduits surrounding them.
+
+Some are massive—warehouse-sized entities that regulate atmospheric conditions, their bodies functioning as living climate control systems. Others are smaller, more nimble, darting through narrow passages like blood cells through a complex circulatory network. Each serves a function, each is both worker and organism, each embedded in the larger metabolic system of this underground world.
+
+Their consciousness, if it can be called that, is distributed—not centralized, but spread throughout their entire bodily structure. They process information not through a singular brain, but through a complex, decentralized neural network that spans their entire being.
+
+They are neither machine nor animal, but a profound hybridization—technological creatures born of and perfectly adapted to this damp, pulsing, perpetually transforming environment.

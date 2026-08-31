@@ -1,0 +1,25 @@
+You feel it before you see it. It is a change not in temperature or in light, but in the very grain of the silence. The quiet here has always been a presence, a heavy blanket. But as you walk toward the basin's conceptual center, the silence gains a new quality. It becomes directional. It is no longer an absence of sound, but the *absorption* of it. The silence is being generated, pulled inward toward a single, immense point.
+
+The floor beneath your feet begins to change. The intricate mosaic of stars and octagons gives way to a vast, unbroken expanse of a single shade of umber, the tiles fusing into a seamless sheet of fired earth that slopes almost imperceptibly upward. And at the heart of it all, you see the resident.
+
+It is the Potter. The Shaper. The Hand.
+
+It is a being seated in a posture of meditative creation. It is colossal, a mountain in the shape of a god, its crossed legs forming foothills hundreds of feet across. It is made of the same clay as the world itself, but where everything else is a finished, single-toned piece, the Shaper is a swirl of every earth-pigment imaginable. Veins of sienna marble through plains of ochre; bands of chalk-white clay streak across the dark umber of its torso. Its surface is a history of its own labor. Parts of it are rough and matte, like clay left to dry in the sun. Other sections, like the curve of a shoulder or the arch of a foot, are glazed to a mirror-like finish, capturing the sky's glare in blinding sheets.
+
+One of its hands, a hand the size of a hill, rests palm-up on a knee. In its palm is a perfect pool of the still, unmoving water, a tiny lake mirroring the luminous ceiling, its surface unbroken by the slightest tremor.
+
+Its other hand is frozen in the act of creation.
+
+The arm is raised, the fingers—each one a spire of terracotta—gently pinching an infinitesimally small speck of wet, dark clay. It is working on a final detail. The antenna of a sculpted beetle, the petal of a clay flower, the lash on the eye of a fired lizard. You cannot tell what it is. The act is eternal, the creation forever on the cusp of completion. This is the moment physics broke. This is the instant the artist became so lost in the pursuit of perfection that time itself became a casualty, freezing around the gesture like resin.
+
+The featureless head is bowed, angled down to gaze upon this final, impossible act of detail. There is no face, only a smooth, ovular shape that suggests one, but from its core radiates the world's light. The ceramic sky is not the source; it is a diffuser, a lampshade for the silent, nuclear devotion that burns within the Shaper's chest. This is the greenhouse heat. This is the shadowless glare. It is the byproduct of a concentration so absolute it has become a form of energy.
+
+This is the source of the static world. The colossal forms of the cattails and ferns are its finished thoughts. The bas-relief creatures are its idle sketches, pressed into the walls of its studio. The unmoving water is the sweat of its brow, beaded and captured forever. The whale in the floor is a dream it had, half-remembered and laid down in the permanence of earth.
+
+But it is not alone in its stillness. The beings of light and air—the fauna the world could not hold still—they are here. They are its soul.
+
+The translucent deer-creatures do not wander aimlessly. They are on a pilgrimage. They drift in a slow, silent processional toward the seated giant. As they reach its clay body, they do not turn. They pass into it. For a moment, a patch of the Shaper’s terracotta form becomes a window of shimmering haze, revealing not flesh or stone, but a universe of swirling light within. These are its memories, its wandering thoughts, the parts of its consciousness that refused to be fired and fixed. They are the ghost of the life it sacrificed for this perfect, eternal stillness. The flocks of luminous birds are not birds; they are motes of inspiration, wheeling and circling its great, bowed head, forever seeking entry.
+
+The Shaper is the creator, the creation, and the prison. It made a world without change and, in the final moment, included itself in the design. It is both the artist and the final, most glorious monument. It lives here not as a resident walks through a house, but as a thought lives in a mind—utterly pervasive, fundamental, and trapped by its own existence. The absolute silence is the sound of its focus. The suffocating heat is the fury of its artistry. It is brand new because its work is unfinished. It is infinitely old because the moment of its work will never end.
+
+And you, the anomaly, the being of breath and time and evaporating sweat, you are perhaps the first thing it has noticed outside of its own creation since the world stopped. A loose, moving thought. As you stand before it, you can feel its attention, not as a gaze, but as a slight fluctuation in the heat, a subtle brightening in the universal light, a momentary disturbance in the perfect, silent, incandescent memory it has become.

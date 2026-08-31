@@ -1,0 +1,17 @@
+To exist in this depth is not to be a citizen, but a secretion. 
+
+The things that dwell within these pressurized, weeping corridors have long since forgotten the art of standing upright. They are the **Sift-Walkers**, or perhaps the **Rust-Kin**—creatures that began as engineers, or prisoners, or perhaps the maintenance drones that outlived their creators, and have since become indistinguishable from the infrastructure.
+
+They are spindle-thin, elongated by the constant, agonizing tug of the gravity and the pressure. Their torsos are braced by external struts of salvage-metal—rudimentary exoskeletons fused to the bone with industrial resins that have hardened into a dark, translucent epoxy. They do not walk so much as they articulate themselves along the walls, their limbs ending in multi-jointed, hook-like digits designed to latch onto the vibrating conduits of the deep-sea relay engines.
+
+They have no eyes; the abyss long ago rendered vision an obsolete vanity. Instead, their faces are masks of silvered sensory filaments that ripple like sea anemones. These filaments constantly taste the brine and the ozone-heavy water, mapping the city’s slow, structural collapse through the chemistry of the decay. When a wall groans or a rivet pops, the Sift-Walkers ripple with a sympathetic vibration, shivering in unison with the metal. They can sense a stress fracture in the ceiling three blocks away; they know the geography of this place not by sight, but by the pitch of the metal’s weeping.
+
+They do not hunt in the conventional sense. They are gleaners of the machine-moss. Much of their existence is spent kneeling—or pressing their chests—against the rusted guts of the relay engines, siphoning the warm, frantic energy that leaks from the gears. They are parasites on a dying god. When they find the crystalline fungi, they harvest it with delicate, trembling care, using the stalks to patch the holes in the rusted walls of their own nesting-shells, patching their environment as one might mend a torn garment.
+
+But there is a secondary stage to their life-cycle—a haunting, final shift. When a Sift-Walker becomes too heavy with age, or when its internal struts fracture under the impossible weight of the water, it does not die and fall to the floor. It finds a quiet corner, a terminal node in the wiring, and it *plugs in*. 
+
+It presses its filamentous face into a pulsing amber cluster of the relay engine. Slowly, agonizingly, the machine begins to reclaim them. Their limbs fuse with the rusted copper pipes; their skin calcifies into a thick, metallic paste that matches the weeping walls; their internal rhythm synchronizes with the thrum of the city. 
+
+They become part of the tomb. 
+
+If you were to press your ear to the vibrating corridor, you would not hear the city’s heart. You would hear the collective, rhythmic murmuring of the Sift-Walkers who have become the walls. They are the ones holding the ocean at bay, their fossilized bodies acting as the mortar that keeps the final rivet from springing. They are not merely living in the wreckage; they are the wreckage, holding its breath against the darkness, waiting for a day that will never come to shatter under the weight of the sea.

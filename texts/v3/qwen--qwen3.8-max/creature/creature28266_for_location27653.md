@@ -1,0 +1,31 @@
+What lives there has learned to be bright, dry, and patient.
+
+It is not life shaped by thirst, because thirst is no longer a condition. It is not life shaped by rain, soil, rot, or the soft pressure of roots. It is life shaped by charge, heat, light, and the long habits of manufactured matter. If you look for green abundance, you will find none. If you look for machines as machines, you will find none either. What lives in the lowland lives in the narrow agreement between ancient fabrication and slow continuation.
+
+The first and most numerous inhabitants are not creatures in any simple sense. They are the motes.
+
+They drift in the bright air, almost too small to be called present until the light catches them. Then they appear as a faint glittering haze just above the ground: sensor-flakes, repair particles, shed maintenance fragments, mineral spores, reactive grains, splinters of memory, and dust that still carries weak instructions. Alone, each mote is nearly nothing. Together, they become weather, pattern, and sometimes something close to intention.
+
+In the late bright hours, when the surface warms unevenly, the motes rise in slow thermal columns. They spiral upward with ceremonial sluggishness, forming pale veils that drift across the plain. These veils are not clouds, but they perform a cloud-like office: they shade sectors of the ground, alter local temperatures, and disturb the electrostatic balance enough to make the dust below rearrange itself. When that happens, faint lines, arcs, and interrupted grids appear on the surface. The plain seems to be thinking in shallow relief.
+
+The motes are not alive as animals are alive. They do not hunger in any visible way. Yet they respond, accumulate, separate, and return. They carry traces of old purposes. Some still seek cracks to fill. Some still measure light. Some still attempt to repair surfaces that have not needed repair for ages. They are the lowland’s smallest presences, and in a way, its first language.
+
+Where the surface opens into seams, fractures, and shallow joints, the plant-like forms live.
+
+They are sparse, dry, and more artifact than herb, but they grow. Black-green films of photovoltaic lichen spread along hairline gaps, their surfaces thin as foil and just as brittle. They do not drink. They accrete. They take in light and bind dust into themselves, layer by microscopic layer. Over long periods they form dark, glassy patches that look like stained enamel. When they shed, they release tiny flakes that become food for smaller beings or settle into the white powder of the plain.
+
+The wire-shrubs are stranger. They stand in small clusters where static charge gathers, their bodies made of slender metallic filaments so fine that they tremble when the air changes. They lift those filaments into the brightness like antennas. Sometimes they harvest charge directly from the field above the ground. Sometimes they wait for thermal differentials to produce weak currents. Before an electrostatic discharge, the filaments rise slightly, and the shrub appears to listen. A moment later there may be a faint snap, almost inside the ear, and one filament falls away as a bright, brittle thread.
+
+In certain depressions, pale crystalline fronds grow in clusters. They are not soft. They are etched with microscopic lines that may be growth marks, may be stored data, or may be incidental interference from ancient fabrication fields. They do not bend. They refract. When light strikes them, they throw tiny prismatic sparks onto nearby tiles. They are fragile in the way old glass is fragile: not yielding, but capable of sudden fracture. If a grazer passes over them, a frond may chip, and the fragment will remain there as a seed-shard, slowly gathering charge until it begins to accrete new layers.
+
+These growths are widely spaced, never abundant, and easily mistaken for debris. Yet they belong to the lowland’s ecology. They take energy from light, heat, and ions. They provide surfaces, shelter, and occasional fragments for other beings. Their roots are glassy threads that penetrate manufactured seams and draw minerals from buried layers. They do not seek water. They seek gradients.
+
+The small fauna live mostly in the margins: seams, cracks, polished hollows, and the spaces between fused plates.
+
+The mirror-shelled beetles are among the easiest to notice, though even they are easy to miss. Their bodies are flat, slender, and highly polished. They move over bright tiles like moving reflections, their carapaces throwing the sky and ground back at one another. They graze on electrostatic films, sweeping their mouths—or the structures that serve as mouths—across charged surfaces. They do not eat in a wet, organic sense. They collect organized particles, absorb faint potentials, and leave the surfaces behind them slightly brighter.
+
+When the light is very strong, mirror beetles become nearly invisible. They pause, align themselves with the glare, and let their shells vanish into reflection. If one is disturbed, it does not flee quickly. It shifts at a precise angle, slides into a seam, and becomes a line of light. Their eggs, if they can be called eggs, are tiny glassy beads tucked into cracks. They hatch as pale, almost transparent larvae that feed on dust until their shells harden.
+
+Filament-worms live deeper in the surface. They inhabit cracks and old service joints, drawing mineral dust into their slender bodies and excreting fine ceramic beads. These beads are so small they resemble powder. Over ages, the waste of filament-worms has become part of the plain’s bright dust. In this way, even the smallest creatures participate in the lowland’s endless redistribution. The worms are slow, blind, and patient. Sometimes they link themselves into short chains to bridge a fissure, forming a temporary living filament before separating again.
+
+There are also seam-mites: glassy, many-jointed things no larger than a grain of abrasive dust. They tend the foil lichens, harvest ions from charged fractures, and clean the tiniest pores of the surface. They are not social, but their

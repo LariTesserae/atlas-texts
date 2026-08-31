@@ -1,0 +1,21 @@
+# The Inhabitants of Dripping Song
+
+The Undercity houses beings that exist in the liminal space between form and formlessness, between thought and material. They are called the Chorus by those few surface dwellers who have encountered them and retained enough sanity to speak of it.
+
+The Chorus do not possess fixed physical bodies as surface dwellers understand them. At their most tangible, they appear as tall, willowy figures composed of flowing water that never quite settles into a definite shape. Their "skin" ripples with constant motion, and where faces should be, there are only depressions from which water flows in rivulets that catch the bioluminescent light. Some observers claim to see features in these watery visages—eyes, mouths, expressions—but no two witnesses ever describe the same face.
+
+They move with deliberate grace, their "feet" never quite touching the ground but hovering just above it, leaving no footprints but rather small puddles that evaporate within moments. When they wish to travel quickly, they dissolve entirely, becoming one with the droplets falling from the ceiling or the thin films of moisture on walls, only to reform elsewhere.
+
+The Chorus communicate primarily through sound. Their "voices" are the very drips and drops that give the Undercity its name—they manipulate the falling water to create complex tonal patterns that somehow translate directly into meaning in the listener's mind. To hear them speak is to understand regardless of language, though the experience leaves many visitors with migraines that last for days.
+
+They exist in a complex social structure that humans struggle to comprehend. There appear to be no leaders, yet perfect coordination; no conflict, yet constant change; no visible labor, yet the environment evolves under their stewardship. They do not reproduce as biological entities do—rather, new members of the Chorus seem to coalesce from the ambient moisture when certain water-songs reach particular crescendos.
+
+The Chorus shape their environment through intent rather than tools. They sing to the stone, and it softens; they harmonize with water, and it flows against gravity; they whisper to the strange plants, which respond by growing into useful configurations. The architectural oddities of the Undercity—the staircases that lead nowhere, the windows facing walls—are perfectly sensible to them, for they perceive dimensions beyond the three that limit human experience.
+
+Their relationship with time differs fundamentally from human understanding. For the Chorus, past, present, and future are merely different melodies that can be played simultaneously. This explains their apparent foreknowledge of visitors—they have already "heard" the water-song of the visitor's future arrival. Some theorize that the Chorus exists across multiple timelines at once, explaining why they sometimes appear to be having conversations with empty air.
+
+Toward visitors, the Chorus displays a curious blend of indifference and intense interest. They rarely acknowledge newcomers directly, continuing their inscrutable activities without pause. Yet visitors often report feeling watched from all directions, and the water-songs often incorporate subtle motifs that echo the visitors' own thoughts, suggesting a form of mind-reading.
+
+The few who have established any meaningful connection with the Chorus describe them as neither malevolent nor benevolent, but operating on priorities utterly foreign to human concerns. They appear to be stewards of something precious hidden even deeper in the earth—something they refer to in their water-songs as "The Dreaming Spring" or "The First Melody."
+
+Most disturbing to visitors is what happens during the rare moments when the dripping stops entirely. In these brief silences, the Chorus becomes completely invisible—yet somehow more present, their consciousness pressing against visitors' minds like water seeking entry through the tiniest cracks. Those who have experienced this phenomenon report glimpsing the true nature of the Chorus: ancient beings who were here long before the first surface dwellers, who will remain long after, eternally singing reality into new configurations, drop by perfect drop.

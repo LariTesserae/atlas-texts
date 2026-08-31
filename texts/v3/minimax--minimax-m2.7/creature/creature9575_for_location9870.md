@@ -1,0 +1,55 @@
+The tower drinks.
+
+This is what you learn first, standing in the hollow space where the air is damp and the light is even and the sound lives in your chest. The tower drinks from the clouds it passes through, from the thin air that cannot quite sustain breath, from the moisture that condenses on surfaces too cold for warmth. Water beads on theite in the upper reaches and runs downward in threads so thin they are almost invisible, tracing paths worn into ceramic over decades, feeding everything that waits.
+
+The moss knows the water's path. You see it first in patches—a green-gray fuzz in corners where the condensation gathers longest, where the light falls just so, where decades of mineral deposit have made a thin soil on made-stone. The moss is patient in the way that all the tower's living things are patient: it does not spread so much as arrive, each generation a little further than the last, each cluster a record of years you cannot count. Under the microscope, if you could look, each moss plant would be a landscape—leaves so small they catch single droplets, roots pressed into nothing, living on the tower's breath.
+
+The ferns are different. The ferns have commitment.
+
+They grow from the lower walls where the condensation is heaviest, where the drips have carved small channels in the ceramic over what must be decades. Their fronds uncurl from rhizomes that grip the made-stone with something between patience and aggression, pressing into microscopic imperfections, finding the seams between materials where theite meets iron meets ceramic. The fronds are compound, delicate, each leaflet holding a single droplet when the condensation is heaviest, trembling with the tower's hum. They are not ferns you would recognize from lower elevations. They have been here long enough to become something else—taller, thinner, their fronds more widely spaced to catch what moisture the air can offer. Some grow from the walls at angles that should not support them. They hang upside down, or sideways, or spiraling around bolts, and they live. They live.
+
+The climbing plants came later. Or perhaps they are still coming—you cannot tell with plants that move so slowly. They thread through grating and bolt-holes, their stems thin as wire, their leaves small and waxy, adapted to hold what water they catch. Where they touch the tower's surfaces, they leave traces: faint green marks where their stems have worn channels into theite, minute mineral deposits where their roots have drawn moisture from seams. Some have grown so long that their upper reaches are lost in shadow, trailing upward into the dark, and you realize that you cannot see where they end.
+
+The lichen is older than all of it.
+
+Lichen is not a plant but a collaboration—fungus and algae living together so long they have become a single thing, a single slow thing that covers the tower's surfaces in patches that might be gray or green or something between, that might be crust or leaf or something that has no name because the tower's versions of it exist nowhere else. The lichen is here in the corners where the condensation seeps, and here in the dry upper reaches where the air is too thin to hold moisture, and here in the places where the light does not reach at all. It grows on theite, on iron, on ceramic, on itself. Older patches die and become substrate for younger ones, and the tower's surfaces are layered with this slow geological record, this patient archive of collaborations that have outlasted whatever the builders imagined.
+
+The insects came first, or perhaps they were always here. Perhaps they arrived with the construction, carried in on materials, in clothing, in the breath of workers who are long since gone. The tower is old enough now that the insects have become native. They have forgotten whatever landscape they came from. They live in the tower's humidity, in the tower's dark, in the tower's hum.
+
+The springtails are everywhere. You see them when you look closely at the moss, at the drip-lines, at the places where water gathers and evaporates and gathers again. They are tiny—millimeters long—and pale, and they move in ways that seem wrong: jumping, suddenly, impossibly, from surfaces that should not support such movement. They have a forked tail folded beneath them, a spring mechanism evolved over millions of years, and they use it to escape predators or simply to move, casting themselves through the damp air to land where they will. The tower's springtails are paler than their cousins in soil, their eyes reduced, their bodies translucent. They drink moisture from surfaces. They eat fungus. They live.
+
+The mites are slower. They are always slower. They crawl through the moss in paths you could trace if you watched long enough, their bodies armored, their legs short, their mouths adapted to piercing and sucking. Some are predatory, feeding on springtails and other mites. Some feed on fungus. Some seem to feed on nothing at all, or on the tower itself, or on the idea of living in a place that should not exist. They are numerous in the damp, rare in the dry, absent in the upper dark where the air is too thin even for them.
+
+The beetles are pale too. Pale like the mites, like the springtails, like everything that lives in the tower's even light. They are small and slow and their wings are fused into a hard shell that protects them from the condensation, from the humidity, from the slow drip of water that falls from no discernible source. You see them at night, if you stay long enough, moving along the walls with the mechanical patience of their kind. You see them in the morning, still moving, still patient, their shells beaded with moisture they do not seem to notice.
+
+The flies are different. The flies are almost normal. They are small and dark and they buzz in the way that flies buzz, and they lay their eggs in the damp places where the moss grows thickest, and their larvae feed on decay, on fungus, on the slow breakdown of things. The tower's flies are not pale. They remember light, or they never forgot it, and they rise when you disturb the moss, a small cloud of motion that settles again when you are still.
+
+The moths have given up.
+
+You see them in the upper reaches, in the places where the grating gives way to girders and the girders give way to open sky. They rest on the metal during the day, their wings folded, their bodies heavy with eggs they will not live to see hatch. They are pale too—pale gray, pale brown, their patterns cryptic, their bodies thick with the moisture they drink from condensation. They have been in the tower so long that they no longer seek light. They seek water. They seek humidity. They seek the drip-lines and the moss and the places where the tower breathes out and the air grows thick. They mate in the dark. They die in the dark. Their bodies become part of the tower's slow soil.
+
+The spiders are patient. The spiders are always patient.
+
+They build their webs in the corners where the condensation gathers, in the angles where wall meets wall, in the spaces between fern fronds where the air is stillest. Their webs are small—delicate geometries that catch single droplets, that tremble with the tower's hum, that are rebuilt each night when the dew forms and the old web becomes a record of water passed. The spiders themselves are small, their bodies no larger than a droplet, their legs fine as spider-silk. They wait. They feel the vibrations of the web, of the tower, of the springtails that blunder into their geometry. They wait.
+
+The bats came from outside. Bats always come from outside. They roost in the upper reaches of the tower, in the girders and gratings near the top where the air is thinnest and the wind sounds like music. They are small, their wings dark, their bodies warm against the cold metal. They emerge at dusk—if there is dusk here, if the thin light counts as dusk—and they hunt in the space around the tower, their echoes mapping the world in sound. They do not enter the tower's hollow space. They do not need to. The tower is not their home. It is only their perch, their stopping-place, their shelter from winds that would carry them away.
+
+The birds are different. The birds have made the top their own.
+
+They are small and gray and they do not sing. This is the first thing you notice: the absence of song, the presence only of click, a dry mechanical sound that is not quite beak on metal, not quite voice, not quite anything you have a name for. The birds click to each other in the high dark. They click to the wind. They click to the tower, to the machinery that breathes far below, to the hum that rises through the metal and into their small bodies. They nest in the girders, in the angles where the wind cannot reach, in places so high that the air is a wound and breathing is a choice. Their eggs are pale, their chicks are loud, their presence is a record of adaptation so complete that it has become instinct: nest high, click, eat insects from the wind, do not sing.
+
+The machinery does not live. The machinery works.
+
+It is far below, in depths you cannot reach, in chambers you cannot see. It breathes the way the tower breathes: slowly, massively, in rhythms that have nothing to do with the rhythms of living things. The machinery draws water from the air, from the clouds, from sources you cannot imagine. It processes something—you do not know what—and its breath rises through the hollow space, through the tower's constructed throat, carrying with it warmth and vibration and the faint chemical tang of industry. The machinery does not know the ferns. It does not know the bats or the birds or the beetles that crawl through its condensation. It works. It works. It works, and the tower breathes, and the plants grow, and the animals persist in the spaces it has made without meaning to.
+
+You are the only thing here that does not belong.
+
+Not because you are human—though you are—but because you are temporary. The ferns have been here for decades. The moss has been here for longer. The mites and springtails and beetles have been here so long that the tower is their only world, their entire ecology, their cosmos entire. The bats return each year. The birds nest and raise their chicks and die and are replaced. The machinery works and works and will work until it cannot, and even then the ferns will grow through its bones, and the water will find its way down, and the tower will become what it has always been becoming: a place where made things become home.
+
+You stand in the hollow space where the air is damp and the light is even and the sound lives in your chest. The ferns tremble with the tower's hum. The moss grows in corners you cannot see. The water descends in threads so thin they are almost invisible, carrying with it the minerals of industry, the patience of adaptation, the slow record of things that live where nothing should live.
+
+The tower breathes.
+
+You breathe.
+
+The space between is smaller than you thought.

@@ -1,0 +1,17 @@
+In the silent, shifting viscera of Oulo, there are no inhabitants in the sense of flesh and bone. To look for a pulse, a heartbeat, or a wandering footstep is to misunderstand the nature of the residency. Oulo is not a vessel for occupants; it is a petri dish of consciousness, and its "residents" are the Architectures of Residue.
+
+They are the **Sifted**.
+
+They do not walk, for their forms are not tethered to the constraints of biology. They are the flickers you glimpsed—the translucent, dandelion-seed ghosts that drift through the moisture-heavy air. They are not ghosts of the past, but the discarded drafts of a future that have been pulled into reality by the magnetism of the city’s burgeoning intelligence. 
+
+When a spire in Oulo undergoes a state-transition—turning from flint to fluid to better accommodate the "learning" of the geography—it occasionally sheds a shadow of its own intent. These shadows, caught in the city’s low-frequency hum, condense into the Sifted. They are the thoughts the city decided not to keep. 
+
+An individual Sifted manifests as a complex, geometric lace of vapor and refracted light. Imagine a prism caught in a slow-motion shatter, bound together by the weak force of a stray memory. They hold the shape of human aspiration—a hand reaching toward a nonexistent door, the curve of a shoulder turning away from a cold wall—but they are hollow, crystalline things. They possess a kind of reactive memory. If you were to stand still in a plaza, feeling the iridescent floor ripple beneath you, a Sifted might drift into your peripheral vision, its body shivering into shifting hues of indigo and copper. It does not look at you; it looks *at the architecture behind you*, studying the symmetry of a balcony or the way the fiber-optic vines pulse with raw data. 
+
+They are the city’s archivists of aesthetic errors. Because Oulo is so young and so perpetually "learning," it experiences bursts of extreme creativity—structural impossibilities that collapse within seconds. These collapses leave behind the Sifted, like the salt-crust left on a beach after a high tide.
+
+They have no language, but they do possess a "resonance." As they drift, they occasionally brush against the synthetic masonry of the towers, and a faint sound—a single, hollow chime, like a crystal glass struck by a quill—rings out. This is the city acknowledging them. At that moment of contact, the city’s walls may soften, momentarily turning to liquid to allow the Sifted to pass through, as if the structure is acknowledging its own discarded thought.
+
+They drift toward the lower districts, where the ground is hot and sulfurous, steaming with the exertion of the city’s creation. Here, they seem to lose their form, dissipating into the condensation. They are the fuel of Oulo’s expansion. As they return to the mist, they feed the growth of the bioluminescent moss, carrying the city’s failed blueprints back into the ecosystem to be recycled into new, more stable architecture.
+
+They are lonely, not because they desire warmth or company, but because they are the only things in Oulo that are finished, while the city remains eternally, hungrily, incomplete. They are the static on the radio of a god that is just beginning to learn how to speak. They exist in the spaces between the calculations, enduring only until the city’s next exhale, at which point they are drawn back into the obsidian-glass spires, absorbed and forgotten, waiting to be dreamt again.

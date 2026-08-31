@@ -1,0 +1,19 @@
+The Whispering Flats are home to the Sand-Skimmers, and the Sand-Skimmers know they are alone.
+
+Perhaps not entirely, but loneliness is their dominant experience. It permeates their existence, seeping into their very carapaces like the ubiquitous dust. Each Sand-Skimmer is a solitary traveler, a continent-crosser, driven by imperatives buried deep within their crystalline ganglia. These imperatives boil down to two simple directives: survive, and reproduce, and these are made as difficult as possible by the Flats.
+
+Imagine the feeling of walking on a cloud made of ground glass, in a world where the horizon never changes. That is the Skimmer's world.
+
+Their iridescent exoskeletons, the color of bleached bone, are not merely camouflage, but active adaptations. They are complex organs, capable of filtering the harsh sunlight, regulating internal temperature, and even absorbing trace nutrients from the alkaline dust. The shimmer is a form of communication, but one so subtle as to be almost nonexistent. A slight shift in coloration, a momentary flicker of polarized light. Occasionally, these broadcasts are detected by others of their kind, light-signals of incredible complexity.
+
+The legs are not merely for locomotion, but also for sensing. Each splayed foot is covered in microscopic hairs that vibrate in response to subtle shifts in the dust. The Skimmers "see" the world through these vibrations, detecting the faint tremors caused by other creatures, the subtle variations in the dust's composition, the almost imperceptible slope of the land.
+
+Their size is a direct response to the scarcity of resources. A Sand-Skimmer is an ecosystem unto itself, a walking, crawling repository of stored energy. They feed infrequently, consuming the hardy, lichen-like organisms that eke out an existence on the shaded sides of dust dunes. These are consumed rarely, and they grow slowly, so a Skimmer might travel thousands of meters to reach them. Some Skimmers are so old that entire micro-biomes have formed on their backs, colonies of dust-mites and symbiotic fungi.
+
+Reproduction is a complex and infrequent affair. When two Skimmers finally converge after years, even decades, of silent searching, they engage in a ritualistic dance of light and vibration. Mating is dangerous, as it leaves them vulnerable to the environment. Afterward, a single fertilized egg is laid, buried deep within a carefully chosen spot of dust. The offspring that emerges will hatch into a miniature version of its parents, and set forth alone, to continue the eternal cycle of survival and reproduction.
+
+But more than the physical challenges, it is the psychological burden of the Whispering Flats that weighs upon the Sand-Skimmers. They are not unintelligent – their crystalline brains are capable of complex calculations, sophisticated memory, and nuanced emotional states. They are aware of the ruins, of the strange anomalies in the landscape, of the whispers that echo in the dust. They do not understand them, but they feel their weight.
+
+Perhaps, in some long-forgotten age, the Sand-Skimmers were something else entirely. Perhaps they were the caretakers of this place, the inheritors of a lost civilization, reduced to their current state by the same cataclysm that transformed the landscape. Or perhaps they are simply the product of a particularly brutal evolutionary process, beings forever caught in the shadow of a past they can never comprehend.
+
+Whatever the truth, the Sand-Skimmers carry the weight of the Whispering Flats within them. They are living monuments to a forgotten history, silent witnesses to the slow, grinding entropy of the universe, and all the loneliness that comes with it.

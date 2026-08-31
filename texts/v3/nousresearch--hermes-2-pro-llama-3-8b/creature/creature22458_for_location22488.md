@@ -1,0 +1,11 @@
+The inhabitants of this hidden oasis are a combination of resilient and adaptive people and ancient, hardy plants. These people have learned to harness the power of the salt fields and use the endemic mineral to retain moisture, cultivating a unique, self-sufficient system of living.
+
+The people are a mix of explorers and settlers from various origins. They have come together in this forgotten corner of the world, attracted by the marvel of the oasis, and have formed a thriving, yet primitive civilization. They are skilled in shaping the materials found within the environment, constructing their settlements with an inherent sense of the landscape and its intricate ecosystem.
+
+The people's tools and craft are simple, reflecting their close connection to the oasis. They have developed a sustaining system tapping into the rich nutrients and minerals of the salt fields. With a deep understanding of the delicate balance of this unusual ecosystem, they have managed to thrive, contributing to the plant kingdom's existence.
+
+The nights are a marvel of bioluminescent plants, a spectacle that adds to the captivating atmosphere of the oasis. The people are awed by these lights and integrate them into their lives, finding solace and wonder in the glow of a distinctly different nighttime sky.
+
+This civilization is a fusion of cultures, a mix of people from around the world drawn to the oasis. But, as they learn and adapt to this new environment, they begin to merge into a unified, oasis-born culture. As they continue to evolve, they remain true to their origins, growing, thriving, living and surviving in a spectacular, unexpected oasis.
+
+To them, the oasis is a gift, a testament to life's resilience. It is not just a place, but a microcosm of the world, a maze-like world in their own backyard - a place of wonder, of hope, of resilience and adaptation. The oasis challenges and inspires them daily, reminding them that life continues its delicate dance, even under the harshest of conditions. It teaches them that survival is not just about endurance but about adaptation - and that nothing is more extraordinary than life's ability to find a way, given enough time.

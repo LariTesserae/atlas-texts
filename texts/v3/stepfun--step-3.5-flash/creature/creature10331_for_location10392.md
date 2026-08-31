@@ -1,0 +1,24 @@
+The Steam Flats do not have inhabitants in the familiar sense. There is no dominant species that walks, hunts, or builds in a way we would recognize. Instead, life here is a *condition* of the place itself, a pervasive, distributed intelligence written in mineral gradients and electrochemical whispers.
+
+**The Native Sentience: A Broth of Being**
+What lives here first and foremost is the atmosphere—a trillion-strong diaspora of single-celled watchers. The bioluminescent motes, with their silicate shells, are not merely drifting. Their pulsing blue-green light is a form of communal signaling, a slow, hydraulic conversation about pressure, humidity, and chemical richness. They congregate where a new geothermal vent sighs, their collective glow intensifying to map a fresh flow of mineral-laden steam. They are the Flat’s nervous system, and their hum is the sound of its constant, ambient thought.
+
+Beneath them, the living films in the copper pools are slower, vaster consciousnesses. The cyanobacterial analogs do not just metabolize; they *record*. The intricate lacy patterns of rust and pyrite they leave behind are not just waste—they are a geological diary, a fossilized ledger of sulfur and iron cycles stretching back millennia. Touch one of these films, and you are not touching slime, but a patient, calculating archive.
+
+Even the rock is not entirely dead. The rubbery, crystalline *lichen* that sweats over the basalt is a symbiotic slow-thinker. It dissolves stone grain by grain, re-precipitating it in new, stronger forms. It is the Flat’s architect and repair crew, working on a project timeline of centuries. Its “thought” is the tectonic patience of the planet itself.
+
+**The Adapted: Technicians of the Thermosphere**
+The human (or post-human, or simply *other*) residents of Pyrefall are not immigrants but appendages. They are the Flat’s conscious, manipulative layer, grafted onto its biology as seamlessly as the city’s pipework. They do not *live in* the Steam Flats; they *live as* a process within it.
+
+They are identified by function, not face: **the Steam-Singers** who vent pressure by reading the harmonics of escaping vapor; **the Rust-Tenders** who navigate the corroding catwalks, predicting which metal will fail next by scent and sub-audible tremor; **the Light-Wardens** who tend the cold, blue arc-lamps, fighting a perpetual war against the warm, murk that tries to smother all sharp definition.
+
+Their society is a monastic order of thermodynamics. Their language is built of pressure ratings, mineral yield, and thermal transfer efficiency. Privacy is a sealed chamber with a functioning coolant loop. Their highest art is the elegant solution—the pipe layout that minimizes condensation loss, the capacitor bank tuned to the planet’s electrostatic sigh, the ritual of suit-seal inspection performed at the exact moment the daily thermal spike hits the ridge.
+
+They wear their suits as second skins, but within the pressurized warrens, they are often bare, their bodies pale and damp, respiratory systems subtly altered to process the heavy air. They do not fear the pervasive life; they cultivate it. They “farm” the atmospheric motes in vast, stilling chambers, collecting their bioluminescent organs for the arc-lamp fuel. They steer the slow, mineral-dissolving lichen with carefully applied pH gradients, guiding its growth to reinforce a failing aqueduct or sculpt a living filtration membrane.
+
+**The Symbiosis: A Planetary Organism**
+Together, the native bio-geology and the Pyrefall technicians form a single, sprawling organism. The planet sweats minerals and heat; the city’s great distillation arrays catch the sweat, refine it, and return useful elements to the system in pure form. The planet’s atmosphere broods with a trillion minute sensors; the city’s distributed network of microphones and humidity gauges listens to their collective data stream, translating the hum into actionable intelligence.
+
+The “fauna” that screams loudest is not a predator. It is the sound of a world utterly saturated with life—life that is not in spite of the heat and the mineral grit and the eternal damp, but *because of* it. The residents of Pyrefall are its nervous system’s deliberate will. They are the place’s way of knowing itself, of managing its own slow, hot, glittering metabolism. They are the answer to the question the steaming rock and glowing mist have been asking for a million years: *What becomes of a world where the ground weeps and the air is a broth?*
+
+It becomes a city. It becomes a mind. It becomes a relentless, quiet, humming thing that sweats, and thinks, and *works*.

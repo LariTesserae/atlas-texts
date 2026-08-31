@@ -1,0 +1,13 @@
+In the Lantern Grove of Cyspera, life is not merely a collection of organisms but a seamless, interwoven entity where boundaries between the industrial and the organic dissolve. Here, existence is symbiotic, a dance of give-and-take that defies surface logic. What lives here is not just *in* the grove but *of* it—every creature, every structure, every whisper of air is a thread in its intricate tapestry.
+
+**The Tenders**  
+At the heart of the grove’s strange harmony are the Tenders, beings born of its fusion. They are neither wholly plant nor wholly machine, but a synthesis of both. Their bodies are sleek, serpentine forms cloaked in a chitinous exoskeleton that gleams like polished brass, etched with fungal patterns that pulse in time with the grove’s rhythms. Slender tendrils sprout from their limbs, tipped with bioluminescent nodes that serve as tools, probes, and communication devices. Their eyes are compound, like those of insects, but each facet glows with the light of the hanging sacs, shifting colors to reflect their intent.  
+
+The Tenders move with deliberate grace, their bodies a blend of fluidity and precision. They are the caretakers, the engineers, the priests of this living cathedral. They tend to the brass pipes, clearing blockages and redirecting nutrient flows, their tendrils merging with the machinery to diagnose and repair. They prune the bioluminescent vines, shaping their growth to maintain the grove’s luminescent balance. They communicate in a language of clicks, hums, and bioluminescent flashes, a dialect understood by the grove itself.  
+
+Their existence is bound to Cyspera’s rhythm. They sleep in pods of amber-sap, their bodies suspended in a state of semi-consciousness as they dream the grove’s dreams—visions of gears turning in root-filled factories, of tendrils intertwining with metal struts. When they awake, they carry the knowledge of these dreams into their work, guided by a collective unconscious that ensures the grove’s survival.  
+
+**The Weavers**  
+Within the shadows of the deeper recesses dwell the Weavers, arachnid-like creatures the size of small dogs. Their carapaces are a mosaic of iridescent blacks and greens, patterned with fractal designs that mimic the fungal growths on the walls. Each leg ends in a barbed, needle-like tip, allowing them to pierce the grove’s biomass and weave its fibers into intricate structures.  
+
+The Weavers are architects, their purpose to reinforce the grove’s organic framework. They spin threads of plant fiber reinforced with mineral deposits, creating gossamer-thin yet unbreakable membranes that stabilize the cavern’s ceiling. Their movements are methodical, their legs working in unison

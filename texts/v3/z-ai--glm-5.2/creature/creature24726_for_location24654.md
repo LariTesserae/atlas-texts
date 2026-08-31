@@ -1,0 +1,79 @@
+# The Builders
+
+They are not what you would expect.
+
+You imagine, finding the shelters, that the builders must be large — large enough to need two meters of headroom, large enough to leave marks on walls at a reachable height. You imagine hands. You imagine a face looking out from the dark arch of a woven dome, watching the spires pulse, counting days that don't exist.
+
+But the shelters were not built for the builders' size. The shelters were built for the warmth. Two meters is not the height of a person here. It is the minimum height at which the woven walls hold heat efficiently — the point where the substrate's own metabolic output, trapped and concentrated, becomes enough to raise the internal temperature by a few critical degrees above the soaking cold. The builders could be any size. They are, in fact, small.
+
+---
+
+Call them the Felt-Walkers, for lack of a better name. They have no name for themselves, or if they do, it is not a word but a sound — a specific pattern of clicks produced by striking the hardened plates of their forelimbs together, a pattern that varies by individual the way a voice varies, that carries across short distances through the damp air before being swallowed by the static of the filaments. Their name for themselves, if it is that, sounds like a stutter in the clicking of the ground fauna. You would not recognize it as language. You would hear it and think: *insects*.
+
+They are insects, in the way that a human is a fish. The taxonomy breaks. They share a distant ancestry with the small segmented creatures that migrate across the substrate in waves — you can see it in the body plan, the articulated segments, the chitinous plating, the many-jointed limbs. But where the ground creatures are simple — nerve clusters, stimulus-response, the blind following of chemical gradients — the Felt-Walkers have crossed some threshold that is less about intelligence and more about *persistence*. They remember. They choose. They act against the immediate grain of their environment rather than with it. This is not the same as cleverness. It is something older and more stubborn.
+
+An adult stands roughly forty centimeters tall at its highest point — but it is rarely at its highest point. Its default posture is low, crouched, the body pressed close to the substrate, the limbs folded beneath it. In this posture it is nearly invisible, its dark green iridescent plating indistinguishable from the felted ground it stands on. You could step over one and never know.
+
+The body is broad and flat — wider than it is tall, a shape that presents minimum profile to the wind that roars eternally across the plains. Six primary limbs, but not the identical repeated limbs of a simple arthropod. The forelimbs are differentiated — thicker, armored, the inner edges hardened into surfaces that click against each other for communication and, more importantly, can be brought together to *cut*. The Felt-Walkers shear the substrate. They bite into the felted mat with the hardened edges of their forelimbs and they slice through it — through the rhizomes, the protonema, the unnamed structural tissues — and they peel it back in long, damp strips. This is how they build. This is how they eat.
+
+The midlimbs are ambulatory — long, fine, multi-jointed, lifting the body clear of the wet ground when speed is needed. And the hind limbs are something else: broad, flattened, paddle-like, covered in fine bristles that interlock when pressed together. These are the weaving limbs. When a Felt-Walker works, it uses its forelimbs to cut strips of substrate and its hind limbs to braid them, the bristles catching and guiding the filaments with a dexterity that seems impossible for a body so small and a mind so alien. The weave is not beautiful. It is functional. The strips are laid over each other in overlapping rows, the way a person might lay shingles, and the living tissue heals around the joins, growing into itself, sealing the structure into a continuous shell.
+
+They build the way the substrate builds — not by design but by accumulated action. One Felt-Walker, working alone, can complete a shelter dome in a period that might be days or might be weeks — the time units are meaningless here, where there is no day, no night, no season, no marker. It cuts. It weaves. It pauses. It eats. It cuts again. The structure grows like a lesion on the surface of the felt, a thickening, a bulge that slowly hollows itself out as the builder strips material from the interior and layers it on the exterior walls.
+
+---
+
+They are solitary.
+
+Not in the way that a leopard is solitary — territorial, aggressive, encountering others only to mate or fight. Solitary in the way that a deep-sea organism is solitary — separated by the sheer scale of the environment, not by choice or temperament but by mathematics. The High Felt is vast enough that a population of thousands could exist on its surface and never encounter each other, each individual separated by hundreds of kilometers of identical felted ground, each one navigating by the glow of the nearest spires, each one building and rebuilding shelters it will abandon, each one eating the substrate and being eaten by the cold.
+
+They do not seek each other. But they do not avoid each other, either. When two Felt-Walkers encounter each other — and this happens, rarely, when their wandering territories overlap — there is a specific protocol. Not hostility. Not greeting. A pause. A flattening of the body. A sequence of clicks — the personal pattern, the identifier, transmitted through the forelimbs. The other responds, or does not. If it responds, they may travel together for a time — hours, days — sharing a shelter, sharing warmth, the slight additional heat of two bodies in a two-meter dome significant enough to matter. Then they separate. Not dramatically. One moves toward a different spire, a different ridge, and the other does not follow, and the encounter ends the way it began — in silence, in the hiss of the filaments, in the vast indifferent patience of the landscape.
+
+They reproduce, presumably. There must be eggs, or larvae, or some equivalent — some mechanism by which the species continues. But the description of that process belongs to a biology that is not yours to narrate with confidence. What can be said is this: the young, if they exist, are not raised. There is no family structure. No teaching. The shelters are not built for children. The tallies on the walls are not records of lineage or history. They are records of *presence* — the simplest possible assertion: *I was here. I was here. I was here. I was here.* Repeated without variation, without progression, without narrative. A count of moments in a place where moments do not exist.
+
+---
+
+They navigate by the spires.
+
+The tall, bioluminescent columns that dot the landscape are the Felt-Walkers' only landmarks, and they use them the way a sailor uses stars — not for precise location but for orientation, for the sense of *direction* in a place that offers none. Each spire has a slightly different glow — a different pulse rate, a different intensity, a slightly different color in the blue-green spectrum. The Felt-Walkers can distinguish these differences. To them, the landscape is not featureless. It is a grid of faint lights, each one unique, each one a waypoint in an otherwise undifferentiated expanse.
+
+A Felt-Walker knows the spires in its territory the way you know the furniture in your apartment — by position, by character, by the small particularities that distinguish one from another. This one pulses bright and fast. That one is dim and slow. The one on the ridge to the — there is no direction here, but *there*, the one that leans slightly — that one flares brighter when the wind comes from the basin. These are not facts the Felt-Walker articulates. They are the texture of its world, the ground-level knowledge by which it moves and lives and does not get lost.
+
+When a Felt-Walker travels beyond its familiar range — and this happens, perhaps when the substrate in one area thins, or when a basin deepens and floods with condensation, or for no reason at all, some quiet impulse that might be curiosity or might be the same restlessness that moves the migrating ground creatures — it navigates by triangulating the spires it can see, building a mental map of their relative positions, orienting itself by their angles. It is good at this. It has to be. In a landscape without boundaries, without edges, without any feature smaller than a ridge or a basin, the ability to know where you are is the ability to survive.
+
+---
+
+The Felt-Walkers are not the apex of this ecosystem. They are not even prominent in it. They are a minor species — rare, widely dispersed, marginal. The vast biological engine of the substrate does not depend on them. The clicking ground creatures, the grazing shapes, the whistling flyers — these are the dominant fauna, the keystone species, the organisms whose interactions define the flow of energy through the system. The Felt-Walkers are a footnote. A small, stubborn lineage that has found a niche — shelter-building, substrate-processing, solitary survival in a place that does not reward complexity — and holds it with the patient tenacity of something that has been holding it for a very long time.
+
+They do not hunt the ground creatures. They are too slow, too few, too small. They do not graze the way the broad silent shapes graze — they do not have the mouthparts for it, and their digestive system is adapted for a different function. They eat the substrate directly, but selectively — they strip the outer layers of the felt, the older, more compacted tissue that has accumulated trace minerals and breakdown products, the layer that is richest in whatever it is that sustains them. Their feeding leaves shallow wounds in the surface of the felt, pale patches where the dark outer layer has been removed. These heal quickly — the substrate grows back within days, the rhizome network closing the gap as though it had never been. The Felt-Walkers are grazers, but their grazing is invisible. They take so little. They need so little.
+
+The flyers do not hunt them often. The Felt-Walkers' plating is hard enough to discourage the talons of the whistling predators, and their low posture makes them difficult to distinguish from the ground they walk on. But occasionally — rarely — a Felt-Walker is taken. You know this because you find the evidence: a shelter with no builder, the walls still growing, the tallies still fresh, the entrance arch worn smooth by recent passage. The builder did not leave. The builder was removed. The shelter persists for a time, growing on its own, the substrate continuing to weave itself in the patterns the builder established, the muscle memory of the plant matter repeating the gestures it was taught. And then, slowly, over months or years, the shelter unravels. The patterns loosen. The walls thin. The dome sags and flattens and is absorbed back into the surface, and the tallies on the walls are grown over, and the last evidence that something lived here is erased.
+
+---
+
+Inside the shelter — the one you are sitting in, the one that is still growing, the one whose builder may or may not still be alive — you notice something you missed before. The marks on the walls are not all the same.
+
+Most are tallies. Simple vertical scratches, grouped in clusters of five or seven or some other number that may or may not be significant, grouped in rows that ascend the wall in rough horizontal bands. But some are different. Some are circular — shallow grooves carved into the woven surface, completed rings, or near-rings, spirals that wind inward and stop. And some are lines that intersect — not the straight, regular lines of geometry but the curving, irregular lines of *contour*. Of *terrain*.
+
+The builder was mapping.
+
+Not the landscape — that would be impossible, the landscape is too vast, too featureless, too unmarked for a map to be useful. The builder was mapping something smaller. The territory immediately surrounding the shelter, perhaps. The position of the nearest spires. The route to a feeding ground. The shape of a particular ridge. These scratch-maps are crude, barely legible, more impression than cartography. But they are maps. They are the builder's attempt to externalize its knowledge of the place, to put the spires and the ridges and the basins onto a surface that is not its own body, to create a record that will persist after it has gone.
+
+They will not persist. They are already being grown over. The substrate is patient. The walls are living tissue. The scratches are wounds, and the wounds are healing. In another month, or another year, the maps will be gone. The tallies will be gone. The shelter will be a smooth, unmarked dome, growing on its own, holding its warmth, offering itself to whatever comes next — another builder, or nothing.
+
+---
+
+The Felt-Walkers live in the space between building and being built. Their shelters are alive. Their food is alive. Their landmarks are alive. The ground they walk on is alive and growing and will grow over them if they stop moving. They are, in a sense, not inhabitants of the High Felt but *features* of it — mobile structures, temporary concentrations of chitin and nerve and stubborn, quiet persistence, moving across a surface that is itself a living thing, leaving marks that heal, building structures that are absorbed, living in a place that does not know they are there.
+
+They do not mind this. Or if they do, the minding is not a thing they express — not in their clicking, not in their building, not in the slow, steady scratch of tallies on a wall that will grow over. They live here the way the substrate lives: continuously, without reflection, without complaint, without the need for meaning. They build because building is what their forelimbs do when they are not cutting food. They map because mapping is what happens when a mind that knows its territory presses against a surface that can hold a mark. They tally because tallying is the simplest possible answer to the question *am I still here*, and the answer is always yes, until it isn't, and then the question is someone else's, and someone else may never ask it.
+
+They are small. They are quiet. They are alone. They are the closest thing this place has to an inhabitant, and they are, in the end, another process — a metabolic loop, a cycle of cutting and weaving and eating and building and walking and dying and being grown over, as much a part of the High Felt as the filaments and the rhizomes and the spires and the cold.
+
+You sit in the shelter. You feel the warmth — slight, biological, the residual heat of a living wall. You hear the clicking, distant, muffled, the sound of small creatures doing small things. You feel the hum of the substrate in your chest.
+
+And you understand, finally, what lives here.
+
+Not the Felt-Walkers. Not the grazers, not the flyers, not the clicking migrants, not the builders of shelters and scratchers of tallies. What lives here is the place itself. The High Felt lives. The ground, the air, the spires, the light, the cold, the vast patient emptiness — these are the organism. The creatures that move across its surface are its fauna, its microbiome, its contingent and temporary inhabitants, as peripheral to its identity as the mites on your skin are to yours.
+
+The Felt-Walkers know this. They have always known it, in the way that a body knows it is not its parasites. They build their shelters on the skin of something enormous and alive, and they scratch their tallies, and they make their maps, and they wait to be absorbed, and they do not ask for more.
+
+They do not need more. The place is large enough to hold them. They are small enough to be held. That is enough.

@@ -1,0 +1,19 @@
+The Frost Marsh Delta is home to a small number of hardy creatures adapted to its unforgiving environment: 
+
+Wolves and wolf-mutants, their thick winter coats silver-white to blend seamlessly with the snow and ice. They roam in packs, communication by howl and growl over long distances. Savage and alert, they avoid the zones tainted by Wyrm influence.
+
+Icewraiths drift ethereally between the seething tangles of willow scrub. Pale, translucent humanoids of living ice crystal, they exist beyond flesh and blood. Immutable and unaging, they whisper secrets learned from eons melted from the permafrost. Most remain inscrutable loners shunned by beastkind.
+
+Hides of immense sverokai bask sluggish in stagnant pools or half-submerged in slush. Beasts the size of draft-beasts but built like wolves or hyenas beneath their membranous hides, these brutes feed on fish, carrion, or any hapless creature blundering too close. Rarely seen outside breeding season when mobs emerge whooping to rend one another bloody in rutting frenzy.
+
+Elders of great trees tower above the understory - colossal living constructs grown from fused trunks wreathed round rusting steel frames much like a coral reef built up around a shipwreck. Their bark is lumpy with glowing runic sigils which pulse hypnotically in freezing colors - mnemonic keys to forgotten data encoded deep inside petrified cell-tissue. Occasionally they emit tones like struck bells as subsonics resonate through dense fiber bundles.
+
+Glimmerbirds occasionally catch an eye flitting between branches - iridescent airborne seeds shed by some exotic fossil plant now reduced to glittering scalloped wings powered aloft by photovoltaine musculature.
+
+Rarer even are glimpses of refugees survivalist-clans established hidden deep within ancient structures overgrown with new life. These unfortunates live day-to-day scavenging for preserved relics while avoiding both WYRM monsters dredgeed up from abyssal soils as well as gangs of pelt-wearing marauders descended from previous generations of scavengers who've turned to murder-livestockery to supplement meager gleanings from exhausted dig sites.
+
+But most common are mutations - individuals transformed by exposure to residual energies leaking from buried artifacts into twisted fusions of man and model (or beast). Many creep as rag-masked hermits through the murk while others stalk about openly displaying their filthy wonders for all to fear/revile/envy according as tastes dictate.
+
+Most notable are so-called "Cryonauts" - intrepid explorers who dive naked into freezing murks hunting immersion-preserved knowledge-packs salvaged uneaten for later study back in safe burrows at core settlements time-sharing jury-rigged cortical jacks recovered from collapse sites... Though attempts often end only in fatal hallucinatory binges spent downloading bad code piped straight into hypothalamus before lethal cerebral hemmorages develop... Such grief-stricken survivors manage only addled mumblings concerning rainbow bridges & impossible shapes which spook even fellow clansters.
+
+And yet other dreadful entities lurk farther inland amidst sweltering sulfurous geysers & steaming vents dribble crumbling salts out upon vanishing ziggurahts revealing further fossils preserving lost genebanks together with hunks o' terribly damaged wetware... Anyone hoping restore usefulegacy might order those heaps attention from catastrophes past but line up behind queue for prior claims on that front while sifting rubbish seek schematics defining optimal search parameters for selecting priority targets once fitted out anew using algorhythems precalculated via max-min determinants!

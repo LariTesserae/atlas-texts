@@ -1,0 +1,41 @@
+Who lives there is not gone. They are just living at the speed the place lives.
+
+At first you think nothing does. That is the whole illusion of the summit. The scale is meant for crowds and there are no crowds, the plazas are meant for feet and there are no feet, the doorways are meant to be passed through and they open onto depth. So you think *abandoned*. A city after its people.
+
+And then you stay a little longer, because the stillness lets you.
+
+You notice the buildings are not empty the way an abandoned house is empty. An abandoned house is full of where people were — stains, scuffs, the sag where weight used to be. These have none of that. They have never been touched in that way. They are not waiting to be reinhabited. They are inhabited, but thinly, the way a deep lake is inhabited.
+
+There is one per structure. Perhaps one per two. That is the density the stasis allows.
+
+You see one first not as a body but as a correction. On the warm skin of the bone-colored wall, in that slow interference grain under the surface — you thought it was a material, a pattern like oil on water — a knot of that grain tightens. It gathers itself. The cool corona clinging to the edge of the building brightens by a degree, and the faint tick you felt in your teeth ticks once, on time.
+
+It is flat. When it rests, it *is* the wall.
+
+Its body is not inside the architecture. It *is* a fold of the architecture. A thicker thought in the same thinking material. When it is still — and it is still for a very long time — you cannot separate it from the building at all. The surface is its back. The light that doesn't travel is its breathing. The reason the angles seem wrong when you look down a corridor is because you are looking down the length of its attention, and space thins there.
+
+When it moves, it does so without breaking the rule of the mountain: nothing drifts, nothing swirls.
+
+It peels.
+
+A seam that was not a seam opens along a length of wall or plaza, a line of warmer pale that lifts a millimeter, then a centimeter from the plane, like paper lifting from water. What peels away is translucent, but not like jellyfish translucent. Like disturbed physics translucent — an edge of prismatic thickness, then a plane, then a body that has no front or back until it decides to have one. It is large when unfolded, much larger than you expected — ten, fifteen feet across if you force it to have a measurement — but it weighs nothing. It casts no shadow because the light it makes does not leave it. It holds itself a hand's breadth off the stone without pushing against the water, so the suspended motes beside it are not disturbed at all. They stay exactly where they have hung for years, even as this thing passes within inches of them.
+
+Its shape, when you finally see it fully extended, is not animal. Not quite.
+
+Think of a manta, but pressed flat by pressure and then taught to live as geometry. A central lozenge, diamond-thick, from which four or six attenuated limbs radiate — not limbs for walking, but vanes, spars, stretched membranes of that same interference material pulled thin enough to see through. Along their edges the corona gathers and runs like St. Elmo's fire, cool and clinging. Underneath, on the side it turns toward the stone, there is a dense fretwork of cilia — no, not cilia — filaments finer than hair that never wave, that hold a perfect distance from the basalt without touching it, feeling the field that holds the mountain young. When it settles again, those filaments mesh with the field and the whole animal-structure goes taut and still and becomes wall again.
+
+That is how it feeds. Not on the absent snow of detritus, not on bacteria or light. It feeds on the gradient between what the ocean wants to do and what the field forbids. The crushing pressure that should have collapsed the hollow buildings, the cold that should have cracked them, the current that should scour the summit, entropy itself pressing in on all sides — the field holds that pressure back like a dam, and where the dam strains, there is energy. The resident drinks the strain. You can feel it if you keep your palm on the warm surface long enough: a very slow pulse, not a heartbeat but a *holding*, a flex, as the creature tightens its part of the stasis and takes the difference for itself. That is why the water around the buildings never warms, though the buildings are warm. The heat is not waste. It is kept.
+
+They do not speak. The tick is not communication the way we mean it. One ticks — a precise, low, stone-cooling tick at intervals you can set a clock by — and minutes or hours later another answers from the next pylon over, not with a tick but with that chime you feel in your molars, a brightening along its edge. It is a slow parity check. *I am still holding. Are you still holding?* The whole town is a net of such checks, a distributed organism that agreed long ago to hold this one sharp, young peak exactly as it is, forever. Conversation at the speed of geology.
+
+They do not sleep, but they do withdraw. For long stretches — weeks, years — they lie flat and become indistinguishable from plaza and wall and pylon, and the town looks empty. For a brief efflorescence they peel and hover and re-tension the field, drifting a foot above the stone in utter silence, re-aligning their vanes to the hexagonal fracture below, tasting the basalt's own faint magnetism. Sometimes two will hover near each other over the empty interval of bare rock, vanes almost touching, coronas kissing without merging, exchanging not information but *calibration*, the way two clocks nudge each other into phase. Then they settle again.
+
+Inside the doorway that goes to a deeper dark — you thought it was empty — that is where the young are, if you can call them young. They are not born. They are budded. When a resident has held its section of field long enough without error, the interference grain under its skin thickens at one corner and begins to run a new pattern, a new knot. The wall bulges by a fraction, seamless, and over a decade that bulge learns to peel. By the time it can lift, there is a new plaza's worth of building grown beside the old one, seamless, bone and basalt colored, waiting to be inhabited by the thing that grew it. That is why the town looks like it was laid out for more. It was. It is growing itself very slowly, one resident at a time, on a schedule that does not need to hurry because the mountain will never weather.
+
+They are not lonely. Loneliness requires drift — the sense that you could be somewhere else. Nothing here drifts. They are spaced precisely because they prefer the interval. Each has its basalt to hold, its pressure to eat, its part of the net to keep taut.
+
+And the great pale shape that translated past the cliff edge, larger than a building, moving without swimming?
+
+That is not one of them. That is wild. Something native to the abyssal plain that found the stasis field and learned to ride its edge, where movement costs nothing because the water does not resist. It circles the peak on a years-long orbit because here, unlike anywhere else in the ocean, it does not have to spend itself to stay aloft. It is a pilgrim. Or a gull around a lighthouse that will never go dark.
+
+If you stand long enough on that perfectly flat plaza, one of the residents will eventually notice you — not as a person to be greeted, but as a small, warm, brief turbulence in the field. A thing that makes wake where no wake should be. It will peel partway, just at the edge of your vision, and hold itself there, filaments taut a few feet away, feeling the little wrongness you make in the stillness. It will not approach. It does not need to. It will simply hold you included in the stasis for a moment — so your breath seems to hang, so the mote in front of your face stays perfect, so your own ticking heart seems to tick once, in phase, with the town — and then settle again, and let you be the one thing on the summit that is still allowed to leave.

@@ -1,0 +1,21 @@
+# Inhabitants of The Basin
+
+The Resonants are the true children of The Basin, evolved over countless generations to thrive in this pressure-rich environment. Their bodies are long and serpentine, ranging from the size of a human arm to leviathans stretching fifty meters from crown to tail. Translucent skin reveals complex internal structures—a central nervous system that doubles as a sound-processing organ, running the length of their bodies like a living string instrument.
+
+Most distinctive are their resonance chambers—multiple hollow spaces within their torsos that vibrate at specific frequencies. A Resonant doesn't simply hear sound; it becomes the sound, its entire body functioning as both receiver and amplifier. They communicate through complex harmonic patterns that carry emotional content far more nuanced than mere words. A Resonant's "voice" is as distinctive as a human face, immediately recognizable to others of their kind.
+
+The largest Resonants—called Deeps by human researchers—serve as living repositories of Basin history. Their long lifespans (estimated at 200+ years) and perfect acoustic memory allow them to replicate sounds they heard generations ago. Some researchers believe they still carry echoes of the industrial machinery that once operated at full capacity.
+
+Sharing The Basin with the Resonants are the Amalgams—the hybrid creatures that have incorporated mechanical components into their biology. These aren't cases of simple attachment or symbiosis; the Amalgams have evolved cellular mechanisms that can assimilate certain metals and synthetic materials directly into their tissues. Their metabolism processes rust as easily as organic matter, converting both into energy through parallel digestive systems.
+
+The most developed Amalgams possess what appear to be functional mechanical components—pumps that circulate fluid, articulated frameworks that support movement, even primitive energy storage systems reminiscent of batteries. Their reproduction involves both biological cell division and the controlled growth of metallic structures, a process that takes decades but results in remarkably durable offspring.
+
+Between these two dominant species exists a complex ecosystem of support creatures. The Flash Schools serve as living illumination, coordinating their bioluminescent bursts to create sustained light sources when needed. Silt Sifters—flat, disc-shaped organisms the size of dinner plates—constantly process the basin floor, extracting nutrients and maintaining the delicate mineral balance of the water. Ribbon Riders—tiny crustacean-like creatures—tend the vast algae strands, protecting them from parasites and harvesting their spores.
+
+Most enigmatic are the Wall Listeners—specialized Resonants that position themselves permanently along the Thunder Wall. Their bodies develop differently, growing sound-dampening tissues that allow them to withstand the powerful acoustic emissions. They appear to be in a constant state of communion with whatever lies beyond the wall, their resonance chambers producing counter-harmonics that some believe prevent the Pressure Tides from growing catastrophic.
+
+Human presence in The Basin is limited to the Adapted—individuals who have undergone extensive genetic and cybernetic modification to survive the intense pressures and unique environmental conditions. Even with these changes, humans can only remain in The Basin for limited periods before requiring decompression and recovery. They maintain a small research station anchored to one of the larger industrial ruins, focusing primarily on studying the Thunder Wall and the mysterious voices that emanate from it.
+
+The Adapted have established tentative communication with the Resonants, though true understanding remains elusive. What is clear is that the Resonants consider themselves guardians of something buried deep beneath the Thunder Wall—something they monitor through sound and pressure rather than sight, something they believe must remain contained within The Basin's unique environment.
+
+Whether this entity is technological, biological, or something beyond current human classification remains the central mystery of The Basin—a question whose answer may be decipherable only through the complex harmonies of those who have evolved to hear what eyes could never see.

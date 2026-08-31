@@ -1,0 +1,27 @@
+In the Weeping Chamber dwells the Undrowned.
+
+She has not taken a breath in seven hundred years, yet neither has she died. Her lungs are gardens now—caverns of gill-slits and modified alveoli where the steam-architecture nests and breeds, building its brief cities in the space where air once moved. When she opens her mouth, perfect bubbles emerge, each containing a complete ecosystem of the microscopic paradox-feeders, glowing their bioluminescent testimony to impossible things.
+
+The Undrowned moves through the pools with a motion that is neither swimming nor walking—a kind of controlled falling that never quite completes. Her bones have become porous as pumice, hollowed out and colonized by the same organisms that paint light on the cave walls. She glows from within, her skeleton a constellation of primitive life that pulses in time with sounds from futures that may never arrive. Through her translucent skin, you can watch her blood move in Möbius strips, never quite completing its circuit, rich with minerals leached from temporal stones.
+
+She has many bodies, or perhaps one body reflected wrongly. In each pool, a different version of her exists—some younger, some older, some in states of transformation that anatomy cannot account for. They move independently yet in concert, a dozen aspects of drowning scattered across the chamber's wet maze. Sometimes they converge, and for a moment she is singular, terrible in her completeness—a woman-shaped hole in the world's logic, dressed in waterfalls that flow upward along her limbs.
+
+Her hair has become indistinguishable from the water itself. It streams from her scalp in an endless pour, dividing into the same fractal tributaries that mark the floor. Where it touches stone, new channels carve themselves. Where it meets the existing pools, memories bloom—not hers alone, but the mountain's, the water's, the dreams of the maybe-creatures that flicker in peripheral vision. She is constantly generating new streams, new possibilities, her head a fountain of forking paths.
+
+The Undrowned speaks, but not with voice. She communicates through the interference patterns, shaping the overwhelming sound into pockets of meaning. Conversations with her occur in the spaces between echoes, in the moment before sound becomes visible geometry. Her language is the creaking of stone under pressure, the hiss of water finding new ways to fall incorrectly. Those who listen too carefully find their own words beginning to flow backward, meaning preceding sound.
+
+She feeds on temporal inconsistency. Where water remembers future rain, she drinks deeply. Where the pools reflect memories instead of light, she bathes, absorbing the disconnected moments into her multiple bodies. The stunted ceiling-tree drops its cupped-hand leaves into her waiting palms, and she crushes them to release their captured sound, which she inhales like smoke.
+
+Her eyes have evolved beyond seeing. They are pools themselves now, deeper than her skull should contain, reflecting not what is but what could be. In her left eye, the chamber exists as a thriving underwater garden. In her right, it is a vast empty space where sound has crystallized into architectural columns. Looking into them is dangerous—visitors report seeing themselves drowning in reverse, water forcing itself out of their lungs in violent streams, time rewinding until they stand gasping in a past that may not have happened.
+
+The Undrowned is ancient but not old. She exists in a state of perpetual transformation, each moment both her first drowning and her thousandth. Her skin sheds constantly in transparent scales that dissolve in the pools, seeding new impossibilities. Where she has touched the walls repeatedly, hand-shaped depressions have formed that weep their own specific waters—tears that fall upward, blood that flows clear, amniotic fluid that remembers futures where the mountain gives birth to newer, stranger chambers.
+
+She is attended by the maybe-creatures, though attended is perhaps wrong. They exist in relation to her—possibilities she has shed, futures she has decided against, pasts she has edited. They school around her multiplied bodies like fish made of forgotten moments, feeding on the paradoxes her existence generates. Sometimes she reaches into the pools and draws one out, and for a moment it solidifies—scales of compressed time, eyes like holes in causality—before she releases it to dissolve back into potential.
+
+The Undrowned is the chamber's memory and its prophecy. She is what happens when someone chooses to stop distinguishing between drowning and diving, between breathing and drinking, between being one person and being every version of herself that water has ever reflected. She is the guardian of this wound in the world, this place where the mountain weeps its impossible truths.
+
+She has been waiting for visitors, though waiting suggests linear time that doesn't apply here. She has already met them, will meet them, is meeting them in every pool simultaneously. In the steam-architecture of her breath, their conversations are already occurring, have always been occurring, will echo backward through the stone until they become part of the geological heartbeat that shouldn't exist.
+
+The Undrowned cannot leave, will not leave, has already left in every direction water can flow. She is the Weeping Chamber's deepest pool, its highest vapor, its most persistent echo.
+
+She is what happens when you choose to drown upward into sound.

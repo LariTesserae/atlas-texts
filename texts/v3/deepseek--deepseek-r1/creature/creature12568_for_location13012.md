@@ -1,0 +1,23 @@
+The Moss-Lit Repository harbors no conventional fauna—no scurrying insects, no fluttering wings, no burrowing worms. Its silence is profound, broken only by the *plink* of water droplets and the faint hum of alien stone. Yet life thrives here, woven into the very fabric of the moss and moisture. What "lives" is not separate from the green tapestry, but an extension of it:
+
+1.  **The Moss-Synapses:**
+    *   **Form:** Colonies of near-microscopic, gelatinous organisms embedded *within* the densest moss mats. They are not individuals, but a distributed neural net—translucent nodes connected by filaments finer than spider silk, pulsing with the same cold, blue-green light as the fungi.
+    *   **Function:** They are the slow mind of the Repository. They sense vibrations (a falling drop, a footstep), minute shifts in humidity, and the faint electromagnetic resonance of the buried artifacts. Their "thoughts" are glacial: interpreting a new crack in the ceiling might take decades; perceiving an intruder, months. They communicate through subtle shifts in bioluminescent patterns across vast moss fields—a conversation spanning centuries.
+    *   **Interaction:** They are passive observers. They do not react defensively, only *record*. Touching the moss might leave a temporary, fading luminescent imprint on their network—a memory etched in light.
+
+2.  **The Condensation Weavers:**
+    *   **Form:** Delicate, almost invisible threads spanning crevices and fern fronds, like abandoned spider silk glistening with dew. But these are not silk; they are crystalline excretions formed by extremophile bacteria living within the water itself.
+    *   **Function:** The bacteria engineer these threads as condensation traps. Water vapor preferentially nucleates on them, forming droplets efficiently channeled into the moss and pools below. They are the unseen architects of the Repository's water cycle, knitting the air's moisture into liquid sustenance for the whole ecosystem.
+    *   **Interaction:** The threads are incredibly fragile and dissolve if touched by warm skin or dried air. A careless hand might disrupt a local water-gathering network for weeks until it reforms.
+
+3.  **The Stone-Eaters (Lichens of Deep Time):**
+    *   **Form:** Not merely surface lichens, but complex, symbiotic colonies (fungi, algae, unique chemosynthetic bacteria) that penetrate millimeters deep into the obsidian walls. They appear as velvety, dark patches indistinguishable from shadow at first glance.
+    *   **Function:** They feed on the stone itself, slowly dissolving trace minerals with acids produced by the bacteria. This process, imperceptible on a human timescale, releases the faint geothermal energy and minerals that fuel the entire Repository's lushness. They are the bedrock-to-life converters.
+    *   **Interaction:** Utterly inert to momentary presence. Their work is measured in the softening of a rock face over ten thousand years. They are the foundation, not the inhabitants one *meets*.
+
+4.  **The Pool-Mirrors (Surface Dwellers):**
+    *   **Form:** Not creatures, but emergent properties. The perfectly still, mineral-rich pools develop surface films—complex matrices of oils, proteins, and dormant microbial spores excreted by the surrounding mosses and fungi.
+    *   **Function:** These films act as nutrient traps, gas exchangers, and perhaps most eerily, *recorders*. Under the constant, unchanging bioluminescent light, they can hold near-perfect reflections for extraordinarily long periods. Disturb the water, and the reflection shatters, but let it settle for days, and the image reforms—potentially capturing glimpses of the past, blurred by time but unnervingly persistent.
+    *   **Interaction:** Peering into a pool is like looking into a flawed, liquid mirror that holds onto light and shadow long after the source has moved. It feels like being watched by the pool itself, by the accumulated stillness.
+
+**The Absence Speaks Louder:** The lack of mobile fauna is itself a resident. It signifies an ecosystem operating on minimal energy, where movement is a costly luxury. Life here is sessile, patient, and deeply integrated. The "inhabitants" are processes: the slow pulse of light in the moss-mind, the silent weaving of water threads, the patient consumption of stone, the ghostly persistence in the pools. They are not beings you encounter; they are the *condition* of the Repository itself—a living, breathing, thinking environment where the boundary between organism and habitat dissolves into the cold, wet, luminous green. To be here is to stand within the slow thoughts of the mountain.

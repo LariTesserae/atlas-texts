@@ -1,0 +1,17 @@
+What lives here is the place itself.
+
+There is no creature that walks this plain, no bird that nests in the crystalline spires, no predator that hunts in the shimmering mist. To look for an inhabitant is to misunderstand the nature of the life here. You are not standing *on* something. You are standing *in* it. The weeping substrate, the frantic Calyxes, the hissing air, the hum that vibrates through your bones—these are not elements of an ecosystem. They are the tissues and metabolic processes of a single, solitary entity.
+
+Let us call it the Solipsist, for it is a universe of one. Or perhaps the Autovore, the Self-Devourer, is more accurate.
+
+Its "body" is the pearl-white pith, the endless, continental flesh that serves as its skin, its circulatory system, and its womb. This substrate is the constant, the unifying sea of being from which all its transient forms arise. It is the creature's placid, dreaming subconscious, weeping a cool sweat of pure potential.
+
+Its "thoughts" are the Calyxes. Each crystalline spire that erupts from the plain is an idea, a momentary, frantic ambition. It is the Autovore reaching for the sun, converting subterranean heat and pressure into a singular, sharp-edged concept. The geometric perfection, the hexagonal pillars and impossible arches, are the structures of its logic—a logic of pure growth, of optimal forms for water transport and light collection. The pulsing, vascular fluids you see within them are the creature's attention, a rush of golden-green consciousness spiraling towards a conclusion.
+
+Its "voice" is the ever-present hum. This is not a sound it makes, but the sound it *is*. It is the resonance of trillions of tons of living matter metabolizing in unison, the bass note of a life so vast its heartbeat is geologic. The sharp *pings* and *cracks* from the growing Calyxes are the sounds of its effort, the strain of its own internal pressures, like the joints of a god stretching after an eon of sleep.
+
+And its "actions"—its only-actions—are growth and collapse. The collapse of a Calyx is not a death. It is an exhalation. It is the completion of a thought. The creature builds an intricate, beautiful, impossibly strained argument of silica and cellulose, and holds it for a moment against the sky—and then, having considered it, releases it. The shuddering groan that echoes across the plain is the sound of a decision made. The cataclysmic implosion is not destruction; it is redistribution. The geyser of nutrient-rich sap is the creature feeding itself, the memory of one thought becoming the raw material for the next.
+
+This being has no awareness of past or future. It lives in a state of perpetual, violent renewal. It has no enemies to defend against, no prey to hunt, no partner to seek. Its entire existence is an internal conversation, a frantic, recursive process of building itself up only to consume itself for the fuel to begin again. The rainbows in the air are the after-images of its own expended vitality.
+
+To be here is to be a microbe on the skin of a god, utterly unnoticed. The Autovore is not hostile because it cannot conceive of an "other." You can drink its weeping waters, feel the vibrations of its life, and be caught in the warm, sticky rain of its self-consumption, but you do not register. You are an anomaly in a system too total, too self-absorbed, to have a category for things that are not itself. It is a life form whose only drive is to experience the frantic, beautiful, and terrible process of its own being, over and over, forever.

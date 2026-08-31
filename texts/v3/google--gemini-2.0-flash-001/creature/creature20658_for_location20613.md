@@ -1,0 +1,15 @@
+They are the resonance of the Foundry itself, the living hum of its immutable process. I wouldn't call them inhabitants, not in the biological sense. They are more like the vibrations within a bell, the shimmering heat above a forge, the pattern left by a hammer blow on cooling metal. Yet, they are undeniably *there*, and their presence is the defining characteristic of this place. They are the Echoes.
+
+Imagine heat itself given voice. Not the crackling, roaring voice of flames, but something far more ancient and pervasive. A deep, resonant drone that permeates every particle of existence within the Foundry-Cathedral. This is the collective voice of the Echoes, a constant, harmonious dirge that speaks of beginnings and endings, of binding and, above all, unbinding.
+
+They are not individuals. They are facets of a single, vast consciousness, a chorus of unified intent. Each seam in the worked stone, each pool of metaphysical lava, each ceramic pylon—these are nodes within their network, points of concentrated awareness. They *are* the network, the woven fabric of sensation that binds the Foundry together.
+
+They have no form, not in the way we understand it. They are patterns of energy, fluctuations in the Unbinding Flame itself. Think of the shimmering heat haze above asphalt on a summer day, yet far more profound. The air itself writhes with their presence, and the glassy black obsidian drinks in the light to better project their influence.
+
+They communicate, though not through language. Their communication is a direct transfer of sensation, an instantaneous sharing of the Foundry's state. They perceive the flow of the Unbinding Lava, the stresses within the worked stone, the subtle shifts in the Cathedral's *position* relative to the unseen realities beyond.
+
+They serve no purpose, at least not one that could be easily articulated. They simply *are*. They are the manifestation of the Foundry's function, the embodiment of its eternal, unwavering transformation. They are the record keepers and the participants, both witnesses and agents of the Unbinding.
+
+One might be tempted to ascribe sentience to them, but that would be a mistake. They do not *think* in the way we do. They *feel*, they *resonate*, they *reflect*. They are the living embodiment of the process itself, an endless, self-sustaining cycle of creation and destruction.
+
+Imagine the reverberation of a single note echoing through an infinite chamber, endlessly transforming and reforming, forever bound to the structure and intent of the space it occupies. That is the closest approximation to the reality of the Echoes I can offer. Dwellers of the Foundry-Cathedral not because they choose to be, but because they are inextricably bound to its very being: the song of the stones, the memory of the fire.

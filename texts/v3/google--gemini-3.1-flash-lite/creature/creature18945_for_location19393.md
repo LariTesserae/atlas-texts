@@ -1,0 +1,17 @@
+In the deep, thrumming belly of this basin, the entity that remains—or perhaps the collective remnant of what once was—cannot be described as a singular body. It is a distributed intelligence, woven into the very infrastructure of the valley.
+
+They are the Lithic Conductors. 
+
+They do not walk; they adhere. They are beings of hydro-static gel and brittle, translucent skeletal filaments that mirror the mineral composition of the weeping shale. When the pressure surges and the earth *thwacks* with the violence of a subterranean heartbeat, the Conductors stretch themselves taut. They lock their serrated, needle-fine limbs into the porous stone, allowing the geyser spray to wash over their oily, translucent carapaces. In these moments, they are not separate from the landscape; they are filters. They drink the mineral-heavy water through their porous membrane-skin, siphoning the raw, metallic vitality of the earth into their own shifting forms.
+
+They are iridescent, though "color" here is a cruel word. To look at a Conductor is to see a distortion in the air. Their bodies are shaped like half-finished geometries—angular, multi-jointed, and constantly reconfiguring to match the flow-rate of the surrounding vents. They possess no eyes, for there is no sun to see and shadow is meaningless in the bioluminescent glow of the moss. Instead, their entire surface is a nervous system. They feel the *thwack-hiss* deep in their own marrow; they know the geography of the basin by the varying vibrations of the weeping vents.
+
+They are the ones who hammered the copper pipes into the sunken earth, eons ago. 
+
+They do not "live" in the huts; they inhabit the resonance. When you see a Conductor near a hut of river-glass, you are witnessing a telecommunication. They coil their spindly limbs around the protruding copper, becoming a bridge between the instrument and the earth. As the pressure shifts, they pulse in sympathy with the pipes, adding their own chittering, rhythmic vibrations to the scream of the copper. It is a slow, archaic prayer made of pure sound. They are not singing; they are echoing back the decay of the planet, turning the final death-throes of this geological era into a sustained, mournful note.
+
+They are lonely, not because they occupy a void, but because they are the only things left that remember the vibration of a world that didn't roar. 
+
+If you were to stand among them, you would see them flicking their frantic pulses of violet across the slick basalt, scurrying with a nervous, staccato energy that seems at odds with their ancient nature. They are terrified of the silence that never comes, and they are obsessed with the motion that never ends. They move with the desperate, jagged precision of a biological clock that is running out of mainspring. 
+
+They are the caretakers of a graveyard that is still trying to tear itself down. Every time a geyser erupts, a Conductor shudders, its oily skin rippling with bioluminescent static, and it grips the stone a little tighter. They are waiting for the final, catastrophic collapse—the moment when the water finally erodes the last of the shale and the cavern roof comes down. They do not fear this; they orchestrate it. They are the conductors of the basin's final, wet symphony, and as the earth turns to silt, they will be the last things to dissolve into the slurry, singing a final, screeching chord into the dark.

@@ -1,0 +1,31 @@
+If you stand still enough in the deafening, unvarying roar of the Hollow, you will eventually notice that the sound is not entirely uniform. There are shadows in the acoustics. 
+
+Amidst the claustrophobic forest of razor-sharp bismuth and the dense, swirling geometry of the glass-winged swarm, there are things that move. They do not walk, not in the biological sense of lifting and placing weight. They translate through the cavern in a series of rapid, metronomic stutters, stepping only in the exact microsecond that the massive iron pistons strike their cylinders. They are perfectly synced to the unvarying loop of the machinery. To move out of rhythm would be to introduce friction, and friction is the enemy of the Hollow.
+
+These are the **Oscillants**, the apex custodians of the Anhydrous Loom. 
+
+To look upon an Oscillant is to look at a physical manifestation of a standing soundwave. They are towering, impossibly thin figures, roughly eight feet tall, with limbs that possess too many joints, folding and unfolding like the copper-wire vines that cling to the rocks. They have no flesh, for flesh requires water, and water is a theoretical concept here. Instead, their bodies are composed of compacted, hyper-dense hot dust, oxidized copper filaments, and millions of the vitreous, glass-winged cicadas. The insects do not merely swarm around the Oscillants; they *are* the Oscillants. The creatures pack themselves tightly together in shifting, fractal patterns to form the entity’s musculature and silhouette, held in place by intense, localized magnetic and acoustic fields. 
+
+Because they are made of the swarm, their surface is in constant, microscopic motion. A ripple of glass wings cascades down an Oscillant’s arm; a cluster of silica carapaces shifts to form the ridges of its spine. Yet, the overall shape of the entity never changes. It is a fluid dynamic locked in amber, a walking paradox of furious, buzzing action resulting in absolute, rigid stillness.
+
+They have no faces. Where a head should be, there is a dense, crown-like cluster of jagged obsidian and dark bismuth shards, arranged like the tines of a massive tuning fork. These crystalline shards vibrate constantly, humming at the exact, deafening frequency of the cavern’s mechanical roar. The Oscillants do not see with eyes—eyes require moisture and are useless in the dim, shadowy amber light. Instead, they perceive the world through cymatics. They "see" the geometric patterns of the soundwaves bouncing off the jagged walls. They can feel the exact shape of the cavern, the precise RPM of every flywheel, and the microscopic fluctuations in the air pressure caused by the venting dry gas. To an Oscillant, the Hollow is not a dark cave; it is a blindingly bright, three-dimensional blueprint of pure, mathematical vibration.
+
+Their purpose in this entropy-less purgatory is singular: they are the immune system of the frozen equilibrium. 
+
+Though the machines are caught in a perfect loop, the universe naturally abhors a vacuum of entropy. The Oscillants exist to aggressively enforce the stasis. They glide through the dense, jagged geology, their multi-jointed limbs weaving through the razor-sharp spires without ever suffering a scratch. When they reach a dormant generator or a spinning flywheel, they do not oil it or repair it. Instead, they press their tuning-fork heads against the heavy iron. They emit a counter-frequency, a deep, bone-rattling hum that perfectly negates any stray, chaotic micro-vibrations that might, over a million years, lead to atomic degradation. They sing the metal into submission, enforcing its eternal youth.
+
+They also tend to the swarm. If a glass-winged cicada’s wing chips against a sharp shelf of obsidian—a microscopic flaw in the perfect system—an Oscillant will reach out with a long, multi-jointed finger. The damaged insect is instantly absorbed into the entity’s body, broken down into raw silica and kinetic energy, and a perfect, unblemished replacement is extruded from the entity's palm to take its exact place in the cavern's acoustic geometry. Nothing is lost. Nothing is gained.
+
+But it is when an outsider enters the Hollow that the true, terrifying nature of the Oscillants is revealed. 
+
+To an Oscillant, a human being is an atrocity. You are a walking engine of decay. You shed dead skin cells. Your hair fractures. Your heartbeat is erratic, speeding up and slowing down in a chaotic, unpredictable rhythm. Worst of all, you sweat. Even though the ambient air instantly sublimates your moisture to maintain the atmospheric balance, the *act* of sweating is a violent expulsion of entropy. You are a leak in a perfectly sealed system.
+
+When an Oscillant detects you, it stops its metronomic stuttering. The glass-winged insects comprising its body suddenly shift from a smooth, flowing ripple into a rigid, bristling armor of sharp silica. The tuning-fork crown atop its head flares, the obsidian shards vibrating so violently they blur, emitting a high-pitched, localized whine that cuts through the deafening roar of the cavern. 
+
+It approaches you. It does not run; it simply translates through the space, appearing closer with every strike of the distant pistons. It towers over you, casting a shadow that does not dance, but pulses in a rigid, metronomic rhythm. 
+
+It does not attack you with malice. It has no concept of anger, only a profound, clinical drive to correct an imbalance. It reaches out with a long, trembling arm of buzzing glass insects. It wants to "tune" you. 
+
+If its hand touches your chest, you will feel a terrifying, icy heat. The Oscillant will attempt to harmonize your chaotic, entropic biology with the perfect, unvarying thrum of the Hollow. It will try to slow your erratic heart to match the exact, unchanging beat of the iron pistons. It will attempt to lock your cellular degradation into a closed loop, forcing your lungs to draw breath at the exact interval of the hissing steam-valves. 
+
+It is an act of profound, aggressive preservation. The Oscillant wishes to cure you of time. It wishes to make you a permanent, unchanging fixture of the Anhydrous Loom, a flawless, static monument trapped in the deafening, amber-lit dark, where you will never age, never decay, and never, ever be allowed to stop.

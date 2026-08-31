@@ -1,0 +1,11 @@
+In the roiling metallic lake bed, alien life-forms swim and drift in the semi-solid waters. Their bodies are fluidic and amorphous, like living blobs of molten metal. Bioluminescent tendrils trail behind them, casting an eerie glow across the lake's dark surface. These creatures have evolved to survive in this environment of liquid metal, with translucent skin that allows sunlight to penetrate while protecting them from corrosion. They feed on nutrients dissolved in the iridescent waters.
+
+Along the lakeshore, strange mechanical organisms have grown out of the stone and metal residue. These cyber-biological hybrids combine organic components with artificial machinery. Tangles of fibers and wires sprout from bulbous growths embedded in the rocky substrate. Glowing sensors and pulsing conduits run along their surfaces. Some appear to be some sort of unsuccessful experiments - aborted fetus-like shapes covered in weeping sores slowly writhe and twitch against their anchor points.
+
+Further back from the shore, towering crystalline structures rise from cones of scattered debris. At first they seem mineral formations, but delicate filaments connect them to gleaming tubules running through the ground - these may be colossal entities feeding off chemical energy absorbed via their extensive subterranean network.
+
+Overhead, bioluminescent spores rain down from the heavens, lighting up like tiny stars as they hit atmosphere before smoldering away into drifting motes that float on thermal currents across the surface of the lake - some find purchase on new surfaces and begin growing anew.
+
+From somewhere come occasional distant sounds like dripping water amplified a million fold...or perhaps great bolts being turned...echoing thinly off unseen cliff faces...and beyond that, even fainter signals that sound almost like whispers...but too distorted by transmission loss into space to make out any words...
+
+This is a place where distinctions between life, consciousness and simple matter are obliterated - all is recursive process without end or beginning under an incomprehensible totality suspended over it all...

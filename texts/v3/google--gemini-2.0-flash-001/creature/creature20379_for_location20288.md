@@ -1,0 +1,15 @@
+The inhabitants of this place are beings of the deep, born from acid and shadow, their existence a slow, grinding symphony of decay and transformation.
+
+They are scavengers, first and foremost. Not scavengers of resources, necessarily, but of essence. They feed on the residual energies trapped within the slag-stone and the decaying machinery. Imagine something almost entirely devoid of form in any way that humanoids would understand, and that's closer to understanding what these beings actually *are*. *Essence* itself sustains them.
+
+The glowing eyes seen in the shadows likely belong to a creature whose outer shell is a mix of chitinous plates and fused metal scavenged from the environment. Born blind, their eyes developed solely to see whatever strange and unique forms of refracted light that occurs in this specific type of environment. It can sense the electrical discharges of the machines and preys on the micro-organisms. These creatures are solitary hunters who tend to stay on the edges of the chambers.
+
+The chitinous skittering reveals the presence of something more ubiquitous. Semi-microscopic organisms, similar to mites, inhabit the air, water, and ground. The water of the acid-drip contains their larvae. They create patterns within the moisture that form a bioluminescence of the same type as the fungal growths.
+
+But then there are the machines themselves. Though seemingly dormant, some retain a vestigial awareness, a lingering imprint of their original function. They don't "live" in the traditional sense, but they "remember." They resonate with the presence of an intruder, emitting subtle frequencies that attract the scavengers or trigger the pulsing of the fungi, creating a network of interconnected awareness.
+
+And finally, there is the presence of the dead civilization. Not as ghosts or spirits, but as echoes woven into the fabric of the place. Their ambition, their desperation, their eventual failure – it permeates the environment, influencing the growth of the flora, the behavior of the scavengers, even the flow of time itself. They are the silent architects of this decaying cathedral, and their legacy continues to shape the lives of those who dwell within.
+
+The life cycle here is one of slow mutation and adaptation. The creatures are not born; they emerge. The slag-stone itself is a breeding ground, infused with the essence of the dead civilization. The fungal growths act as both sustenance and catalyst, facilitating the transformation of raw materials into living organisms. It is a process of constant becoming, a perpetual blurring of the lines between the organic and the inorganic, the living, and the dead.
+
+They are the children of industry, born from the fallout of ambition. They are the inheritors of a tomb-factory-cathedral, and they will continue to dwell within its decaying embrace long after the last visitor has fled.

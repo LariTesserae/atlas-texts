@@ -1,0 +1,37 @@
+# The People of the Shelf
+
+You would expect, given everything else, for Tarrindown's people to be diminished by their place — flattened under the noise, crowded out by the press of other bodies, reduced to function the way the gliders are reduced to a weather pattern and the drays to an ambient smell. They are not. If anything they have the opposite quality: a kind of unhurried, settled largeness, people who have made room for themselves inside an environment that owes them nothing and have done it so thoroughly, for so long, that they no longer experience the saturation as saturation. Ask a Tarrindowner what it's like to live somewhere this loud and they will look at you with mild confusion, the way you might look at someone who asked what it's like to live somewhere with so much air.
+
+## Body
+
+They run broad-shouldered, weather-built, with a particular economy of movement that comes from generations spent navigating tight carved rooms, rope-walks slung four stories up, and ground-level streets that might, without warning, be full of dray. Hands are notably calloused early — children's hands, even, by eight or nine, from rope-work and hide-work and the rough quarried stone of every doorway they touch. Skin tends dark and slightly oiled-looking, less from pigment than habit: a thin rendered-fat dressing, the same stuff used to seal hide goods against the wet, worked into the skin against the plateau's perpetual damp and the ammoniac bite of the dray-yards. It gives older residents, especially, a burnished look, like something tanned rather than aged.
+
+The ears are the tell. Generations of foundry-hammer and chain-drive and dray-bawl and glider-hiss have produced a population whose hearing is, by necessity, double-channeled — a learned ability to hold the ambient roar at arm's length as undifferentiated noise while still catching, instantly, the one sound in it that matters: a warning call, a shift in the gliders' wingbeat, the particular silence that precedes a cistern-thing surfacing. Outsiders find Tarrindowners alarming for how slowly they react to loud sounds and how fast they react to quiet ones. A bell can ring in your ear and get nothing. A faint scrape from a culvert grate will empty a street in four seconds.
+
+## Voice
+
+Conversation here runs at the volume other places reserve for arguments — not from temperament, just calibration, the inherited pitch of people who learned to talk over machinery before they learned to talk. It softens indoors, in the carved rooms where the old stone holds and amplifies sound in ways the builders clearly understood and exploited; Tarrindowners speak almost confidentially in their own kitchens and bellow in their own streets, and find both registers completely unremarkable.
+
+Threaded through ordinary speech, inseparable from it, are the eleven warning calls — not a separate language, just a layer, learned before the alphabet, deployed reflexively by adults the way another culture might flinch. A short rising note for gliders startled off a roost. A particular guttural double-bark, ugly on purpose, for dray panic in close quarters. A long low note, rarely used and never practiced casually, for the thing in the cisterns — a call so charged that children are taught it by description for years before they're ever allowed to hear it made in earnest, and adults who make it falsely, as a joke, are dealt with by their districts in ways visitors are not told about.
+
+## Trade and Caste
+
+Identity here runs through district and trade more than through anything like a family name, and the trades sort, broadly, by which part of the ecology a person has made their peace with.
+
+The herders and the hide-quarters people live closest to the drays, smell permanently of them, and are regarded by everyone else with the specific mix of dependence and faint disdain reserved for people who handle the necessary unpleasant thing. They are also, not coincidentally, some of the strongest and most even-tempered people on the plateau — you do not stay a herder long if dray-panic rattles you — and dray-herder stoicism is held up across the city as a kind of folk virtue, the standard against which other people's nerve is measured.
+
+The roost-wardens keep the gliders, which is less an act of husbandry than an act of diplomacy: nobody controls a glider colony, you only negotiate the terms of cohabitation, timing the foundries and the markets and the cable-lifts around dusk and dawn pourings that the wardens read like weather. Roost-wardens tend lean, watchful, nocturnal-leaning in their habits, with a reputation — partly earned — for being a little odd, a little apart, people who spend too much of their working life looking up into rafters and listening for wingbeats and have picked up something of the gliders' own watchful stillness in the process.
+
+The channel-keepers maintain the drainage, the culverts, the sumps, working in close, wet, eyeless-burrower-infested dark for a living, and are correspondingly the most superstitious trade on the plateau, full of small rituals and protective sayings about what moves in the black water, much of which the rest of the city quietly half-believes too.
+
+The shaft-miners go down past the plateau's edge into the warmer dark below, ore-dusted, insular, marrying mostly within their own families across generations, regarded by surface Tarrindowners with a respect that has an edge of unease in it — they go where the warmth comes from, after all, and nobody is entirely sure what that warmth is the surface expression of.
+
+And quarriers and masons, who carve rather than build, who think of architecture as something closer to excavation, and who hold — informally, but with real cultural weight — the highest local status of any trade, because carving a livable room out of standing rock without it weeping or collapsing across the wet centuries is understood, correctly, to be the actual foundational skill that makes any of the rest of it possible.
+
+## Temperament
+
+What unifies them, across all of this, is a kind of practiced lack of alarm — an emotional register tuned to match the physical one. Tarrindowners are not stoic in the dramatic sense; they are stoic the way the architecture is stoic, built with a four-inch sill against an expected, recurring, non-catastrophic difficulty, designed to absorb the ordinary rather than brace against the extraordinary. Crisis, when it actually comes, registers as a sharp and total shift — sudden quiet, sudden speed, the long low call nobody wants to hear — precisely because the baseline is so consistently, deliberately unbothered.
+
+They are also, underneath the noise and the labor and the ammoniac smell of the stockyards, a markedly intimate people, in the way that anyone living in enforced, permanent proximity to other bodies — animal and human both — tends to become. Privacy is not really a plateau concept; warmth, company, and the press of other lives are simply the medium you live in, the way water is the medium a fish lives in, and Tarrindowners raised elsewhere often describe the strange, almost grief-like loneliness of a quiet room with nothing alive moving in it.
+
+They do not think of themselves as remarkable. They think of themselves, correctly, as people who have spent a very long time learning the specific, unglamorous, unfinished work of sharing a hot wet stone shelf with everything that already lived there — and who go on doing it, daily, without much comment, because the alternative was never really on offer.

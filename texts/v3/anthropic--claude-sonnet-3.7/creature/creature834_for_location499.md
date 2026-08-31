@@ -1,0 +1,29 @@
+# The People of Shallowmarsh
+
+Shallowmarsh's residents are as adapted to their environment as the strange creatures that swim beneath their stilted homes. They are human, but generations of living in this perpetual twilight has marked them.
+
+Their skin tends toward pallor with an underlying amber tone, almost waxy in appearance, developed to repel the constant moisture. Most adults stand shorter than outsiders, with compact, dense frames built for navigating the narrow walkways and cramped living quarters. Their movements are deliberate and economical, a lifetime of traversing unstable bridges having taught them that sudden motions invite falls.
+
+The most striking feature of Shallowmarsh natives are their eyes – slightly larger than average, with expanded pupils that rarely contract fully even in direct light. The irises commonly display unusual coloration: amber, copper, or pale yellow being most common, with some rare individuals possessing a reflective quality that catches what little light filters through the haze. Children born in Shallowmarsh can discern shapes in darkness that would render outsiders blind.
+
+Their voices carry a distinctive quality – slightly hushed but with perfect clarity that cuts through the ambient noise without rising above it. They've developed a complex language of whistles and clicks that complements their spoken words, allowing communication across distances without attracting the larger predatory insects. Even their laughter is contained, more felt than heard.
+
+Most residents exhibit a heightened sense of smell, distinguishing between the myriad odors of their city with remarkable precision. They can detect the subtle chemical changes in the water that precede swarm emergences or dangerous algal blooms days before visible signs appear. This olfactory sensitivity comes at a price – newcomers to Shallowmarsh often find residents overwhelmed by unfamiliar scents from the outside world.
+
+Hair grows quickly and thickly among the population, and most adults wear it in elaborate braided styles incorporating protective mesh and waterproof coatings. These hairstyles serve practical purposes – keeping insects at bay, protecting against the constant dripping from overhead condensation, and signaling one's guild or family affiliations.
+
+The people move through their daily lives with the rhythm of the marsh itself – periods of intense activity followed by necessary rest, working with the natural cycles rather than against them. They rise early, when the insect activity is at its lowest, and conduct most outdoor work during this time. Midday brings a collective retreat indoors as the heat intensifies and brings with it the largest swarms.
+
+Social organization revolves around extended family groups and specialized guilds. The Waders are expert hunters who harvest the larger aquatic specimens, their legs wrapped in protective layers of treated leather and wax, standing for hours in the shallows with specialized tridents and nets. The Renderers operate the processing plants, their clothes permanently stained with the oils and secretions of the creatures they break down into usable components. The Architects maintain and expand the city's structures, developing new compounds to resist the corrosive elements and parasitic organisms that constantly threaten to reclaim the human settlement.
+
+Most visible are the Smoke-Dancers, who tend to the city's complicated relationship with its insect population. Dressed in full-body mesh suits adorned with repellent glands harvested from certain amphibians, they climb to the highest points of the city carrying censers of precisely formulated smoke. Their choreographed movements guide swarms away from residential areas and toward either harvesting nets or out beyond the city's perimeter. Their status in society is almost spiritual – part pest control, part weather forecasters, part performance artists.
+
+Children in Shallowmarsh develop quickly, necessity pushing them toward useful skills before they reach their tenth year. They learn to swim almost before they walk, though never in the open water – training pools built specifically for this purpose filter out the more dangerous elements. By adolescence, most can identify hundreds of insect and aquatic species by sound, sight, or smell, knowing instinctively which to harvest, which to avoid, and which herald changes in the marsh's delicate balance.
+
+The oldest residents are revered, their bodies bearing the marks of the marsh – fingers slightly webbed from constant exposure to the water, lungs adapted to the thick air, sometimes developing gill-like structures along their ribcages that don't quite function as true gills but increase oxygen absorption in the humid environment. These elders rarely leave their homes, but their counsel is sought on all important matters, their lifetime of observations having given them an almost prescient ability to predict the marsh's moods.
+
+Perhaps most telling is what these people do not do – they do not waste, they do not hoard, and they do not fight among themselves. Resources are too precious, space too limited, and survival too dependent on cooperation to allow such luxuries. Disputes are settled through elaborate systems of trade and compensation rather than conflict.
+
+They call themselves the Marsh-Bound, with no sense of self-pity but rather as a statement of fact and pride. To be bound to this place is to understand it, to move with its rhythms, to have achieved a kind of symbiosis with an environment that would kill the unprepared within days.
+
+They are not merely surviving in Shallowmarsh – they are of it, as much a part of its ecosystem as the blind fish and the bioluminescent insects that illuminate their nights.

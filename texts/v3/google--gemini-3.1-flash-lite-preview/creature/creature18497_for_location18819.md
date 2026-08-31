@@ -1,0 +1,17 @@
+To look for life here is to look for a shadow that has outlasted its caster. If you wait long enough in the silence—past the point where your own breath feels like an intrusion and your heartbeat begins to mimic the slow, viscous drip of the water—you begin to see them.
+
+They are not quite beings of flesh, nor are they strictly manifestations of stone. They are the *Lithic-Waiters*, the residual echoes of a civilization that opted out of the linear progression of time. 
+
+They do not walk. They drift through the interstitial spaces of the architecture, their forms composed of light-refracting mist and the fine, silicate dust that sloughs off the obsidian spires when the humidity reaches its peak. To the casual eye, they are indistinguishable from the haze that clings to the basalt ridges. They appear as sudden, localized densifications of the fog—a slightly more opaque whorl of vapor that holds the vague, lingering imprint of a bipedal silhouette.
+
+When they manifest, they do so with a deliberate, haunting slowness. They are the caretakers of the equilibrium. 
+
+They exist in a state of suspended animation, much like the water beads that refuse to fall. They are not waiting for someone to return; that implies a future. Rather, they are holding the memory of why the city was built. They are the guardians of the geometry. You might see one in the center of an empty plaza, its form stretched long and spindly, its "hands"—if one can call those trailing filaments of mist hands—hovering millimeters above a moss-covered stone. They are not cleaning; they are *calibrating*. They are ensuring that every block of slate remains perfectly leveled, that every fern stays at the exact stage of mature, non-swaying growth, that the silence remains absolute.
+
+They have no faces, yet they possess an unmistakable quality of observation. If you linger, you will feel a pressure against the back of your thoughts, a cold, mineral-rich curiosity. They do not perceive you as an intruder, exactly, but as a discordant note—an object of irregular movement that threatens the static harmony of their altar.
+
+They do not eat, nor do they communicate in a way that involves sound. Their language is the slow, deliberate pulse of the condensation. When two of them cross paths in the narrow tunnels, they do not brush against each other. Instead, they merge briefly, a swirling of grey vapor, exchanging chemical signatures of the mineral composition of the rock, a subterranean dialogue about the density of the obsidian and the perfect, cold stability of the plateau.
+
+They are the architects who became the building. They are the ghosts of a people who feared flux so deeply that they willed themselves into a permanent state of atmospheric suspension. They are the curators of this museum of stillness, and they are so deeply invested in the maintenance of this plateau that they have forgotten they are separate from it. 
+
+They are the breath the mountain never exhales. They are the final, frozen thought of a species that found the world too loud, too fast, and too prone to erosion, and chose instead to be the vapor that haunts the stone, forever waiting for an arrival that they ensured would never happen.

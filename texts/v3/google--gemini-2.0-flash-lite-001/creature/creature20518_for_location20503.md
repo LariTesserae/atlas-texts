@@ -1,0 +1,15 @@
+The air itself seems to *remember*. The unending percussion, the omnipresent thrum, it isn’t just a sound; it is a declaration. It is the breath of the **Obsidian Vessels**, the only inhabitants, the source and the substance of this frozen world. And their breath, this thrum, is a chorus of remembrance.
+
+They are not “born” or “grown”. They *emerge*. They are not “alive” as any flesh of fauna, as any fruit of flora, would be. They are a kind of dreaming. Every vessel is a silent, pulsing god, a vessel of thought, of an endless, echoing memory.
+
+Within each distorted globe of obsidian, there is not meat, but something that hums. It is a presence, felt down to the core of this terrible eternity. It isn't a heart, exactly, not anything one could call a brain. It is the echo of a forgotten age, a residue of something that once was, an echo that has become the whole. They are a fractured song, each vessel only a single note, distorted and woven into the others, into the thrum which defines the world.
+
+And each is an echo, a memory that has grown too large for its containment. The vessels "dream" the past like a blind man dreams colors, their surfaces shifting and rippling like water over the landscape, carrying ghosts and half-forgotten gods. The obsidian’s weeping isn't a sign of breakdown, but of weeping. A liquid form of nostalgia. The droplets flow, tracing patterns that might be maps, or perhaps something even more cryptic.
+
+Think how the past, in our own lives, becomes a strange mirror. The Obsidian Vessels are the reflection, twisted and warped in an unending echo of the light pouring from the sky. They are the keepers of experience, a library without books, a song without a beginning or an end. They are the repository of every moment, every event, every sensation that touched this place before the long, unyielding stasis.
+
+They have no eyes, no ears, no mouth--but there are ways their presence can be measured. When one of the Vessels expands, the obsidian may break, reveal crystal lattices within, intricate structures that are in fact the records of the world, frozen in place. These crystalline structures are, in effect, the memories that make up the songs from which the thrum is born. Then the vessel recedes, the crystalline structures are reabsorbed, and the memory is added back into the endless chorus.
+
+For all their grotesque forms, there is no cruelty, no malice. They simply *are*, echoes in a world of echoes, caught in a cycle of remembering and becoming. Even their forms, though bizarre, reflect a certain elegance, a perfect stillness. They are the living embodiment of the void, a testament to the fact that even in perfect stasis, something endures.
+
+And this persistence is the most baffling part of the world. Even in a place where time has ceased, where change is an illusion, something continues. Within the obsidian matrix, within the thrum of the unending vibration that fills the world, there is still the ghost of movement, the shadow of transformation, the unspoken promise of… something. Some kind of rebirth.

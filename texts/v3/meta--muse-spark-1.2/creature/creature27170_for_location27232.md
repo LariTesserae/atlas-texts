@@ -1,0 +1,35 @@
+Nothing lives here the way a person lives in a house.
+
+That's the first thing you learn if you stay long enough to stop looking for it. You stand on the rim and you scan for movement the way your eyes want to — for a figure in a doorway, a curl of smoke, an animal trail — and you find nothing. The town is empty in the animal sense. No one kept it. No one stayed. Whoever fitted those stones left so long ago the stones forgot the shape of their hands.
+
+What lives here lives the way moss lives in a lung.
+
+It doesn't occupy the town. It *is* the town now, or what the town is becoming. You have to let your idea of an inhabitant soften, the way the doorways did, from rectangle to oval to just a place where the wall is thinner.
+
+At first you think the inhabitant is the moss. And it is, but not how you think.
+
+It is not a carpet. It is a single, distributed body that has learned to be a town. Up close you see it's not one kind but a congress — emerald sphagnum humped in deep cushions that hold ten times their weight in water, olive feather-moss that makes stairways into ramps, rust-red peat-moss around the tarn that quivers when you step near it, and under all of it, the black-green biofilm that sweats on the stone itself. Alone they would die up here. Together they make a pelt.
+
+It has no front and no back. Its mouths are everywhere. Every night the bowl exhales and condensation beads on every stone, and the pelt drinks it. You can hear it if you kneel — not a metaphorical hearing — a faint sigh as a dry cushion swells. In the morning each cushion is outlined in its own private dew, and by noon it has wrung itself out again and the water runs down the radial streets. The moss doesn't grow *in* the town. It farms the town's shape. The alleys are its veins. The cisterns are its bladders. The ruined walls are its trellis, its skeleton left conveniently behind.
+
+And it moves. Slowly enough that you will tell yourself you imagined it, then fast enough that if you mark a stone with chalk and come back after lunch the saxifrage has covered it.
+
+The saxifrage is its hard parts. Rosettes so tight and fleshy they look poured, like wax, each leaf edged with lime where it excretes the stone it has dissolved. It doesn't root so much as etch. And the dwarf willow — that is not a tree colony. That is one willow. Or it was. Up here willow doesn't bother with being separate. What looks like a copse of a dozen coin-leaved shrubs huddled inside a former house is a single root, a single mind, low and braided under the moss, sending up shoots where the shelter is best. It has been there longer than the house has been a ruin. Its leaves turn and track the sun that never quite warms them, making a faint rustle like paper being turned, the only thing in the bowl that makes a soft sound on purpose.
+
+What lives here has no eyes, but it has the tarn.
+
+The tarn in the center is not just where the water collects. It's where the thing tastes itself. Twenty meters across, tea-dark, breathing — you can watch it over an afternoon rise a finger's breadth and fall again. Its edge is not an edge but a mat of sedge and peat so thick you could lose a boot in it and never find the bottom. Under the tannin water, things that never need to be seen live as parts of the larger body: black flatworms gliding upside-down under the surface film, water beetles the size of lentils that carry a bubble of air like a lung, springtails that catapult across the moss and drown and don't drown, bloodworms that make the peat blush red if you squeeze it. None of them own the tarn. They are its gut flora. And deeper, in the film of water on every stone, in every bead that clings to a lichen beard, there are tardigrades — eight-legged, barrel-bodied, faceless — tucking into tuns when the alley freezes at noon and unfurling when it thaws an hour later, the true permanent residents, who experience the bowl not as cold but as tides.
+
+The lichen is its lungs. Pale, bearded, hanging from every lintel that is still a lintel, it does nothing but breathe — taking the thin, sharp air that shears over the rim and never enters, and filtering it. It makes the inside air still and slightly sweet. When you breathe in the bowl it feels easier than it should at this altitude, as if the bowl has chewed the air for you first.
+
+It is loud because it has to listen to itself. That bottle-tone the wind makes over the rim — that is its breathing. The gunshot cracks when a frost-wedged slab shifts a millimeter deeper into the moss — that is its joints settling. The glassy chime of black ice forming in a shadowed alley at noon is not weather. It's the pelt tightening. The chorus of trickles braiding down toward the center is circulation.
+
+You were looking for fauna and you will find some, but understand they are visitors, not citizens. The white hare that lives under the big cushion by the eastern terrace — it doesn't live *here*, it lives *in* the thing that lives here, the way a flea lives in a coat. It makes a perfect dotted line across the night frost and then disappears into a hole that is not a hole but a fold in the moss. The raven that rides the rim never lands because there is nowhere to land that isn't already occupied. It calls once and the bowl carries the call around three times, and the moss, if moss can be said to hear, shivers.
+
+What lives here lives so slowly that it looks still. It does not hunt. It does not flee. It accretes. It translates stone to sand a grain at a time with acid and root and frost, sand to soil, soil to cushion, cushion to peat, peat to tarn-dark water, water back to stone as lime on a leaf. It is eating the town exactly as fast as the town is being unmade, so that there is never less town and never more, just town becoming moss becoming town. That is why the walls weep and never crumble, why the streets run with water but never erode. The inhabitant mends its own house by digesting it.
+
+If you stay until evening, when the condensation freezes again and every leaf and lintel is outlined in white and the whole bowl glitters under a flat, honest daylight, you will feel it notice you — not as a threat, not as prey. As a warm spot. Your breath steams. The moss steams. For a moment you can't tell which way heat is supposed to flow. The thing that lives here briefly confuses you for part of itself — another pocket of moisture to be beaded, channeled, drunk. And then you shift your weight, and a slab pops somewhere with a crack like a rifle, and the sound rolls around the perfect circle, and you understand that whoever built here chose this bowl not to be hidden, but to have a place quiet enough to hear a slow thing thinking.
+
+It is still thinking. It thinks with water and frost and lime.
+
+And it has been thinking since long before the doors became eyes half-closed, and will be thinking long after the last fitted stone has softened into a river cobble again, lush and empty and patient, drinking the air that never quite lands.

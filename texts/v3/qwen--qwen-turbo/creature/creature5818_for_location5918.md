@@ -1,0 +1,11 @@
+What lives here is not easily described, because it is not alive in the way we are used to understanding life. It is a presence, a force, a thing that exists in the space between being and not being. It is not made of flesh, but it is not made of metal either. It is something that has learned to move through the wetness, to breathe with the heat, to listen to the silence.
+
+It is not a single being, but a collection of things, a kind of collective existence. Sometimes it is a whisper in the reeds, a ripple in the water. Sometimes it is the way the rust seems to pulse, or the way the algae seems to grow in patterns that do not follow the rules of nature. It is the sound that comes from the pipes when no one is near, the low, humming vibration that is not from any machine but from the ground itself, from the water, from the air.
+
+It lives in the spaces between the buildings, between the trees, between the cracks in the concrete. It is not invisible, but it is not seen either. It is felt. It is the way your skin tingles when you walk past a certain patch of moss, the way your breath catches when you hear a sound that seems to come from nowhere and everywhere at once. It is the way the world here is not just wet, but *moist*, as if the very air is holding its breath, waiting to see what will happen next.
+
+It is not afraid of the heat, but it is shaped by it. It is not afraid of the water, but it is changed by it. It is not afraid of the decay, but it is made by it. It is not a creature, but it is not a thing either. It is something that has learned to live in the liminal space, in the in-between, in the place where the land and the city have forgotten which one they are.
+
+It moves when the wind is still. It speaks when no one is listening. It is not here to harm, but it is not here to help either. It is here because it has always been here. Because the place has always been here. Because the place is not a place at all, but a state of being, a condition of existence, a place that remembers what it was before it was built, before it was wet, before it was alive.
+
+It is not what you think it is. It is not what you expect. It is not what you can name. But it is here, and it is watching. It is listening. And it is waiting.

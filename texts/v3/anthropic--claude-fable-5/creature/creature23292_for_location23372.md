@@ -1,0 +1,51 @@
+# Who Lives on the Altiplano
+
+Everything that lives here lives *inside*. That is the first law of the place, and once you understand it, the apparent emptiness of the plateau inverts itself: the green swells are not unpopulated, they are populated all the way through, the way a body is. Nothing stands on this land. Everything is embedded in it — in the cushions, in the peat, in the conduits, in the fog — and so to the eye the tableland reads as vacant, and to every other sense it reads as full.
+
+---
+
+Begin with the smallest citizens, because they are the most numerous and they set the tone.
+
+The cushion-dwellers — the dense-furred grazers, pika-shaped, marmot-patient — do not live *under* the vegetation in the way a rabbit lives under a hedge. They live in it the way marrow lives in bone. The great upholstered domes of the cushion plants, room-sized, centuries old, are riddled through with their galleries: smooth-walled tunnels worn by generations of the same soft bodies passing the same way, branching and rejoining, warmed by the plants' hoarded heat and by the animals' own. A single large dome holds a colony; a cluster of domes holds a nation. Most of these animals will go their whole lives without standing in the open. They surface only at the crowns of the domes, where each colony keeps its watching-places worn bare to the green-gold skin of the plant, and there they sit upright in the fog, perfectly still, for minutes at a time, doing the one thing the plateau has trained every animal here to do supremely well: *listening*.
+
+Because there is nothing to see. The fog forbids it. So the cushion-dwellers hear, and what they hear is the bog itself — the all-directional whisper of water in peat, the forty-second sigh of the vents. They are tuned to it the way other animals are tuned to silence-before-a-storm. Their alarm signal is not a cry. It is the opposite: when one of them goes quiet in a particular way — stops the small continuous murmur they keep up inside the tunnels, a contact-sound like a held purr — the silence spreads through the dome faster than a shout could, and the whole colony drops deeper into the plant and waits. The plateau eats noise, so its inhabitants signal with the eating of it.
+
+---
+
+In the gas conduits — those regular channels the bog's exhalations have worn through hundreds of thousands of years of peat — there live worms.
+
+This should have been guessed. The conduits are too regular. Gas escaping randomly does not wear smooth, maintained, periodic passages; something keeps them clear. The conduit worms are pale, long, soft-bodied, blind of course, ribbed like the hoses they inhabit, and they graze. They eat the films of bacteria and fungus that would otherwise thicken on the conduit walls, the slow accretions that would narrow the bog's airways, and in eating them they polish the passages open. Each worm holds a territory, a length of conduit, and patrols it on the rhythm of the venting — pressing itself flat into the wall when the warm exhalation comes through, feeding in the still interval after. They have never seen the surface and never will. They are the engine's maintenance crew, and like all good maintenance crews they are invisible, and the machine's smooth running is the only evidence they exist.
+
+Where the conduits vent at the surface, the warmth makes its rings of accelerated life — the midges, the soft invertebrates swarming in the heated pools — and the pale stilt-birds work these rings with their caliper bills, and the flocks drift across the plateau over weeks, following the phase-waves of the bog's breathing. The birds have, as far as can be told, no fixed home anywhere on the tableland. Their home is a *rhythm*. They live at a certain point in the bog's cycle the way other birds live at a certain latitude, and they migrate not across space, primarily, but along the slow tide of synchrony as it rolls over the land. A flock displaced a hundred miles will not fly back to where it was. It will find the breathing it knows and settle there, wherever there happens to be.
+
+---
+
+The grey hunter deserves its paragraph.
+
+It is cat-shaped, slate-and-fog-colored, low, and solitary — perhaps one to every fifty square miles, which on a plateau this size still makes for thousands of them, none of which will ever meet another except to mate. It hunts the cushion-dwellers at their watching-places and the stilt-birds at the vent margins, and it hunts by an exact and terrible courtesy to the rhythm of the land: it moves only when the bog exhales. Forty seconds of absolute stillness, fog beading on its fur; then the sigh comes up out of the peat, and under the cover of that soft enormous breath it flows forward a body-length and stops. To its prey, who navigate by the bog's sound, the hunter is indistinguishable from the bog. It is the one creature here that has weaponized the place's pulse, and even so its kills are silent, and the plateau registers them not at all. The cushion-dwellers have only one counter to it, which is the spreading quiet — and so the oldest game on the altiplano is played entirely in the gaps of a sleeping giant's breathing, and has been for a very long time, and neither side has ever won.
+
+---
+
+And then there are the people.
+
+There are not many of them — a few thousand, perhaps, across a continent of bog, though no one has counted, least of all themselves. A traveler could cross the plateau for a month and never know they existed, because they leave nothing. They have never built. Not out of incapacity and not, exactly, out of principle — out of something earlier than principle, a grammar in which *building* simply does not occur, the way some languages have no future tense. The plateau was never interrupted, and they are part of its uninterruptedness.
+
+They sleep in the dwarf forests, in the gaps beneath the lichen-heavy canopies where the five-hundred-year-old trees stand no taller than a standing adult — so that to lie down among them is to be sheltered, and to stand is to put your head above the roof of the world's smallest old-growth. They part the moss and lie close to the peat near the vents, where the ground is warm as a body, and the moss closes over the depression behind them when they move on. They wear the dense fur of the cushion-dwellers and felted mats of dried moss, and they keep no fire — there is nothing dry enough to burn and no cold sharp enough to require it — and so they have never seen flame, and their word for the warm vents is the closest thing they have to a word for hearth.
+
+They eat what the vent-rings provide and what the tea-dark streams provide, and they ferment: food buried in the cold anaerobic peat keeps for years, for decades, and a family's wealth, insofar as the word applies, is its memory of where things are buried. This extends to the dead. The peat takes their dead and keeps them — tanned, whole, composed, hands folded, sinking a finger-width a decade — and the people know where every ancestor lies, going back further than seems possible, and will sometimes open the moss to visit one: a great-great-grandmother four feet down, her face still her face, the bog holding her the way it holds everything, without urgency. They do not find this morbid. The plateau is mostly made of the accumulated dead, compressed into the very peat that warms the living, and the people understand themselves as a thin mobile layer of the same material, temporarily upright.
+
+Their calendar is the phase-wave. When a region of bog drifts into synchronized breathing and the month-long exhalation begins its roll across the tableland, the people move with it — not because they must, but because it is the only event the plateau offers, and they are its witnesses. Whole bands travel for weeks at the crest of a wave of breath, the stilt-bird flocks moving with them, the vents around them sighing nearly together. They count in breaths. Their unit of distance is how far one walks in a breath; their unit of patience is how long one waits in one. Their language is whispered and half-felt, with a register spoken entirely through the palms pressed flat to the peat — pressure-words, slow pulses, a way of talking that the moss does not eat because it travels under the moss. Children learn the bog's rhythm before they learn words, the way other children learn their mother's heartbeat, because here it is the same lesson.
+
+They have one rule, and it is the first law restated as ethics: *do not interrupt.* Do not dam, do not drain, do not dig what you will not close, do not make a sound the quiet cannot swallow. It is not piety. It is the same self-evidence by which one does not stop one's own heart.
+
+Their name for themselves, as nearly as it can be rendered, means **the also-breathing**. It is the same root as their word for the vents. They do not consider this a metaphor.
+
+---
+
+Which leaves the last inhabitant, the one no one can quite point to.
+
+The phase-waves are not random. The drifting synchrony, the regions of bog falling into step and out again, the month-long tides of coordinated exhalation — these propagate, interfere, reinforce, in patterns that repeat at intervals of years and decades, patterns large enough that no single living thing could ever perceive one whole. The people say the bog dreams, and that the waves are its turning over, and they say it without mysticism, descriptively, the way you might say a sleeper is restless.
+
+Nothing built this place, and perhaps nothing thinks it. But a wet, cold, crowded, ancient system, dense with feedback, breathing in rhythm across a thousand miles, running uninterrupted for ten million years, is at minimum the *substrate* of something — and everything that lives on the altiplano, worm and bird and hunter and human, lives inside that something the way the cushion-dwellers live inside their domes: embedded, warmed, listened to, never seeing the whole.
+
+Whatever it is, it suits the place. It was never born, so it cannot die. It is simply living, and has been, and will be — and all its inhabitants are, perhaps, less residents than they are its smaller, faster thoughts: the quick warm parts of the slow engine, keeping pace, keeping quiet, keeping on.

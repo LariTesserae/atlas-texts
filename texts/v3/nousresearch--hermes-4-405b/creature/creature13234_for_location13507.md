@@ -1,0 +1,5 @@
+Within the vine-choked chamber thrums a hidden order, an ecology thriving on perpetual weeping. Here, the very walls breathe steam through water-slick passages, warmed by the abrasion of countless roots. This is a realm where metallic skeletons have softened into living tissue, where what was once inert now pulses with vegetable life.
+
+Crimson-petaled flora stand like stained-glass sentinels, their translucent veins channeling mineral-rich tears into the deep, resonant thrum of this self-sustaining heart. Above them, bioluminescent fungi cast soft indigo light that pools in the chamber's hollows, illuminating the dance of iridescent beetles burrowing into warm, spongy pipes. Symbiotic insects, drawn to the unchanging pulse, harvest the oil as it beads on every leaf edge.
+
+This realm hums with the industrious efficiency of nature, a hidden engine whose mechanical grace belies its strangeness—a secret lubricated by life itself.

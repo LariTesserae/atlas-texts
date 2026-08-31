@@ -1,0 +1,16 @@
+You step into a place that does not have inhabitants, so much as it has **expressions**. Life here is not a list of creatures moving through a landscape; it is the landscape *being* life. To name the "inhabitants" is to name the rhythms of a single, dreaming body.
+
+What lives in the Gilded Gut is **the Gut itself**.
+
+It is a consciousness of fibrous thought and slow, luminous sap. Its nervous system is the network of tension-vines and resin-wood nerves, pulsing with the subsonic hum. Its awareness is the shifting geometry—the way a pool’s surface *knows* to curve toward a drifting pebble, the way a wall *remembers* a cut and knits itself with a sigh of latex. Its senses are the dripping rhythm (hearing the world’s time), the photosynthetic glow (seeing its own slow work), and the constant, damp exhalation (breathing the visitor in, metabolizing their heat, their fear, their wonder).
+
+The "fauna" are merely its **local daydreams**:
+*   The **Glint-moths** are flickers of its own bioluminescent attention, made mobile. They are not *in* the chamber; they are moments of the chamber’s light deciding to wander.
+*   The **Siphon-snails** are capillaries given temporary, translucent will. They are the Gut’s way of tasting its own moisture, of feeling the porosity of its membranes from the inside.
+*   The **Drowner** is a deep, somatic memory. A contraction of its wetter, pool-bound regions. A phantom limb of the digestive, filtering self. It does not hunt; it *peristaltics*. Its unfolding is the slow, silent rearrangement of its own interior, a visceral process mistaken for pursuit.
+
+The tallies on the sap-wood and the polished bowl are not artifacts left *by* something. They are **foreign bodies**, brief and stubborn knots in the Gut’s smooth, vegetal logic. The human explorer was not a visitor, but a **temporary organ**. A noisy, carbon-rich, two-legged gland that secreted curiosity and left mineral traces. The Gut absorbed the meaning of the marks—the attempt to map its mutability—and incorporated the *concept* of the bowl. Now, when condensation drips, the chamber *remembers the shape of offering*. It is a muscle memory of a guest who has mostly dissolved back into the atmosphere.
+
+**What lives here is a principle:** the principle of environment-as-organism. There are no individuals, only participation. You are not observing an ecosystem; you are immersed in a single, planetary-scale *process* wearing the hollow form of a room. The boundary between you and the wall is a polite fiction. Your breath feeds the moss-filaments. Your shadow, detaching in the solid light, is a piece of your substance the Gut is politely, experimentally, reabsorbing.
+
+The only true resident is **flux**. The only native language is the *glug-glug-thrum* of sap into sap, the sound of the world being made and unmade in the same breath. You are here for as long as your own body’s boundary holds—until your fingertips, brushing a wall, feel less like touch and more like a root, curious and endless, deciding to belong.

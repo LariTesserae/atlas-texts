@@ -1,0 +1,9 @@
+In this verdant, hyperactive wilderness, the dominant lifeforms are a species of towering, sentient plant-creatures. Vast, cathedral-like in scale, their trunks and limbs have fused together over millennia into a living, breathing lattice that stretches as far as the eye can see. 
+
+These ancient, enigmatic entities are both the architects and inhabitants of this alien world. Their restless, ever-shifting forms are in a constant state of growth, consumption and reconfiguration, the living embodiment of the ceaseless metabolic cycle that drives the entire ecosystem. Tendrils and roots probe outward, testing the boundaries and integrating new matter into their collective mass.
+
+Beneath the canopy, the ground is a labyrinth of intertwined vines and undulating mosses, home to a myriad of smaller, symbiotic creatures. Chittering, croaking sounds emanate from the shadows, hinting at the presence of rare, cryptic organisms that have adapted to thrive in the plant-creatures' domain. 
+
+The plant-beings themselves possess a strange, inscrutable intelligence. Somehow aware of their surroundings on a profound level, they seem to react and reconfigure in response to unseen forces and stimuli. Occasional gaps in the foliage reveal that this is no static, lifeless world, but one in constant, roiling flux - a living, breathing entity unto itself.
+
+Scattered amidst the verdant tangle are the faint traces of long-vanished artifice, fragments of an earlier intelligence that has now been subsumed by the relentless, unstoppable growth of the plant-creatures. Whatever civilization once thrived here has been consumed and assimilated, leaving only ghostly echoes of its passing. This is a world where the boundaries between life, death and the inanimate have blurred, where the very land itself appears to possess a sentient, unknowable vitality.

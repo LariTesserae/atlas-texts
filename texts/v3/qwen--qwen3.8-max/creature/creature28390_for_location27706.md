@@ -1,0 +1,19 @@
+What lives there is not at first a body. It is a concentration.
+
+The hollow already contains many lives: the beetles moving in their slow dark lines, the frogs resting in the cool basin, the flies and moths suspended in the filtered light, the slugs tracing the walls along paths that seem older than choice, the unseen creatures stirring in the roof-leaves. These are real inhabitants, each with its own small appetite and rhythm. But they do not fully account for the feeling that the place is inhabited. They are more like the fine moving hairs of a much larger body, the visible signs of a deeper resident.
+
+The true dweller in the hollow is harder to see because it is partly continuous with the hollow itself. It does not stand apart from the architecture. It is not a creature that moves through the room so much as a life that the room has gathered into a local form. If the ancient plant-country beyond is a vast living system, then this small depression is one of its quiet organs, and what lives there is the organ’s own gathered sensitivity: a being grown into stillness, a presence refined from pressure, water, and time.
+
+If one had to find its center, one would look at the basin.
+
+There, beneath the skin of clear water, lies something that might at first be mistaken for a thickening of the floor, a submerged shelf of living bark, or a leaf too large and too old to fall. It is low, folded, darkened by damp, and smooth in the way of things that have been touched by water for longer than memory. Its color is not one color but the memory of several: green gone gray, bark-brown made translucent at the edges, a faint paleness where light enters it and does not immediately leave. It has the size of a curled body, perhaps no larger than a sleeping animal, but part of it is always elsewhere.
+
+Its surface is sleek without being glossy. It is marked by tiny pores, shallow grooves, and hair-fine channels through which water moves with a slowness that makes the eye doubt whether motion is happening at all. Along its upper folds are small membranes, thin as leaf-skin, that tremble faintly when the air changes. There is no face there. No eyes. No mouth that opens in the ordinary way. No limbs, no claws, no shell, no visible instrument of violence. Its front is wherever water gathers. Its back is the curve that receives the drips. Its edges thin into threads so fine they seem to become part of the root-felt beneath them.
+
+That is where the dweller becomes difficult to count as one.
+
+From the central mass in the basin, strands finer than root-hairs pass into the living floor, into the seams of the walls, into the pores of the root-columns, into the little water-filled axils and hollowed knots. Some climb invisibly along the polished cables that descend from the rim. Some lie in the curled leaf-tubes and abandoned sap-channels. Some are nothing more than a film of living tissue across a damp recess, no wider than a hand. Each of these extensions is minor by itself, but together they make the dweller distributed through the hollow like sensation through a body. A beetle stepping onto a root-column may be felt in the basin. A change in the breath of air through a leaf-valve may tighten a membrane near the water. A drip falling from the canopy may pass through the whole dweller as a single, clear event.
+
+It is one life, but not in the simple way a stone is one thing. It is one life in the way a pond is one thing, or a heart, or a chorus: by coherence, by rhythm, by the fact that every part answers every other part without command.
+
+It has no eyes, but it is not blind. It perceives the hollow through pressure, temperature, chemical shade, and the subtle electrical gradients that move through the plant-body around it. It knows light as a warming of the upper membranes, a slight loosening of the canopy’s pores. It knows air as a current against its finer hairs. It knows the

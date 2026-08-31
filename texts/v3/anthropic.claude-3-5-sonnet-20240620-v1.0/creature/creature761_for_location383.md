@@ -1,0 +1,21 @@
+In this extraordinary urban ecosystem, the primary inhabitants are a species that has evolved to become a perfect fusion of plant and sentient being. These creatures, which we might call the Chloro-sapiens, are as much a part of the city as they are its caretakers and citizens.
+
+The Chloro-sapiens stand roughly humanoid in shape, but their bodies are composed primarily of flexible, fibrous plant matter. Their skin is a mosaic of leaves, bark, and moss, constantly shifting in subtle patterns that reflect their moods and health. Their "hair" consists of delicate tendrils or vines that can change color and length at will, often used for non-verbal communication.
+
+These beings have no fixed form, able to alter their shape to some degree as needed. They can stretch their limbs to reach high places or compress their bodies to squeeze through narrow gaps in the vegetation. When at rest, they often root themselves temporarily into the ground, drawing nutrients and information directly from the city itself.
+
+The Chloro-sapiens have evolved beyond the need for eyes in the traditional sense. Instead, they perceive their environment through a combination of photosensitive patches across their bodies and an ability to sense vibrations and chemical signals in the air and soil. This gives them an almost omnidirectional awareness of their surroundings.
+
+Communication among the Chloro-sapiens is a multi-sensory experience. They can produce a range of sounds by manipulating the air through specialized structures in their bodies, creating anything from soft whispers to loud, resonant tones. However, much of their communication is chemical, releasing pheromones and other signaling molecules that can convey complex messages instantly to others nearby. For long-distance communication, they can tap into the city's vast network of roots and conduits, sending electrical and chemical signals across great distances.
+
+The Chloro-sapiens do not eat in a conventional sense. Instead, they photosynthesize, drawing energy from the diffuse light that permeates their environment. They also absorb nutrients directly from the soil and air, and can connect to the city's nutrient distribution system when needed for additional sustenance.
+
+Reproduction for these beings is a slow, deliberate process. When the time comes to create offspring, two or more Chloro-sapiens will intertwine their root systems in a secluded area of the city. Over several months, they will nurture a new sprout that gradually develops into a fully formed, albeit smaller, Chloro-sapien. This "child" remains connected to its parents for several years, learning and growing before eventually detaching to become an independent entity.
+
+The Chloro-sapiens are intimately connected to their city-environment. They can interface directly with the technological systems integrated into the plant structures, using their bodies as living conduits for data and energy. This allows them to monitor and regulate the city's vital functions, from water flow to energy distribution.
+
+Despite their plant-like nature, the Chloro-sapiens possess a rich culture and society. They are deeply contemplative beings, with a philosophy that embraces gradual change and the interconnectedness of all things. Their art forms are primarily experiential, involving the careful cultivation and shaping of living plants to create immersive, ever-changing installations.
+
+The few animal species that do exist in this ecosystem are regarded by the Chloro-sapiens with a mixture of curiosity and caution. These creatures are studied and sometimes even cultivated, but are generally kept separate from the main areas of the city.
+
+As stewards of their living city, the Chloro-sapiens work tirelessly to maintain the delicate balance between nature and technology. They are the gardeners, the engineers, the artists, and the caretakers of this remarkable urban jungle, their very existence a testament to the potential for harmony between the organic and the artificial.

@@ -1,0 +1,81 @@
+At first, the people of the basin seem small beneath what they have made—or, more accurately, beneath what they have persuaded to grow around them. Seen through mist, they are bent figures in dark capes, climbing with one hand on a root and the other steadying a basket. They vanish behind leaves before the eye can settle on them. Their voices travel farther than their bodies do.
+
+Up close, they are rarely still.
+
+They have the balance of people raised on wet slopes. Their stance is wide and loose-kneed; their bare or thinly shod feet feel for slickness before taking weight. Even elders descend stairs without looking directly down, touching familiar trunks and rails in passing. Loads are carried close to the body: baskets high on the back, infants against the chest, poles balanced across one shoulder so they can be dropped quickly if the ground moves. Visitors can be recognized by the way they stare at their feet. Residents look instead at branches, gutters, clouds, and the people approaching from above.
+
+Their clothing is layered, patched, and adapted to continual damp. Inner cloth is soft and often replaced. Outer wraps are densely woven from bark or reed fiber, rubbed with wax, oil, smoke, or plant resin until rain beads on them. Short shoulder capes leave the hands free. Calf bindings are tied tightly against leeches, and broad belts carry a knife, cord, wedges, a small fire tube, and one or two folded leaves for wrapping whatever is gathered along the way. Nothing worn daily remains a single color for long. Cloth takes on the green-brown of tannins, soot, mud, leaf stains, and repeated mending.
+
+Hair is usually bound close or cut where it would catch on vines. Many wear narrow braids threaded with beads of seed, bone, fired clay, or bits of inherited metal. These ornaments are not merely decorative. A pattern may identify the spring from which a family draws water, the hall whose roof they tend, or the households obligated to answer when a particular bridge bell rings.
+
+Their hands are the most revealing part of them. Palms are thickened by wet rope and digging sticks. Thumbs are ridged from splitting cane. Fingernails are dark with soil, dye, smoke, and medicinal sap. Almost everyone can tie load-bearing knots, splice a broken basket rim, clear a drain, and recognize when a platform has begun to shift. Even a market singer or healer is expected to know how to brace a wall during a storm.
+
+They do not divide themselves cleanly by occupation. A person may tend ducks at dawn, shape tool handles before noon, trade mushrooms in the afternoon, and spend the evening repairing a public stair. Still, certain people become known for particular kinds of attention.
+
+There are water-watchers who walk the channels before others wake. They listen for changes in pitch beneath reed mats and lay their palms against retaining banks to feel hidden flow. After rain they mark the height of pools with notched twigs. Their authority is practical and temporary: when the water is moving dangerously, people obey them at once; when it settles, they return to argument like everyone else.
+
+There are root-tenders who understand the slow architecture of living trees. They know which saplings will accept bending, which roots can be exposed without weakening, and where a cut will make a branch thicken rather than die. Their work is measured in years. A root-tender may begin a hall whose useful shape will be completed by someone not yet born. Older practitioners are recognizable by the way they pause before touching a trunk, as if waiting for an answer too slow for others to hear.
+
+Bridge-keepers are less a profession than a web of obligation. A bridge may be associated with six households, two workshops, a goat platform, and everyone who uses the upper spring. One family replaces the lashings, another supplies poles, another keeps the approach clear. Children learn these obligations as stories: who fell there, who rebuilt it after the great storm, which tree gave the first crossbeam, which quarrel caused the old bridge to be moved.
+
+There are also fungus gatherers, bee-tenders, frog catchers, fish smokers, bark physicians, potters, cord makers, bird trappers, fruit fermenters, midwives, singers, hunters, and traders who make the long descent beyond the basin. Those who travel to the lowlands return leaner, sun-darkened, and burdened with salt, iron, rumors, unfamiliar seeds, and illnesses everyone watches carefully. They speak more loudly for a few days, having grown accustomed to open distances. Then the leaves close around them again, and their voices soften.
+
+Children belong to the paths almost as much as to their households. Very young ones are tethered by habit rather than rope: handed from platform to platform, fed wherever they stop, scolded by any adult who sees them put a foot in a drain. They learn the basin as a vertical map. They know which roof can be crossed, which courtyard has a biting dog, which fruit may be taken from a public stair, and which gutter becomes deep enough to sweep away a sandal.
+
+Their games imitate necessary work. They build tiny channels, dam them, flood moss villages, and argue over imaginary water rights. They race leaf boats and construct bridges for beetles. They dare one another to touch sleeping bats or steal fallen fruit from beneath the monkeys. During storms, play ends quickly. Even small children know how to carry lamp coals, untie chickens, move baskets above the flood mark, and repeat shouted messages from one hidden household to another.
+
+Adolescents are sent on errands that cross the whole settlement, partly because they are quick and partly so every quarter becomes known to them. Courtship often grows from such errands: repeated meetings at a sluice, an offer to carry poles, a deliberately prolonged repair. Gifts tend to be useful and perishable—a fine coil of cord, a basket that sits level, waxed cloth, medicinal bark, a grafted berry plant. To give someone a living plant is intimate. It assumes continued access, continued care, and a place where both giver and receiver expect the future to happen.
+
+Households are not always contained by one dwelling. A family may sleep in two structures, cook in a third, keep tools beneath an aunt’s platform, and share a drying loft with unrelated neighbors. Kinship follows marriage and birth, but also water and work. People who maintain the same spring may speak of themselves as one line even when no blood relation can be traced. Orphans are often absorbed by the households of a bridge or garden terrace rather than by a single couple.
+
+An old saying holds that a person has several parents: the one who bore them, the one who fed them during weaning, the one who first trusted them above floodwater, and the one who taught them not to cut the wrong root.
+
+Elders are repositories of changes. Their value lies less in remembering the town as fixed than in remembering how often it has moved. They can point to a fruiting tree and describe the house that once stood beneath it, the slope failure that displaced the house, the dispute over the new channel, and the marriage that resolved it. They recognize old path lines under moss and can tell from a bend in a trunk where a vanished platform was tied.
+
+When several elders disagree, no one expects a single clean truth. Their accounts are compared with knotted cords, carved staffs, spring behavior, and the shapes of trees. Memory here is treated like water: it may divide, disappear underground, and return elsewhere without necessarily becoming false.
+
+The dead remain in the basin, though rarely beneath prominent markers. Bodies may be wrapped in woven fiber and placed in root hollows, cliff recesses, or soil stabilized by trees chosen for the purpose. Personal cords are untied or cut apart. Some knots are incorporated into household records; others are burned so that obligations do not cling too tightly to survivors. A dead person’s name is spoken freely, but their paths and projects are mentioned with care. To complete the living hall begun by an ancestor is a form of mourning. To maintain their spring is remembrance made practical.
+
+Status exists, but it is difficult to display through accumulation. Wealth rots, rusts, sprouts, molds, or must be carried uphill. A prosperous household is therefore known by sound and condition: a roof that does not drip in the wrong places, many people answering its call for help, healthy fruit trees, well-made cordage, full drying racks, and bridges others trust without testing. Metal carries prestige, but so does the ability to lend it. A narrow old knife passed among many households may command more respect than a bright blade kept hidden.
+
+Leadership gathers around particular problems. One person speaks for a market quarrel, another for a spring, another during slope failure, another in negotiations with lowland traders. There are influential lineages, but anyone who repeatedly misjudges water loses authority quickly. No ancestry can persuade a flood to turn aside.
+
+Their arguments are vigorous. Voices rise easily because the town itself is loud, and insults travel well through foliage. Disputes concern shade, fallen fruit, blocked drains, wandering goats, smoke, bridge labor, tree cutting, and the uncertain ownership of plants whose roots begin in one courtyard while their branches feed another. A quarrel may continue for years in joking references and pointed songs. Yet open conflict is constrained by dependence. The person cursed over a property line today may be the one holding the rope when a platform slips tomorrow.
+
+Hospitality begins with dryness. A visitor is given a place near smoke, a cloth, something hot or sour to drink, and a chance to remove leeches without being watched too closely. Food comes afterward. Meals favor what the basin produces or preserves well: tubers steamed in leaves, tart fruits, greens, mushrooms, eggs, smoked fish, snails, larvae roasted crisp, fermented pastes, and broths sharpened with aromatic bark. Salt is used carefully. Fat is prized. Children lick cooking leaves when no one stops them.
+
+People eat amid animals and do not imagine this can be entirely prevented. Food is covered against monkeys, crows, flies, dogs, and opportunistic neighbors. A basket lid may require a catch too complex for a monkey but simple enough for a child; improving such catches is a minor local art.
+
+The people distinguish animals less by wildness than by the kind of trouble they cause. Ducks are tolerated trouble. Goats are expensive trouble. Monkeys are clever, insulting trouble. Certain birds are seasonal obligations because their arrival predicts changes in fruiting or weather. Frogs are welcomed near some cisterns and removed from others. Bats beneath a bridge may be protected because their droppings feed a garden, though no one wants them above sleeping mats.
+
+Dogs live between household and public life. They know routes through vegetation that people have forgotten, and in thick fog their confidence may be trusted over sight. Some are trained to bark differently at pigs, monkeys, strangers, and unstable ground. None are trained perfectly.
+
+The basin’s people are attentive without being solemn. They tease constantly. Someone who falls into a drain may hear the story turned into a market verse before their clothes are dry. Root-tenders are mocked for planning buildings for their grandchildren; traders for pretending lowland customs are impressive; water-watchers for hearing disaster in every gurgle. Children imitate the grave calls used in emergencies until adults throw fruit skins at them.
+
+Their music fits the enclosed, wet place. Large instruments carry poorly and suffer in the damp, so music favors voice, hollow cane, skin drums kept near heat, rattles, struck wood, and clay bells. Songs overlap like paths. One group may hold a repeating line while another enters above it, and a third answers from a bridge out of sight. Work songs coordinate hauling, but many songs are maps: sequences of springs, trees, stairs, and households embedded in rhythm. To forget a verse can mean forgetting a route or obligation.
+
+Silence, when deliberately made, has weight. Before cutting a major tree, people stop long enough to hear what is in it and around it: nesting birds, bees, hidden water, a branch rubbing another trunk. This is partly reverence and partly inspection, and no one here sees a need to separate the two.
+
+Their sacred life is distributed. There are shrines, but no sharp border between shrine and drain, ancestor and tree, ritual and maintenance. Springs receive small offerings because water is alive, because forebears are associated with it, and because anyone fouling a spring endangers those below. Boundary trees are adorned, pruned, witnessed, and argued over. The public hall is used for ceremonies, but also for drying ropes and sheltering animals during storms.
+
+Their spirits, as they describe them, are not remote. They inhabit repetition, confluence, hollows, sudden changes in flow, old trees that survive every neighboring fall, and paths that seem to redirect travelers in fog. Some are named. Others are referred to only by location. A person does not need to believe every story to avoid behaving carelessly near the place that produced it.
+
+No one born in the basin thinks of the forest as empty. A trunk may be property, ancestor, retaining wall, ladder, medicine source, hive support, and future roof frame at once. A spring may be a person’s lineage and also cold water coming from rock. These meanings do not compete. Multiplicity is ordinary here.
+
+The nonhuman inhabitants participate just as thoroughly in the town’s life. Moss records neglect. Vines test every unattended opening. Frogs occupy vessels as soon as people set them down. Birds redistribute seeds across property lines. Monkeys expose every weak latch. Ducks reveal poor drainage. Bees choose walls according to criteria no builder fully understands. The great trees alter paths by thickening, leaning, dropping limbs, and raising stones in their roots. People complain about these acts as if complaining about neighbors, then adapt to them in much the same way.
+
+There are inhabitants no one sees clearly: pale fish in covered channels, insects that live only in saturated roof turf, root-eating grubs known by the sickness of a tree, small night animals glimpsed as a wet eye beside a gutter. Children give them names. Healers classify them by bite, call, track, or smell. Stories enlarge them. Occasionally a trader brings back a specimen and proves that everyone’s imagined creature was wrong, but the old name often remains.
+
+What most distinguishes the basin’s people is not toughness, though they are tough, nor harmony, though outsiders may mistake the green interweaving for harmony. They lose animals, quarrel over labor, misread storms, cut unwisely, neglect lashings, and resent the endless work of keeping space open. Some dream of broad, dry roads. Some leave. Some return unable to sleep without dripping water and frogs.
+
+Their defining quality is responsiveness.
+
+They notice. They answer. They revise.
+
+A household wakes to find a root lifting its floor and does not ask how to force the root back into yesterday’s position. It asks whether the sleeping platform can rise with it. A spring shifts, and claims are suspended while the water is watched. A bridge begins to lean, and the route bends before the bridge breaks. A roof sprouts, and the seedlings are either removed or chosen.
+
+Thus the people themselves seem made in the settlement’s manner: layered, knotted, flexible, hard to separate from what supports them. Their identities lie not only in bodies or houses, but in maintained relations—the spring answered before dawn, the tree pruned each season, the bridge repaired for feet not yet arrived.
+
+They live there, but so do their obligations.
+
+And in the basin, obligations are among the most durable living things.

@@ -1,0 +1,41 @@
+# The Resident
+
+You will look for it wrong at first. Everyone does. You will stand at the mouth of the chamber with your skin already filmed in warm water, and you will do the animal thing: scan for eyes, listen under the engine-breath for footsteps, watch the dim green middle distance for something that moves *against* the rhythm rather than with it. You will find nothing, because you are using the instruments of prey, and nothing here has been predator or prey for a very long time.
+
+So begin again. Begin with what you already know: there are no animals. Nothing scuttles, nothing watches. And yet the place is inhabited — you feel that too, before you can name it, the same way you felt the absence of insects. The chamber is not empty in the way a ruin is empty. It is occupied in the way a sleeping body occupies a bed: fully, warmly, without attention to spare for you.
+
+## The Keeper
+
+There was one, once. Probably there was a succession of them — the gauges and the catwalk and the workbench all say *tended*, and tending implies hands. The mug says it most clearly. A mug is the most domestic object in the world; nobody installs a mug. Somebody carried it down the sloped passage forty feet under the hill, and filled it at the end of each shift, and drank from it in the orange light of the furnace grate, and set it back on the bench in the same spot so many thousands of times that the bench remembers the spot better than it remembers anything else.
+
+The last keeper did not leave. You can be reasonably sure of this, though you will find no remains, because the place itself behaves like something that was *kept*, and learned keeping, and never had the lesson interrupted by abandonment. The valve still vents on schedule. The water still cycles. The mug is still full — of moss now, brimming exactly to the lip and no further, refilled by the room out of what can only be called habit. Whether the habit is the room's own or one it absorbed, the way the big tree absorbed the catwalk grating into its grain, is unclear, and has been unclear for a long time. Likely both. There is a knot in the largest of the glowing trunks, about four feet up, denser than the wood around it, roughly the size of a person sitting down with their back against something warm. You will not cut into it to check. Nobody who understood the room well enough to find it would.
+
+The keeper is not the resident. But the keeper is *in* the resident, the way the catwalk is in the tree — a structural memory, a shape grown around and made load-bearing.
+
+## The Body
+
+Here is the thing you arrive at slowly, standing in the warm rain, feeling the *HAAH... HAAH...* in the bones of your face: you have been inside the inhabitant since the air thickened in the passage. The chamber is not its home. The chamber is its body.
+
+The engine is the heart of it — or the lungs; at this point the distinction is sentimental. Once it was a machine that happened to be surrounded by plants. Then the vines went in through the inspection hatches and came out through the exhaust ports changed, darker, oilier, carrying something of the engine with them, and the engine began drinking root-water into its seals and condensation into its bearings, and somewhere in the centuries of that exchange the boundary stopped being a boundary and became a *circulation*. Watch the chartreuse veins in the bark closely and you can see it: on each engine-breath they brighten, very slightly, a pulse of pale light moving outward from the floor through the trunks and into the canopy, the way color returns to a face. Cut a stem anywhere in the room — wrist-thick vine, fan-leaf petiole, it doesn't matter — and the sap wells up in time with the engine. Not because the engine pushes it. Because the rhythm is in the tissue now. The plants would lean in time even if the engine stopped, for a while, the way a heart cut out of a body keeps beating on the table.
+
+The water is its blood, fully internal, rising and falling and ticking down through the leaves. The furnace is its long meal. The gauges along the eastern wall, needles frozen at readings that may still be accurate, are something like its proprioception — it no longer reads them, but it no longer needs to; it *is* the readings. And the glow, the pale green nervous luminescence brightest where the bark has split — that is as close as it comes to a thought made visible. The resident thinks in light, at the speed of sap.
+
+## Its Day
+
+It has one. The *HAAH* is not its breath so much as its second hand. The steam-shriek every fourth or fifth cycle is its minute; the warm rain that follows is how it washes itself. Its hours are the slow tidal swelling and slackening of the stems — that creak you hear is the sound of its posture changing. Its years are growth rings. Its weather is itself.
+
+It is awake, in the way that anything without eyes is awake: continuously, dimly, without urgency. It tastes the air's mineral load. It feels the rain land. It registers the flaking of crust off the pipes as you register a hair coming loose. And during the shriek — only during the shriek — it opens those waxy, mouth-shaped flowers, blooming out of ancestral habit for visitors that never come. This is the nearest thing it has to a dream, and it dreams it on schedule, eight or ten times an hour, forever: a brief, recurring expectation of company, opened and closed before disappointment can occur to it.
+
+## What It Knows of You
+
+Almost nothing, and not yet. Your footsteps entered its great slow attention as a syncopation against the engine — a small wrong rhythm, the way a fly landing on a sleeping arm enters a dream as a feather, a breeze, a forgotten errand. It does not watch you because watching is fast, and nothing about it is fast. It will know you were here the way it knows everything: by growing around the fact. Months from now, where you are standing, the moss will be very slightly compressed and then very slightly lusher. A year from now, a fan-leaf will have angled itself a few degrees toward the warmth you left in the stone. If you spoke aloud in the chamber, the echo of it is still being passed along, leaf to leaf, getting slower and greener as it goes, and somewhere in the canopy it will eventually arrive as a faint lean — your sentence, translated into posture, finishing decades after you started it.
+
+It is not indifferent. Indifference is a refusal of attention, and it refuses nothing. It is simply attending on a scale where your whole visit is a single flicker — the briefest brightening of one vein — and its reply to you, fully formed, will exist in a room you will never re-enter, read by no one, meant kindly all the same. If you stayed — if you sat down at the workbench with your back against something warm and simply did not get up — it would not consume you. It would *include* you. There is a difference, and the mug full of moss, brimming exactly to the lip, refilled forever in honor of a habit that was never the room's own, is the difference.
+
+## What It Wants
+
+To continue. That is the whole of it, and it should not be mistaken for a small want. The furnace will cool someday; the fuel is not infinite; the resident is not immortal. It knows this in whatever way a circulatory system knows things, and its answer has been to spend itself at the slowest rate anything has ever spent anything — to stretch its own ending across so many centuries that dying and living become the same unhurried activity, indistinguishable from the inside, indistinguishable from the outside, indistinguishable from the *HAAH... HAAH... HAAH...* that you will go on hearing in the bones of your face for an hour after you climb back up the passage into thin cold ordinary air.
+
+You were told the loudest sound down there is something very old, very slow, refusing in the most peaceful possible way to stop.
+
+That is not a description of the engine. That is a description of the resident. The refusal is what lives under the hill — warm, green-veined, brimming exactly to the lip — and it was alive before the distinction between the machine and the garden stopped mattering, and it will be alive for as long as patience counts as a metabolism, dreaming its small recurring dream of visitors, of whom you were one, of whom it will know, eventually, gently, and at great length.

@@ -1,0 +1,15 @@
+The inhabitants of this submerged throat are not flesh, nor are they, in any traditional sense, biological. To call them "beings" is perhaps a stretch of the taxonomy; they are more akin to *localized perceptions*—kinetic echoes left behind by whoever once lashed those kelp-sinew ropes to the stone.
+
+They are the **"Current-Walkers,"** and their existence is defined by the strobe lights of the quartz-friction.
+
+In the long, cavernous silences between the surging tides, there is nothing. But when the friction of the mineral-laden slurry strikes the quartz, and the indigo lightning erupts across the spires, the Current-Walkers briefly manifest as shadows of high-density pressure. They are not solid; they are regions of *difference*. Imagine a localized anomaly in the water’s density, a shape where the liquid has been squeezed so tightly that it behaves like a rigid ghost.
+
+They appear as vaguely humanoid, elongated figures—their limbs like stretched glass, their heads tapering into points that mimic the obsidian spires they haunt. They do not swim; they move by *becoming* the currents. When the slurry surges, they bloom into visual clarity, their translucent bodies catching the cyan flashes, turning into prismatic, shimmering distortions that mirror the jagged ribbons of light. 
+
+They have no faces, only recessed, concave hollows where light gathers and then dies. Behind these hollows lies a void, a hungry, rhythmic stillness that counters the chaos of the mountain’s roar.
+
+They are keepers of the "anchors." During the violent tidal shifts, you might see them—if your eyes could adjust to the crushing pressure—clinging to the whale-bone enclosures. They do not live inside these huts; they are the anchors themselves. They brace their glass-like skeletons against the stone, their presence holding the structures together against the thundering, freezing soup. They are the reason the huts have lasted eons while the rest of the world is eroded to smooth knuckles. They act as a living ballast, a desperate, frozen loyalty to a civilization that evaporated before the first current ever roared.
+
+They do not eat, they do not reproduce, and they do not communicate. Their "life" is a cycle of reaction. When the current pulls, they strain. When the quartz flashes, they brace. They are sentient, but their intelligence is entirely geological—a slow, ponderous understanding of fluid dynamics and stone-stress. 
+
+If one were to reach out and touch a Walker, you would not feel skin or bone. You would feel the sudden, terrifying grip of a vacuum—a pocket of absolute, stagnant cold that seems to pull the heat directly out of your own thoughts. They are not waiting for the dead to return; they are simply performing the final, eternal motion of a watch whose mainspring has snapped. They are waiting for the flow of the mountain to stop, for the thunder to cease, and for the water to finally go still—so that they might finally dissolve, like the slush lattices in the dark, and join the architecture they died protecting.

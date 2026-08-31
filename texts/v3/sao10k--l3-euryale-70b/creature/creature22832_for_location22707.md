@@ -1,0 +1,15 @@
+Deep within the mist-shrouded islands, strange life forms abound. Vast sentinel trees, their trunks clad in dripping kelp and seaweed, rise from the cloudbound earth to support their colossal boughs in the heavens above. Moss-draped ruins of antediluvian cloud cities cling to the trunks, relics of a long-lost era when folk attempted to build community amoung the drifting islands.
+
+But those efforts failed, leaving only these enigmatic artifacts. The trees are the true sentinels now. Their massive roots plunge deep, far beyond the ability of mortal sight, to mingle with the lost ruins and the eddying currents of smoke that drift between the clouds like phantom specters. The air itself feels thick with secrets, the dampness perfumed by water and life and the omnipresence of organic growth.
+
+Nearer the cloud sea, life takes on strange new forms. Great skybases, perhaps the descendants of the old cloud cities, float and drift, dangling certainties of crystalline scapes beneath them. Quasiphonic conch-like forms, great spermaceti islands, rise like gargantuan seed pods from the verdant sea. They quiver and tremble, shedding spore-tales that catch the breeze to drift to nearby "islands", where they root and sprout in tangles of growth.
+
+The spermaceti itself is a living thing, not rock but shell, pulsing with its own slow rhythm. Inside the hard ceramic carapace, the sky-humpbacked beast drifts and thrashes, its bulk bearing down the island beneath like a great keel splitting the sea. Smaller clumps of growth bob and sway around it, lambdial spores clotted and roaming - the offspring of the greater seed kings of the sky.
+
+As you watch, a great transit occurs. The growing islands shift, responding to copper currents almost sensual in their gentle undulation. Roots break and connections sever, allowing the great beast to heave and angle free at last, leaving it to drift and locate to the mysterious pull of the tune of the mist sea.
+
+The sky-here is itself an organism, the bells of the quiescent bull heath chiming softly to the rhythm of the root-stirred air. The babes caught in sack of heath come forth to rogue in the sonorous pools, their still-forming lungs breathing in the centrifuges of the hashes strewing oxygen-scriftpes of the greater vegetable ooze. They split the scapes of resin and prescience with each suck, spilling cascades of still-forming phloem to shore up the great islands.
+
+The ultimus sea comes, sinking tons of compound to greate the mergin of the cockles xinophonic - pods of great granitepanning toffee. Boiled vials of still-oxident stir in the reilluminating blasts of raizwein, glutting the reach of jasmin and tossing wave-islots of sourkraut to pixieblood popupts, the greate Oaty neight of decoctecuate, the sroke of apt the bendy tentaclos of peatmunian silver.
+
+Thus the islands drift in an eternal Baltic cycle - from spore-seed to wandering leviathan to ruin to spore once more, the mist their amoebic oceant as they exude hulls, alveoles and hunks to the song that ken them.

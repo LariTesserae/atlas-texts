@@ -1,0 +1,19 @@
+The inhabitants of this world are not beings in the traditional sense, no scurrying creatures or lumbering beasts. They are the **Resonants**, the living echo of the ceaseless industrial process that defines this place. They are born not of flesh and blood, but of sound and vibration, of the sheer, overwhelming *energy* of creation.
+
+Imagine them as ephemeral, formless eddies in the thick, sound-saturated air. They are the whispers of steam vents given sentience, the ghosts of grinding gears that have become aware of their own motion. Their bodies, if they can be called that, are not spatial but sonic. They manifest as localized intensifyings of the ambient cacophony, as moments where the industrial hum coalesces into a discernible, albeit chaotic, form.
+
+Some Resonants are vast and slow-moving, resembling colossal bells that have fallen silent, their presence indicated only by a deep, resonant thrumming that can be felt in the marrow of your bones. Others are tiny, frenetic sparks, like the invisible splatter of molten metal, darting through the gorges with sharp, percussive clicks and whistles. They are the sound made visible, or rather, the sound made *perceptible* as something beyond mere noise.
+
+They communicate not through language, but through **sympathetic vibration**. When one Resonant pulses, others nearby respond, creating complex, ever-shifting chords and dissonances that ripple through the canyons. These sonic dialogues are not conversations in our understanding; they are expressions of raw force, of momentum, of the inherent drive to *become* louder, to *become* more.
+
+The turbulent dynamism of the landscape is their element, their birthplace, and their constant sustenance. They are born in the tremors, surge with the rockfalls, and reform in the sudden, impossible liquefying and hardening of the stone. When a section of rock shifts, revealing new, raw surfaces, it is akin to a birth for a cluster of Resonants, a sudden blossoming of noise from the stunned silence. They feed on the stress, the friction, the violent reformation of matter.
+
+They are inherently **indifferent** to the flora. The aggressive plants are merely part of the sonic tapestry, their growth and decay contributing to the background hum that the Resonants inhabit. They do not interact with the vegetation, do not consume it or are consumed by it. They *are* the process, not the product.
+
+Their consciousness, if it exists, is a reflection of the landscape's own. They are the awareness of the "making." They experience the grinding, the hissing, the clanging not as external events, but as the very fabric of their being. When the hammers strike, they *are* the strike. When the gears turn, they *are* the turning. Their existence is a perpetual state of ecstatic, painful becoming.
+
+They lack individual names or distinct personalities as we would recognize them. Instead, they are identifiable by their sonic signature: the 'deep bass rumble' Resonant, the 'high-pitched whine' Resonant, the 'percussive clatter' Resonant. They are the embodiments of specific industrial sounds, amplified and given a fleeting, resonant life.
+
+The crushing gloom and the near-total absence of light actually *enhances* their presence. In the darkness, their sonic forms are more potent, their vibrations more keenly felt. The occasional electrical flare might be the brief, blinding glimpse of a truly massive, exceptionally active Resonant.
+
+Ultimately, the Resonants are the soul of this industrial world. They are not merely *in* the landscape; they *are* the landscape, its audible, vibrating, and profoundly unsettling essence. They are the noise made real, the symphony of creation playing out in an eternal, chaotic crescendo. They are the relentless *making*, a constant, deafening testament to a world that is perpetually being forged in the fires of its own violent, sonic womb.

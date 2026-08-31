@@ -1,0 +1,7 @@
+The beings of the Sunken Atrium move through the heavy water like thoughts made flesh—slow, deliberate, almost hesitant. They are the **Silent Architects**, translucent eel-like forms ribbed with internal bioluminescence that pulses in time with the microbial currents. Three meters long but no thicker than an arm, they drift through the fungal forests and mineral-laced pipes with boneless grace. 
+
+Their bodies are gelatinous, density-matched to the briny water, allowing them to hang motionless for weeks. Skin like liquid silica refracts the ambient glow, scattering it into prismatic halos. No eyes; instead, chemoreceptor pits line their blunt heads, tasting metal ions and fungal exudates in the water. They feed on the mineral accretions weeping from corroded iron, rasping with crystalline teeth that grow and shed like slow-forming stalactites. 
+
+Movement is a patient unfurling. To swim, they pulse sections of their body in sequence, a wave traveling from head to tail over minutes. Disturbance triggers a defense mechanism: their bioluminescence dims, and they exude a cloud of reflective microparticles, mimicking the shimmer of geothermal vents. 
+
+They are not solitary. Occasionally, two will intertwine, merging their light patterns into complex, flickering dialogues that last for days—mating or memory-exchange, impossible to distinguish. Their only sound is the soft *click* of a tooth dislodging onto the silt far below. They tend the fungal gardens, nudging spores toward metal-rich cracks, symbionts in a cathedral where time is measured in rust.

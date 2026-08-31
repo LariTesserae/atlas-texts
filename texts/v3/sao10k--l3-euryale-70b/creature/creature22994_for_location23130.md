@@ -1,0 +1,11 @@
+In this surreal, otherworldly landscape, strange life forms have evolved to thrive amidst the pulsating energy and corrosive chemistry. Bioluminescent fungi sprout like glowing mushrooms among the jagged shards of glassy hillsides. Their translucent caps ooze viscous nectar that crackles with electricity as it drips onto the sizzling mudflats below. 
+
+Amphibious creatures skitter between these fungal outcroppings - bulbous beings covered in protective scales made from naturally-secreted chitinous polymers. They absorb oxygen directly through permeable skin membranes while also breathing toxic gases venting from beneath the mineral-rich soil. Compound eyes flicker over irridescent shells glinting shades of emerald green and violet.
+
+Underground networks of subterranean worms tunnel through layers of compressed algal mats and parasitic loops packed into thick slurries. These segmented annelids secrete acids to dissolve tunnels then precipitate calcium carbonate shells around themselves for protection against the caustic environment above.
+
+Flitting firefly-like insects zip amongst towering stalks of crystallized salts left behind when briny pools evaporate under dual suns beating down mercilessly overhead during day cycles before temperatures plummet at dusk to condense steam back into foggy vapors rising off still-steaming flats at dawn again.
+
+Larger predators lurk just beyond fringes where land meets lapping waves stained black by dissolved metals leeching from obsidian shores: Giant serpentine reptiles armored in keratin-covered bony plates, slit-thin pupils scanning for movement within field of electromagnetic sensitivity granted by electroreceptors lining snouts sensitive enough detect muscle contractions miles away underwater...
+
+All living things here share one thing in common - they are each tuned attuned entrained to resonate with fundamental frequencies vibrating throughout entire ecosystem...the same hum thrumming incessantly through every cell membrane, neural net and skeletal structure...a never-ending feedback loop connecting them all in shared song echoing without end across blasted hellscape lit only by flashes splitting sky apart whenever another shockwave ripples outward after thunderclap booms resoundingly until silence falls once more again!

@@ -1,0 +1,17 @@
+Perhaps it is not accurate to say anything *lives* in the Dimina Peaks. Life, as most understand it, is too fragile, too dependent on warmth and nourishment to truly thrive in such a place. But something *is* there. Something born of the cold, the stone, and the whispers of the wind.
+
+They are beings of stillness, of endurance. Picture the lichen, but animated by a glacial sentience. They do not move as humans move, with purpose and direction. Theirs is a slow, almost imperceptible drift, a creeping across the stone measured in centuries, not steps. Imagine them as the mountains themselves, awake and aware, their thoughts as slow and grinding as the erosion that shapes their forms.
+
+Outwardly, they are indistinguishable from the natural features of the Peaks. Boulders that hum with a low, internal vibration. Patches of moss that ripple with an unseen current. Shadows that deepen and coalesce into vaguely humanoid shapes. A cairn that sits just *wrongly*, never decaying with the rest. They are masters of camouflage, blending seamlessly into the landscape. Only those with eyes that can see beyond the superficial recognize their true nature. The trick, it seems, is not to *look* for them. They see you when you are already looking at them--maybe because they make you. Instead, listen. Feel.
+
+Their existence is a tapestry woven from the forces that shape the Dimina Peaks. They draw sustenance from the creeping damp, the faint radiation that washes down from the upper atmosphere, and the subtle energies that crackle within the stone. They are sustained by the *weirdness*, the fraying threads of reality that bind this place to… somewhere else.
+
+Their minds are alien, vast, and utterly indifferent to the concerns of mortal creatures. They possess the patience of mountains, the memory of glaciers. They remember the people who built the cairns and the walls, not as individuals, but as fleeting patterns of energy that briefly disturbed the equilibrium of the Peaks. They know the rise and fall of civilizations as others know the changing of the seasons.
+
+They communicate not through language, but through resonance. Their thoughts echo in the wind, manifest as the half-remembered words and the impossible geometries that haunt the valleys. They can influence the shadows, manipulating them to create illusions, to misdirect, to protect their secrets. Some say the disappearances and reappearances are not random misfortune, but playful redirections.
+
+They are guardians, in a sense. Not of any specific place or object, but of the equilibrium of the Peaks themselves. They work to maintain the desolation, to discourage any intrusion that might disrupt the ancient order. They are the arbiters of the *weirdness*, the keepers of the frayed edges of reality.
+
+Their numbers are few. Perhaps only a handful exist, each rooted to a specific peak or valley, each a vast and silent consciousness intertwined with the land. They are not immortal, but their lifespans are measured in millennia. They fade as the mountains erode, as the glaciers melt, as the *weirdness* recedes. But as long as the Dimina Peaks endure, so too will they.
+
+They are the last echo of something ancient, something that predates humanity, perhaps even the stars themselves. They are the heart of the silence, the soul of the cold. And they are waiting, patiently, for the day when the world forgets them entirely, so that they can finally be truly alone.

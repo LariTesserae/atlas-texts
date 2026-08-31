@@ -1,0 +1,109 @@
+# Who Lives in the Vapor Garden Manufactory
+
+## The Orchestrator
+
+She arrives before dawn most mornings, though "dawn" is a concept that barely penetrates these walls. Her name is Margrit Hohner, and she moves through the conservatory with the gait of someone navigating by senses others don't possess—not looking at the paths but feeling them, aware of every pipe's vibration through her boot soles, reading the air's weight on her skin like a language.
+
+Margrit is fifty-three, though the moisture here has done strange things to how she ages—her skin stays supple while her hands have become permanently wrinkled, as if she's always just emerged from a bath. She was a hydraulic engineer first, learned her trade in the waterworks of industrial cities, designing systems to move liquid through impossible distances and elevations. Then something shifted in her, or she shifted in herself. She began visiting botanical gardens on her rest days, at first just to sit somewhere green, but gradually with more focus, more questions. She learned she was trying to solve the wrong problems. Water, she realized, wasn't meant to flow through dead pipes to fill passive basins. Water was meant to feed transformation.
+
+She wears clothing that has become its own compromise: canvas work trousers, sturdy but stained permanently green at the knees and seat; a linen shirt that was once white but is now the color of weak tea, soft with washing and rewashing; a leather tool belt that holds brass valves, pruning scissors, wire, a small hammer, pH testing vials, and a folding rule. Over everything, when she's working in the mist zones, she drapes an oiled silk cape that sheds water but breathes—a peculiar garment she had made specifically for this environment. Her hair, going grey in streaks, she pins up with modified cotter pins from the machine shop. Practical. Everything about her is practical, but practical in service of something that most people would consider impractical to the point of madness.
+
+She doesn't explain herself much. Workers ask her questions and she answers in fragments: "The thermocline needs adjusting in zone three." "Those ferns respond to calcium, add it to the west feeder." "The pump timing is off by forty seconds—you can hear it in the overflow." She speaks as if everyone should understand that this place is necessary, that combining industrial precision with botanical chaos is not experimental but inevitable, the obvious next thing.
+
+But late in the evening, if you catch her alone—truly alone, which is rare—sitting on the upper terrace near the warm ceramic vessel, her notebook open on her knee, you might see something else. The way her hand pauses mid-notation. The way she looks at the vines climbing the heat-heart and her expression becomes almost pained with... what? Not quite hope. Something more complicated. The look of someone who has built a question out of metal and earth and water, and is terrified the answer might come.
+
+She sleeps here sometimes, in a small office tucked behind the south wall where the sound of the drip-chamber is loudest. Just a cot, a desk submerged in papers and botanical sketches, jars of seeds arranged in no order anyone else can discern. She says she needs to monitor the overnight cycles, but you sense it's more that she can't bear to leave. The conservatory is her syntax, the grammar by which she's trying to articulate something she doesn't have other words for.
+
+## The Mechanic
+
+His name is Félix, no surname offered or needed. He's twenty-seven, slight-built, his hands perpetually stained with cosmoline and plant sap in equal measure. He came from a family of machinists—three generations of lathes and precision, of metalwork so fine you could read newsprint through it. He was expected to join the family workshop, produce parts for the textile mills and locomotive works. Instead he answered an advertisement so vague it was nearly nonsensical: "Seeking mechanist for hybrid environmental application. Must tolerate ambiguity and moisture."
+
+Félix tolerate ambiguity the way fish tolerate water. He doesn't need to know why. He just needs to know how, and he needs the how to be interesting. The Vapor Garden is endlessly, fractally interesting. Every system here functions at the intersection of mechanical principle and biological caprice. A pump that would run for decades in a factory needs constant adjustment here because the water contains dissolved organics that change its viscosity. Pipes that should maintain steady pressure develop unexpected behaviors because roots infiltrate their routing, creating turbulence. Nothing stays solved. Every solution breeds new conditions that require new solutions.
+
+He loves this.
+
+You'll find him in the crawlspaces beneath the floor grating, contorted into positions that look impossible, his ear pressed against a pipe joint, listening to the water's passage with an expression of profound concentration. Or on a ladder, adjusting one of the mysterious mirrors, angling it a fraction of a degree, then climbing down to observe what changes in the plant growth below—an experiment whose parameters he couldn't articulate if asked, but whose logic is perfect to him.
+
+He talks to the machinery. Not in the performative way of someone pretending relationship, but in the absent, unconscious way of someone thinking aloud. "Yes, all right, I hear you complaining. Let's see what's binding." "Too much pressure in the morning, I know, I know, we'll add a bypass." The pumps and pipes are his collaborators, entities with behaviors to be understood rather than simply commanded.
+
+His relationship with Margrit is complex in the way of two people who work in perfect coordination without quite liking each other. She sees the systems as servants to the plants; he sees the plants and systems as equally important participants in an emergent order. They argue frequently, tersely, in technical language that sounds almost violent to outsiders but is really just two experts negotiating the borders of their expertise. She wants more moisture in zone five; he explains it will create cavitation in the pump; she redesigns the planting; he reroutes the flow; neither acknowledges this as compromise or collaboration, but it's both.
+
+Félix rarely leaves. He has a room somewhere in the town below the escarpment, but he's almost never there. He sleeps in the small machine shop adjacent to the conservatory, surrounded by pipe sections and spare valves and mysterious custom fittings he's fabricated for problems that haven't occurred yet. The rhythm of the pumps is his clock, his heartbeat synchronizing to their cycle until he wakes instantly if anything changes, even a fractional variation in the hum.
+
+He moves through the space with liquid efficiency, never wasting motion, his slight frame sliding through gaps between pipes and plants that seem too narrow for passage. There's something not quite human about his comfort here, as if he's becoming part of the system himself, another component adapting to the environment.
+
+## The Gardener Who Isn't
+
+Anna Rieve. She insists on both names, always both, as if the separation between first and surname is important to maintain. She's in her thirties, dark-haired, tall, with earth under her fingernails that no amount of washing removes, as if she's been stained at a level deeper than skin.
+
+She was trained in formal horticulture at one of the university gardens, learned the classical approach: taxonomy, propagation methods, soil chemistry, the accumulated knowledge of centuries. She was good at it, precise and patient. But she was also, she realized, bored. Or not bored exactly—suffocated. The university gardens were museums. Everything known, categorized, controlled. Plants behaving exactly as plants had always behaved, in conditions exactly calibrated to make them comfortable.
+
+When Margrit recruited her—a peculiar interview in a café where Margrit spoke in metaphors about "accelerated ecologies" and "industrial terroir"—Anna felt something unlock in her chest. Finally. Finally, someone asking the interesting question: not "how do we preserve what plants do?" but "what could plants do?"
+
+In the Vapor Garden, Anna works with a controlled ferocity. She's testing the plants against conditions they didn't evolve for, watching what adaptations emerge, selecting for vigor and strangeness in equal measure. That cluster of ferns in zone seven that grow in tight spirals? She propagated those from a single specimen that developed the trait spontaneously, and now she's seeing if the spiral holds in offspring, if it's genetic or environmental or some tertiary category. The mosses that colonize the metal grating faster than others? She's encouraging them, spreading their spores deliberately, curious if she can breed a moss that actually prefers metal to stone.
+
+She keeps meticulous records in a series of identical black notebooks, her handwriting tiny and precise, every plant tagged with a code only she understands fully. But she also operates on intuition, moving specimens on hunches, trying combinations because they "feel right," mixing the empirical and the instinctual in ways her university training never permitted.
+
+Anna speaks to the plants, but differently than Félix speaks to the machines. She narrates to them: "Let's try you here, see if you like the extra moisture." "You're getting leggy, aren't you? Reaching for something." It's not that she believes they understand language, but that speaking aloud helps her understand them, gives form to observations still crystallizing.
+
+Her relationship with Margrit is warmer than Félix's but also more fraught. They're both trying to choreograph life, but with different philosophies. Margrit wants systems, repeatable results, proof of concept. Anna wants emergence, surprise, the unplannable outcomes of complex conditions. They compromise in ways neither quite acknowledges, Margrit permitting more chaos than she'd prefer, Anna accepting more structure than she'd choose.
+
+Anna lives in the town below, in a small apartment whose windowsills are crowded with experimental plantings, continuations of conservatory work that follow her home. But she's here most days from early morning until evening, and the distinction between her work and her life has become semantic. She dreams about the plants, wakes with insights about nutrient deficiencies or pollination strategies, returns to the conservatory to test hypotheses that came to her at 3 AM.
+
+There's a loneliness to her intensity. She's friendlier than Margrit, more willing to explain, but she's also fundamentally isolated by her obsession. The plants are becoming more real to her than people, their silent responses more meaningful than conversation. She's aware of this, occasionally worried by it, but not enough to stop.
+
+## The Investors
+
+They visit monthly, sometimes together, sometimes in alternation: Werner Staub and Leonora Caspari. They're the money, though they don't speak of it so crudely. They speak of "the venture," "the future of controlled cultivation," "agricultural innovation at scale." They dress too well for the conservatory—Werner in suits that wilt in the moisture, Leonora in impractical skirts that catch on the metal grating—and they tour the space with expressions mixing fascination and discomfort.
+
+Werner is in his forties, made his fortune in industrial chemistry, holds patents on fertilizer compounds and pest-control formulations. He's interested in the Vapor Garden as proof-of-concept for mechanized tropical cultivation in temperate zones. He sees it instrumentally: if you can grow coffee or rubber or pharmaceutical plants in manufactured environments, you can site production near markets, eliminate shipping costs, control quality absolutely. He talks about "yield optimization" and "environmental parameter control" and his eyes calculate square meters and profit margins.
+
+Leonora is harder to read. She's younger, thirties, inherited textile mills from her father and has been slowly, quietly selling them off, investing instead in what she calls "emergent industries." She seems drawn to the conservatory for reasons she doesn't fully articulate—speaks about it in almost aesthetic terms, the "elegance of integrated systems," the "beauty of functional complexity." But she asks sharp questions about water recycling efficiency and thermal retention, so the aesthetic appreciation is layered over genuine technical understanding.
+
+They don't live here, of course—arrive by carriage from the valley, tour for an hour or two, meet with Margrit in the small office, review progress and expenses, then depart. But their presence haunts the space anyway. Every experiment exists in the context of their continued funding. Every decision Margrit makes is shadowed by the question: will this satisfy them? Will they maintain support or decide the venture is too speculative, too slow to yield returns?
+
+The power dynamic is strange because Margrit has leverage they don't quite acknowledge. Werner and Leonora need her—she's the only person who can build what they're imagining (or what they think they're imagining, which might not be what's actually being built). But she needs them too, needs their capital, their connections, their willingness to fund something without guaranteed outcomes.
+
+Sometimes you'll see Margrit after one of their visits, sitting alone near the heat-heart, staring at nothing. The conversations with them drain something from her. She's being forced to articulate what she barely understands herself, translate vision into projections, alchemy into accounting.
+
+Werner and Leonora represent the outside world, the context the conservatory exists within. They're reminders that this strange, humid, in-between place is not autonomous, not self-justifying. It exists on borrowed time and borrowed money, and eventually it will need to become something that makes sense to people who don't hear poems in pump-rhythms or see beauty in ceramic substrate blocks.
+
+## The Construction Crew
+
+They're not constant residents, but they're present enough to matter. A rotating cast of three to five workers at any time, skilled laborers who find the job strange but acceptable, better-paying than most, interesting in its peculiarity.
+
+There's Oskar, the oldest, somewhere in his fifties, a glassworker by training who fits the conservatory's panels with a care bordering on reverence. He doesn't understand why some sections are being left incomplete—wasteful, in his view, unprofessional—but he does the work as specified. He's precise and slow and takes a workman's pride in the straightness of his leading, the waterproof integrity of his seals. He has no interest in the plants or the machinery, just the envelope, the structure. He'll be here until the last panel is fitted or until he's told to stop, whichever comes first.
+
+There's Brigid, younger, maybe thirty, a mason and metalworker who's responsible for much of the constructed terrain. She finds the work deeply odd—building landscape inside a building, using materials that aren't quite stone or earth, following a design that changes as the plants grow. But she's also a problem-solver, likes the challenge of getting the substrate blocks to interlock while still allowing drainage, of embedding the ceramic pipes at angles that look random but serve specific hydraulic purposes. She talks to Anna sometimes, asks questions about what the plants need, translates biological requirements into structural solutions.
+
+There's Piotr and Jakub, brothers, general laborers who do whatever's needed—hauling materials, assembling scaffolding, running the new pipe sections that Félix specifies. They're the least invested in the project's purpose, here for wages and not particularly curious beyond that. But they're competent and reliable, and they've developed an unspoken coordination with the conservatory's rhythms, instinctively avoiding the mist-zones when they're active, timing their noisier work for when it won't disturb whatever observations are in progress.
+
+The crew exists in an interesting relationship with the core trio. They're inside the space constantly but somehow still outside its animating obsession. They're building it but not of it, participating without understanding. Margrit gives them instructions that must sound nearly incomprehensible—"Leave that section at 60% completion, we need to test air exchange rates," "Construct the terrace but don't mortar the top course, it may need adjustment"—and they comply with the fatalism of skilled workers who've learned that clients have reasons, even when those reasons make no sense.
+
+They eat lunch together in the small covered area just outside the conservatory proper, sitting on stacks of materials, their conversation practical and mundane—other jobs they've worked, families in the town below, the quality of the bread from the new bakery. They provide ballast, normalcy, a reminder that not everyone here is consumed by the place's strange mission.
+
+## The Silent Collaborators
+
+The fish in the pools don't have names, but Anna has numbered them, tracks which ones are most active, which hide in the floating roots, which have survived longest. They're mosquitofish, theoretically, but they're also something more—test subjects for whether animal life can establish in these artificial cycles, whether the water chemistry stays compatible with gills and scales, whether an ecosystem can include vertebrates or only plants and pumps and occasionally visiting insects.
+
+The bird—the one that enters through the gaps—is a warbler of some kind, Anna thinks, though it's hard to be certain in the diffuse light. It comes irregularly, stays for twenty minutes to an hour, seems to be investigating the space more than feeding or nesting. Margrit finds its presence encouraging: if wild things choose to visit, perhaps the environment is viable. Anna is more cautious: one visitor doesn't prove anything. But she's started leaving notes about when the bird appears, wondering if there's a pattern.
+
+The insects are mostly accidental colonizers—moths attracted to warmth, a few beetles that wandered in and found the conditions acceptable, spiders that followed the beetles. But there are also deliberate introductions: Anna has released specific pollinators, trying to establish them, wanting to see if the conservatory's flowers can set seed without hand-pollination. So far the results are mixed. Some insects vanish immediately, fleeing back to outdoor conditions. Others stay but don't thrive, struggling against the artificial light cycles or the constant moisture. A few seem to adapt, and those few Anna watches obsessively, hoping they're the beginning of something sustainable.
+
+The microorganisms—bacteria and fungi in the substrate, the invisible ecology that breaks down waste and cycles nutrients—are even more critical and even less understood. Anna sends samples to a colleague at the university sometimes, gets back reports on species composition that mean she's accidentally created conditions found nowhere else, hybrid microbial communities doing novel work. She's not sure if this is success or disaster, if the strange underground ecology will stabilize or collapse.
+
+All of these non-human residents are collaborators without consent or understanding, participants in an experiment they didn't choose, essential to whether the Vapor Garden becomes a functioning ecosystem or remains merely an elaborate terrarium. Their survival or failure will determine whether Margrit's vision is possible or delusional, whether you can truly weave the industrial and the biological into something that sustains itself.
+
+## The Ghosts of Purpose
+
+And then there are the absent ones, the ones who don't visit but whose presence shapes everything.
+
+There are the future cultivators, imagined people who might someday work in vapor gardens scattered across the temperate world, growing spices and medicines and tropical produce in manufactured climates, following procedures Margrit is inventing here. They don't exist yet, may never exist, but they're who this is for. The conservatory is a prototype, a proof, a love letter to people not yet born, saying: look, here is how you might do it.
+
+There are the scientists and engineers who will or won't validate this approach, whose acceptance or dismissal will determine whether the work here spreads or dies with Margrit. She reads their journals, knows their names, sometimes mutters arguments with their published positions as she adjusts valves. They're an invisible audience, skeptical and powerful, judging work they haven't seen.
+
+There are the workers from Werner's factories and Leonora's former mills, people who might find different employment if controlled cultivation spreads, if agricultural production becomes industrial in new ways. They're the social context, the economic forces this experiment might redirect or serve or exploit, depending on how it develops.
+
+And there's the ghost of something larger: a different relationship between human systems and living ones, a future where the distinction between agriculture and manufacturing blurs, where growth is planned but not constrained, where mechanical precision enables rather than replaces biological complexity. That ghost is what really animates Margrit, drives her to exhaustion, makes her unable to leave this humid, incomplete, impossible place.
+
+The Vapor Garden Manufactory is inhabited by people, plants, mechanisms, and possibilities in roughly equal measure, all of them half-built, all of them becoming, none of them yet what they'll finally be—if they get the chance to finish becoming at all.

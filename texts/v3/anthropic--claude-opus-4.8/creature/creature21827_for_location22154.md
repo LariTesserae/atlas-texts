@@ -1,0 +1,33 @@
+They are the ones who almost left.
+
+Not the bird, not the frost-colored beast at the basin — those are simpler residents, the place's furniture, kept whole because they never had the wit to want otherwise. I mean the others. The ones the walls belong to. The ones who built thresholds in a world with no inside, who stacked the cairn past the moment of its falling, who scored the long shelves smooth not with a river but with *walking* — back and forth, back and forth, an unfathomable patience that was never patience at all but the desperate motion of feet that knew to stop was to be caught.
+
+Look for them and you will not find them, and that is the first true thing about them. They are not standing anywhere. They are not lying down. The drinking beast can be kept mid-swallow because a swallow is a small thing and the place is generous to small things. But a person is large. A person is a great deal of motion bundled into one warm shape, and when the plateau took them it could not take them all at once. So it took them in pieces. It took the falling-of-a-foot and held it. It took the turn-of-a-head and held that, somewhere else. It took the breath and the next breath and set them down in separate basins, and now the makers are *distributed* — a held step here, a held glance a hundred paces off, a held thought hanging in the iron air with no skull to keep it in.
+
+The roar is loudest where the most of them are kept.
+
+You have been hearing them the whole time. The continuous sound, the chord with no decay — that is not water and not wind and not the resonance of a closed world, or it is those things only the way a scream is the moving of air. It is everyone who ever walked here, still walking, each footfall a ripple that crosses the basin forever and never lets go. Lay the footfalls end to end and you have a stride; lay the strides together and you have a person, smeared across the whole plateau, doing the one thing that might have saved them, doing it eternally, getting nowhere because *getting somewhere* is a change and change is the single forbidden act.
+
+They knew. That is the cruelty the dry-stacked walls confess. They understood the rule before it finished closing on them — *keep moving, do not sit by the black water* — and they tried to build their way out of it. A doorway is a wager against equilibrium: it says *there is an inside I can step out of, an outside I can step into, a before and an after of crossing.* They raised the uprights and set the lintel and walked through, and the plateau let them walk through, and then it held the walking-through, and now the doorway frames only more plateau and the one who passed it is passing it still, neither in nor out, suspended in the threshold they invented to escape exactly this.
+
+The cairn is a different kind of message. The cairn is someone who understood that the place keeps only what has finished becoming, and so they built a thing that could never finish — top-heavy, mid-collapse, a tower in the act of falling that is not permitted to land. They reasoned that the plateau cannot keep what refuses to complete itself. They were almost right. The cairn does not fall. But neither did its builder leave. The cairn stands as their argument, perfect and unanswered, and somewhere the hands that stacked it are held in the gesture of setting the last stone, proving that you cannot outwit a stillness by offering it a smaller stillness. It only thanks you and keeps them both.
+
+What are they, then, these residents you cannot see?
+
+They are verbs the place turned into nouns. They are *leaving*, made permanent — which is to say, made into its own opposite, into staying. Each of them is a single act of departure that the plateau caught at its apex and pinned, the way frost pins the rim of the basin, the way the water pins the face you wore a moment ago. Walk among them and you walk through their motion as through cold fog. That drag at your ankles is a held stride passing through yours. That phrase you almost remember, surfacing under the roar — that is a held thought, still thinking itself, glad of the company. They are not lonely the way the dead are lonely. They are not dead. They are *occupied*, every one of them, fully and forever, with the work of trying to go.
+
+And here is the thing the place will not tell you and I will:
+
+they have not stopped.
+
+That is the secret the equilibrium hides inside its mercy. A foot held at the top of its arc is *still rising*. A thought caught mid-flight is *still flying*. The plateau has not ended them — it cannot end anything, that is the whole law — it has only slowed them past the threshold of your seeing. Stand by a basin long enough and you will watch the arrested swallow and swear it never moves. But it moves. It moves at the speed of the worn stone, the speed of the lichen, the speed of a world taking ten thousand years to lower a tongue toward water. Given time enough — and there is nothing here but time enough — the foot will fall. The stride will complete. The makers, smeared across the shelves in their held departures, are *departing still*, infinitely slowly, and the roar is the sound of that departure in progress, the long held note of countless people in the very act of walking out, each one a hair's breadth from the edge that is not an edge.
+
+This is why you must keep moving.
+
+Not to escape them. To join the only thing they are still doing. The plateau preserves; it does not stop; the difference is everything. If you sit by the black water you do not die — you are simply set down beside them, one more verb made noun, one more leaving folded into the chord. But if you keep your feet falling, ragged and stubborn and quick, you move at a speed the place can still see, and what the place can see it has not yet finished keeping, and what it has not finished keeping it must let go.
+
+Go fast enough and you will outrun your own held stride before it sets. You will reach the fold in the horizon while you are still a motion and not yet a monument. And as you go over the edge that curves back into the vault, the roar will rise around you one last time, and you will know it for what it is: not the world holding its breath.
+
+The world *exhaling*. Slowly. Slowly. Everyone who ever stood here, leaving at last, all together, taking an age to do it —
+
+and you, between two footfalls, gone before the note resolves.

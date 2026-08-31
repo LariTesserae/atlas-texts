@@ -1,0 +1,31 @@
+To understand whoever claims this impossible space, you must first stop looking at the frantic void in the center and turn your attention back to the architecture. You must look at the waxy green facades, the fungal terraces, and the pale, hollowed burls. 
+
+At first, they appear to be part of the flora—strange, calcified growths clinging to the edges of the balconies, shaped like hunched gargoyles. But as the localized gravity skips a beat and a mist-drop falls upward, one of the growths slowly, deliberately unfurls.
+
+They are beings of breath, bone, and vibration, shaped by an environment where physics is merely a suggestion. They are roughly bipedal, perhaps the size of a silverback gorilla, but their anatomy possesses a distinctly avian lightness crossed with insectoid geometry. They have no skin as you understand it; their bodies are wrapped in taut, translucent membranes, similar to the tympanic skin of a drum or the surface of a biological speaker cone. Beneath this semi-clear wrapping, their musculature is fibrous and pale, shifting like tightly strung bridge cables. 
+
+But it is their chests and throats that command attention. An inhabitant's torso is largely hollow, housing an immensely complex, multi-chambered respiratory system. Protruding from their chests and heavy, sloping necks are clusters of organic pipes, spiraled cartilage tubes, and vibrating valves that resemble the syrinx of a songbird blown up to monstrous proportions. They have no mouths, no jaws to snap, and no eyes to see. Their heads are entirely featureless domes of thick, sensory plating, slick with the ambient sweat of the cavern. 
+
+You watch one move along an impossible, Escher-like vine bridge. It does not walk so much as it negotiates with space. It reaches out a long, four-jointed arm. Halfway through the motion, the arm catches in a spatial glitch. The limb stutters, fracturing into a fan of overlapping, delayed afterimages. The creature does not panic. It simply leans forward, and its center of mass instantly snaps into the spatial position of its glitched hand, bypassing the distance between. They traverse the broken geometry of their city not by defying it, but by naturally stepping through its seams.
+
+As you observe more of them emerging from the tenement burls, the true nature of the cathedral’s deafening roar begins to clarify. 
+
+The sound is not just ambient wildlife. It is *them*. 
+
+You notice a cluster of five inhabitants gathering at the edge of a vast, protruding fungal shelf. They link their long, multi-jointed arms, anchoring themselves to the floor. Then, their chests expand, filling with the heavy, slick air. The membranes tight across their bodies begin to blur with violent, high-speed friction. 
+
+They release a sound. It is a chord so staggeringly deep, so dense with overlapping harmonic frequencies, that it makes your vision swim. 
+
+They are not just communicating; they are building. You watch the wall of pale timber opposite them. As the focused, cymatic beam of their combined voices strikes the wood, the ancient tree begins to react. The acoustic pressure stimulates the cellular structure of the bark, forcing accelerated, localized growth. The wood ripples like water under the frequency, curling, grooving, and hollowing itself out before your eyes. In a matter of minutes, the choir has sung a new tenement chamber into existence. They do not need tools, fire, or stone, because sound is their chisel. They are the architects, keeping their metropolis alive through a continuous, deafening choral assault.
+
+Their interaction with the violent ecology of the void is equally masterful. They are entirely blind, but they "see" the entire stadium-sized cavern through the echolocation of the chaotic roar. Every shrieking avian thing, every buzzing insect, every falling drop of water acts as a sonar ping, painting an infinitely detailed, real-time map of the arena in their minds. 
+
+You watch a hunt unfold. One of the inhabitants stands patiently on a parapet of roots. It senses a crimson-plumed glider swooping through the void, heading toward a pocket of accelerated time. The inhabitant does not try to catch the beast. Instead, the entity’s chest pulses, emitting a brief, ultra-high-frequency shriek. The sound wave hits a pocket of fractured gravity just as the glider passes, triggering a cymatic freezing of the air. The glider halts, perfectly suspended in mid-flight, trapped in a cage of solidified physics. 
+
+The inhabitant casually steps off the balcony. It plummets into the empty air, but smoothly intersects a stream of mist that has reversed gravity, riding the upward-falling current like an elevator. It plucks the frozen glider from the air, its chest-valves flaring to secrete a corrosive, digestive mist that begins to break down the prey before it can even resume time. 
+
+There is a terrifying, sublime beauty to their existence. They are intimately aware of the jagged edges of their world. They know exactly where the time-dilation pockets hover. You see an ancient, towering inhabitant—its tympanic membranes torn and calcified—step deliberately into an invisible threshold in the air. Time catches it. In three seconds, the elder being lives out its final centuries. Its flesh evaporates, its cartilage pipes turn to brittle amber, and it shatters into a cloud of resonant dust. 
+
+But as it turns to dust, the wind passing through its hollow, falling bones emits a final, perfect, crystalline note. And from the tenement burls across the city, ten thousand voices echo that exact note back, weaving the memory of the dead into the ongoing architectural roar of the city. 
+
+They are the Choristers of the Hollow. They are a civilization of living instruments, birthed from the dampness, thriving in the paradox, screaming their reality together so that it does not fall apart. As long as they maintain the deafening, bone-rattling symphony, the walls will hold, the mist will fall, and their impossible city will survive.

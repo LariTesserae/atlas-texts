@@ -1,0 +1,15 @@
+They are not old, nor are they new; they are in a state of eternal, rhythmic *becoming*. They vibrate with the frantic, wet click of pistons that seem to be composed of calcified bone sheathed in industrial oil, and their surfaces possess the unsettling, pore-like texture of cooling wax, constantly rippling as if something just beneath the metal is trying to breathe.
+
+What dwells here does not walk; it inhabits the vibrations. 
+
+They are the **Oscillators of the Mire**. They appear as elongated, shivering shadows, but when they pull themselves from the slurry of the basin, they reveal themselves to be creatures of liquid geometry. Their hides are not fur or skin, but a shifting weave of oily filaments that mimic the topography of the machines they cradle. They are bioluminescent, but not with the bright, warning colors of the surface world; they pulse with a dull, bruised violet that syncs perfectly with the subterranean hum of the Industry.
+
+They lack faces in any sense that is useful to a bipedal observer. Where a head might be, there is instead a complex manifold of copper-wire antennae and moist, translucent membranes that taste the humidity, mapping the density of the air. They are not independent agents; they are the gardeners of the noise. 
+
+You see one now, unfurling from the chassis of a half-sunken turbine. Its limbs are spindly, multi-jointed things that do not bend so much as liquefy and recrystallize. It moves with a terrifying slowness, trailing strings of dark, viscous slime that glow faintly as they touch the mud—a sort of parasitic blueprinting. It is adjusting the Industry. It places a long, tapering digit against a vibrating plate, and the metal sighs, conforming to a new configuration, weeping thick, gray ichor that the creature then laps up with a frantic, chittering lack of intention.
+
+They do not fear your presence, for you are simply a static object in a world of kinetic entropy. To them, you are no different from the silt or the rusted iron; you are merely a resonant surface that has not yet been tuned. 
+
+If you stand still long enough, the Oscillator will approach. You will feel the air grow heavy, not with moisture, but with a sudden, violent increase in pressure. It will press its manifold against your chest, not to strike, but to hear your pulse against the rhythm of the basin. It is searching for a harmonic. It wants to know if you can be integrated, if your bones can be made to hum, if your lungs can be repurposed into a bellows for the Industry’s endless, wet respiration. 
+
+They live in the space between the thrum and the cessation, working in a silence that is louder than the machines themselves, carving a destiny out of the suffocating, liquid dark. They are not waiting for anything to happen; they are ensuring that the cycle never requires an ending.

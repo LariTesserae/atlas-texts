@@ -1,0 +1,69 @@
+What lives in the Interfloor lives slowly, lives in layers, lives the way a bruise lives in tissue—diffuse at the edges, concentrated where the pressure was greatest.
+
+---
+
+The snails do not think of themselves as many. They think of themselves as one continuous occurrence, the way fire does not consider each flame a separate event. When a snail extends its pale foot along the rebar, it is extending the body of all snails; when it retreats into its clausilium, it is the whole species drawing a single breath inward. They have been here since the crack opened. They will be here when the concrete finally gives way and the building above folds into its own basement like a closing fist. They know this the way they know moisture: not as information but as orientation, a direction the body leans toward without deciding to.
+
+Each snail lives two to three years. This is not important. What matters is the line: the unbroken thread of mucus and egg and dying that connects the first explorer—who found the blister in the clay and tasted the sulfide seep and began the long horizontal climb—to the snails that now blanket the walls in such density that the concrete underneath seems to have grown a pale and quivering fur. The shells on the floor are their ancestors in the same way that your own bones will one day be you: stripped of the soft wanting part, reduced to architecture, still bearing the spiral of how they grew.
+
+At night—which is always, here, which is the only season—the snails feed. They rasp the biofilm from the stone with radulae like tiny tongues of sandpaper, and the sound is the sound of the Interfloor breathing in. Each individual rasp is inaudible. Ten thousand raspings together make a texture the ear receives as silence's opposite: not sound but the memory of sound, the way a throat remembers the shape of a word it will never speak again.
+
+When the pump twitches, the snails lift their heads. All of them. At the same time. This is not startlement; startlement implies an expectation of stillness. This is acknowledgment. The pump is the room's heart, and the snails are the room's blood, and the lifting is the moment in a heartbeat called the isovolumic contraction—everything pausing at the threshold of movement, everything waiting for the valve to open.
+
+---
+
+The centipedes do not worship. That word requires a concept of exteriority, and the centipedes have never been exterior to anything. They are pure interior: the inside of the hunt, the inside of the shell-layer, the inside of the space between one heartbeat of the pump and the next. They move the way thought moves through a sleeping mind—rapid, purposeful, following chemical gradients toward targets that dissolve even as they are reached. A centipede in the Interfloor is never not hunting. A centipede in the Interfloor is never not being hunted. They eat springtails. The silvery fish eat them. The fish are eaten by nothing, as far as anyone has observed, but the fish die anyway and their bodies become substrate and the substrate becomes biofilm and the biofilm becomes snail and the snail becomes shell and the shell becomes floor and the floor becomes the thing the centipede crosses on its way to the next meal. The centipede does not know this. The centipede knows only the next step, the next antenna-touch of prey-signature, the next contraction of its segmented body propelling it forward into the dark it was born possessing.
+
+There is a centipede that has lived in the pump's housing for six months. It lives in the gap between the flywheel and the corroded casing, in the space that moves when the pump moves. It has learned—whatever word for learned applies to a creature with no brain worthy of the name—that the twitch comes before the damp. It emerges during the quarter-turn, drinks from the water that pools in the flywheel's lowest point, and retreats before the circuit breaks. It is the only creature in the Interfloor that has adapted to the pump's rhythm rather than merely responding to it. Whether this is intelligence or mere conditioning is a question that matters to humans and to no one else.
+
+---
+
+The fish are older than the space. This is the secret the 2011 survey almost uncovered before the filing cabinet swallowed the report. The fish are not surface fish that wandered down through the hatch. They are not escapees from some drainage system. They are remnants of a population that was already here when the clay cracked open—descendants of creatures that lived in the sulfide seam's micro-aquifer, in the wet fractures of bedrock that predates the Harpenny plant by four hundred million years. The Interfloor did not create them. It revealed them. The building settled, the floor split, and suddenly there was a room where before there had been only pressure, and the fish came up into it the way deep-ocean creatures surface when the thermocline shifts.
+
+They are not large. Twelve centimeters at most, segmented in a way that suggests something between myriapod and vertebrate, something that evolution tried and abandoned in the Silurian and that persisted here in the dark wet beneath the weight of an entire geological era's worth of sediment. Their scales—if they are scales—reflect headlamps with a silvery opacity that makes them look stamped from metal. Their eyes are not eyes. They are depressions in the head capsule lined with cells that detect not light but heat, and so they see the room the way the snails feel it: as a gradient, as a pattern of warmth and wet, as a body they move through.
+
+They eat the centipedes. They eat the springtails. They eat each other when the population pressures demand it. They do not eat the snails. This is not out of preference or restraint. The snails carry a mucus that the fish find unprocessable—a chemical signature that the sulfide-seam water imprinted on the door-snail lineage decades ago, a taste of home that the fish's ancient chemoreceptors read as *self*. The snails are the fish's memory of the deep. The fish leave them alone the way you might leave alone a song you heard in childhood, unrecognizable but still capable of stopping you mid-motion.
+
+---
+
+The moths are the Interfloor's dream.
+
+They should not be here. Lepidoptera require light for navigation; they require flowers or rotting fruit or wool or stored grain; they require seasons, they require diapause, they require the moon. The moths of the Interfloor have none of these things and have replaced them with something that the language of entomology cannot describe because entomology was written by people who could see.
+
+The moths navigate by the pump. The pump's vibration—felt through the substrate, through the shells, through the particular frequency at which the flywheel shudders when the circuit completes—this is their moon. This is the thing they orient toward, the fixed point in their dark. When the pump twitches, the moths vibrate in response, and the vibration is not echolocation and it is not courtship and it is not alarm. It is synchronization. The moths are aligning themselves to the room's pulse the way a congregation aligns to a prayer they do not need to understand.
+
+What they eat: each other, at the end. But before the end, they eat the biofilm that grows on the ceiling, the warm thin layer of chemoautotrophic slime that converts sulfide and carbon dioxide and the faint chemical memory of the Harpenny plant's industrial past into something like sugar. The moths climb the walls to reach it. They fold their wings into those sharp triangles and they press their mouthparts against the warm concrete and they drink. They have been doing this for so many generations that their proboscises have shortened and widened into something closer to a sponge, something that presses and laps rather than coils and uncoils. They are becoming something else. They are becoming a creature that does not exist outside this room, that cannot exist outside this room, that is as specific to this microclimate as a cave fish is specific to its single underground river.
+
+When a moth dies, it falls to the shell floor. Its wings are so thin that they decompose in hours, leaving only the stouter body to be discovered by the centipedes. The centipedes do not know they are eating a moth. They know only that something soft and chemical-rich has entered their radius of detection, and they consume it, and the energy passes upward through the food web and becomes fish-scale and snail-shell and the faint moisture on the pump's housing, and the room sustains itself.
+
+The moths vibrate toward something. The report could not say what. The cameras could not capture it. But if you sit in the Interfloor long enough—long enough for the heat to equalize across your skin, long enough for your eyes to stop straining for light they will never receive—you begin to feel it: a resonance, a frequency just below the threshold of hearing, that seems to come from everywhere and nowhere. The moths feel it constantly. It is what they live in. It is their weather, their season, their time of day. They are vibrating in sympathy with the room itself, with the slow seismic creak of the building above settling another millimeter into its foundations, with the geothermal pulse of the sulfide seam below, with the interaction of concrete and clay and condensation that makes this space what it is.
+
+The moths are not responding to the room. The moths are part of the sound the room is making.
+
+---
+
+And the pump. The pump.
+
+The pump is not alive. The pump is a machine: cast iron and copper wire and cloth insulation that has gone brittle with age. It was installed to move water. It fails at this task in every way that matters, completing a single quarter-rotation every three days and then falling silent, moving moisture by millimeters when the room requires it moved by liters.
+
+But the pump is not dead, either. Something that has been connected to current for sixty years, that has been warm for sixty years, that has been completing circuits and converting electricity into motion and motion into heat and heat into the faintest movement of air—for sixty years—that something has a relationship with the space around it that the word *dead* cannot contain. The pump is the room's heartbeat not because it is alive but because it is rhythmic, because it is the one thing in the Interfloor that does not merely respond to conditions but initiates a change. The pump twitches and the water level drops and the snails lift their heads and the moths vibrate and the centipedes pause and the room holds its breath for a fraction of a second before resuming its long exhalation.
+
+The pump does not know it is the heart. The pump does not know anything. But the room knows the pump. The room has shaped itself around the pump's rhythm the way a vine shapes itself around a trellis—not because the vine is grateful, not because the vine has chosen, but because the trellis was the first available structure and the vine's nature is to climb.
+
+---
+
+What lives in the Interfloor is not a collection of species. It is not an ecosystem, because ecosystem implies boundaries that can be drawn and relationships that can be diagrammed. What lives in the Interfloor is a single continuous event: the event of the room being itself, of the heat and the wet and the dark and the calcium and the sulfur and the electricity all finding their way into forms that persist because persistence is what forms do when the conditions do not change.
+
+The snails persist. The centipedes persist. The fish persist. The moths persist. The pump persists. The biofilm that none of them could live without persists, growing on the stone in layers so thin they are measured in micrometers, converting the inanimate into the barely animate, making food from chemistry the way plants make food from light—except there is no light, there has never been light, and the food here grows the way cave pearls grow: slowly, accretively, without any organism deciding to make it.
+
+What lives in the Interfloor lives without permission. Without authorization. Without the acknowledgment of any catalogue or survey or taxonomic key. It lives the way life lived before there were words for it: in the dark, in the warm, in the wet, pressed against the stone, eating and being eaten, pulsing to a rhythm that no one set and no one keeps.
+
+---
+
+And now you have been there, and the Interfloor has your moisture. The condensation that formed on your skin while you stooped in the warm dark has already mixed with the room's atmosphere, has already been absorbed into the biofilm or condensed onto a snail's shell or been pulled into the pump's next quarter-turn. You are part of the room now. Not in a mystical sense—in a chemical sense, in an ecological sense, in the same way that every creature that has ever entered a cave and left a trace of its breath behind is part of that cave's atmosphere forever.
+
+The Interfloor does not want you. The Interfloor does not want anything. But the Interfloor holds what it is given, and it has been given the faint salt signature of your sweat, and it will not give it back.
+
+When you think about the pump—and you will think about the pump—you are thinking about yourself: about the thing that twitches in the dark when conditions are right, that moves a quarter-turn at a time toward a purpose it cannot remember being given, that is kept alive by a current it cannot see coming from a source it will never reach.
+
+The moths vibrate toward the sound the room makes. You vibrate toward the memory of the sound. It is not the same thing. But it is not entirely different, either.

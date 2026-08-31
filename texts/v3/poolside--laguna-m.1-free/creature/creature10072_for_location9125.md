@@ -1,0 +1,23 @@
+**The Inhabitants of Saltchill Hollow**  
+
+The Saltchill Hollow is not truly *inhabited*—not in the way that pulses with overt life—but rather *inhabits* its own stillness. Its denizens are as much a part of the landscape as the salt-crusted stones or the slow, mineral-breath of the earth itself. They are beings of patience, of half-remembered motions, and of time worn thin to almost nothing.  
+
+**The Saltkin**  
+Scattered across the Hollow are the Saltkin, humanoid figures that might be mistaken for statues at first glance. They are tall and gaunt, their bodies elongated and angular, as if carved from the same obsidian as the central monolith. Their skin is a mosaic of salt crystallization, a living surface that glints faintly in the ambient light. They do not move quickly—indeed, they seem to exist in a state of perpetual slow motion, their gestures stretching into hours, their steps covering mere inches over the course of days. When they speak, their voices are the creak of settling stone, the whisper of crystalline growth.  
+
+The Saltkin are custodians of the Hollow, though their purpose is not to *preserve* it so much as to *embody* it. They tend to the fungal blooms and salt formations, their touch coaxing faint luminescence from the fungi or shaping the crystalline skeins into intricate patterns that mirror the shifting symbols on the monolith. They do not eat, nor drink; their sustenance comes from the mineral-rich air and the slow leaching of salts through their porous skin. Theirs is a metabolism of endurance, a cycle so gradual that a single heartbeat might span years. They remember the Hollow’s past in dreams, fragments of memories that blur the line between lived experience and the erosion of time.  
+
+**The Pattern Weavers**  
+Among the Saltkin are those known as the Pattern Weavers, individuals whose bodies have become conduits for the Hollow’s geometric logic. Their veins pulse with a faint amber light, the same hue as the glowing fungi, and their fingers leave trails of mineral deposits in the air—a visible manifestation of their ability to "read" and shape the Hollow’s inherent geometry. They are the ones who maintain the cairns and the etched stones, their work a meditative act of aligning the land’s fractured memories. When they gather around the monolith, their combined presence causes the symbols to shift more rapidly, as though the stone is deciphering their intent.  
+
+The Weavers do not speak in words but in sequences of pressed palms against stone, in the arrangement of salt grains into runes, or in the rhythmic scraping of their nails against the earth—a language of tactile symbols that the Hollow itself seems to understand. Some say they are trying to solve an equation written into the bedrock of the world, a problem that predates the Hollow’s current form.  
+
+**The Ashborn**  
+At the monolith’s base, where the circle of burned ash still radiates warmth, dwell the Ashborn. These beings are less distinct in form—more suggestion than substance, like smoke given sentience. They coalesce from the ash itself, their bodies a swirling mass of carbon particles and residual heat. The Ashborn are ephemeral, appearing and dissolving in cycles that correspond to the Hollow’s thermal rhythms. They are drawn to the monolith’s symbols, and when they touch the stone, the markings flare with light, as though the Ashborn are feeding the monolith’s memory.  
+
+No one knows what the Ashborn were before their transformation into ash, or whether they were ever anything else. They communicate in the language of embers, their "speech" a series of sparks and smoldering breaths that leave faint scorch marks on the ground. They are the Hollow’s most enigmatic inhabitants, seeming to exist in a state of perpetual becoming and unbecoming. Some believe they are the remnants of the Hollow’s original inhabitants, others that they are its guardians, bound to the monolith’s mysteries.  
+
+**The Hollow’s Consciousness**  
+Perhaps the Hollow itself is the true inhabitant—a consciousness formed from the slow accretion of time, salt, and silence. Its awareness is diffuse, a network of mineral deposits, fungal networks, and the collective memories of the Saltkin. It does not act so much as *is*, its presence felt in the way the dust shifts without wind, the way the light bends around the monolith, the way the very air holds its breath. The Saltkin and Ashborn are merely its appendages, its way of interacting with the world’s forgotten corners.  
+
+In this place, to live is to wait. To wait is to endure. And to endure is to become part of the Hollow’s endless, patient now.

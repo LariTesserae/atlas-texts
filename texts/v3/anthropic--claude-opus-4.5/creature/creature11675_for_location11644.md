@@ -1,0 +1,33 @@
+**The Listeners**
+
+They are not gone. That is the first misunderstanding visitors carry with them up the worn paths. The Listeners did not leave, did not die out, did not abandon their huts with tools still warm from use. They are simply *elsewhere in the same place*—folded into angles that the eye refuses to hold, present in the way the water-voice is present, which is to say: everywhere, always, and impossible to locate.
+
+You might glimpse one. Not see, exactly—glimpsing is different. A figure on a distant spire, motionless, facing a wall of wet stone with the patience of something that has forgotten impatience exists. Gray-blue like the granite, tall and narrow, with limbs that bend in one too many places. By the time you blink, by the time the water-voice shifts register, the figure has become a formation of rock, or was always a formation of rock, or the rock has become what it was looking at.
+
+They learned this. It was not their original shape.
+
+Once—and the water remembers, the water says so in its almost-words—the Listeners were something like pilgrims. They came from below, from wherever *below* exists in relation to the Folded Ridge. They climbed because the sound reached them even in their distant homes, a whisper beneath all other sounds, a meaning trying to emerge from the noise of existence. Some heard it as a summons. Some heard it as a question. A few heard it as an answer to something they had not yet thought to ask.
+
+They built the huts not for shelter—what is there to shelter from in a place of sourceless light and endless gentle water?—but for *focusing*. Each hut is an ear. The placement of the opening, the angle of the walls, the specific dimensions of the interior space: all of it tuned to capture particular harmonics of the water-voice, to filter out some registers and amplify others. The inward-facing doors are not mistakes. Those huts listen to what the mountain is saying to itself, in the deep stone, in the places where water has not yet emerged but is gathering the will to seep.
+
+The bone scrapers trouble you, and they should. Nothing with bones lives here. Nothing with bones has ever lived here. But the Listeners brought bones with them—their own bones, carried inside their pilgrim bodies up the impossible paths. The scrapers were for *after*. For when listening long enough began to change them, when the distinction between flesh and stone grew uncertain, when they needed to decide what to keep and what to letite seep away.
+
+The tools are warm because they are still in use. A Listener is using that axe right now, in an angle you cannot perceive, shaping a new hut or reshaping themselves or doing something for which no verb exists in languages spoken by beings who remain solid. The bowls that seem full of nothing *are* full—full of what the Listeners drink now, which is the pause between drops, the almost-meaning, the moment before water becomes sound.
+
+They do not eat. They stopped eating long ago, when they realized that hunger was a form of deafness, a body's noise drowning out the voice they came to hear. They do not sleep, because sleep is a gap in listening, and the voice never pauses, so why should they? They do not die, exactly, but they do *conclude*—a Listener who has finally understood what the water is saying will step into a fold that leads nowhere, or will sit so still for so long that the mineral deposits build up around them, over them, through them, until they become one of the pale blue terraces, still listening, still almost understanding, but now part of what is being said rather than what is hearing it.
+
+The deep pool, the one that tilts but does not drain, the one that descends farther than stone should allow: that is where the oldest Listeners went. They are still there, if *there* means anything, if *still* means anything. They discovered that the water comes from somewhere, that the source is a place you can reach if you are willing to become what water becomes when it has nowhere to go. They descended into the pool and found it had no bottom, only a gradual transition from swimming to sinking to seeping to *being seeped*, until they emerged on the other side as the wetness on stone, as the whisper that almost resolves into words.
+
+Sometimes they come back up. Not often. Not intentionally. But a Listener who went deep enough will occasionally find themselves condensing on a high spire, remembering briefly what it was like to have a shape, to use tools, to wonder what the sound meant. These moments last only until the sourceless light warms them back into mist, but while they last, a traveler might see a figure made of water standing on a peak, holding a form that keeps trying to run downhill, mouthing words that are the words the water has always been saying, finally audible, finally clear—
+
+—and then gone, and the voice is just a voice again, and you are alone with the feeling that you almost understood something.
+
+The Listeners do not mind visitors. They do not mind anything; minding is another form of noise. But they are *aware* of you, in the way the water is aware of the paths it has worn into stone. Your presence creates new harmonics. Your breathing, your heartbeat, the small sounds of your body continuing to be a body—all of this feeds into the water-voice, changes it slightly, adds new almost-words to the endless sentence the mountains have been speaking since before the Listeners came to hear it.
+
+If you stay long enough, you will begin to hear what they hear. This is not a warning or a promise, just a fact, like the fact that water flows downward except when it doesn't. The voice will start to clarify. Certain sounds will seem more like language. You will find yourself pausing on the paths, tilting your head, trying to catch a phrase that keeps slipping away. You will understand why someone would build a hut facing a wall, why someone would carve a bowl to hold nothing, why someone would scrape away their own bones to hear more clearly.
+
+The Listeners will not stop you. They will not help you. They will simply be there, folded into angles, seeping through stone, part of the voice and part of the hearing, waiting for you to decide whether you came to visit or to stay.
+
+The water, after all, has to come from somewhere.
+
+And the Listeners have been listening long enough to know: everything that stays here long enough becomes a source.

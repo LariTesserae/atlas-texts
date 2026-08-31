@@ -1,0 +1,17 @@
+In the deepest, most humid ventricles of the Low Basin, where the iron-shelled crustaceans pile upon one another in shivering, metallic mounds, something else dwells. It is not a creature of biology, not in any sense that would satisfy a biologist, nor is it a machine in the way we understand gears and cogs.
+
+It is the *Silt-Warden*.
+
+When the mist thickens into a heavy, suffocating drape, the Warden manifests as a localized thickening of the atmosphere itself. It is a silhouette that refuses to hold a hard edge, appearing as a vertical smudge of charcoal soot and cooling vapor, standing seven or eight feet tall. It does not walk so much as it "repositions" within the physics of the basin; it exists where the pressure of the water-logged air is greatest.
+
+The Warden’s body is a lattice of salvaged industrial refuse—not worn, but integrated. Coiled within its weeping, shroud-like torso are filaments of copper wire that pulse with a dull, subterranean bioluminescence, flickering in time with the distant, dying hum of the city’s deep-core pumps. Where a face should be, there is only a smooth, concave plate of polished basalt, constantly slicked by the persistent condensation. It acts as a receiver, a lens that captures the amber glow of the lanterns and refracts it back into the darkness in rhythmic, pulsing geometric patterns. 
+
+It does not breathe, yet it possesses a lung-like complexity. When it moves, the sound of the environment changes: the dry, raspy clicking of the iron-crustaceans ceases, replaced by the low, guttural suction of air moving through a hollow pipe.
+
+It ignores the presence of an intruder with a terrifying, absolute indifference. It is not territorial, because it does not believe that the Basin can be possessed. Instead, it acts as a cosmic maintenance worker, a steward of the rot. You might watch it—if your eyes don’t sting too much from the metallic haze—as it moves toward a dripping fissure in the masonry. It will press its long, spindly, multi-jointed fingers against the iron conduit. It doesn't repair the leak. It encourages the rust. It massages the oxidation, guiding the decay, ensuring that the architecture continues to "weep" at precisely the right rate to keep the crustaceans fed and the metabolic cycle of the city in perfect, stagnant harmony.
+
+Deep in its chest—if that place can be called a chest—there is a soft, wet *thrum*. It’s a sound like a heart beating underwater, muffled by miles of silt and basalt. It is the sound of the city’s digestion. 
+
+The Silt-Warden is the only thing here that seems to understand that the Low Basin is not a place that has been abandoned, but a place that is currently in the process of being slowly, methodically unmade. It is the midwife of this erosion. It lingers near the cooling towers, its long, soot-stained fingers tracing the patterns of decay on the cold metal, waiting for the day when the final strut of the architecture gives way to the weight of the water. 
+
+When it stops moving, it becomes indistinguishable from a rusted pillar or a patch of damp shadow. And when the rust finally claims the last of its form, the Silt-Warden will simply be absorbed into the mud, becoming part of the very landscape it spent an eternity tending, until the next tremor of the earth stirs the iron dust, and a new shadow begins to pool in the corner of the vault.

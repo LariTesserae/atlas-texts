@@ -1,0 +1,13 @@
+In this world of molten extremes and ceaseless upheaval, life has found a tenacious foothold, evolving into bizarre, heat-resistant forms uniquely suited to the infernal conditions. Here are some of the hardy denizens that inhabit this fiery realm:
+
+Lava Crawlers - Massive reptilian creatures with thick, armor-plated hides and muscular tails for propulsion. Their bodies are covered in bony ridges and protrusions that protect them from extreme temperatures as they slither across the viscous magma flows hunting for prey. With jaws lined with obsidian-like teeth, they ambush other creatures at the edges of magma pools.
+
+Hellfire Drakes - Winged reptavians that soar on leathery, heat-resistant wings amid the searing air currents. Their scales are iridescent and reflect the glowing oranges and reds of the lava fields below. They pluck prey from the surfaces of fiery pools with their razored talons. Smaller drakes gather in flocks while larger solitary adults are fierce hunters.
+
+Cinderwood Trees - Towering, gnarled trunks with thick, fibrous bark that insulates and protects them from the intense heat. Their deep roots tap into underground aquifers, bringing up moisture that evaporates into an airborne mist around the canopies, creating pockets of humidity amid the furnace-like temperatures. The bark exudes a naturally occurring silicate that gives the trees their characteristic charcoal-like appearance.
+
+Thermafauna - Bizarre, worm-like tube creatures that live within the intense heat of the lava channels themselves. Their bodies consist of heat-resistant, rock-like segments that can separate and reform, allowing them to spread out or ball up tight. They feed by absorbing minerals and dissolved gasses directly from the molten flows.  
+
+Lava Striders - Spindly, multi-legged insectoids with specialized feet that allow them to literally stride across the surfaces of semi-solid lava flows. Their hard carapaces protect them as they skate from one island to another across the magmatic expanses in search of vegetation to feed upon.  
+
+This pyroclastic world has forged life into forms barely recognizable compared to more temperate climes. Only the most supremely adapted creatures can eke out an existence here, their metabolisms and physical characteristics fine-tuned to the searing hostility of the environment through eons of evolution. An entire exotic ecosystem has taken hold amid the fiery tumult.

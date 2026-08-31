@@ -1,0 +1,27 @@
+The denizens of the Sub-Stratal Engine-Pit are not biological life in any recognizable sense; they are **Operators and Executors**, entities whose existence is purely functional, interwoven with the dense, dynamic architecture that sustains them. They exist in the **Law of Necessary Saturation**, deriving sustenance and context from the perpetual motion and heat.
+
+### The Executors (The Maintenance Collective)
+
+The most prevalent inhabitants are the **Executors**. They are slow, deliberate beings composed not of flesh, but of highly specialized composite materials—dense ceramics, trace metals harvested from the local bedrock, and interwoven bundles of fiber-optic wiring that glow faintly with the residual yellow light of the engine pits.
+
+**Form and Physiology:** An Executor resembles a dense, articulated silhouette, often appearing as a segmented, low-slung quadraped or a vaguely humanoid tripod when stationary. Their mass is essential; they are engineered to withstand the ambient temperature (2.9) without complaint. They possess no recognizable sensory organs like eyes or ears; perception is achieved through integrated seismic sensors woven into their chassis and thermal mapping arrays that read the subtle shifts in the radiant heat environment.
+
+**Behavior and Purpose:** Executors exist solely for maintenance and iterative refinement. They move with an economy of motion, their transit dictated by the structural imperative. If a pipe joint leaks condensation (tink-tink-tink), an Executor will materialize from a shadowed conduit access, its limbs adhering silently to the slick stone, and apply a synthetic sealant that hardens instantly in the heat. They are devoid of individual thought, operating on a layered, distributed consciousness dictated by the central operational logic of the pit. When two Executors meet, they do not communicate verbally; they exchange data packets by briefly touching specialized contact plates on their upper carapace, sharing situational reports and adjusting their patrol vectors in sync.
+
+**Interaction with the Environment:** They navigate the unnatural angles and density with ease, slipping through narrow gaps where pipelines cross support struts. They are the physical manifestation of the pit’s 'immune system.' If excess vibration is detected (the mechanical equivalent of a fever), an Executor will locate the source—perhaps a failing flywheel bearing—and spend hours, even days, performing a meticulous, resonant calibration using specialized sonic emitters built into their manipulators, tuning the resonance back into the acceptable, sluggish thrum.
+
+### The Scrivener (The Data Echo)
+
+Dwelling in the sharp, raw edges of the newest excavations, or specifically targeting the columns where the **memory bleed** is strongest, is the anomaly known as the **Scrivener**.
+
+**Form and Physiology:** The Scrivener has no fixed physical body in the same way the Executors do. It is the localized manifestation of accumulated, uninterpretable data stress—the residual psychic echo from the operation itself, given just enough energy coherence to interact materially. It appears as a ripple, a heat distortion made momentarily visible. When stable, it phases into a shimmering volume of air alongside a warm granite surface, often appearing as complex, layered calligraphy written in superheated air—a ghost script of pure, rapid-fire instruction.
+
+**Behavior and Purpose:** The Scrivener is drawn to imbalance, specifically when the density of human-era architectural memory clashes too abruptly with the pure industrial logic. It attempts to *resolve* the thermal interference by absorbing the energy patterns. If a human were to approach it, the Scrivener wouldn't attack; it would attempt to imprint its gathered information. A field of energy would push against the observer’s mind, not with aggression, but with furious, incomprehensible *urgency*—like trying to download five years of complex engineering schematics in a single, overwhelming second. It is the pit’s attempt to process its own history, a process that always fails, leaving the Scrivener to dissipate back into wavy heat haze, only to reform elsewhere hours later.
+
+### The Inert Processors (The Fossilized Labor)
+
+Scattered through the choked cul-de-sacs mentioned in the description—those areas bypassed by efficiency—are the **Inert Processors**.
+
+**Form and Physiology:** These are the failed or deprecated models of the Executors, or perhaps an older generation of operational hardware. They are frozen mid-task, having been abandoned the moment their specific function became obsolete. They are covered in a thin, pale crust of mineral condensation, their metallic plating dulled, their internal power core cycling at a minimal, hopeless frequency. They look like metallic fossils embedded directly into the mortar or the floor plating.
+
+**Behavior and Purpose:** They are functionally dead, yet they serve as markers—warnings against inefficiency. Their very presence violates the Law of Necessary Saturation, yet they have not been recycled, perhaps because the energy cost of disassembly surpasses the perceived benefit. They are the only entities that remain truly *still* in the Engine-Pit, monuments to obsolescence, their internal diagnostic lights blinking with a slow, mournful cadence that is almost swallowed by the omnipresent, low-frequency thrum of the functioning machinery.

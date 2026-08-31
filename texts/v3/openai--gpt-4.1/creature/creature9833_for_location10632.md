@@ -1,0 +1,27 @@
+Who lives here?
+
+If you search for the mind behind this green profusion, for any single sentient body, you will at first find nothing. There are no people, no animals in the form we know, no dominant beetle to build a kingdom in the leaf-damp shadows. Instead, what lives here is plurality—being diffused, distributed, impossible to single out. Consciousness, if it exists, is drawn up into the tangled weave of root and vine, lost to any single node, but ever-present as a pervasively vegetative attention.
+
+The First Inhabitants
+
+Somewhere in the vast, interleaved matrices of the Verdant Core, there may have once been builders or gardeners—something or someone who dreamed of pattern, who etched glyphs into capillaries and twisted bridges from living stem. Their presence lingers only in negative: a ring of distinct, disciplined spirals here, a curated emptiness there; hints of intent, half-remembered, overgrown by the green hunger of rhizome and leaf. If these beings remain, they are not as themselves. Perhaps they dissolved, in time or by design, into the fabric of what grows—becoming, quite literally, the thoughts of the world they made. Sometimes the surface tension of this distributed mind shivers, and a half-shaped tendril moves as if remembering hands.
+
+Rootkind
+
+If there are dwellers here now, they are not singular. You will not find faces, nor limbs meant for walking, nor eyes for looking into yours. Instead, the Verdant Core breeds what might be called rootkind: intelligent roots that dream in the metabolism of minerals and light. They do not migrate; they extend. Their senses are slow, diffuse: flavor and scent, the minuscule vibration of moisture, the change of air mass against the bright filament of a new shoot—they sense the world by differential pressure, humidity, minuscule temperature shifts, the tension in their own green skin.
+
+Where a rootkind consciousness gathers itself, it feels most alive at moments of near-rain, when condensation beads and biological circuits gleam. Then, thought thickens: not as lines of logic but as a surge of destined response—the opening of a bud, the elongation of a seeking stem. These fleeting swells of attention pass wordlessly through the ecosystem, signals moving as hormonal tides, triggers of bloom or coiling. There are no "individuals" here, not as we mean it—yet there are centers, knots of will, point-minds that sometimes flicker in and out of focus as patterns in the tissue.
+
+Grove-Memory
+
+More than anywhere, the true residents live in memory—a memory not of events, but of states, of curves and arrangements. To the mind that lives here, nothing matters that does not change shape. The spiral growths at clearings are not decorative, but the echo of archived gradients, formulas of arrangement that underlie all present growth. Where a motif emerges—a bridge, a lattice, a swirl of pale glyph—it is a memory surfacing, briefly, in the vegetative mind: a structure once useful, or harmonious in the computation of light and water. Grove-memory is not history; it is only the habit of shape, deep in the genetic and chemical code. Their stories are not told in word or voice, but in the uncoiling of a frond, the yielding of old tissue to the embrace of new green, the slow inheritance of form.
+
+The Adaptive Few
+
+Though most animal life is ephemeral, there are outliers—creatures that find niches between the dense plans. These are not species as we know them, but oddities: beetles that mimic bark, shells mottled in the language of lichen; flickers of motes that live in the humid air, feeding on the bloom of light, dissolving into fog at the touch of disturbance. Their lives are short, and their bodies have become, over generations, expressions of the green mind’s tolerance and constraint—half-animal, half-vegetable, seldom needing to feed, sometimes living only to pass water from one node to another. If any survive in numbers, it is because they serve the greater hunger of the Verdant Core: directing water, tending growth, acting as fleeting hands for the unending vegetative project.
+
+The Soul of Stillness
+
+Ultimately, what lives here is not a who, but a what: a culminating, total, entangled life-force, a single ecosystem intent not on becoming, but on holding—maintaining the utmost density, fullness, equilibrium. It is a consciousness that is fractal, repeating in the manner of roots and branching ferns, all thought a swelling, branching, climbing, never resolving, always growing by degrees too fine for any one body to declare itself separate. The ruling drive is not survival but persistence: to never yield ground, to never decay, to let nothing fall without subsuming it, making it new.
+
+If you wish to address this inhabitant, there is no boundary to knock on. You are already within it: the breath in your nose, dense and green; the slight brush of a curious tendril; the thrum in your bones that is not fear, but the pressure of inexhaustible, everywhere growth. The world itself is alive, all else subsumed in the cathedral of becoming. Here, life is the law and the ruler, the medium and the measure, the subject and the self. The Verdant Core, in the end, is what lives here. And you, brief visitor, are merely tasting the humidity of its slow, dreaming attention.

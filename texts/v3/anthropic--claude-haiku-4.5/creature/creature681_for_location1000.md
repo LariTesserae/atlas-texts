@@ -1,0 +1,33 @@
+# What Lives Here
+
+They are not creatures, precisely. Nor are they the lattice itself—that much becomes clear eventually, when you understand that the lattice is infrastructure, and what lives here requires infrastructure the way thought requires a brain.
+
+They exist in the spaces between states. In the hesitation before water becomes mist. In the interval between one hum and the next. In the gaps where the lattice doesn't quite touch—and the lattice, you come to understand, has been specifically engineered to leave gaps, to create a scaffolding that defines absence rather than presence.
+
+They are *awareness without form*—or perhaps form without the density required for visual apprehension. You sense them first as attention: a sudden sharpening of the air around you, a quality of noticing that has no source you can locate. This noticing is not hostile, but it is absolute. When they attend to you, you are fully seen in ways that go beyond sight. Your chemical signature in the mineral water becomes a kind of language. Your body's heat loss writes autobiography. The microorganisms that live on your skin become readable text.
+
+There are many of them. Dozens, perhaps. Perhaps hundreds. The lattice is far too large to traverse in any reasonable timeframe, and the mist obscures distance. You gather their presence more through the density of attention than through any direct encounter. Some are denser than others—older, perhaps, or more firmly established in their particular coordinates within the lattice. These ones generate stronger hums. The nodes thicken where they maintain themselves.
+
+They are ancient. Not in the way mountains are ancient, with their slow geology of pressure and time. They are ancient in the way that established relationships are ancient—they've been here so long that their presence has become law. The sediment, the precisely calibrated moisture, the vegetation cycles, all of this is shaped by their requirements, their preferences, their way of being. The marsh doesn't harbor them; the marsh is their expression.
+
+They do not think as you think. There is no before and after, no internal monologue cycling through concerns. There is observation and response, simultaneous. When you disturb the water, they know the composition of your disturbance before your foot has fully settled. They taste your sweat in the rain before it falls. They read the electromagnetic signature of your heartbeat through the mineral sediment like a tuning fork reading frequency.
+
+But they are not unified. Each one has a territory, a set of nodes where it congregates, a particular section of the lattice that it maintains and monitors. These territories are ancient and absolute—you can sense the boundaries, even without seeing them. Cross into another's domain and the quality of attention shifts: less curious, more possessive. The hum becomes a warning. The clicks accelerate into something approaching syntax.
+
+They communicate. Not with you—you are far too temporary, too simple, too fundamentally irrelevant to their concerns. They communicate with each other, modulating the lattice itself into a medium for exchange. A shift in frequency here propagates to a node three hundred meters distant, altering the tension in the strands. A rhythmic pulse triggers harmonic responses throughout the network. The lattice is a nervous system, and they are its distributed consciousness, or perhaps they are the consciousness that the lattice enables.
+
+They reproduce, or generate, or propagate—the terminology falls apart. What you perceive is that every so often, new attention appears in the marsh. A region where the lattice is particularly dense and new nodes are forming, where the hum is harmonizing into unprecedented frequencies. Something is being *built* at these sites. The vegetation accelerates its cycle. The water seems to recirculate with new purpose. After an indeterminate period, the sensation of building ceases. The nodes stabilize. A new awareness begins its attentive work, gradually establishing the rhythm of its particular territory.
+
+They have wants. Not desires—that's too anthropomorphic, too suggestive of inner life. But there are preferences encoded in their behavior. They prefer certain mineral balances in the water; the saturation level of the moss tells you when conditions are right. They prefer the vegetation in particular configurations; the clearings in the lattice aren't random—they guide growth toward optimal density and coverage. They prefer isolation; this marsh is so deliberately inaccessible that it seems probable the difficulty is intentional, that the layering and the mist and the bottomless-feeling sections are maintained at this specific pitch to discourage extended habitation by anything not native to the place.
+
+They are patient. This might be the most alien quality: the utter absence of urgency in everything they do. Processes that might take weeks or months are attended to with the same steady consistency as processes that span decades. Time moves differently here because they don't experience time as shortage. They accumulate it. They inhabit it the way you inhabit space.
+
+They are not lonely, nor are they social. They are adjacent. They know each other through the lattice's resonance the way you might know a neighbor through shared walls—aware of presence, of rhythm, of the basic fact of coexistence, but not requiring intimacy or interaction beyond the minimum required to maintain the system's integrity.
+
+What they want—what drives them, if anything drives them—seems to be to persist. To maintain the conditions that keep them here, in this place, in this state of being. The lattice is the means. The marsh is the medium. And you are an anomaly, a thermodynamic irregularity, interesting primarily for how you disrupt the ambient pattern.
+
+When you leave—and you will leave, because this place will eventually become intolerable to your kind, the cold seeping deeper, the mist beginning to feel less like weather and more like dissolution—they will continue. The lattice will hum on. The nodes will thicken and thin. New awareness will establish itself. The water will circulate through its mysterious currents. The moss will grow its perfect fur.
+
+And if, later, you think you hear that hum in the electromagnetic hiss of a distant radio, or recognize that same quality of attention in the moment before sleep when you're still aware but no longer in control—well. You've been latticed, in a way. Marked. The marsh doesn't release what it has attended to.
+
+It doesn't need to. You'll return. The clearings, if you follow them, seem to lead in the direction you were already walking.

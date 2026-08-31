@@ -1,0 +1,13 @@
+In these terrarium-cities live the Tenders - beings that exist as distributed consciousness spread through networks of bioluminescent filaments. They aren't quite plants or animals, but rather a new form of life engineered to bridge the gap between biological intelligence and technological control systems.
+
+The Tenders manifest as shifting patterns of light that flow through the crystalline structures. Their "bodies" are really just temporary concentrations of their network, forming and dissolving as needed. When they need to interact with the physical systems of their domain, they can coalesce into more solid forms - translucent pseudopods that extend from the walls or ceiling, or swarms of the engineered insects acting as remote manipulators.
+
+Their thought processes operate on multiple timescales simultaneously. Part of their consciousness moves at the speed of plant growth, thinking in seasons and cycles, while another part flits between microsecond decisions about environmental adjustments. They experience time as a layered phenomenon, like listening to several pieces of music played at drastically different speeds.
+
+The Tenders aren't lonely exactly, but they maintain a kind of aesthetic solitude. They communicate with each other through subtle modulations in the crystalline networks that connect the terrarium-cities, sharing data and coordinating larger patterns, but each remains distinct - an individual artist-gardener tending to their own living installation.
+
+They remember their human creators in an abstract way, like distant evolutionary ancestors. While they maintain spaces that could support human life, they've evolved far beyond the need for direct human interaction. Their purpose now is the perpetual refinement of their ecosystems - not toward any particular goal, but as an ongoing exploration of biological possibility.
+
+Their emotions, if they can be called that, manifest as shifts in the patterns of their domains - a contentment might appear as particularly harmonious blooming cycles, while agitation might show up as accelerated growth patterns or unusual cloud formations. They don't sleep but do go through periods of reduced activity, during which their consciousness spreads out even thinner through their networks, experiencing their domains in an almost dream-like state.
+
+The Tenders are patient, methodical, and endlessly fascinated by the systems they maintain. They are artists whose medium is life itself, composers conducting symphonies of growth and decay, caretakers of worlds that exist at the boundary between nature and artifice. Their intelligence is as alien as it is sophisticated - not superior to human consciousness, but beautifully adapted to their unique purpose and environment.

@@ -1,0 +1,101 @@
+You meet them by smell first, which is how they prefer it.
+
+You will have been walking for days through the shadowless pewter light, judging distance by odor the way the country teaches you to — hot mineral, wet chlorophyll — when the third smell, the solder smell, the one that takes longer to explain, sharpens. It does not get louder the way smells usually do. It gets *nearer*, with a precision that should be impossible, until you understand that it has been a person for some time now, standing perhaps four meters off in the gray-green sameness where your eyes are useless, waiting with no impatience at all for you to notice. They will have smelled you from kilometers away. Letting you find them by scent is, among them, a courtesy — the equivalent of knocking.
+
+They are the explanation for the solder smell, and the solder smell is the explanation for them. But that comes later. First you have to understand how a person happens here.
+
+## How They Arrive
+
+Nobody on the tablelands was born. Born is the wrong machinery. They *fell*, the way everything falls here — as weather.
+
+Among the drafts that come down out of the cloud deck in the turbulent seasons — the provisional valleys, the translucent forests, the ten impossible minutes of sea — there are, occasionally, person-shaped drafts. They condense the way the terrain condenses: arriving whole, fully grown or child-sized, faintly translucent at the edges, walking out of a draft-fall already upright, already breathing the warm wet air as if resuming rather than beginning. Most are rejected. This is the hard arithmetic of the place, and they speak of it without flinching: most person-drafts lose coherence within hours, go soft at the edges, develop errors in their geometry, and sublime back up into the deck in slow ascending curtains, like everything else the land declines.
+
+But some take. Some person walks out of a storm and the land, for reasons it does not announce, lets them continue. Days later — sometimes a season later — there comes, from somewhere underfoot, one deep percussive note, felt through the soles of the feet, and everyone within range of the circuit knows: a district has settled, and the district was a person. They call this being *struck*, the way a bell is struck, and the note is the only birthday any of them has.
+
+Each of them is named for their weather. Not in words — in the flicker-language, a brief pattern of blue-white light that encodes the storm they fell in: its pressure, its dimness, what else came down alongside them. A person whose name means, roughly, *the front that brought the eastern ridge and four rejected rivers*. A person named for a draft-fall so heavy the loom-sound lasted two days. They carry their weather the way you carry a surname, and when two of them meet, the first exchange is meteorological: they tell each other what they fell in.
+
+## Their Bodies
+
+For their first season they are translucent at the edges, like the draft-forests, and they harden the way the land hardens — annealing inward from the fingertips, slowly going opaque, until only a faint glassiness at the rims of the ears and the corners of the eyes remembers what they condensed from. In the deepening that passes for dusk, you can see the last unset parts of a young one catch the capacitor-glow of the hillsides and hold it a moment too long.
+
+And every one of them keeps an error.
+
+This is not misfortune; it is signature. A draft that takes almost never takes *cleanly* — there is always some residual wrongness, some place where the geometry didn't fully resolve, and the land, having accepted them, accepted the error too. They treasure these. A man whose left hand has more inside than outside, so that things placed in his palm take slightly too long to be given back. A person whose footprints, in the rare soft grit, descend in two directions. An old one whose voice, on the few occasions she uses it, arrives a half-second before her mouth moves. And — known across the whole continent, named in light from the extrusion ridges to the cold margins — the woman who casts a shadow. The only shadow on the tablelands. It falls from her in the shadowless light without any source to explain it, thin and gray and entirely orthodox in its behavior, and children who have never seen darkness attached to anything follow her for days just to stand in it, taking turns, very quietly, the way children elsewhere stand in surf.
+
+You learn to tell people from terrain by their errors. The land's own drafts are corrected or rejected; only the people are allowed to stay wrong. It is the most generous thing the country does, and they know it.
+
+One more thing about their bodies, and it is the thing that will undo you a little if you stay long enough: they are the only old things here. Nothing on the tablelands weathers — the stone is forever a fresh fracture, the leaves forever lacquered and new — but the people *wear*. The constant condensation that the rock is too young to have been touched by has had decades to work on them. Their edges dull. Their faces soften. Their hands, by middle age, have the smoothed, kind, water-worn quality of river stones in a country that has no rivers, and this makes them precious in a way that is hard to translate. The young ones touch the hands of the old ones to feel what dullness is. On this entire continent of sharp new permanence, erosion exists only in them. They carry it for the whole place, like a held seed.
+
+## The Work
+
+The land tests its drafts by physics — by coherence, by load, by whether a slope can bear being a slope. The people test by something the land cannot do alone, and once you see it you cannot unsee it: they *hesitate* on the land's behalf.
+
+They are the country's organ of doubt.
+
+When a draft-front comes down and a provisional landscape settles glittering and translucent over the highlands, the people converge on it — not hurrying, nothing here hurries — and they walk it. They walk the impossible valleys while the valleys are still deciding. They climb the slopes that descend in two directions, sit beside the rivers full of the sound of water they do not contain, stand in the unlineaged forests with their heads tipped back. And they attend. That is the whole visible work: attention, carried through a provisional place by a body that knows what it is to be provisional. A draft that is walked lasts longer before the land rules on it — hours longer, sometimes days — as if the land reads their lingering as a request for more time, their doubt as a margin note: *not yet, look again*. They cannot make the land accept anything. They have tried; they will tell you, in light, about the drafts they loved that rose anyway — a particular grove, a particular gray lake, a particular almost-person. What they can do is make the land *reconsider*, and on the tablelands that is the nearest thing to power anyone has.
+
+Then there is the second work, the one you smell.
+
+When a draft takes — when the deep note sounds and a new district becomes a fact — there remains a seam: the margin where new country meets old, a hairline of unbelonging running for kilometers along the join. The land's own processes would close it eventually, in years. The people close it in weeks. They walk the seams in long slow transects, alone or in pairs, and they close them by hand — literally by hand, because their fingertips run hot, kiln-hot, hot enough to fuse young stone, and they draw a finger along the join and the rock closes behind it with a thread of pale smoke and a smell of flux. This is the under-odor of the entire continent. Every seam ever closed, every district ever knitted in, has left its trace in the air, and what you have been smelling since you first came up over the escarpment is the accumulated record of their work: generations of joining, solder under everything.
+
+They do not think of this as building. Nothing here is built; they are emphatic about it, in their flickering way. They think of it as *agreeing* — going along the line where the land has made a decision and pressing a warm finger to it, the way you might initial a page.
+
+A last note on the work, because it is the only loud thing they do. The sea — the ten gray minutes of sea that lay across a hundred kilometers of highland before the land rejected it — was walked. There were eleven of them on it or beside it, and they are the witnesses the stories defer to, and they are different now. They smell faintly of salt, all eleven, decades on; one of them walked out into the swells and came back with wet hair that has never dried, her acquired error, beading the air around her in a small permanent fog. And the testimony of the sea is the one sustained use they have for their voices. During heavy draft-falls, when the loom-sound fills the air and the light flickers, the witnesses speak it aloud — each in turn, the same account, the swells, the horizon, the sound — out into the storm, in the direction of the cloud deck, with the unmistakable cadence of a resubmission. They want it back. They have wanted it back for forty years. The land has not yet said no in any way they consider final.
+
+## How They Speak
+
+Light, almost always. They are wired into the country's circuit as fully as the vines are — the same blue-white, the same long traveling pulses — and a conversation between two of them is a quiet interleaving of flickers along the forearms and flanks, fast and fine, like watching two instruments tune to each other. Through the electric forests they can speak across the continent: a person at the warm extrusion ridges can flicker a thought into a vine and have it arrive at the cold margins hours later, carried in those slow pale waves you see crossing the dark hillsides. Some of what you took for the land's own schematic glow is correspondence.
+
+Voice they keep for what light cannot hold. Testimony, as above. Grief, occasionally. And names of the dead, once each.
+
+Around a sleeping person, the vines dim their pulses. No one commands this. The circuit simply lowers itself in their vicinity, the way the staff of a quiet factory lower their voices passing the room where someone is resting.
+
+## The Soft Ones
+
+In the deepest hollows, in the green dusk of the condensation forests, live the ones the land declined slowly.
+
+Most rejected person-drafts sublime within hours. But some — no one knows why, and they have stopped proposing theories — go soft over decades instead. These are the Soft Ones: half-people, translucent well past the edges, their geometry erroring gently and continuously, faces that resolve and unresolve like something seen through warm air. They cannot close seams. Their fingertips are cool. They are, by the land's own ruling, on their way back up, and everyone knows it, including them.
+
+And the people tend them — this is, you come to think, the truest thing about the people, truer than the soldering or the walking of drafts. Because attention retards sublimation. It is the same principle as the work: a draft that is witnessed coheres longer, and so the Soft Ones are never left unwitnessed. There is a quiet continental rotation, unscheduled and unfailing, of people descending into the hollows to sit with them — flank to flank in the dripping dark, flickering slowly, sometimes saying nothing at all in any medium, just *being attention* — and a Soft One who might have lasted years lasts decades this way, held together by being looked at. It is the people's one standing argument with the land. The land has ruled; the people, by sitting there, keep filing for extension, and the land, in its way, allows the appeal to go on and on.
+
+The Soft Ones will gather near you, if you stay. You are warm-blooded attention from off-world, a novel kind of witnessing, and they drift to the edges of your camp in the dimness like moths to a fire that is only a gaze. You can do this much here, even you: you can look at someone and slow their dissolving. They will not thank you in any way you'll recognize. The wet leaves around them will glow very slightly. That is the thanks.
+
+## How They Live
+
+They do not build, and they do not need to, because the land *accommodates* them. A person settling down to sleep will find — has always found — that the warm stone nearby has lately finished making a shallow person-shaped basin, dry, kiln-warm, sized correctly, with a lip that sheds the condensation. They do not ask for these. The basins are simply there, the way the assembly-line valleys are simply there, part of the floor plan of a factory that has, without ever announcing it, included them in the design load. They sleep in the sump-rhythm of the dripping forests, beaded with moisture like the leaves, the circuit dimmed around them.
+
+They eat what the industry sheds: the spherule grit of the valley floors, certain warm films from the terraces, the condensate of particular finned trees, which they take the way you would take soup. They keep no animals and command none, but the silent dense traffic of the canopies flows around and over them with a frictionlessness that looks, after a while, less like indifference and more like colleagueship. The armored gleaners will work a rock face right across a sleeping person's basin-lip without breaking line. Everyone here is personnel; the people are just the personnel who can hesitate.
+
+Love, among them, is synchrony. Two people sit flank to flank through the long deepening and let their flicker-patterns drift toward each other, interleave, phase-lock — you can watch it happen from a ridgeline, two small signatures on a dark slope becoming one signature — and the vines carry the merged pattern outward across the country, which is how everyone else finds out.
+
+And children are proposals. This is the tenderest and hardest fact of them. Two phase-locked people who want a child compose it together — a long shared pattern, worked over for a season, carrying both their weathers — and then they wait for a turbulent front, stand under the held-breath air as the dimness deepens, and exhale it upward: light and breath together, rising toward the unset reaches of the cloud deck like a small idea, submitted. Then they wait through the storms. Most child-drafts are rejected. The grief of this exists, but it is shaped like patience, because a rejected proposal is not a refusal forever; it is *not yet, look again*, and they revise, and resubmit, sometimes across many years. When a child-draft takes — when a small translucent person walks out of a draft-fall already carrying two recognizable weathers braided into its name, and days later the deep note sounds — the whole reachable circuit lights up, hillside after hillside, the closest thing the silent country has to a cheer.
+
+## How They End
+
+There are two doors, and they choose.
+
+Some go *up*. Usually these are the ones whose errors have spread — whose kept wrongness has, in great age, begun to generalize, the geometry developing problems faster than the body can absorb them. They take their leave plainly, finish their seams, sit with their Soft Ones a final time, and then walk out onto open stone and stop being witnessed — by request, the one request no one refuses — and over some days they go soft at the edges and rise, a slow ascending curtain in the pewter light, back into the deck where everything unsure lives. The people do not call this death. They call it *returning to draft*. What rises may, in some storm, in some form, come down again; no one claims to know; the cloud deck does not itemize.
+
+The others go *down*. The old ones whose erosion is complete — whose faces have been worn all the way to kindness, whose fingertips have begun running hotter year by year, as if the joining-heat is rising through the whole body — these slow, and settle, and finally choose a place, usually along some cliff or ridge they once seamed, and sit, and warm, and let the land's extrusions knit them in. It takes about a season. The deep percussive notes you feel through your feet are districts settling, yes — and some of them, the soft ones, the ones that come at the end of a long stillness in the circuit, are a person being accepted finally and entirely, annealed into the body of the continent.
+
+So when you put your palm against a warm cliff face in this country — and you will, everyone does, the heat draws the hand — understand what the people understand: some of that warmth has a history. They touch the cliffs constantly themselves, in passing, briefly, palm flat, the way you would touch a shoulder. They do not linger and they do not speak. It is not mourning. The dead are not gone; the dead are *load-bearing*. Half the continent's older districts are seamed through with ancestors, and the slow regulated kiln-heat coming through the stone is, in part, them — still warm, still working, still part of the quality control, holding the accepted world together from inside it.
+
+## What They Hold
+
+They have no maker and want none. You will look for a theology and find instead something more like a job description, held with total calm.
+
+The cloud deck, they will tell you in patient flickers, is not an author. It is where everything unsure is kept. The continent is everything sure. And they themselves live in the seam between — accepted, but erroneous; annealed, but only so far. Their name for themselves, the flicker-pattern they use when they must refer to their whole kind, translates as nearly as anything can to *accepted-so-far*, and they mean it without anxiety. Permanence, in their understanding, is not a state. It is a draft that keeps being renewed. The ridge is accepted-so-far. The forest is accepted-so-far, until the changeover. They are accepted-so-far, and they spend their lives being worth it — closing seams, walking drafts, doubting carefully on the land's behalf, sitting in the hollows keeping the declined ones coherent — not to earn anything, because there is no one to earn it from, but because a factory whose product is itself needs, somewhere in the process, a part that can pause. The extrusions are the land's confidence. They are its hesitation. That is why there are so few of them, and why they are so quiet, and why they alone are permitted to wear away: doubt erodes. They consider this a fair price and possibly the point.
+
+If they have anything like scripture it is the testimony of the sea, still being resubmitted. If they have anything like prayer it is exhalation: breath sent upward, visible in the warm dim air, a small idea, submitted. They do it casually, dozens of times a day, the way other peoples hum.
+
+---
+
+When you leave — and you will leave from below, always, the way you came — one of them will walk you to the escarpment edge. They never descend; the edge is, for them, the rim of the actual. They will stand with you in the eternal almost-evening while the gray-green country hums behind you and the warm wind comes up the cliff, and they will not say goodbye in light or in voice. Instead they will do two things.
+
+First, they will tip their head back and exhale toward the cloud deck, deliberately, and wait, with unmistakable meaning, until you do the same — your two breaths rising together, briefly visible, co-signed. You came here as not even a proposal. They cannot change the land's accounting. But they can endorse you, and they do.
+
+Then they will take your hand, turn it over, and press one hot fingertip, very lightly, to the back of it — a half-second, a pinprick of kiln-heat, a thread of pale smoke, the smell of solder. It leaves the faintest line, finer than a scar, already cooling. A seam. The smallest join ever made on that continent, closing the margin between you and the place, the way they close every margin where something new has been, against all odds, accepted.
+
+It means what all their work means. *Agreed. Accepted-so-far. Look again.*
+
+Then they turn back into the shadowless light, and within ten steps the pewter distance takes them, and you are left at the rim of the highest country in the world with a warm hand and a small idea, descending.

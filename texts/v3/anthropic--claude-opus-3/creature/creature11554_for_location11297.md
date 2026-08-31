@@ -1,0 +1,13 @@
+In this vast, subterranean metropolis, a peculiar and ancient people have made their home, perfectly adapted to a life in the sunless depths. Pale and waifish, with large, liquid eyes that shimmer in the dark, they move through their fungal grottos and labyrinthine streets with the sinuous grace of cave fish.
+
+Theirs is a culture finely attuned to the rhythms of the deep. Time is measured in the slow drip of stalactites, the gradual accretion of flowstone, and the cyclical blooming of phosphorescent fungi. They are a patient folk, as unhurried as the growth of stones, and as cryptic as the caverns themselves.
+
+In their gossamer robes of spider silk and luminous beetle carapaces, they gather in the glow-lit plazas to trade in the strange bounties of their realm - the savory flesh of eyeless cave salamanders, the mind-altering spores of certain mushrooms, exquisite jewelry carved from the pearlescent shells of titanic snails. Their voices are seldom raised above a whisper, yet their markets thrum with a muted vibrancy.
+
+They are artisans of the dark, shaping the living stone with fungal acids and the slow patience of dripping water. Their dwellings are marvels of organic architecture, seeming to grow from the cavern walls in rippling waves and coiling helices. Great sculptural forms suggest the writhing of serpents, the undulations of centipedes, the spiral shells of ammonites.
+
+Their sages and savants plumb the mysteries of the deep, tending nutrient vats of strange bacterial broths and conducting esoteric experiments in the manipulation of fungal flesh. In the depths of the grotto-libraries, ancient volumes filled with phosphorescent script and intricate tactile diagrams record the accumulated wisdom of ages.
+
+At the very edges of their domain, where the fungal jungle darkens into the true deep, enigmatic ascetics and visionaries dwell in isolation, seeking to commune with the living darkness itself. They speak of primordial things that move in the abyssal chasms and the uncounted caverns that riddle the roots of the world, of a consciousness vast and slow and utterly alien to the surface world.
+
+To the denizens of the sunlit realms above, these people are little more than a legend, a tale of weird frog-folk and mushroom dwellers whispered to frighten children. But in the timeless twilight of the caverns, they endure as they always have, weaving their slow, hypnotic dream of life in a place where the sun never shines. As much a part of the underworld ecology as the pallid fish and luminous lichen, they are a testament to the endless fecundity and strangeness of life in the secret heart of the earth.

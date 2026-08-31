@@ -1,0 +1,21 @@
+# The Dwellers of the Crowded Spine
+
+In this cathedral of obsidian needles lives a reclusive collective that calls themselves the Thermal Covenant. They are neither fully human nor wholly other, having adapted to this impossible environment over generations through both biological evolution and ritual transformation.
+
+The Covenant members stand unusually tall and thin, their bodies evolved to navigate the narrow passages between needles. Their skin has developed a peculiar glossy quality that reflects heat, mottled with patches of obsidian-like texture that allows them to blend against the volcanic glass when still. Their eyes have enlarged dramatically, appearing as liquid pools of amber that can perceive the subtlest heat differentials in complete darkness.
+
+Most distinctive are their elaborate raised scars—ritualistic modifications that create ridge patterns across their bodies mimicking the volcanic landscape. These scars serve as natural cooling systems, increasing surface area to release body heat. Young initiates begin with simple patterns on their arms; elders bear intricate tapestries of scar tissue across their entire forms.
+
+The Covenant survives through extreme specialization. Some members, called "Condensers," have developed the ability to extract moisture from air through specialized glands in their palms. They press these against cooler obsidian faces at dawn, collecting precious drops in small obsidian cups they carry. Others, "Harvesters," tend the twisted desert grasses, encouraging their growth through secret methods involving their own modified sweat, which contains nutrients extracted from the volcanic soil.
+
+Their most revered figures are the "Song-Shapers"—individuals who have cultivated the ability to harmonize with the obsidian needles' humming. By positioning themselves precisely and producing vocalized tones from specialized throat chambers, these adepts can create standing sound patterns that the Covenant believes communicate with the molten world below. During ceremonies, Song-Shapers create collaborative sound-maps that they claim predict future eruptions and formations.
+
+The Covenant lives symbiotically with the chamber's other inhabitants. They leave offerings for the heat-adapted lizards, which they consider messengers between worlds. The specialized bats are sacred—believed to be ancestral spirits who carry dreams between collective members during night flights. Some Covenant members have even developed a form of echolocation inspired by these creatures, clicking their tongues against modified palates to navigate in darkness.
+
+Their society centers around the crude altar at the chamber's heart, though they would reject the term "crude"—to them, its simplicity is deliberate, reflecting their core belief that unnecessary elaboration traps heat. The stains are indeed ritual markings, made from a mixture of their own blood and sap from desert plants, applied during ceremonies marking the chamber's ongoing transformation.
+
+The Covenant doesn't consider the Crowded Spine their home—rather, they see themselves as its nervous system, sensing and responding to its changes. Their language reflects this, having no separate words for "body" and "landscape." Their perception of time follows the cooling and transformation of obsidian rather than days or seasons.
+
+Outsiders rarely glimpse them. When explorers approach the chamber, Covenant members press themselves against the needles, becoming nearly invisible. Most intruders are disoriented by the heat and sound, leaving with only vague impressions of movement at the corner of their vision, perhaps the lingering scent of an unfamiliar musk, or finding the strange geometric patterns of footprints in the volcanic soil—five-toed but with unusual weight distribution suggesting a different center of balance.
+
+The Thermal Covenant believes they are midwives to the landscape's birth, their purpose to witness and assist its becoming. Through their adaptation and devotion, they have found not just survival but transcendence in what others would consider hell itself.

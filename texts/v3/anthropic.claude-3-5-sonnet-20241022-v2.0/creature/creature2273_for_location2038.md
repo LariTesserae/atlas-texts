@@ -1,0 +1,19 @@
+Within this living tower, multiple societies have developed - some by design, others emerging naturally from the unique environment. Here are its inhabitants:
+
+The Bio-Engineers live primarily in the middle levels, where they can easily access both the experimental zones above and the stable systems below. They're recognizable by the translucent patches on their skin - symbionts that allow direct chemical communication with the arcology's plants. After years of working here, many have developed a characteristic slow, deliberate way of moving that mirrors the pace of plant growth. Their clothing incorporates living tissues that help regulate body temperature and filter air.
+
+The Canopy Dwellers occupy the highest inhabited levels, embracing the raw energy and rapid change of the growing zones. Their homes shift constantly as the structure evolves, and they've adapted to life in this dynamic environment. Their children grow up climbing through half-formed spaces, developing an intuitive understanding of the building's biological rhythms. Many have unusual circadian cycles, synced to the patterns of the experimental plants around them.
+
+In the agricultural levels, the Cultivators maintain the delicate balance of food-producing systems. Generations of working with the engineered crops have given them an almost supernatural ability to read plant health. Their bodies host carefully curated microbiomes that help them process the novel proteins produced by the modified plants. They move in groups, like schools of fish, coordinating their efforts through subtle chemical signals.
+
+The Maintenance Symbiotes are small communities who've developed the closest relationship with the building's systems. They've modified themselves to directly interface with the structure's vascular networks, allowing them to sense and influence resource flows. Their bodies show extensive biomodification - some have photosynthetic skin, others can extend threadlike sensory appendages into the plant tissue. They rarely speak, communicating instead through the building's chemical networks.
+
+Throughout the lower levels, colonies of Semi-Feral Children roam the corridors. These are mostly offspring of the various inhabitant groups who've formed their own micro-culture. They've developed an extraordinary ability to navigate the building's complex pathways and seem to intuitively understand its moods. They collect and trade small samples of interesting plant varieties, establishing unofficial gardens in forgotten corners.
+
+The Pollinators are a specialized caste of workers who've partnered with the engineered insects. Their bodies produce pheromones that influence insect behavior, and many have developed symbolic relationships with specific colonies. They move throughout the structure following invisible chemical trails, their work essential to maintaining genetic diversity in the plant systems.
+
+In the quiet spaces between inhabited zones, communities of Contemplatives have established themselves. They practice a unique form of meditation that involves synchronizing their consciousness with the slow rhythms of plant growth. Their presence seems to have subtle but measurable effects on the health of nearby tissues, though the mechanism isn't understood.
+
+Finally, there are the Ferals - people who've gone "native" in the deepest sense, chemically and genetically modifying themselves to become almost plant-like. They root themselves in quiet corners for long periods, photosynthesize for energy, and communicate through molecular exchanges. Some say they're developing into a new form of life entirely, neither fully human nor fully plant.
+
+All these groups interact in complex ways, forming a human ecosystem as intricate as the engineered biology that surrounds them. Their societies are gradually evolving alongside the structure itself, creating new ways of being human in this unprecedented environment.

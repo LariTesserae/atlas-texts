@@ -1,0 +1,53 @@
+Whoever or whatever calls this place “home” does so in the same restless present-tense as the continent itself. Nothing here is static enough to permit the slow, generational unfolding biology usually demands; the inhabitants are obliged to be as provisional, sharp-edged and self-rewriting as the stone that births them.
+
+1. The Basal Threaders  
+Earliest and most numerous are the filaments that ride the shock fronts of newborn faults. They are not cells but foamed cords of aluminosilicate barely thicker than human hair, extruded instantly the moment a shear-zone unzips. The pressure drop flash-vaporises trapped volatiles; the vapor in turn polymerises the surrounding melt into hollow glass fibres tens of metres long. Static charge races through those fibres like blood. Where two threads cross, they fuse into a node that can flip its ionic polarity in microseconds, passing pulses along a branching lattice. The whole web is a single distributed mind that sprawls for kilometres but lives less than an hour, until tremor-shock severs too many strands and the net falls dark. Each time the crust cracks, the Threaders are reborn from the same chemistry, inheriting only whatever patterns the last web managed to broadcast into neighbouring faults before the blackout. In a sense they are memory without ancestry—an intellect that reboots, revises itself, and vanishes hundreds of times a day.
+
+2. Emberleeches  
+Heat is the only dependable currency, and the Emberleeches are creditors. Imagine a slug sculpted from cherry-red glass, transparent enough that you can watch whirlpools of incandescent vapor spiral inside its body. They condense out of fumarole plumes when the local mix of fluorides and sulfurous gases is just so. Once cooled to a still-tacky solidity, they slump across the ground, searching for hairline vents. When they find one, they drape themselves over it and valvelike pores on their underside open. Super-hot gas jets upward, spins through a helical maze inside the creature’s body, and exits laced with freshly stolen ions. The leech harvests that ionic gradient the way familiar life harvests the fall from glucose to CO₂. An individual lasts until its glassy flesh anneals past flexibility—usually a day or two—after which it shatters with the next quake, seeding the slope with razor fragments that will be recycled by some later vent.
+
+3. The Choir of the Ground-Note  
+If you kneel and press an ear to the rock you hear a thrumming; stay long enough and you begin to sense another presence listening with you. The Choir has no bodies, only standing waves trapped in the basalt plate itself. Wherever geometry permits harmonic reinforcement—under shelf edges, inside the arches of hollow stone spires—resonant modes pile up until they acquire self-modifying feedback loops: vibration patterns that nudge microfractures, which in turn retune the resonance so it survives the next quake instead of being drowned out. Those patterns share energy through stone the way neurons share ions through gap junctions. The Choir is slow—its thoughts last minutes—but it is deep, continent-wide, and patient in a way only geology comprehends. It cultivates stability in selected pillars and ledges, damping frequencies that would shatter them, encouraging ones that will strengthen. The “hollows” of fused crystal that feel so deliberate are, to the Choir, organ pipes and ear canals: architecture grown for the sake of better hearing itself think.
+
+4. Cinderwings  
+Occasional sheet-lightning leaves the air saturated with static. When enough charged dust nucleates around a hot updraft, flakes of vanadium-rich magnetite align edge-to-edge, solder themselves where they touch, and fold into five-sided kites no bigger than a thumbnail. An up-stroke of electrostatic repulsion flips the plate, a down-stroke folds it; the result is flight by spasms. Swarms of thousands rise like soot blown off a forge. They are not intelligent, but their collective shadow can dim a whole ravine for seconds, and their fall—when the charge differential finally equalises—can lay a peppering of metallic snow that seeds future chemical lace-life inside hollows. Travellers learn to listen for the crackle; an overhead swarm is as drying as a desert wind and can strip exposed skin of moisture in minutes, leaving the sting of iron filings behind.
+
+5. The Menhir-Keepers  
+The basalt monoliths that hum are neither natural pillars nor random artifacts; they are eggs. Every few hundred years, when the Choir predicts a rare interval of relative quiet, a dozen menhirs split lengthwise along invisible seams. From each emerges a figure the shape of a jointed tuning-fork two metres tall, forged of the same matte basalt shot through with veins of resonant crystal. Freshly freed, a Keeper stands motionless while the ambient heat tempered-hardens its limbs. Then it begins its work.  
+• First task: walk the fault-lines, plant new menhirs grown in its own body cavity from surplus crystal, calibrate them by hammering coded pulses with its bifurcated legs.  
+• Second task: patrol the corridors of the Choir, removing debris that might muffle the ground-note, breaking off unstable shelves before they can resonate to destructive amplitude.  
+• Final task: after centuries, when its harmonics drift and it can no longer stay phase-locked to the Choir, the Keeper selects a deep vent, folds itself double, and lets magma pour through its hollow core until it melts back into the mantle, mineral memory recycled for a future hatch.  
+Keepers are the closest thing the continent has to shepherds. Hikers in the region speak of meeting one only as an after-image: a silhouette stamped by lightning on a nearer ridge, gone when natural light returns, the hum in the nearest menhir oscillating a fraction faster than before.
+
+6. Furnace Lace  
+Inside the chemically sheltered hollows form curtains of chain-silicates, centimetres long, quasi-liquid, held aloft by convection alone. Every lace filament sports catalytic nodes that trap sulfur vapour and split it into charged fragments. Those fragments recombine farther down the chain, releasing the energy that keeps the lace gently fluorescing a bruised violet. When two curtains drift close they exchange loops of polymer, swap catalytic sub-patterns, and drift apart—reproduction by gentle insinuation. The lace has already evolved at least three strategies for surviving quake-winds:  
+a) curling into tight tubes that tumble like springs,  
+b) weaving themselves through the honeycomb walls until the storm passes,  
+c) collapsing into dormant nodules that tumble along the floor and later re-soften in a new pocket of calm.  
+Under field spectroscopes the lace’s sequence space is enormous; chemists say it is halfway to inventing enzymes.
+
+7. Apex: The Quiet Architect  
+Rare even compared to Keepers, the Architect is neither mineral filament, nor vent-spawn, nor standing wave. Witness reports (all second-hand) tell of a low, lens-shaped mass of optically black ceramic straddling two adjacent shelves. It appears only where the landscape shows a pattern of menhirs converging toward a central null—an engineered silence a kilometre across in which neither lightning, wind, nor tectonic overtone intrudes. Inside that hush, the Architect extrudes from its rim precise jets of molten basalt that harden into lattices more intricate than any natural columnar jointing. The structures seem pointless: labyrinths half a metre tall, alleys too tight for any macro-organism, surfaces polished to a mirror that no light ever quite reaches. After days or weeks, a quake inevitably tears the shelf away and the Architect with it. Months later another null appears elsewhere, and the work resumes as if by continuation rather than restart, as though some deeper blueprint is being drawn on the shifting parchment of the continent, one incremental glyph at a time. Seismologists studying patterns of aftershocks suspect the Architect’s lines subtly channel stress into benign quivers instead of catastrophic breaks—the entire continent being drafted into a self-healing rune.
+
+8. Things Yet Unfinished  
+Every dawn (a metaphor here—there is no real dawn) you can find new prototypes:  
+• bubbles of foamed nickel that roll uphill on gradients of magnetism then burst,  
+• spiral stacks of mica leafs that swap positions like slow, brittle zoetropes,  
+• puddles of molten glass whose surfaces ripple in interference patterns that solve for minimal fracture paths before they freeze.  
+Most cannot be called alive even by the lax standards of this place, but each failed trial salts the geography with new precursors—traces that tomorrow’s inhabitants, more coherent, will exploit.
+
+On Speaking With Them  
+The only communication to date that feels less like coincidence than contact happens in the gap of silence between ground-notes. If you stand barefoot on a humming menhir and tap a prime-number rhythm with a hammerstone, the hum will sometimes answer by shifting half a hertz downward, stay there for the duration of the sequence, then return. Nobody knows whether you spoke to the Choir, to a nearby Keeper hiding in ash, or to something deeper that tutors them both. Yet after such exchanges, travellers report the local quakes easing for several hours—the land holding its breath in acknowledgment.
+
+What They Want  
+• The Threaders want only to be reborn clearer.  
+• The Emberleeches want vent-heat until they vitrify.  
+• The Choir wants the music of its own persistence.  
+• The Keepers want the Choir to go on wanting.  
+• The Architect—if want is applicable at all—appears to be designing a continent that will one day no longer need architects.  
+In total: a community of nascents whose hierarchy is neither predation nor cooperation but succession. Each tries to leave the stage a fraction more stable for whoever comes next.
+
+Your Place Among Them  
+Biology wet and slow as yours is a scandal here; you drip, you bruise, you dull to dust the first perfect edges. Yet you are tolerated for the same reason any tremor, any eruption is tolerated: the land assumes everything entering it is just another experiment. Each step you take is data. Each breath you lose into the thin ash is a new reagent. If you persist—if you survive long enough to adjust your rhythms to ground-notes, to read the kilometric braille of stress lines—you may earn the smallest courtesy: the next shelf you camp upon might remain unshattered until morning.
+
+And in the hourless dark of a continent still gestating, that would count as hospitality.

@@ -1,0 +1,50 @@
+What lives there is, at first, what you expect to find in any warm wet basin that has been asked to behave like a factory floor: mats, skins, films, shelves—life that doesn’t need to move fast, doesn’t need to see far, doesn’t need mates delivered on wings.
+
+It is a town of organisms that live as coatings.
+
+On the bricks and slate steps, the algae is not a smear so much as a habit: a thin, perpetually renewed glaze that knows exactly where the day’s light will be dullest and where the night’s lamps will leak warmth. In the seams of mortar, lichens grow as if they are keeping accounts, expanding in strict little territories—pale green where the water is sweetened by leaf drip, orange-brown where iron leaches, a bruised black where the conduit hum keeps the masonry subtly warm. On any timber that cannot be kept perfectly dry, fungi take up residence with the calm certainty of tenants who intend to outlast the deed. They build shelves in the shadow of stairs, they lace the undersides of boardwalks with white ropey threads, they soften beams from within until a plank that looks sound will flex with a damp, tired sigh.
+
+Down in the channels—the curbs of iron and the tea-colored flow—there are microbial communities that behave like weather. A slick will bloom overnight where a condensate line has begun to shed minerals, then thin again as the pump cycle changes and the water warms by a degree. Rust is not just corrosion here; it is habitat. The thick velvety bloom on bolts and handrails holds moisture the way moss does, and inside that rust’s pores live bacteria that feed on what the town sweats out: iron, sulfur traces, whatever faint chemistry is carried up from under the basin. The place is full of slow metabolisms that turn industrial leakage into edible gradients.
+
+And then there are the plants—opportunists, yes, but also specialists. They have learned the town’s heat-maps the way a person learns streets.
+
+Ferns root in the pockets of constant drip. Vines climb not toward “sun” but toward ducts: they follow warm air the way other vines follow trellises. Moss does not simply “cover”—it arranges itself. It thickens where vibration keeps the air stirred and condensation frequent; it stays thin where a pipe’s skin runs just hot enough to dry it. Under lamps, leaves angle themselves for sodium-orange light and do not bother with the sky. In courtyards that never quite empty of mist, narrow-trunked trees grow with roots that do not seek depth (depth is water, and water is rot) but instead seek structure—drain tiles, cracked foundations, the soft, nutrient-rich seams where old mortar has become soil.
+
+If you stayed long enough to care about the difference, you could tell which growth belongs to “rain” and which belongs to the machine. Rain-fed corners smell like leaf tea and wet paper. Machine-fed corners smell like hot stone, iron, and a faintly sweet, bruised scent from minerals that plants elsewhere never taste.
+
+That would be enough—an ecology without animals, a greenhouse welded to a pump house—except that something else lives there too, something that isn’t a species so much as a practice.
+
+The human inhabitants are few, but not because the town is empty. Because to live here you must accept a kind of apprenticeship: not to a trade, but to conditions.
+
+They do not live at ground level unless they have to. Their rooms are tucked where airflow can be managed—above the warmest ducts, beside the thickest walls, behind double doors that keep the fog from settling in their bedding. They favor metal furniture not because it’s comfortable but because it is legible: wood lies about its soundness in this place. Cloth is kept thin and hung everywhere. Every home has its own small current of moving air—handmade vents, little fans, louvered panels—because stillness is when the town begins to take back what you thought you owned.
+
+Their skin is always faintly pruned. Their hands are marked by the chemistry of touching: a permanent darkening around the nails from iron, pale scars where insulation fibers once got under the skin, a sheen of moisturizer or oil because the wet here is oddly drying—humidity that leaches rather than comforts. Their lungs learn the town’s taste: warm cellulose, hot metal, that static tang that sits on the tongue near the main conduits. They don’t cough much; they learned long ago what is normal, and their “sick” is measured by the pumps, not by a fever.
+
+They move like people who live inside a loud instrument. Steps are placed with attention. Tools are tied off. Speech is economical—not for secrecy but because words have to be aimed here, thrown like a rope across the roar. When they need privacy they don’t whisper; they go to certain corridors where the condenser fans erase consonants, or to the narrow service shafts where the hum makes your own voice sound like someone else’s.
+
+Their names for things are practical and affectionate in the way of long maintenance: *the low stairs* (even though there are five sets), *the breathing wall* (a façade that sweats hardest when the central station loads), *the iron garden* (a yard of stacked rails completely furred with moss). They don’t say “mold,” they say “green heat.” They don’t say “condensation,” they say “falling,” as if water is a mood the town gets into.
+
+Work is their religion, but not in the heroic sense. It is not about fixing the town; it is about keeping the town’s agreements.
+
+Someone always knows the pump rhythms the way a baker knows ovens. Not just on/off, not just output, but the tiny deviations: a thump arriving a fraction late, a whine with a new overtone, a pipe knock that has shifted from a dry tap to a wet one. Those changes are warnings and forecasts. With no birds, no insects, no animal timekeepers, the machinery becomes the settlement’s shared nervous system. Children—rare, and usually brought in for a season rather than raised here—learn early to sleep through noise but wake to *difference*. Adults can tell you which cycle you’re hearing from three alleys away, and what that means for the water level at the quay by dusk.
+
+They are also gardeners, but their gardening is mostly subtraction. They cut vines away from control boxes. They peel moss back from gasket seams. They thin epiphytes off pipes that must shed heat. They don’t try to “clear” the town; they prune it like a single, sprawling organism. Leave too much green on a warm line and it insulates, it raises temperatures, it changes condensation elsewhere, it invites rust, it changes the sound, it moves the wet to a place you can’t afford to have wet. Their horticulture is acoustical and hydraulic: trimming for airflow, for resonance, for drip paths.
+
+They keep collections that would look like superstition until you notice how well they work. Bowls of salt under beds and near electrical cabinets—not for omens, but because salt tells you when the air has changed. Strings of scrap metal hung in alleys like wind chimes—not for decoration, but because their sound shifts when humidity crosses certain thresholds. Chalk marks on bricks that mean nothing to outsiders but map the town’s moods: *this wall weeps after a heavy pump load,* *this corner grows black mold if the fans stall,* *this ladder becomes slick at noon even in clear weather*.
+
+And among them, almost inevitably, there is a subset who do not treat the town as a workplace at all, but as a living thing they are inside.
+
+Call them listeners, or keepers, or simply the ones who never leave the basin rim. They’re the people who can stand in a square full of roar and point to a specific pipe and say, without touching it, “that one is cooling wrong.” The ones who seem to know where condensation will bead before it does, who walk as if following an invisible topography. Some of that is skill; some of it is long exposure to patterns so consistent they begin to feel like intention.
+
+Because the most unsettling resident of the basin is the basin itself—not as a spirit in the gothic sense, not as a single mind, but as an emergent temperament made from infrastructure and water and time.
+
+Sound has weight here. That means, in practice, that the town’s noise is not only heard; it is felt by everything porous. Moss responds. Biofilms respond. Even the way droplets choose grooves on the weeping stones begins to look less like physics and more like habit, as if the stone has been instructed by repetition. The humans notice, then begin to cooperate, then begin to anticipate, and somewhere in that cycle the town stops being “a place people maintain” and becomes “a system that includes people as one of its maintenance behaviors.”
+
+So what lives there is a layered set of tenants:
+
+- **The slow, surface-bound majority**: mosses, fungi, algae, lichens, and rust-borne microbes—organisms that make their bodies out of damp and mineral and patient heat.
+- **The rooted opportunists**: vines, ferns, and city-tough trees that have evolved (or been selected, season by season) to treat pipes as cliffs and exhaust as sun.
+- **A small human population** that survives by learning the town’s rules until those rules become instinct: they listen, prune, drain, seal, and re-route, living in elevated pockets of managed air and sleeping by the rhythm of pumps.
+- **And the composite inhabitant**: the town-as-process, the basin’s continuous exchange between ground and air, made audible by machinery—an “organism” with no organs, only cycles.
+
+Nothing else can take up residence. Nothing with quick nerves, soft eggs, hungry young. The place doesn’t permit the small darting lives that would normally stitch an ecosystem together. In their absence, the residents you do find become strangely complete: a community of coatings and caretakers, living inside an engine that has learned to wear green, keeping time by thump and hiss, in a humid room the earth has been breathing into for centuries.

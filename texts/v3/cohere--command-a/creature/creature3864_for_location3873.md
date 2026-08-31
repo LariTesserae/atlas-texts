@@ -1,0 +1,23 @@
+In the Weeping Apparatus, where Lych-Creek sprawls like a wounded leviathan, the beings that dwell here are as enigmatic and resilient as the landscape itself. They are the **Hollows**, a term whispered with equal parts reverence and caution by those who encounter them. The Hollows are neither fully human nor entirely alien, but something in between—a species shaped by the city’s paradoxes, their bodies and minds evolved to endure the slow, inevitable decay of their home.  
+
+### **The Hollows**  
+**Appearance**  
+The Hollows bear the marks of their environment in every aspect of their being. Their skin is a patchwork of pale, translucent membranes and tough, keratinous plates, resembling the interplay of fungi and metal in the city. Veins of bioluminescent fluid run just beneath the surface, casting a faint, pulsing glow that shifts in color with their mood or the fungus’s rhythm. Their eyes are large and multifaceted, adapted to the dim, shifting light, with irises that shimmer like oil on water. Some have vestigial gills along their necks, a relic of ancestors who spent more time submerged than above the brine. Their limbs are elongated and jointed in ways that defy human anatomy, allowing them to move with equal ease through water, along walls, or across the labyrinthine catwalks.  
+
+**Behavior & Culture**  
+The Hollows are a communal species, their lives intricately tied to the fungi and the cycles of the brine tide. They live in clusters called **Nests**, which are less like homes and more like living extensions of the city itself. Nests are built into the hollows of decommissioned factory towers or the roots of submerged pipelines, their walls lined with fungal colonies that provide light, warmth, and a faint, hallucinogenic mist the Hollows inhale to communicate. This mist carries memories, emotions, and information, creating a shared consciousness among the Nest’s inhabitants.  
+
+Their culture is built on cycles and rituals tied to the fungus’s growth and the tides. They worship the **Brine Mother**, a semi-mythical entity said to reside in the deepest, submerged chambers of the city, where the fungi are oldest and brightest. Offerings of rusted metal, purified water, or their own bioluminescent fluid are left at the edges of the sea, a plea for balance and mercy.  
+
+**Role in the Ecosystem**  
+The Hollows are both caretakers and parasites of their environment. They tend to the fungi, pruning them, spreading their spores, and even merging their own luminescent fluid with the colonies to enhance their glow. In return, the fungi provide sustenance—a thick, nutritious sap the Hollows extract with needle-like appendages. They also filter the brackish water, their bodies absorbing toxins and expelling cleaner liquid, a process that sustains both the fauna and the fungi.  
+
+However, their survival comes at a cost. As the city sinks, the Hollows mine its ruins for metal and stone, weakening the already fragile structures. Their nests, though beautiful, are heavy, and their weight accelerates the collapse of the towers they inhabit. They are both preserving and destroying their home, a duality they seem to accept as inevitable.  
+
+**The Silent Ones**  
+Not all Hollows are alike. Among them are the **Silent Ones**, individuals who have forsaken the nests and the fungi’s mist. These beings are quieter, their glow dimmer, their eyes clouded with a distant melancholy. They roam the submerged corridors, their limbs adapted for deeper waters, their bodies covered in a thick layer of biofilm that protects them from the brine. The Silent Ones are scavengers, collectors of forgotten artifacts and memories, though their purpose is unknown. Some say they are the city’s conscience, others its harbingers of collapse.  
+
+**The Feel of the Hollows**  
+To encounter a Hollow is to witness a creature perpetually caught between existence and dissolution. Their movements are fluid, almost dance-like, as though they are trying to outpace the sinking of their world. Their voices, when they speak, are a series of clicks, hums, and whispers that mimic the sounds of the city—the hiss of steam, the lap of water, the hum of machinery. They are neither hopeful nor despairing, but something in between: resigned, yet fiercely alive.  
+
+In the Weeping Apparatus, the Hollows are the embodiment of Lych-Creek’s paradox—a species born of decay, thriving in a world that is both dying and impossibly alive. They are the tears of the city made flesh, their glow a defiant reminder that even in collapse, there is beauty, and in beauty, there is purpose.

@@ -1,0 +1,47 @@
+**The Kethi**
+
+They call themselves this word that sounds, in their whisper-tongue, like ice settling—a soft click followed by breath. The Kethi. It means, approximately, *those who remain*.
+
+---
+
+**Grandmother Ossul** has not moved from her stall in eleven years. This is not remarkable among her people, but she has taken it further than most—the moss has grown up her legs to mid-thigh, and she has let it. Her circulation still functions; the moss is warm enough, alive enough, and she claims she can feel through it now, sense vibrations in the market's body through the network of its roots. She sells thread. Her fingers never stop moving, spinning sinew against her palm, and her customers reach through the moss to take it from her. She speaks to no one except in transactions, and her transactions are always fair. The other Kethi believe she is becoming something holy, or something else, or both. Her great-grandchildren bring her food and collect her waste in clay pots and do not ask her questions because she has made clear she has no answers, only thread, endless thread, finer than anyone else can make.
+
+---
+
+**The Twins Evet and Eved** are perhaps seven years old—age is difficult here, where children grow slowly in the cold and the pale. They share a body-width of space between their mother's stall and the ice wall, and they have become naturalists of the small. They know every moth variant (they count seventeen, though adults recognize only one species). They have named the rippling things in the moss-mats: *tooth-worm* and *slow-father* and *the one who watches*. They keep detailed records in a language of pressed lichen and knotted thread that no one else can read. Their mother tolerates this because they also work—passing goods overhead, running errands through the squeeze-paths that only children's bodies can navigate. But their hearts are scientific. They are mapping an ecosystem no one else has thought to study, and their maps are becoming strange, are starting to suggest that the moss-mat creatures respond to sounds the Kethi cannot hear, that the moths migrate in patterns matching the glacier's deep groaning, that something coordinates.
+
+---
+
+**Surel** is dying, and everyone knows it. He has the cough that comes from breathing ice-mist for six decades, the cough that turns lungs to wet stone. He has perhaps a season left. He was a trader of preserved meats, and his stall still holds them, but he no longer sells—he gives, pressing packets of fat-wrapped flesh into the hands of anyone who passes near, murmuring *take, take, I cannot carry it*. He is trying to empty himself before he empties. The other Kethi accept his gifts with the grave politeness of people who understand. His stall-neighbors have begun weaving his death-shroud collectively, each contributing a hand's-width of moss-felt, so that when he goes he will be wrapped in the market itself. He will be pressed into the floor with the others, and in time the ice will take him deeper, and perhaps in a thousand years he will emerge from the glacier's foot as a perfect preserved thing, and whoever finds him will not understand what he was but will know he was loved.
+
+---
+
+**The Listener** has no other name anymore. She sits at the market's exact center—or what the Kethi have agreed is the center, though the geometry is difficult—and she does not trade. She has no stall. She has only a smooth depression in the ice floor, worn by generations of Listeners before her, and she presses her ear to it for hours at a time. She is hearing the glacier. She is hearing the deep places. The Kethi bring her food without being asked and take nothing in return, because what she provides cannot be traded: warning. Three times in living memory, she or her predecessors have stood up suddenly and whispered *move*, and the Kethi have pressed away from a section of wall moments before it calved inward. No one knows how this works. No one asks. The Listener herself does not understand—she only hears what she hears, pressure and groan and the vast slow voice of ice that has been ice for longer than her people have been people. She is seventeen. She has been the Listener for two years, chosen by the previous Listener with a touch on the shoulder and no explanation. She will train no one. When the time comes, she will know, and she will touch a shoulder, and she will finally be allowed to sleep.
+
+---
+
+**Old Merchant Tev** sells ice-cores, and he is a fraud, and everyone knows it, and no one cares. The ice-cores are supposed to come from the glacier's deep heart, pulled up through shafts that no longer exist by methods no one remembers. Tev's ice-cores come from the walls of the market itself, carefully extracted when no one is watching, polished to suggest great depth. They are sold as medicine, as oracle, as sacred objects. They work. That is the thing—they *work*. People swallow slivers of Tev's false ice-cores and their coughs ease. They press the cores to their foreheads and receive visions, or what they call visions, moments of clarity that might just be the brain's response to cold but might be something else. Tev knows he is a fraud, and he knows his fraud functions, and this keeps him awake during the long dim hours when the market quiets. Is it the ice itself that heals? Is it the belief? Is there something in this place, this specific place, that makes all ice holy? He will never know. He will die in his stall and his children will continue the fraud and perhaps in another ten generations someone will realize that the distinction between true and false ice-cores never mattered at all.
+
+---
+
+**The child called Mur** appeared three markets ago—they count time in markets, the rhythmic gathering-and-dispersing that happens on a schedule no outsider has ever identified. Mur came through the crack, as you did, but Mur was alone. Mur was perhaps four. Mur said nothing and had nothing and stood in the gap between stalls shivering until a woman named Kellis pulled the child into her space and wrapped her in moss-felt and asked no questions. Mur still says nothing. Mur is perhaps seven now, and she works—she passes goods, she fetches water, she does what children do—but she has never spoken, and her eyes, when they catch yours, hold something the other Kethi's eyes do not. She remembers outside. She remembers sun, maybe, or wind, or the color of living wood. She has not forgotten, though she is forgetting, though each market dims the memories further. The Kethi do not pressure her to speak. They assume she will, eventually, or she won't, and either way she is Kethi now, and that is enough.
+
+---
+
+**They move together.** This is the thing you notice after hours in the market, the thing that separates the Kethi from any crowd you've known: they move *together*. When one person shifts, the neighbors shift to accommodate, a ripple passing through the pressed bodies like wind through grass. When goods pass overhead, dozens of hands participate, each one knowing exactly when to receive and release. When someone needs to traverse the market—for there are no paths, but there is traversal—bodies part and reform in a coordinated flow that suggests either telepathy or generations of practice so deep it has become instinct. They are a single organism, the Kethi, a colonial creature that happens to be made of people. They do not experience this as a loss of self. They experience it as the only way to survive in a space where one panicked movement could bring the ice down on everyone.
+
+---
+
+**And in the deepest moss-mats**, in the places where the green has grown so thick it forms a false floor above the ice, something lives that is not moth, not worm, not any creature the Twins have named. The Kethi know it is there. They do not speak of it. They leave offerings at the moss-mat's edge—scraps of meat, bone tokens, small carved figures—and in the morning the offerings are gone. They believe it is old, older than the market, that perhaps the market grew around it, that the first Kethi found it here and made an agreement that has never been renegotiated because it has never needed to be. It does not harm them. They do not seek it. This is the relationship, and it functions, and the Kethi do not ask questions about functioning things.
+
+---
+
+If you stay, you will become one of them. Your voice will soften. Your eyes will widen. The space between your body and your neighbors' bodies will begin to feel less like intrusion and more like warmth, like the only warmth there is. You will learn to pass things without looking, to shift without being asked, to hear the glacier's moans and know in your bones whether they are dangerous.
+
+If you leave, you will take the bone needle and the memory, and both will fade—the needle lost or given away, the memory gentled into dream. But some nights, in the years that follow, you will wake with the taste of mineral water on your tongue and the phantom pressure of bodies all around you, and you will not know if you are lonely for a place or a people or something stranger still, a way of being human that requires no space between selves, no silence between breaths.
+
+The Kethi do not miss you. The Kethi do not miss anyone. They are already complete, and there is nothing outside them that matters.
+
+But if you came back, there would be space.
+
+There is always, somehow, space.

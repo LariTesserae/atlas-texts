@@ -1,0 +1,7 @@
+Nothing that lives there began there. That is the first fact of the installed sea, and it changes everything else.
+
+The water was admitted through meters, and the life followed through manifests, sample jars, larval drift, seeding racks, quarantine tanks, and the accidental rinsings of pipes. Some residents were chosen deliberately. Some were tolerated because they were useful. Some arrived as stowaways in the last unfiltered bucket, on a diver’s boot, in a crack in a transport crate, in the damp heart of a pump that had not yet been fully cleaned. There are no aboriginal species here. Every lineage is immigrant, contract organism, escapee, or permitted squatter. Even so, the place is no longer merely a structure flooded. It is becoming inhabited.
+
+The first and most numerous inhabitants are the films.
+
+They live on everything. Every rivet, weld bead, polymer seam, ceramic plate, and bolt head acquires a skin of microbes long before larger organisms arrive. In the beginning these films are almost invisible: a slick, a faint sheen, a change in the way light slides across steel. Then they thicken. They become brown where iron-loving bacteria feed on the slow weeping of new metal. They become green where light wells touch the floor. They become black in the dead spaces under loose scale, in the low-oxygen pockets beneath clumps of molted shells, in the corners where current forgets to reach. They are the first citizens and the last cleaners, the ones that turn structure into surface and surface into food. They

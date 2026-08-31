@@ -1,0 +1,23 @@
+The Obsidian Chamber breathes with a life both ancient and alien, and it is the **Kyn** who are the lungs of this monstrous organism. They are the city, the architects and the inhabitants, woven into the very fabric of the chamber, as inextricable from it as the roots of the fungal forests.
+
+They are not a single species, not in the way that humanity understands it. Instead, they are a collective consciousness, a hive whose individual members manifest in a bewildering array of forms, constantly shifting and evolving. Some are insectile, mirroring the chitinous darkness of the crawling hordes, with limbs like obsidian blades and mandibles that click in a language of hunger and creation. Others are more akin to the fungal blooms, fleshy and luminous, their forms flowing and malleable, capable of shaping the very structures of the city. Still others have grown roots, or so it appears, and have become as trees.
+
+The Kyn lack fixed forms, choosing to embody the resources of the world, and becoming whatever is useful and necessary. The Kyn are always in transit, a continuous state of transformation. One might encounter limbs, but not bodies, an eye on the end of a vine, or a single ear, an ear carved from living fungus. Forms are adopted and abandoned as quickly as they are useful.
+
+The dominant form seems to be the insects. The insects can traverse the narrow veins and highways of the cracks in the obsidian ground, which are the main roadways, the means of transport between distant parts of the city.
+
+The Kyn can also be found in structures larger than their bodies. To the Kyn, individual structures are not separate buildings, but part of a larger, living whole. They build and rebuild, constantly reshaping the city, guided by an intuition far beyond human comprehension. They sculpt the fungi into towering archways, the vines into intricate tunnels, and the trees into shimmering screens. It is not building, but biological modification, the training of the natural forces of the chamber into functional beauty. The bone-like trees, for example, might be grown to interlock and form a gateway.
+
+Their technology is not the crude tools of bone and chitin, though those are indeed used. Rather, their technology is the manipulation of the living world itself. They coax the fungi to grow in specific patterns, they cultivate the luminescent fruit for illumination, and they guide the vines to form intricate networks for communication, acting as nerves for an organism far larger than any single Kyn.
+
+The Kyn are attuned to the rhythms of the chamber. They listen to the drip of water, the rustling of leaves, the roars of the unseen beasts, reading them as a scholar reads text. They are not merely aware of the unseen energies that pulse through the air, but they are an integral part of them. They dance in the very bloodstream of the Obsidian Chamber.
+
+The Kyn subsist on the fruit and fungi of their city; they are as much a part of the ecosystem as the insects. The Kyn harvest the fruit, but they also tend it, breeding it and shaping it, growing it as humans might grow corn or tomatoes. They also have an instinctive understanding of the fauna and the movement of creatures they cannot see, and live in constant, low-level war with the most dangerous of these creatures.
+
+How can such beings live here? It seems they are almost like symbiotes, beings attuned to the world, and shaped by it. They would seem to be incomplete without the Obsidian Chamber, and the Chamber would seem incomplete without them.
+
+The Kyn have no concept of individual death. Life and death are meaningless here, for all is a continuous cycle of change and transformation. When a portion of the Kyn dies, they become other things. Their flesh might nourish the vegetation, or the chitinous husks of the insects might be incorporated into the very architecture of the city.
+
+They are driven by an instinct beyond understanding, a need to shape, to nurture, and to *become* the world around them. They are not conquerors or destroyers, not builders in our sense, but something much stranger: the living embodiment of the Obsidian Chamber’s will. They are not cruel, not kind, just *necessary*. Their sense of purpose is as relentless and unavoidable as the echoing silence of the chamber itself.
+
+They exist, a symphony of organic machinery, a city sculpted from the very bones of the world around them, a testament to the fact that even in the darkest void, life finds a way to flourish, and to reshape itself into something beautiful, something terrible, and something wholly, utterly alien. They are an unsettling reminder that the universe, or this corner of it at least, is not necessarily built for human understanding.

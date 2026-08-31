@@ -1,0 +1,25 @@
+What lives here are the **Resonants**.
+
+They are not a species in any singular sense. They are a process made flesh and crystal and sound. They are the basin’s nervous system, its immune response, its slow, deep thought.
+
+You will not see one whole, not at first. You will see its parts moving separately through the roaring twilight, and you will mistake them for independent fauna. A shaggy grazer, its head too large for its body, pauses in its cropping of luminous moss. Its eyes are not eyes, but dark, polished lenses of obsidian, identical to the material of the monoliths. As a steam-vent blasts a kilometer away, the grazer’s entire body stiffens. The sound wave hits it, and its hide ripples—not in fear, but in precise, harmonic resonance. It is listening, not with ears, but with every cell.
+
+A cluster of the fleshy, towering fungi nearby peels open its caps in unison, not to release spores, but to capture the same blast of sound. The stalk-like stems vibrate, translating the roar into a complex set of frequencies that travel down through their root systems, into the sodden, networked ground.
+
+This is the Resonant: a distributed organism. Its “body” is the entire basin, but its consciousness—its active agency—manifests in mobile, temporary assemblages. The grazer, the fungi, the scuttling armored invertebrates, the very veins of luminous moss between them; for a purpose, they will synchronize. Their resonant frequencies will align. The hum of the nearest monolith will shift in pitch, pulling them together.
+
+Then, from the matted undergrowth, liquid shadows will coalesce. It will look like the vegetation itself is rising up—moss, fern, vine, fungus, and the mineral-crusted hides of creatures all flowing into a single, towering form. It will have a shape only briefly: a shifting column of biotic matter, shot through with pulsing veins of cold, black light—the same light that sometimes leaks from the monoliths’ cracks. At its core will be a complex, floating knot of crystalline geometry, spinning silently, conducting the symphony of the basin’s rage.
+
+They do not eat. They *mediate*. Their function is to maintain the basin’s dynamic equilibrium. They are the gardeners of this violent garden.
+
+If a geothermal vent threatens to over-pressurize and tear itself apart in a catastrophic explosion that would sterilize a square mile, a Resonant will form at its lip. The assemblage will direct the vent’s fury, using its own resonant frequency to subtly fracture the underlying rock in a controlled manner, bleeding the pressure into a hundred smaller, safer fumaroles. They will stand in the blistering steam, their composite bodies sintering and reforming in the heat, until the danger passes.
+
+If the relentless growth of the bioluminescent flora begins to choke a vital seismic stress point, a Resonant will manifest as a silent, moving circle of pure consumption. The creatures within it will devour the overgrowth with terrifying efficiency, not for nourishment, but to clear a pathway for the earth’s breath. They are pruning shears made of life.
+
+And they interact with the monoliths—the “built.” A Resonant is drawn to them like iron to a lodestone. An assemblage will often form around an intact monolith, merging with it for a time. The creatures will become still, their obsidian eyes glowing in unison with the monolith’s inner light. In these moments, they are not just listening to the basin; they are listening *through* the monolith. To what, or where, is unknowable. Perhaps they are downloading instructions from the long-gone architects. Perhaps they are sending reports on the wound in the world, this place that is still healing, or still opening.
+
+They are not hostile, unless you threaten the balance. Disturb a critical vent. Attempt to damage a monolith. Introduce an outside life-form that might destabilize the frantic ecology. Then, the soundscape itself will turn against you. The roaring vents will seem to coordinate their blasts, driving you into a panicked run. The ground will soften and quake beneath your feet. And from every shadow, the components of a Resonant will begin to gather—grazer, fungus, insect, vine—their alien attention fixed upon you, a dissonant note in their perfect, roaring harmony. They will not kill with tooth or claw. They will guide a steam-blast into your path. They will liquefy the ground under your shelter. They will let the basin itself erase you, and then they will return to their endless, vigilant listening.
+
+To live here is to be part of their data-set. The fauna that grazes and breeds and dies? It is biomass they can requisition. The pulsating, steaming land? It is the instrument they play. They are the players and the music, both.
+
+They have no language but resonance. No goal but stability through perpetual, managed violence. No face, but the shifting, composite visage of the basin itself, looking back at you from the dark, lit only by its own faint, living glow.

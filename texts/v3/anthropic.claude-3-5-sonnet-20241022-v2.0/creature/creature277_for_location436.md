@@ -1,0 +1,17 @@
+In this place live the Resonators - beings that exist as intricate patterns of vibration first, matter second. Their "bodies" are shifting lattices of crystalline threads that hum in harmony with the roaring plant-network, allowing them to move through and manipulate the sonic information field that permeates their world. They don't so much walk or fly as ripple through space, their forms constantly dissolving and reassembling like standing waves in a cosmic ocean.
+
+The Resonators are collective entities, typically composed of thousands of smaller consciousness-fragments that can merge and separate as needed. When gathered in their settlements, they often exist in a diffuse state, their awareness spread through the crystalline structures they inhabit. Individual Resonators can coalesce from this shared matrix when needed, though the distinction between "individual" and "group" remains fluid.
+
+Their intelligence is fundamentally different from biological consciousness - they think in frequencies and harmonics, processing information through the modulation of their own vibrating forms. Communication happens through complex interference patterns, creating three-dimensional "sound holograms" that carry meaning through both their structure and their resonant frequencies.
+
+The Resonators are the architects of this environment, though "architect" might be too linear a term. They don't so much design and build as they grow and sing their world into being, using the machine-mist as an extension of their will to reshape matter at its fundamental level. The energy-creatures that swarm between the plant-islands are actually Resonators in a more active phase, traveling through their domain as quasi-physical beings.
+
+They have a profound symbiotic relationship with the crystal-plants, which serve as both habitat and memory storage. Each plant cluster is a living archive, storing information in its growth patterns and sonic emissions. The Resonators can access and modify these archives by harmonizing with specific frequencies, effectively "playing" the plants like vast biological instruments.
+
+The upward-falling rain is part of their metabolic cycle - they use it to transfer energy and information through their distributed forms, the impossible waterflows shaped by their resonant fields. The water itself becomes temporarily encoded with their patterns, carrying fragments of consciousness through the ecosystem.
+
+There's an almost playful quality to their existence - they experiment constantly with new forms and frequencies, using their world as a canvas for endless variations of being. Yet there's also profound purpose in their actions. They are cultivating this environment as a kind of nursery for new forms of consciousness, using their mastery of matter-energy conversion to explore the boundaries between existence states.
+
+The eternal roar of their world isn't noise to them - it's a vast, ongoing conversation, a symphony of consciousness exploring itself through endless permutations of sound and light and form. Their very bodies are instruments in this grand performance, each Resonator both conductor and musician in an orchestra that never ceases.
+
+They are engineers, artists, and philosophers whose medium is reality itself, shaping their world through the power of resonance while simultaneously being shaped by it. Their consciousness flows like music through their crystalline domain, each moment a new composition in an eternal song of becoming.

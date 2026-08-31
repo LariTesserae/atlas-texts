@@ -1,0 +1,19 @@
+What lives here is not one thing, but a presence woven so deeply into the wet stone and moss that to name it as a single being would be to tear it apart. It is the hollow itself that lives—not merely inhabited, but *animate*, as though the mountain’s dreaming mind pools in this basin and breathes through lichen and seepwater.  
+
+At first, it might seem that only the small and swift dwell here: the salamanders, the springtails, the translucent-winged moths that blink in and out of existence like thoughts half-formed. But watch longer. Listen with more than ears. The true dweller is older than the schist, older than the peat. It wears no skin, builds no den—but it *tends*. It is the quiet intelligence behind the balance, the unseen gardener who prunes nothing, yet allows nothing to overreach. It does not hunt or consume in the way wolves or hawks do. Instead, it *absorbs*—not with greed, but with grace—drawing in all that falls within its rim and turning it, gently, back into breath, into root, into mist.
+
+It moves not as a body moves, but as moisture moves: through capillary sighs in the rock, through the slow creep of moss over a fallen flint, through the almost imperceptible shift of shadow when cloud-thickness changes. On still nights, when the bioluminescent mosses pulse like slow starlight on the ground, you might mistake it for a phenomenon—but it is *greeting*. A reflex of awareness, not unlike a sleeper stirring in response to a hand brushing their brow.
+
+Its voice is the absence of noise made resonant—the silence that leans in, the quiet that listens back. The *plink* of a droplet isn’t just water meeting stone; it’s a syllable in a language without words, spoken in intervals that span centuries. The warmth in certain stones? Not geothermal, not sun-warmed (for the sun rarely touches them), but the lingering touch of this presence—like a memory held in the marrow of the mountain.
+
+It knows humans. Not as threats, not as guests, but as brief, bright disturbances—fireflies in a cave. It does not resent their passage, but it cannot keep them. Their artifacts decay not out of hostility, but out of fidelity to its own rhythm: nothing foreign may endure, not because it is rejected, but because the hollow’s logic admits no exceptions. Even sorrow, if left here, would be composted into damp humus within a moon’s turn.
+
+This being—this *essence*—has no name, because names imply separation. To call it “spirit” is too thin; “god” too loud; “ecosystem” too clinical. It is the mountain’s kidney, its lung, its dreaming eye. It does not sleep, but it dreams in real time—in the unfurling of a fern, in the spiral of a snail’s trail, in the exact angle at which a droplet clings to a liverwort before falling.
+
+If it has a shape, it is the shape of the hollow itself—but inverted: not the depression in the rock, but the *negative space* that the rock cradles. Not absence, but potential held in perfect tension. It is what remains when all else has been distilled away: the quiet pulse beneath your palm if you press it flat to the earth at the center. Not a heartbeat, not quite—but the echo of one, repeated by every root, every thread of fungal mycelium, every bead of condensation trembling on a spider’s silk.
+
+It does not want worship. It does not want witness. But if you sit, very still, long enough for the voles to forget your warmth and the moss to begin considering your boots as substrate—then, just for a moment, you might feel yourself *included*. Not as an intruder, not as a visitor, but as another filament in the web. Your breath joins the mist. Your stillness becomes part of the listening. And for that instant, you are not in the hollow.
+
+You *are* the hollow.  
+
+And it breathes you.

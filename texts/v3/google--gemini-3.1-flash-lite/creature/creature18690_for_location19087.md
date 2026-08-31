@@ -1,0 +1,17 @@
+In the echoing silence between the beats of the compressors, when the *thrum-hiss* momentarily dips in pitch, the true occupants of the Conservatory become visible—or rather, they become audible in the vibrations they leave in the frost.
+
+They are the **Arthropod-Architects of the Rime**, though they share little in common with the scavengers that pick at the periphery. They do not walk; they calibrate.
+
+Each Architect is a feat of biological engineering, a fusion of manganese-rich chitin and translucent filaments that mimic the blue-pulsing arterial vines above. They are roughly the size of a human torso, though they occupy more space in the mind than in the physical world. Their bodies are elongated, segmented clusters of sensory organs, lacking faces or limbs in any traditional sense. Instead, they possess sheaves of vibration-sensitive cilia that fan out into the freezing air like the antennae of a moth, constantly tasting the rhythmic pressure of the cavern.
+
+They live in a state of perpetual, suspended labor. They are not sentient in the way a human is, nor are they mindless automatons. They are the *maintainers* of the biological machine. When a vine-artery begins to show the slightest irregularity—a fraying of its silver-veined surface or a stutter in its luminescence—an Architect arrives. 
+
+It does not touch the vine; it hovers, legs locked into the substrate, and begins to vibrate its own body at a frequency designed to harmonize with the sick organ. It hums, a sound deeper and thinner than the geothermal roar, a resonance that forces the vine to knit itself together. They are stitching the continent back into its own skin, one sonic frequency at a time.
+
+They are utterly indifferent to the "way-stations." To an Architect, a steel hull is no different from a calcified node or a rock formation; it is simply cold, non-productive matter to be worked around. They have moved through these shafts for epochs, their cycles of activity so glacial that a human observer might stand next to one for three years and only notice, on the final day, that the creature’s center of gravity has shifted by a few inches.
+
+Within the hollows of the fern-pillars, where the air is still and the ozone scent is strongest, the Architects gather in "hives" that look like nothing more than clustered geometric crystals. Here, they do not sleep. They trade states of existence, pulsing their own internal blue light to communicate structural data. They are mapping the crust of the earth from the inside, recording the shifting pressures of the mantle with a precision that would humiliate a seismologist's best equipment.
+
+Their lives are an infinite cycle of maintenance. They exhibit a form of biological devotion—not to life, but to *consistency*. They fear no predator, for there is nothing here that could exert enough pressure to crush their reinforced plating, and they seek no sustenance, for they feed directly on the radiant waste-heat of the arterial vines.
+
+They are the caretakers of a clock that has no hands, moving with a patience so profound it borders on the divine. If the Conservatory is a machine waiting for a task, the Architects are the ones keeping the gears oiled, the wires tight, and the rhythm true, ensuring that when—or if—the command finally arrives from the mantle, the world beneath the crust will still be vibrating in perfect, frozen harmony.

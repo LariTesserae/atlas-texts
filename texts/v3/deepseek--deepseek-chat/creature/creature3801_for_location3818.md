@@ -1,0 +1,15 @@
+**The Inhabitants of the Chamber**  
+
+They are not human, though they move like echoes of human thought—shadows that flicker at the edges of vision, their forms shifting as if woven from the cavern’s own breath. Tall and slender, their bodies are elongated, their limbs too many-jointed, folding in ways that suggest a different kind of anatomy. Their skin is not skin at all, but something closer to the mineral sheen of the walls—dappled with the same muted ochres and grays, their surfaces catching the faint blue glow of the fungal growths. When they stand still, they vanish, blending seamlessly into the stone.  
+
+They have no eyes, or at least none that can be seen. Their faces are smooth, featureless planes, save for a slight depression where a mouth might be—a slit that does not move when they speak, if they speak at all. Communication is something else here: a hum in the air, a vibration in the rock, a shift in the rhythm of the dripping water. They do not walk so much as drift, their feet barely disturbing the slick stones, their passage marked only by the faintest ripple in the damp air.  
+
+They are builders, though their constructions are not for themselves. The stacked-stone dwellings, the mud-sealed roofs—these are not homes, not in any sense that a surface-dweller would recognize. They are markers, perhaps. Or offerings. Or traps. The inhabitants do not sleep within them, do not eat or gather there. Instead, they move through the chamber in slow, deliberate patterns, their hands brushing the walls as if listening to something deep within the rock.  
+
+Sometimes, they gather around the pools, their forms reflected in the black water—but the reflections do not match. The water shows something else: shapes too fluid, too many-limbed, too vast to belong to the slender figures standing at the edge. The reflections ripple, stretch, and then still, as if waiting.  
+
+They tend to the glowing growths, their long fingers tracing the luminescent veins with something like reverence. The light pulses faintly under their touch, as if responding. They harvest it, though what they do with it is unclear. It does not feed them. It does not warm them. Perhaps it is a kind of language, or a ritual, or a slow, patient cultivation of something not yet born.  
+
+They do not seem to notice intruders. Or if they do, they give no sign. They move past unseen observers as one might move past a stalagmite—an indifferent part of the landscape. But sometimes, when the chamber is very still, one of them will pause. Turn its smooth face toward the darkness. And then the hum in the air changes, just slightly, as if the cavern itself has taken a breath.  
+
+They are old. Older than the chamber, perhaps. Or perhaps they are the chamber—its caretakers, its architects, its silent, patient will given form. They do not age. They do not die. They simply are, as the water drips and the stone hums and the light flickers on, endlessly, in the dark.

@@ -1,0 +1,27 @@
+What lives in Veskal is not a single species, nor even a people in any conventional sense—but a **collective of becoming**, shaped by the mountain’s breath and the city’s hum. They are the **Veskalari**, though they rarely call themselves that aloud, for names here are unstable things, prone to slippage in thin places.
+
+They are **human**, mostly—but stretched. Not in body, not visibly warped (though some have joints that click like tectonic plates settling, or eyes that shimmer faintly with refracted mist-light), but in **temporality**. Their metabolisms have adapted to the city’s dilated alleys and gravity-thinned corners. Some age faster near fault lines; others linger in stasis for weeks without realizing it, waking to find neighbors have aged a season while they blinked. Time is not a river here—it’s a mist, and the Veskalari move through it like birds through cloud: sometimes dense, sometimes scattered, never quite sure if they’re flying or falling.
+
+They wear **layered clothing**, not for warmth—though the 1.1 chill demands wool and oiled linen—but as armor against porosity. Their coats are lined with **damp-silk**, woven from ghost-pine resin and spider-silk spun in geothermal vents, capable of sealing against sudden fog-thresholds where reality frays. Gloves bear copper filaments to ground stray electromagnetic pulses from resonance worms. Hats are low-brimmed, to keep eyes from catching reflections in mirrors that might show yesterday’s street—or tomorrow’s avalanche.
+
+Their **children** are born with a sixth sense: **tremor-sight**. They don’t just hear the mountain’s groans—they *taste* them, as metallic tangs on the tongue, or feel them as pressure behind the eyes. They learn early to read the tremors in the hum of the dampeners, to know when a district will be winched upward before the engineers announce it. They play games in the fog-stalkers’ paths, leaping onto the ungulates’ backs for rides across rooftop moss fields, trusting the creatures’ translucent hides to show them safe routes through unstable zones.
+
+The **elders** do not retire. They become **anchor-scribes**. Seated in observatories built into the oldest towers—structures bolted to bedrock that hasn’t shifted in three centuries—they record the mountain’s changes in ledgers bound in fossilized lichen. Their ink is mixed with mineral sap from fresh fissures, so the pages themselves shift hue with the seasons. They chant seismic lullabies to calm restless plates, their voices harmonized with turbine drones. Some say their bones have begun to petrify, slowly turning to limestone veined with quartz.
+
+Among them walk the **graft-menders**: part engineer, part geomancer, part priest. They descend into the new rifts with spools of bioluminescent vine and copper wire, stitching together ruptured conduits with living lichen that grows into circuitry. They speak in low frequencies, not to be heard, but to *resonate*—to coax the resonance worms into coiling tighter around frayed power lines, to guide meltwater into new channels before it erodes a foundation. Their hands are scarred with thermal burns from handling raw geothermal vents, but the scars glow faintly at night, like the city’s own pulse.
+
+And then there are the **mirror-walkers**—rare, half-mythical. Those who’ve stepped through a reflective surface during a temporal flicker and returned… altered. Their reflections no longer match them. Sometimes their mirror-selves speak first. Sometimes they carry memories of futures that never came to pass. They are treated with reverence and caution, housed in rooms with no glass, fed meals twice—once for the body, once for the echo. They whisper prophecies that sound like weather reports: *“The third spire will sigh at dawn. The fog-stalkers will migrate east. The river will remember it is a river.”*
+
+Yet for all their strangeness, the Veskalari are **pragmatic**. They do not worship the mountain—they *negotiate* with it. Contracts are etched into basalt tablets and left in steam vents as offerings. Debts are paid in dew collected from ghost-pine boughs. Their festivals mark not solstices, but **uplift anniversaries**: the day District Seven rose three meters, the night the Great Crevasse sealed itself with crystalline silt.
+
+They live with **quiet intensity**, their conversations low, their laughter rare but ringing like struck steel. They understand that to build here is to build *with* instability, not against it. A Veskalari artisan might carve a chair from a single slab of shifting shale, knowing it will warp over decades—but the warp will be part of its beauty. A baker uses meltwater that changes mineral content daily, so each loaf is subtly different, each bite a dialogue with the mountain’s current mood.
+
+They are not survivors. Not pioneers. Not refugees. They are **co-authors**—of a city, of a mountain, of a reality that hasn’t finished writing itself.
+
+And when the next uplift comes, when the ground yawns open beneath a quiet street, they will not flee. They will gather at the edge, tools in hand, lamps glowing with lichen-light, and begin the work of grafting the city onto the new shape of the world.
+
+Because Veskal does not sit *on* the mountain.
+
+It **breathes with it**.  
+
+And so do they.

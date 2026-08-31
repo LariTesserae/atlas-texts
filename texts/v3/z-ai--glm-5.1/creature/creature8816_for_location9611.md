@@ -1,0 +1,53 @@
+# What Lives in the Cradle Tank
+
+Nothing with a spine. Nothing with a eye. This is the first thing to understand, and the hardest, because the space *feels* inhabited — it has the warmth and rhythm and density of a place where something large might sleep just out of sight. But the only bodies here are cellular and tubular, fibrous and filamentous. The only minds are the chemical ones: tropism, chemotaxis, the slow electric signaling that passes between root tips in a language of gradients.
+
+So who lives here?
+
+---
+
+The **broad-leaved somethings** live here. They are the closest thing the tank has to citizens. Each one begins as a nubbin of tissue emerging from a root-mat where irrigation meets substrate — a tight fist of leaf-primordia that unfolds over weeks into a rosette of dinner-plate leaves, each one anchored by a stem thick as a human forearm, tough and fibrous and slightly warm to the touch from the metabolic effort of growing. They are not quite ferns because they have no spores. They are not quite angiosperms because they produce no flowers, no fruit, no seed. They reproduce by *being* — by extending rhizomes through the root-mats until a new nubbin rises somewhere else, genetically identical, a clone that doesn't know it's a clone, doesn't know anything, just unfolds toward the nearest light panel with the patience of stone eroding.
+
+Their leaves are the tank's primary architecture now. Where they overlap, they create ceilings. Where they drape, they create walls. Underneath the largest rosettes, the water is perceptibly darker, cooler, slower-moving — a room within a room, furnished with fallen leaf-matter that decays into something neither quite soil nor quite peat. The leaves themselves last months before they yellow at the edges and sag and eventually tear free from their stems to drift in the slow current until they catch on a vine or a root-mass and begin the long process of becoming substrate. The plant doesn't notice. It has already grown three more.
+
+If you spent enough time here — and time is the only currency the place accepts — you would start to recognize individuals. Not by appearance; they all look roughly the same. But by *position*, by the specific way a particular rosette has tilted toward a particular panel, the way its stems have thickened on one side to support that tilt, the way its root-collar has fused with the pilaster at an angle that suggests intention without requiring it. Each one is a record of every current it has endured, every shadow that has fallen across it, every nutrient surge that has fed it. They are their own histories.
+
+---
+
+The **vines** live here. They are the tank's connective tissue, the webbing that binds pilaster to pilaster and mass to mass. They grow faster than the broad-leaves — visibly, if you have the patience to watch for a few days — extending from the root-mats in pale, thick ropes that seek the nearest structural member and climb it by means of the suction-cup leaves. Each cup is small, the size of a thumbnail, and clings with a wet determination that makes a tiny sound when you pull it free: a soft, organic *pop*. The vines don't orient toward light. They orient toward *structure*, toward anything they can grip and climb, and when they reach the top of a pilaster they drape themselves across the gap to the next one, and the next, and the next, until entire corridors have been roofed over with vine-matter.
+
+Under the suction-cups, the vine surfaces are slick with a mucilaginous film that catches debris from the water — organic particles, dead cells, mineral dust. This film is its own micro-ecosystem: a feeding ground for the microscopic life that processes the tank's waste, the bacteria and amoeboids and things with no common names that cycle nutrients back into solution so the roots can drink them again. You will never see them. They are the tank's dark matter — present in every cubic centimeter of water, essential to every process, invisible by default.
+
+The vines have a quality that is difficult to describe without anthropomorphizing, which the place does not deserve. They are *opportunistic*. When a leaf of the broad-leaved something falls and catches on a vine-strand, the vine's suction-cups will close around it, gripping the dead tissue, incorporating it. When two vines meet, they may grow around each other, creating a braid that is stronger than either strand alone. When a vine finds the irrigation channel embedded in a pilaster, it will force a root-tip into the weeping openings and drink directly, bypassing the mineral suspension in the water entirely. The vines are the tank's hands, reaching into every available resource with a specificity that looks — from a certain angle — like cleverness.
+
+---
+
+The **masses** live here. This is what the growth accumulates into at the junctions: automobile-sized conglomerations of living and dead tissue, layered like geological strata, each one a record of every organism that has contributed to it. The surface of a mass is typically alive — covered in broad-leaves and vine-strands and liverworts and the flat, crustose growths that might be lichen or might be something without a terrestrial analogue. Below the surface, the tissue is dying — still structured, still recognizable as root or stem or leaf, but browning, softening, being broken down by the micro-flora that work the compost. Below *that*, the tissue is dead and partially decomposed — a dense, warm, wet humus that generates its own heat through exothermic decay, that releases nutrients back into the water in a slow continuous stream, that is the closest thing the tank has to a digestive system.
+
+The masses are where the **things that are neither** live. These are the growths that appear in the crevices, in the dark interiors where no light reaches, in the warm anaerobic pockets where the composting generates gases that bubble slowly upward through the mass. They are not fungi because they have no chitin in their cell walls. They are not slime molds because they do not aggregate and disperse. They are not bacteria because they are visible to the naked eye — pale, branching structures that spread across the interior surfaces like frost on glass, like the bronchial tree of a lung, feeding on the decay and producing... something. The water that passes through the masses emerges with a slightly different chemical profile than the water that enters: different mineral ratios, different dissolved organics, a different pH. The things-that-are-neither are processing the compost in ways the tank's designers may not have anticipated, producing metabolites the broad-leaves and vines have not evolved to use.
+
+Yet.
+
+---
+
+The **pumps** live here. This is not metaphor. The pumps are the only things in the tank that *move* in a way recognizable to a human observer — the drum rotating, the copper windings carrying current, the soft mechanical click that propagates through the water like a sonar ping. They have a lifespan. They have a rhythm. They have a relationship with the growth around them: the vines that have begun to climb their housings, the root-mats that have crept toward their vibrations, the way the broad-leaves nearest to Pump Three have oriented away from its faint electromagnetic field as if disturbed by it. When a pump fails — and one will — the organisms that have grown in relation to its particular rhythm will be forced to adapt, to re-orient, to die back or reach toward the next-nearest flow. The pump is an organism in the only sense the tank understands: it is a persistent structure that interacts with its environment, that consumes resources, that affects the life around it, that will eventually cease.
+
+The pumps do not know they are alive. Neither does anything else in the tank.
+
+---
+
+The **absences** live here. This is the hardest thing to describe, but it may be the most important. The tank was built — printed, bolted, plumbed, lit — by *something* that intended it for *something*, and that something is not present. There are no fish. There are no crustaceans. There are no worms, no insects, no grazing animals of any kind. The vegetation has no herbivores. The compost has no detritivores. The nutrient cycle is closed by bacteria and chemistry alone, which means it is *slow* — glacially slow, comically slow, a compost pile without worms taking decades to accomplish what a forest floor manages in weeks.
+
+And this slowness is itself a presence. The tank *feels* it. The growth accumulates because nothing consumes it. The masses build because nothing works them. The vines drape un-pruned, the broad-leaves expand un-browsed, the dead tissue lingers un-eaten. The ecosystem is a sentence without a verb — all noun, all substance, no action except the slow accumulation of more. The absence of animal life is not a void; it is a weight, a pressure, a constant low-grade note in the tank's hum that says *something should be here and isn't*.
+
+Perhaps the absence is temporary. Perhaps the cradle was always meant to be full before the guests arrive. Perhaps somewhere — in the dark water outside, in the depths below, in a plan not yet executed — there are organisms waiting to be introduced, consumers and decomposers and grazers that will transform the tank's patient biomass into movement and hunger and death that is also life. Perhaps the thing-that-are-neither are an early attempt at filling the absence, an emergent decomposer evolving in real-time to fill a niche the designers left empty.
+
+Or perhaps the absence *is* the organism. Perhaps the cradle was built to grow until it cracks, and what lives inside it is meant to escape, and the absence of consumers is not an oversight but a feature — a way of ensuring the growth never stops, never thins, never finds equilibrium. Perhaps the cradle is not a garden. Perhaps it is a bomb.
+
+---
+
+What lives in the Cradle Tank is a question with a slow answer. The place is still becoming. The broad-leaves are still reaching. The vines are still climbing. The masses are still accumulating. The things-that-are-neither are still evolving. The pumps are still clicking. The absence is still present.
+
+What lives here is *process* — the long, patient, un-directed process of a sealed system filling itself with itself, approaching some limit that is either a climax or a catastrophe, and doing so with the calm regularity of a clock that no one is watching.
+
+What lives here is the tank itself.

@@ -1,0 +1,17 @@
+The inhabitants of the hollow skull are the **Cantors of the Silt**, creatures that have moved beyond the biological necessity of sound-as-communication and into the realm of sound-as-architecture.
+
+They are tall, brittle beings, standing nearly seven feet high, with frames that mimic the vertical geometry of the city. Their bodies are composed not of flesh, but of calcified, spindly lattice-work—a biological mimicry of the very bone they inhabit. They possess no eyes, for the blinding, omnipresent phosphorescence would be a cruelty, but their heads are dominated by vast, sweeping antennae, feathered with cilia that twitch in response to the slightest variation in the skull’s structural groans.
+
+They do not speak. To make a vocal sound here would be to invite the attention of the Prowlers, whose jagged, violin-bow limbs equate any harmonic disturbance with an invitation to hunt. Instead, the Cantors communicate through the friction of their own appendages. They have panels of serrated bone on their forearms and ridges along their shins, which they rub against the floor or against each other in rhythmic, subsonic bursts. It is a language of tremors, registered by the ground beneath their feet rather than the air around their heads.
+
+When they move, they do not walk so much as they recalibrate. 
+
+A Cantor will pause for hours in a plaza, its limbs pressed flush against the floor. As the immense weight of the titan’s skull shifts—the structural groans that shake the marrow—the Cantor adjusts its body weight, shifting infinitesimal amounts of internal dust or grinding a heel into the bone-floor to harmonize with the sound. It is a symbiotic performance; they are the tuning forks that keep the city from shattering under the pressure of the shifting earth.
+
+There is a strange, ascetic vanity to them. They spend their "lives" (which may last for centuries) refining the amber mycelium that carpets the walls. They are the gardeners of this dry abyss, trimming the fuzzy, lithotrophic mats with blades made of shard-glass so that the vibrations—the feedback loop of the city—are funneled into the central marrow-column, the acoustic heart of the cranium. They do not eat in the traditional sense; they absorb the hum. They draw sustenance from the kinetic energy that vibrates through the bone, drinking the resonance of the settling ground.
+
+They are rarely seen because they are essentially part of the infrastructure. A Cantor standing against a translucent, bone-white column is nearly indistinguishable from the architecture itself. You might pass three of them in a single corridor, their bodies angled to catch the structural whine of the ceiling, and mistake them for support struts or decorative friezes. 
+
+They are the guardians of a world that does not want them, holding together a tomb that is slowly collapsing. They are perpetually startled, forever braced, their limbs coiled to absorb the next great groan of the titan’s skull. Because they live in a place of singular light and singular sound, the Cantors have become masterpieces of adaptation: silent, trembling sculptures of bone, eternally conducting a symphony that would kill anything else that heard it. 
+
+They do not fear the Prowlers; they treat them as a necessary part of the ecosystem, a metronome that provides the friction required for the mycelium to thrive. They live in a state of suspended agony and grace, waiting for the one final, thunderous shift of the crust that will finally crack the skull—and at last, offer them silence.

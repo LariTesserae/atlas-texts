@@ -1,0 +1,15 @@
+In this fluidstruck landscape, teeming with strange life forms blending mineral and organic matter, dwell beings shaped by the same alien forces that sculpt the terrain. They emerge from the waxy earth-plugs and bladders like newborns bursting from amniotic sacs, their bodies still glistening with natal fluids.  
+
+At first they resemble chunky fetuses, pink-gray skin slick and hairless, limbs curled tight against bulbous torsos. But as they uncurl and totter upright on lumpy grounds, it becomes clear these are not human children at all. Their faces are smooth blanks where eyes should be - only vestigial eye sockets formed of wrinkled skin like deflated balloons. Instead of mouths they sport gilled slits flickering along the hinge of jaw, slurping oxygen from the humid air.
+
+As they wander amidst fungi-slick boulders and ropy tunnel-bladders sprouting from earth-papules, their rubbery flesh shifts subtly in hue to blend with surroundings - one moment gray-blue of weathered stone, then streaked red-gold like ore veins in rock. Buds swell on their shoulders and thighs which unfurl into translucent wings veined like fungal membranes. With a sudden whirring hum impossible for any mammal lung or throat, they lift off on jerky wingbeats to spiral above the yurtplace.
+
+There they join other fluid-born fliers already circling - brittle-beaked avians trailing ribbons of slime from serrated tails; membraned arachnids spinning glinting webs between jutting crags; gelatinous opalescent beings pulsing through air neither flying nor falling but somehow suspended.
+
+On ground-level more yurtlings surface slick-bodied from tunnel-mouths puffing out silicone cavern-mists. These are different again - bulbous bellies sloshing full of fetus-curled embryos that bulge against taut abdomens before tearing free in splashes of clear amniotics to squirm away on fat grub legs while mama-yurt watches inscrutable. 
+
+All these progeny seem drawn irresistibly to glowing domes rising between crater lakes - huge glassine hemispheres cupping luminous media within iridescent shells veined like brain matter or placental tissue. The creatures gather round these bioluminous ponds waving flagella arms as if communing past language barriers via some gaseous telepathy buoyant on shed slime-trails.
+
+From dome-centers rise swaying trunks shaped hauntingly like human spinal cords but covered in chromatic chromatophores shifting hypnotically between every color ever seen by such organisms (more perhaps) - ultraviolet magentas visible only to compound insect eyes; infra-red smears sensed by heat-seeking pitorgans; even spectral bands existing outside normal visual spectrum altogether detectable only to authochthonic senses evolved here.
+
+And along those cordlike trunks slowly slide shapes pushing forth headfirst until snagging on vertebrae notches so root-tendrils can writhe down probing for rich chemical loams while leaf-limbs reach skyward drinking emerald light and cyanide gases spilled by volcanoes dotting near horizons under star-pricked skies...

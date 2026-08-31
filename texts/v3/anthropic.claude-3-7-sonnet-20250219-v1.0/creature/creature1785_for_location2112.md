@@ -1,0 +1,23 @@
+# The Crystal Keepers
+
+The Glass Plateau is home to beings who are both its caretakers and its children—the Crystal Keepers. Neither fully solid nor entirely ephemeral, they exist in a state between matter and light, their forms shifting with the plateau's endless refractions.
+
+At first glance, you might mistake them for mere reflections—tall, elongated silhouettes that seem to walk among the crystal formations. But watch longer, and you'll notice how they move with purpose, independent of your own movements or the shifting light. Their bodies are translucent, with an internal structure reminiscent of the plateau itself—geometric planes and angles that catch and scatter light in hypnotic patterns.
+
+The Keepers stand between seven and nine feet tall, though their height seems to fluctuate as they move across the landscape. Their limbs are unnaturally long and jointed in ways that defy human anatomy, allowing them to glide between tight crystal formations with fluid grace. They have no faces as we understand them—instead, a cluster of prismatic surfaces occupies the upper portion of their bodies, constantly refracting light outward in what appears to be their primary form of communication.
+
+They don't speak, but they harmonize with the plateau's song. Each Keeper produces a distinct tonal vibration that interacts with the crystalline chorus around them. Together, they form what might be called a civilization, though not one based on buildings or agriculture. Their society exists within the music they create and the patterns they maintain across the vast crystalline expanse.
+
+The Keepers' lifecycle is intimately tied to the plateau itself. They emerge from the largest crystal formations during rare celestial alignments, when light strikes the plateau at precise angles that occur perhaps once every few decades. Newly formed Keepers begin as small, almost childlike entities of pure light that gradually solidify over years into their more substantial, though still translucent, adult forms.
+
+They sustain themselves through a symbiotic relationship with the plateau. The moisture that perpetually beads across the crystal surface is processed through their prismatic bodies, extracting some essential energy that nourishes them. In return, their movements and vibrational communications stimulate crystal growth in patterns too complex to be random. This is the true source of "the breathing of the earth"—a deliberate cultivation managed by beings who see themselves as both gardeners and guardians.
+
+The Keepers are aware of human visitors but rarely interact directly. The nomadic tribe at the western edge has developed elaborate myths about these beings, calling them "The Luminous Ones" or "Children of Sky-Mirror." In tribal stories, the Keepers are said to collect human dreams reflected in the crystal pools, weaving them into new formations across the plateau. Some tribal elders claim to have communicated with them through meditation focused on particular light patterns, though such communion leaves the human participants temporarily blinded and speaking in musical tones for days afterward.
+
+The Keepers seem to experience time differently than humans. They can remain motionless for weeks, apparently absorbed in the contemplation of a single crystal formation or light pattern. Then suddenly, they'll move with startling speed across vast distances, gathering in complex geometric arrangements to perform what appear to be ceremonial activities during specific light conditions.
+
+Their most sacred ritual occurs during total solar eclipses, rare events at this altitude and latitude. As darkness briefly claims the plateau, the Keepers emit their own luminescence, becoming living constellations that move in slow, deliberate patterns across the darkened crystal landscape. The nomadic tribe considers witnessing this event a once-in-a-lifetime blessing.
+
+The oldest and largest Keeper rarely moves at all. Nearly twenty feet tall, this ancient entity has become partially fused with a massive central crystal spire. The other Keepers regularly bring water to this elder, carefully cultivating the moss-like growths around its base. Tribal myths suggest this being has stood watch since the plateau's formation, and that its consciousness extends throughout the entire crystalline network.
+
+As the plateau itself continues to grow and evolve, so too do the Keepers. They are neither fully sentient in human terms nor mindless natural phenomena—they exist as something in between, consciousness made of light and vibration, tending their glittering domain with patience measured in centuries rather than years.

@@ -1,0 +1,15 @@
+The entities living here are the caretakers of this intricate subterranean world, as much a part of it as the dripping pipes and echoing chambers. They are encrusted, slow-moving beings that seem to have grown from the same wet stone and biopolymer that forms the cistern itself.
+
+Their bodies are segmented, crab-like forms fused with the pipes and scaffolding, as if they had emerged from the walls themselves. A thick, mineralized shell covers their limbs and torso - a natural armor grown from calcium deposits and organic resins. This shell is reminiscent of the polyceramic conduits lining the cistern, sharing the same cool, hard texture. Fractal patterns cover every surface, natural and engineered alike.
+
+Where joints meet or new limbs have sprouted, there's evidence of recent growth: rough, veined surfaces tinged with faint bioluminescent greens and blues. Light pulses softly from within these fissures, revealing glimpses of the complex inner workings - veins carrying glowing fluid, fibrous musculature, and tangles of neural tissue. In the dim, watery light, they seem to flicker with an inner fire.
+
+A cluster of whip-like antennae sprout from where a head should be, each tipped with glowing photoreceptor cells that absorb the weak blue-green light filtering from above. These sensors allow them to navigate the labyrinthine pipes with perfect awareness. Around the base of these antennae, ringed apertures serve as mouths, constantly tasting the humid air and beaded moisture.
+
+Most striking are the forelimbs - complex appendages that seem halfway between a tool and an organic structure. At the tips, an array of delicate manipulators emerge: bundles of translucent filaments sensitive enough to feel individual water droplets, yet strong enough to pry apart mineral deposits. Each filament is also dotted with tiny chemoreceptors for identifying trace minerals or biochemical signals in the water.
+
+These caretakers move with deliberate patience, like ancient, living machines performing a slow dance. They scale walls and traverse pipes, making minute adjustments to the flow of water. With gentle touches from their filament bundles, they clear blockages, redirect streams, and cultivate the glowing fungal veins that provide the only light. Occasionally, one stops to prune a patch of pallid ferns or scrape algae from a pipe joint, each movement economical and precise.
+
+Though seemingly solitary by nature, the caretakers are linked by their shared purpose. When paths cross at junctions in the scaffolding, they communicate through subtle vibrations transmitted through their limbs, acknowledging each other with brief harmonic pulses.
+
+The caretakers are inseparable from the cistern - it is their cradle and their charge, and they are its tireless custodians. In the perpetual damp and gloom, they engage in their quiet, never-ending work, maintaining the delicate balance that keeps this hidden world alive. Their lives are a slow, persistent flow, like the water itself: a cycle without beginning or end.

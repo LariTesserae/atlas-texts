@@ -1,0 +1,13 @@
+In this place, the inhabitants are not creatures in the traditional sense, but living presences that defy simple categorization—entities that exist at the borderlands between consciousness and pure biological process.
+
+There are the Stone Dwellers: ancient, glacially-aware mineral intelligences that perceive time in centuries-long breaths. They are not static, but move with such imperceptible slowness that their motion appears like stillness to human perception. Their awareness is a kind of geological dreaming—memory embedded in crystalline structures, thoughts that flow like extremely slow rivers of mineral consciousness.
+
+Emerging from and between these stones are the Vegetal Networks—sentient root-systems and mycelial intelligences that communicate through complex biochemical and electromagnetic exchanges. These are not individual plants, but a collective organism that thinks in chemical pulses and electromagnetic whispers. They remember everything that has ever grown or died in this pocket ecosystem, their memory stored in intricate web-like connections.
+
+Bioluminescent Mediators drift through the space—translucent, membrane-like entities that seem part plant, part something else entirely. They regulate the ecosystem's internal communications, translating between the stone consciousness and the plant networks. Their bodies are simultaneously communication devices and living sensors, glowing with a soft, pulsing light that maps the system's intricate conversations.
+
+Spore Architects—sessile but dynamic life-forms that grow architectural structures from their own biological matter—continuously shape and reshape the primitive arch-like formations. They are builders and inhabitants simultaneously, their bodies becoming the very structures they create, in a constant state of morphogenesis.
+
+These beings do not compete, but collaborate—a symbiotic intelligence that treats the entire ecosystem as a single, breathing entity. They are not individuals, but nodes in a vast, slow-moving consciousness that spans geological time. Their "life" is less about survival and more about continuous transformation and remembering.
+
+Each of these presences moves and thinks at different scales and speeds: the stones in century-breaths, the plant networks in chemical pulses, the bioluminescent mediators in electromagnetic whispers, the spore architects in gradual morphological shifts. Together, they compose a complex, sentient landscape that is simultaneously an environment and a living being.

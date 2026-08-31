@@ -1,0 +1,27 @@
+# The Mersong Grove's Inhabitants
+
+The beings who call the Mersong Grove home refer to themselves as the Echoshapers, though they rarely need names in a community so intimate that each member is known by the distinct resonance pattern of their movements through the Grove's acoustic field.
+
+Standing no taller than a child of the surface world, the Echoshapers possess elongated limbs with seven digits on each hand, perfectly evolved for manipulating the Grove's delicate filaments. Their skin is alabaster with a translucent quality that reveals shadowy outlines of their circulatory systems—networks of luminescent fluids rather than blood. Where surface dwellers have eyes, they have sensitive depressions lined with thousands of pressure-detecting cilia that perceive the subtle acoustic landscape of their world with greater precision than vision could provide.
+
+Their most striking feature is their breathing apparatus—elaborate gill structures that frame their faces like living collars, constantly undulating in gentle rhythm. These gills extract oxygen not from water but from the peculiar semi-gaseous medium that fills the Grove. When they vocalize, these gill-frills vibrate to produce their language—a series of harmonizing tones rather than discrete words, allowing them to literally weave their speech into the Grove's perpetual song.
+
+The Echoshapers live in family units called resonance clusters, typically comprising three to five adults and their offspring. Their reproductive process involves the synchronized vibration of three parents, who then cultivate a chrysalis from the Root's secretions. After a gestation period of uncertain length (time being a fluid concept in the Grove), a new Echoshaper emerges, already capable of basic communication through vibrational patterns.
+
+Their society is led not by individuals but by the "Deep Listeners"—elders whose gill structures have evolved exceptional sensitivity, allowing them to perceive subtle variations in the Root's pulsations. These pulsations, they believe, are messages from "The Depths Beyond," which might be their conception of divinity or simply an acknowledgment of forces beyond their comprehension.
+
+Several symbiotic creatures share the Grove with the Echoshapers:
+
+The Membrane Guardians are crab-like entities with translucent shells that patrol the water boundary. Their primary function seems to be maintaining the integrity of the Grove's impossible physics, secreting an enzyme that reinforces the water-air threshold when needed. They range from thumbnail-sized juveniles to elders as large as serving platters.
+
+Drift-Tendrils resemble ethereal octopi with elongated, feathery appendages. They hover in the Grove's central spaces, filtering nutrients from the atmosphere and occasionally wrapping themselves around the Echoshapers in what appears to be a mutually beneficial grooming relationship. The Echoshapers harvest certain secretions from the Drift-Tendrils to create their longest-lasting illumination sources.
+
+Most revered are the Songweavers—ancient, mollusk-like creatures with spiral shells that grow throughout their centuries-long lives. These beings are largely sedentary, anchored to the thickest filament clusters. Their primary purpose seems to be modulating and amplifying the Grove's perpetual chorus. The Echoshapers craft specialized tools to play the Songweavers' shells like instruments during significant community gatherings, producing harmonies of stunning complexity.
+
+The Echoshapers practice a form of agriculture, cultivating different varieties of the luminescent moss for specific purposes—some strains for their nutritional value, others for their structural properties, and still others for their more potent bioluminescence. This cultivation isn't accomplished through physical tools but through precise sequences of vibrations that encourage growth patterns in the living flora.
+
+Their creation narrative, transmitted through multi-generational song patterns, suggests they weren't always confined to the Grove. The lyrics, when translated to conventional language, lose much of their resonant meaning but speak of a time when "our forms were one with the crushing dark" and how they were "called inward by the first song." This implies their ancestors might once have been deep-sea creatures who evolved or were transformed within the Grove's unique environment.
+
+The most sacred ritual of the Echoshapers occurs at irregular intervals when the Root's pulsations achieve a particular frequency. During these "Harmonious Convergences," the entire community arranges themselves in concentric circles around the Root. Their combined song, amplified by the Songweavers, creates standing wave patterns in the Grove's atmosphere that briefly render visible what they call "the Echoes of Before"—ghostly impressions that might be memories, prophecies, or windows into other realms.
+
+What the Echoshapers cannot comprehend—and what would terrify them if they could—is that the Grove itself is a living entity, and they are not its masters but its microbiome. The Root is not merely the center of their world but the conscious nerve center of a vast, patient organism that uses their songs to communicate with others of its kind across the abyssal plain, in a conversation that has continued for millennia and will likely continue long after the surface world above has changed beyond recognition.

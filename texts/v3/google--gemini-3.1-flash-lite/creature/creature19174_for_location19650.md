@@ -1,0 +1,17 @@
+In the High Basin, life does not occur; it is instead *manifested* as an architectural afterthought of the vibration.
+
+To look for flesh here is to misunderstand the economy of the Weep. The beings that drift through the glass-teeth are not creatures of instinct or hunger, but **Harmonic Echoes**—the physical debris of the constant, resonant hum.
+
+They emerge from the deepest fissures where the acoustic friction is thickest, where the air behaves less like a gas and more like a viscous, vibrating fluid. When the frequency hits a localized peak, the molecules of the heavy, moisture-laden air strike a harmonic node and briefly crystallize. They become what they touch: sharp, planar, and light-trapping.
+
+These entities—the *Resonants*—do not have organs to perceive the world, for they are made of the world’s own physics. Imagine a shard of polished hematite caught in a prism’s glare, only that shard is not solid matter, but a tethered bolt of pressurized light. They have no soft tissue because there is no soft earth to sustain it. Instead, they are composed of nested, calcified geometries: shifting tetrahedrons and rotating rhomboids that fold into and through themselves like light caught in a hall of mirrors.
+
+They do not move by walking or flying. They transition across the jagged obsidian landscape by exploiting the refraction. Because the basin acts as a billion-faceted prism, a Resonant can "flicker" its position by shifting the angle of its own crystalline lattice to match a reflected beam of light further up the slope. They are essentially biological blink-teleports, living snapshots that leap from one rainbow-drenched ridge to the next, fueled by the kinetic violence of the background hum.
+
+When they catch one another—interlocking in the air—they do not mate or fight. They chime. Two Resonants colliding in the blinding glare produce a momentary change in the local pitch, a sudden, piercing *shriek* of pure note that momentarily silences the surrounding drone. It is a brief, violent symphony that leaves the ground weeping more heavily, the water-rivulets surging in response to the sudden acoustic vacuum.
+
+They are entirely hollow. If you could hold one, you would feel nothing but a cold, rhythmic pulse against your skin, like a clock encased in ice. They are not conscious, but they are *attuned*. They possess a cold, reactive intelligence that is strictly spatial; they move toward the loudest vibrations, gravitating toward the fissures where the sound is most agonizingly perfected, clustering in the depths like clusters of static-charged quartz.
+
+They are the only things in the Vitrified Weep that can die, yet even that is a misnomer. When their internal geometry loses alignment with the frequency—when the vibration of the air shifts just enough to jar the Resonant out of its harmonic—it does not decay. It simply loses its coherence. It shatters. 
+
+In a soundless blink, the darting light-shape collapses, its energy dissipating into the jagged mineral floor. It becomes part of the rock, a tiny, fresh incision in the obsidian, a new notch for the water to track through. They are the basin’s way of pruning itself, small flickers of energy that emerge from the screaming air only to eventually settle back into the stone, ensuring that the monument remains exactly as it was, and forever as it will be: high, wet, ringing, and beautiful in its refusal to ever truly live.

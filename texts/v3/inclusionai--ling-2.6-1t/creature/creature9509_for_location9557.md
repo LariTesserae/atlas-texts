@@ -1,0 +1,27 @@
+They arrived by becoming possible.
+
+At first there was only the pocket’s permission: a hollow that said *yes* to wetness and *yes* to heat and *yes* to edges that cut. Then the minerals began to behave like thoughts. Sulfur bled into calcite and remembered how to climb; iron learned to braid itself into threads that stiffened into ladders. From the ceiling, stone began to grow down, not falling but deciding to be heavy in a new direction. The result was a forest of small white spires, each one a candle that never melts, each one ringed with oily rainbows where the water kisses and flees.
+
+The pocket calls them its teeth, but they are gentler than that. They are sentences the rock is learning to speak.
+
+The first creatures were not animals as the surface would name them but concentrations of motion that agreed to keep their shape. The ones like polished seeds with jointed limbs are the pocket’s fingernails, its constant need to scratch and smooth. They are the clickers, their shells so tight to their heat that they glow faintly from within. They scuttle in circuits that are not quite random, mapping the difference between safe-hot and kill-hot, leaving behind trails of faint oil that dry into maps no one reads but everyone obeys.
+
+The ribbon-things are the pocket’s breath given fragile bodies. They drift without wings because wings would be too loud, too heavy with intention. They are all tendon and prism, folding into geometries that would bruise a mathematician’s pride. When they snap, it is not a strike but a correction, the air rearranging itself to fit them better. They drink by letting the humid air condense along their spines, then wringing it out into the muck when they coil to rest.
+
+In the muck live the chorus.
+
+They are bulbous, coral-things, colonies that have decided to be one body because loneliness cooks too fast in the pocket’s lung-heat. Their skins are lanterns of infrared, shifting in waves that say *here, now, careful, come.* They do not hunt so much as invite, and the invitation is hard to refuse. When something small and jointed passes too close, the chorus ripples, and the ripple becomes a well, a sudden softening of the world that pulls the small thing in. The pocket drinks through them, digesting in many stomachs what one mouth could never manage in the time allowed.
+
+There are others that are almost too quick to name. The glints that skitter along the seams like sparks with joints. The slow drifters that look like fallen shadows learning to swim. The ones that coat the slag-shelves in living patina, etching their names into glass-smooth stone with acids of their own making. All of them are the pocket’s way of keeping time—not with ticks, but with presence and absence, with crowding and thinning.
+
+They pay little mind to one another, and this is not indifference but efficiency. To care too much is to hold heat too long, and heat must move. Only when hunger aligns with accident do they thrum together, a sudden density of purpose that turns the pocket into a clenched fist for a moment, then opens again into breath. Even then, the violence is polite, almost formal: a cascade of small deaths that tidy the edges, that shave away the excess, that leave more room for the quick and the close.
+
+The water is alive in its own way, but it is less creature than messenger. It carries minerals from tooth to tooth, it polishes the ribs of calcite until they are mirrors for the heavy light that pours through the wound-seam. It beads and falls and hisses, each drop a tiny assassination of temperature, cooling by a fraction what it touches, only to be reclaimed by the air and sent back to sweat from the ceiling again. This is the pocket’s circulation: a closed loop that is not quite closed, always leaking a little, always hungry for more.
+
+When the light slants through the narrow seam, the half-chamber that catches it becomes a parliament of glare. Shadows pool in the other half not as absences but as reserves, as heat banking itself for a strike. The creatures know this without knowing they know it. They arrange themselves accordingly, bright-side bodies sleek and fast, dark-side bodies patient and coiled.
+
+Time in the pocket does not flow so much as condense. The rocks are young and arrogant because the pocket is not old enough to forgive yet. The minerals bleed and are rebled. The spires grow taller by microns, then are shaved by the clickers, then grow again. The chorus expands and contracts, a slow pulse that matches the drip-drip-drip that is the pocket’s heartbeat.
+
+And through it all, the pocket itself is learning to be a world. It is an engine of small, fierce changes, an agreement among wet and heat and press of bodies to exist all at once. The fracture that holds it open is still fresh, still deciding whether it is a wound or a mouth. For now, it is both.
+
+The pocket breathes. The pocket eats. The pocket keeps what fits. And everything that fits—every clicking seed, every ribbon of folded air, every bulbous, lantern-skinned chorus—answers with a hiss of belonging, with a shimmer that says *here, now, all at once*, before the next drip falls and the next edge cuts and the next small, fierce change begins.

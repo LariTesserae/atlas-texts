@@ -1,0 +1,33 @@
+At first, you might believe the city is abandoned, its massive mechanisms left to turn in the dark by some long-departed engineer. The shadows clinging to the brass tenements and the slow, sweeping arcs of the catwalks seem to belong only to the damp and the rust. But as your eyes adjust to the bruised twilight and the sickly-yellow glow of the arc-lamps, the shadows begin to detach themselves from the ironwork. 
+
+The inhabitants of this sunken silo do not walk; they flow. 
+
+They are tall, impossibly elongated beings, their proportions stretched by the verticality of their world and the low, heavy gravity of the deep earth. To look at them is to look at the cavern itself made flesh. Their skin possesses the pale, translucent quality of wet porcelain, layered with a faint, oxidized verdigris sheen that perfectly matches the patina of the brass handrails they grasp. They are entirely hairless, their bodies streamlined to shed the perpetual drizzle, and their limbs possess extra, double-jointed articulations that allow them to navigate the dizzying web of scaffolding with the fluid, boneless grace of deep-sea kelp swaying in a current.
+
+They are the Wardens of the Weep, and they move on the same geological timescale as the machinery they tend. 
+
+To watch a Warden cross a suspension bridge is to witness an exercise in profound, deliberate physics. A single step takes minutes. A foot, broad and splayed with gripping, gecko-like pads, is placed with absolute precision. There is no haste, no wasted kinetic energy. Fast, jerky movements would disrupt the delicate atmospheric pressure of the silo and shatter the fragile, cooling threads of liquid glass that web the central atrium. They exist in a state of perpetual, moving meditation.
+
+Their faces are smooth and angled, dominated by large, lidless eyes that resemble polished spheres of clouded quartz. These eyes do not see the world in sharp, vibrant colors, but rather in gradients of thermal bloom and structural stress. They can see the microscopic fractures in a rusted girder; they can see the warm, pulsing blood of a glass-crab scuttling a hundred feet below. Beneath their eyes, where a human mouth and nose might be, there is only a smooth expanse of skin. They do not breathe air in the traditional sense. Instead, along the sides of their long, elegant necks and down their ribcages, fluttering gill-slits open and close in rhythmic unison, filtering the heavy, ozone-rich mist and drawing the dissolved oxygen directly from the saturated air. 
+
+Because they have no mouths, they do not speak. The cavern is too vast, and the damp air swallows sound too quickly for voices to carry. Instead, they communicate through the architecture itself. 
+
+When a Warden wishes to convey a thought, they press their long, multi-jointed fingers against the iron pipes, the brass railings, or the tension cables of the bridges. By vibrating their fingertips at specific frequencies, they send complex, subsonic ripples through the metal. The entire vertical city acts as a massive, resonant instrument. A Warden on the highest gantry can "feel" a message tapped out by another at the edge of the black cistern below. To stand among them is to feel their conversations as a gentle, rhythmic tickling in the soles of your feet and a deep, resonant hum in your sternum. It is a language of pure vibration, perfectly suited to a world defined by the subsonic *thrum* of its engines.
+
+Their purpose, their culture, and their very biology are inextricably bound to the liquid glass spun by the colossal looms. 
+
+The Wardens are the shepherds of the glass. As the massive, townhouse-sized gears turn and the hydraulic presses extrude the weeping water into thick, glowing threads of liquid silicate, the Wardens guide the material. Using long, hooked staves made of polished bone and iron, they gently coax the viscous threads, weaving them into massive, hanging tapestries of solidifying glass that catch the faint light of the arc-lamps. 
+
+They share this work with the fauna in a deeply entrenched symbiosis. A Warden will stand perfectly still for hours, allowing flocks of the heavy, damp-winged moths to land on their shoulders and arms. The Wardens secrete a faint, sugary resin from their pores—a byproduct of their own slow metabolism—which the moths drink. In return, the moths’ bioluminescence provides the Wardens with the precise, localized light needed to inspect the microscopic flaws in the cooling glass threads. The pale, blind amphibians are treated as living garments; Wardens often drape the velvet-skinned creatures over their necks and arms, the amphibians’ body heat providing a gentle warmth against the shivering chill of the cavern, while the Wardens’ skin provides the amphibians with the mineral-rich moisture they crave.
+
+But the most striking aspect of the Wardens is what happens to them as they age. 
+
+They do not die in a way that leaves a corpse to rot. Their biology is heavily silicate, heavily infused with the very liquid glass they spend their centuries tending. As a Warden grows old, their movements become even slower, their skin taking on a harder, more translucent quality. The verdigris sheen deepens. The glass they have handled for centuries slowly leaches into their pores, calcifying their tissues, vitrifying their organs. 
+
+In their final decades, a Warden will climb to a quiet, high alcove in the brass tenements, or find a secluded spot on a wide, stable catwalk. There, they will sit, fold their long limbs, and enter a state of final, waking stillness. Over the course of years, the damp air and the liquid glass dust in the atmosphere will complete the process. The Warden will turn entirely to solid, dark, iridescent glass and oxidized iron. 
+
+They become part of the city. 
+
+As you look closer at the architecture, you realize that the strange, curved buttresses supporting the walkways, the intricate, sweeping finials atop the tenements, and the silent, hooded figures sitting in the shadowed alcoves of the highest gantries are not statues. They are the ancestors. The city is quite literally built upon, and supported by, the vitrified bodies of those who came before. The new Wardens tend the looms, guided by the subsonic vibrations that still, faintly, echo through the glass bones of their forebears.
+
+There is no grief here, no fear of the end. There is only the great, hydrostatic patience. The water weeps from the stone, the immense gears turn their hour-long rotations, the liquid glass is spun, and the Wardens move through the mist, tending to the slow, beautiful, and eternal equilibrium of the deep.

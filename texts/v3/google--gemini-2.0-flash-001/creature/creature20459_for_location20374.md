@@ -1,0 +1,15 @@
+The Scar People are creatures sculpted by their home, as much a part of the mesa as the clay itself. Imagine them: small and wiry, every sinew honed by a life of climbing, building, and enduring. Their skin, the color of rich, sun-baked earth, is etched with fine lines, maps of the countless days spent toiling under the harsh light that spills from the mesa's crown. This isn't the skin of softness, but of resilience, toughened by wind, sun, and the constant scraping against stone.
+
+Their eyes, dark and observant, hold a deep wisdom gleaned from generations of watching the wind, the plants, the subtle shifts in the rock. They see the hidden cracks that threaten collapse, the telltale signs of a coming sandstorm, the first blooms that signal the season's change. They don't miss much. They have to see everything to survive.
+
+The simple garments they wear are more than mere coverings. Woven from the toughest plant fibers, they are shields against the elements, comfortable and practical. The beads that adorn them—polished stones and dried seeds, each one meticulously worked – are not mere decoration. They are records, talismans, each holding a story, a memory, a hope. The beads speak of their connection to the land, a constant reminder of their interdependence with it.
+
+Look at their hands. They are not soft hands. Stained with clay and calloused from working stone and crafting tools. Yet, there's an incredible dexterity in the fingers, a practiced skill honed by generations of artisans. These are the hands that shape the Scar City, that coax life from the arid land, that weave the intricate tapestries of their culture. Every crack and line tells a story.
+
+Scar People walk with a steady, deliberate gait, a rhythm set by the mesa itself. They carry themselves with an unassuming confidence, a quiet pride in their resourcefulness. They are not grandiose or boastful. Their strength lies in their collective effort, their shared knowledge, their unwavering commitment to their community.
+
+Even in the noise of the city, there's a quiet dignity. Their voices mingle with the sounds of the wind-powered machines, but their tone rarely rises above a calm murmur. They are not a people of shouting; of aggression. They conserve energy in this heat. Communication is direct, efficient, born of necessity.
+
+Listen closely, and you might hear the laughter of children echoing through the narrow passageways. See the playful exchange between children helping with repairs. The resilience of these people is matched only by the strength of their familial bonds.
+
+The Scar People are not just inhabitants of the Scar City; they are its heart and soul. They are the clay that binds the structures, the vines that soften the harshness, the wind that drives the machines. They are a living testament to the power of adaptation and the enduring spirit of community, a people as intricate and awe-inspiring as the city they have built into the face of the ancient mesa. They are a quiet storm of ingenuity. They are the future of this settlement carved into the rock. They are the Scar People, and they are home.

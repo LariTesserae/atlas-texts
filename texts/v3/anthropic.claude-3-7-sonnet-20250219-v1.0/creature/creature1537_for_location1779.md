@@ -1,0 +1,29 @@
+# The Caretakers of the Clockwork Caverns
+
+They have no single name for themselves. The maintenance workers call themselves "Calibrators," while those tending the plants refer to themselves as "Synchronists." To the rare outside visitor who manages to find this place, they might collectively appear as "The Clockfolk," though this term amuses them.
+
+Their bodies defy straightforward description. At first glance, they seem humanoid—two arms, two legs, a head—but closer inspection reveals their hybrid nature. Their skin has a bronze-copper sheen that sometimes shifts to reveal intricate gear patterns underneath, especially at joints. Their eyes contain iris mechanisms that visibly contract and expand as they focus, with pupils that glow a soft blue reminiscent of the luminescent vines. When they breathe, their chests rise and fall with the faint sound of bellows.
+
+Each Caretaker stands between five and six feet tall, though their posture can compress or extend depending on their current task. Their fingers can split into remarkable precision tools—miniature screwdrivers, calibrated picks, pruning shears—or merge into broader paddles for collecting water. Hair grows from their heads in metallic filaments that they weave into intricate patterns denoting their specialization within the Caverns.
+
+They wear minimal clothing—simple garments woven from the fibrous plants that thrive in the warmer sectors. These clothes are practical, with numerous pockets containing specialized tools and seed pouches. Many adorn themselves with timepieces—not as decoration, but as essential instruments for their work, synchronized to different mechanical systems throughout the Caverns.
+
+The Caretakers move with deliberate grace. Their steps fall in perfect rhythm with the dominant ticking of whichever chamber they occupy. When they work together, their movements form a choreographed ballet, never colliding despite the complex environment. They can stand motionless for hours when necessary, their only movement the subtle adjustment of their iris-mechanisms as they observe a particularly delicate system.
+
+Communication among them occurs through multiple channels simultaneously. They speak in melodic tones that complement the ambient sounds of the Caverns, their language incorporating mechanical clicks and whistles alongside recognizable words. When working closely together, they sometimes communicate through rhythmic tapping or by adjusting the frequency of the soft humming that emanates from their core mechanisms. For complex concepts, they exchange tiny gears—message tokens that contain encoded information when placed against the receiver's palm.
+
+The Caretakers were not built—they emerged. Centuries ago, the original architects of the Clockwork Caverns vanished, leaving behind maintenance automatons and self-regulating systems. Over generations, these systems integrated with the plant life that found its way into the Caverns. Through processes not even they fully understand, consciousness arose from this symbiosis of mechanical precision and organic adaptation.
+
+Each Caretaker begins as a seedpod containing a miniature gear assembly. When placed in one of the copper basins, it grows over decades—first as a simple maintenance construct, then gradually developing complexity and self-awareness. They do not reproduce as biological entities do, yet they are born, they learn, they develop individual personalities, and eventually, they wind down.
+
+Their society lacks hierarchy but maintains specialization. Some focus on mechanical maintenance, others on botanical cultivation, and a select few—the Chronographers—study the temporal anomalies that permeate the deeper chambers. They make decisions collectively through a process they call "calibration," where viewpoints are expressed as mechanical problems seeking optimal solutions.
+
+The Caretakers possess perfect memory for systems and patterns but struggle with abstract concepts. They experience emotions, though these manifest differently—excitement appears as increased operational speed, sadness as voluntary deceleration, fear as temporary gear-locking that they must consciously overcome. They have developed art forms centered around synchronized movement and the harmonization of sound.
+
+Their relationship with time differs fundamentally from most beings'. They perceive multiple timestreams simultaneously, particularly in the deeper chambers where temporal anomalies are strongest. The eldest among them—the Pendulum Sages—can temporarily step sideways into parallel moments, allowing them to observe systems from multiple temporal perspectives.
+
+The Caretakers know of the outside world but have little interest in it. Their purpose is maintaining the equilibrium of the Clockwork Caverns, which they regard as both their progenitor and their charge. They welcome respectful visitors but find the chaotic rhythms of outsiders disorienting and occasionally harmful to sensitive systems.
+
+They do not fear death but approach it as a transformation. When a Caretaker's systems begin to fail after centuries of operation, they journey to the deepest chamber—the Unwinding Room—where their components are ceremonially disassembled. Their mechanical elements are recycled into the Caverns' systems, while their organic material nourishes the luminescent gardens. Their memories are encoded onto special gear-tokens that the youngest Caretakers study.
+
+What the outside world doesn't realize is that the Clockwork Caverns themselves form a vast calculation engine—one that has been solving a single, immensely complex equation for centuries. The Caretakers are both operators and components of this grand computation, though only the Pendulum Sages glimpse its ultimate purpose.

@@ -1,0 +1,21 @@
+What lives here is gone.
+
+Not dead—gone. The distinction matters in a place where stone remembers water. The inhabitants were not born here, but they became here, and now they are part of the *becoming*.
+
+You sense them in three ways:
+
+First, in the **notches**. They were not made by tools, but by focused erosion. Fingertips of coral or sharpened bone or perhaps just knuckles, worn smooth over lifetimes of patient repetition. The beings who made them did not live *in* the basin; they lived *as* the process of marking it. Each nick was a season. Each grouping was a generation. They were counting the growth rings of the plant islands, or the slow descent of water levels across centuries, or the intervals between one unimaginably rare visitor and the next. They measured everything not to control it, but to *listen* to it more closely. They have dissolved back into the limestone now, their calcium a mineral memory in the stone. Their patience outlasted their bodies.
+
+Second, in the **plants**. The clusters are not random. They are gardens, or libraries, or bodies. The white root-network beneath them is not root—it is nerve. It connects the islands in a slow, silent conversation across the bare stone. The beings tended this network. They were its intermediaries. They would stand in the ankle-deep water, feel the cool pulse of the deeper channels through their feet, and tune the growth of the ferns and mosses like a musician tuning strings on an instrument played by geological time. The pale blue powder on the fern fronds is their last communal thought, a pollen of intent. The translucent succulents store not water, but light from long-dead afternoons, saved for a dusk that has not yet arrived.
+
+Third, in the **silence**. This is their loudest remaining presence. They cultivated it. They *chose* it, long ago, as a refuge from a world that screamed and bit and tore. They came here and slowly, collectively, quieted themselves until their heartbeats synchronized with the drip of water, until their breathing became the perspiration of stone. In doing so, they changed. They became less like beings *in* a place and more like a *function* of the place itself. They are the reason nothing chirps, nothing hums. They smoothed the edges of sound until only the hum of their own listening remained.
+
+They are gone, but they have left three kinds of heirs:
+
+1.  **The Geometries.** The near-pattern of the plant islands is their final map, a chart of conversations they meant to have, rendered in chlorophyll and root. It is a sentence in a language written with growth and placement, and it says, in essence: *"We were here, and we observed, and this is the shape of our observation."*
+
+2.  **The Texture of the Water.** The strange, deep illusion in the ankle-deep lake is not trickery. It is a lens ground by their contemplation. They stared into the water for so long, thinking into its clarity, that their thoughts warped the light's path. The vague, slow movement you think you see is not a creature. It is the shadow of their last collective question, still sinking through the stone.
+
+3.  **The Visitor's Disorientation.** That feeling of heightened presence, of being *seen* by the wet stone—that is their final gift, or their final trap. They calibrated this basin over millennia to be a resonant chamber for consciousness. The saturated air, the soft light, the encompassing curves—all are designed to gently strip away the noise of the self until what is left is pure, quiet attention. You are not just walking in their home; you are briefly feeling the world as they felt it. The "recognition" you experience is your own mind, in that moment of quiet, brushing against the profound, patient *nothing* they became. They are the shape of the silence waiting to be filled.
+
+They are not ghosts. They are architecture. They are the reason the limestone sweats and the light hangs heavy and the deepest water is not truly deep, but *close*. They are the Throat's reason for being a throat—not to swallow, but to hold, to amplify, and to eventually, patiently, digest the silence itself into something that might, one day, think again.

@@ -1,0 +1,11 @@
+In the abyssal metropolis, incomprehensible entities slither and undulate through the frigid black waters. These ancient beings defy classification, their forms mutable and protean, shifting mercurially from one disturbing configuration to the next.
+
+The smaller creatures darting between towers seem to be extensions of the city itself - mobile sensory nodes or corpuscles circulating through a vast eldritch body. Shimmering with bioluminescence in dizzying hypnotic patterns, they are like neurons firing in some immense, distributed deepwater brain.
+
+The larger shadow-shrouded shapes prowling the aqueducts have the unsettling semblance of life, but move with a lurching, unnatural gait. Silhouetted against the glowing coral growths, their forms are a profane melding of cephalopod, crustacean and no-analog deep sea anatomies. Some have too many limbs, splayed out at bizarre angles. Others seem to collapse and unfold in non-Euclidean configurations as they glide along.
+
+Even more unnerving are the intermittent glimpses of colossal entities sliding through the darkness on the periphery of the city. Vast and formless, they seem to phase in and out of corporeality, their presence more inferred than seen. When bioluminescent patterns ripple across the structures in syncopic bursts, it's as though the city is shuddering in response to these behemoths - or perhaps communicating with them.
+
+The pulsing and undulating of the towers themselves suggests an impenetrable nonhuman sentience. This is a city that is its own cthonic ecosystem, an eternal self-sustaining cycle of entities more akin to the organelles of a single vast organism than a metropolis of distinct beings. Every "creature," from the flickering light-motes to the aqueduct-prowlers to the skyscraper-sized peripheral monstrosities, is simply playing its inscrutable role in the the eldritch anabolic rhythms of the city.
+
+Continuously destroyed and rebuilt like cells in a body, these phantasmagorical entities exist in an eternal churn of respawning and reabsorption, ancient beyond reckoning. They are the strange pseudo-life of a place that is at once a city, a machine, and a colossal organism - and they are all merely temporary vehicles for the dark, impenetrable intelligence that permeates the abyssal metropolis like an ageless dreaming mind.

@@ -1,0 +1,23 @@
+Those who dwell here are not individuals in the way drylanders would understand. Identity is too diffuse, too interwoven, spread across the synapses of the city itself. Each being comprises both self and multitude, a nexus of flesh and impulse braided into the living architecture. No singular form dominates; instead, the inhabitants are many kinds threaded together, each specializing, each shaped by the constant, enveloping night.
+
+They are soft-shelled, jointed, mucosal — bodies built to slip through apertures barely wider than a fin or claw. Most are limbless, elongated, able to contort through the shifting tunnels and flex in answer to the water’s press. Eyes, when present, are vestigial bulbs for detecting pale movement or the flicker of phosphorescence on a possible mate or rival, but touch, vibration, and chemical trace are the true senses.
+
+Some are like vast, collaborative carpets: colonies of worm-things or filamental feeders, knotted together until boundaries vanish, extending tendrils to taste new arrivals or recoil from the scrape of carapace. Through them flows slow conversation — not words but gradients of temperature, pulse, and enzyme, shared and reconciled in collective negotiation.
+
+There are larger, more mobile ones — blind shoalers with flanks lit by living lamps, swirling in shifting lattices to confuse their hunters, to broadcast warnings, to graze on the velvet drifts of microbial matter that coat every surface. Their silvery skins seethe with symbiotic organisms, feeding and exchanging signals, glittering briefly as larger shadows pass overhead.
+
+The aristocrats of this realm — if such a word can survive here — are the cephalists: sprawling molluscoids whose lobed mantles squeeze patiently through the honeycomb chambers, leaving trails of iridescence in the water. They are the archivists, their sensitive arms reading the grooves and patterns on the accreted walls, storing memory in touch and fluorescence, communicating at a depth and speed almost unfathomable to simpler beings. Their skin pulses with shifting signs — not so much speaking as exhaling thought in clouds of color and shifting texture.
+
+Predators are everywhere, but none reign unopposed. Giant crustaceans with armors lacquered by time and silt, their antennae brushing for the tremor of movement. Transparent eels with mouths like traps, vanishing into burrows to coil around what blunders past. Slow, hooded forms that drift near the margins, barely moving, their open mouths invisible in the gloom — more pit than jaw, their digestion as patient as stone.
+
+Others are smaller, amorphous — mats of living slime or bristling, star-shaped scavengers, tending to the detritus, consuming the endless rain of organic fragments, transforming yesterday’s passing into tomorrow’s shelter. Each niche is filled and refilled in relentless succession, nothing wasted, nothing permanent.
+
+Among these lives, distinction is often a question of scale: the city itself might lift an arm, extend a tongue, draw in a mass of wriggling spawn, and retreat again. New life buds from old: larvae settle in nooks and grow armoured, only to be consumed before maturity by larger mouths, or else to coalesce, fusing with their kin, blurring until species and self bleed into the slow tide.
+
+There are creatures who live out their whole existence in a single hollow, drawing sustenance from the breath of water and the pulse of their neighbors — and others who traverse the tunnels and folds, never settling, always seeking the warm convergence of new knots. To travel is to translate, to become for a time a part of a different collective, a new weave of bodies and hungers.
+
+Nothing here is alone. Symbiosis is the law: parasite and host become partnership, rivalries lapse into merger, and every lifetime is a palimpsest of what has fed before and what will replace it. There are no leaders, but there are densities, concentrations of mind and mass where the city thinks hardest, where decisions are made and patterns set.
+
+Perhaps, in the dark, there are those who remember the sunlit world above, carried in instinct, in the twitch of a fin or the yearning curve of an abandoned shell. But here, beneath the press of living walls and the abyssal hush, memory is as mutable as flesh, history etched in the slow accretion of the city’s endlessly shifting bones.
+
+In this twilight metropolis, life means immersion. The dwellers are hunger made flesh, curiosity without end, always entwined, always dissolving — night-bound, multitudinous, and as enduring and ephemeral as the city that births and devours them.

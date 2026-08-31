@@ -1,0 +1,13 @@
+Deep within this vast subterranean realm, a primordial ecosystem thrives in the shadowed depths. Strange and wondrous life-forms, alien and multi-limbed, dart through the phosphorescent gloom. Gigantesque eyeballs, pale and vascillated, peer forth from murky pools of water, while tentacles thicker than tree trunks writhes from the darkness like a thousand-tentacled beast.
+
+The pitter-patter of multi-legged arachnoids echoes off the stone as they skitter along crystalline shards, their chitinous exoskeletons refracting the dim magenta light into eldritch geometries. Gastric sacs of undulate tissue pulse and tremor along the cavern walls, stridulating uncanny melodies to communicate to their ilk.
+
+Cephalopod sentiences shift and change amidst neuro-organic matrices and interfaces, their sallow, bulbous schizophrenic brains pulsing with unutterable horror. They reference and implement the transmitted patterns and enforce life wherein this primordial biome universe.
+
+Pseudopodia of cellular gnosis spread across the cavern floor like crepuscular snakes, cannibalizing any unprepared megafauna. Amorphic colonies of single-celled organisms undulate in the thick, nutrient-rich fluids, while vast lichenous growths and transmutated spore-formers encrust the cavern walls. Membranous wings flutter and desplore in the warm zymac promieties with trifold tails.
+
+Shimmering amorpheous entities drip like mucus from the stalactites, their pseudopodia ipping and splashing as they sink into the nutrient pools below. Where they alight, strange, asymmetical blooms of growth spring forth - eyeless multi-ped forms covered in knotted, pulsating growths that tremor with nascent life. 
+
+Floating through the viscous fluids are globular clusters of iridescent spheres, the foucs of transitional fields of orean-like communicty. These gelatinous pods, each a confluence of microorganisms, drift in and out of the rippling current on swaying filaments, while their surface undulate waves and clamor with expression and sensation.
+
+The caverns are alive with the whispers of ancient trans-sentient genoflow, and self-replicating plasmas sifting through the primordial matrices that form the vocabularly of life - seeking new configurations and patternatica of function to further propagate in this shadowed ecosphere uninformed of any inner light. Whirling algochemic manifestation of complex forms and orreries.

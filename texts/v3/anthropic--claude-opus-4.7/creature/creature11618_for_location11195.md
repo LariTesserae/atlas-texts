@@ -1,0 +1,49 @@
+# Those Who Remain
+
+They are caretakers, though none of them would use that word, because the word implies something cared *for*, and the thing they tend has outlived the need for it. They are more like the last few cells in a body whose purpose has been forgotten but whose processes continue. They keep the processes continuing. That is what they are.
+
+There are perhaps two hundred of them in a city built for eighty thousand. The number is not known precisely because no one counts and because the count would change depending on what you meant by *here*: some of them have not been seen in years but are presumed to still be at their stations, deep in the pump-galleries or out along the aqueduct-spurs, and presumed is as good as known in a place this thin.
+
+## The Watchmen
+
+The watchmen walk routes. Each route is several hours long and passes a fixed set of gauges, valves, sight-glasses, and small brass plates set into walls at chest height. At each plate the watchman pauses and does something — taps it, or breathes on it, or simply stands in front of it for the count of seven — and moves on. The plates are not labeled. The watchmen learned the routes from the watchmen before them, who learned them from the watchmen before them, and somewhere far back the gestures presumably did something, or signaled something, or were read by something. Now they are just the route. A watchman who has walked his route for forty years will tell you, if pressed, that he doesn't believe the taps matter. He will also tell you that he has never missed one and does not intend to. These are not contradictory statements to him. They occupy different rooms in his head and he visits them at different times.
+
+They wear long oilcloth coats that have gone the color of the bricks. Their boots are resoled with sheet lead at the toe, an old practice whose origin is variously explained — to ground against static in the foundry quarters, to weight the step on the slick streets, to keep something from following — and probably all the explanations are wrong and the real reason is in a manual nobody owns anymore. They carry a small lamp, a striker, and a hooked rod for lifting grates. They do not carry weapons. There is nothing to use a weapon on.
+
+## The Pipe-Fitters
+
+The pipe-fitters are a guild, or what's left of one — six or seven of them, working out of a long shed near the middle terraces where the diagnostic manifolds converge. They are the only people in the city who can be said to *do* things, in the sense that they respond to events. When a pipe fails they find it and fix it. When a condenser-fin clogs they climb and clean it. They are competent and unhurried and largely silent, and they regard the watchmen with a mild contempt that the watchmen return.
+
+A pipe-fitter's hands are remarkable: thickened, pale from the constant wet, with nails worn down almost to nothing from the gritty work of packing joints. They can feel a leak through three inches of brick by pressing a palm flat and waiting. They apprentice young — the youngest current fitter is perhaps fourteen, a quiet child of one of the older fitters, who learned to walk on the catwalks and has never lived anywhere else — and they retire by simply slowing down until they stop, usually in the shed, usually in the chair nearest the stove.
+
+They believe, more than anyone else in the city, that the work matters. They have to. You cannot put your shoulder into a stuck valve at three in the morning in a freezing condenser-loft if you think the valve is decorative. What they believe the work is *for* is another question, and they don't discuss it, even with each other.
+
+## The Tea-House Woman
+
+There are several tea-houses but only one that anyone goes to, and only one woman in it. She is old in the way that some buildings are old — settled, level, without obvious deterioration. She keeps a stove burning with brick-dust briquettes she presses herself from foundry sweepings, and she serves a tea so dark and bitter that newcomers cannot drink it and regulars cannot drink anything else. She has twelve tables. On a busy evening she might have four customers, none of them at the same table, none of them speaking. She does not mind. She moves between the tables refilling cups and occasionally setting down a small dish of something salted, and the silence in her tea-house is not awkward but constituted, the way the silence in a chapel is constituted.
+
+She knows everyone. She knows which watchman has a bad knee and which pipe-fitter lost a brother in the lower galleries and which of the rarely-seen ones is overdue. She does not gossip; she simply holds the information, the way the cisterns hold water, against some eventual need. She has never been to the top terrace and has never been below the third. The city she lives in is perhaps eight blocks across. It is enough.
+
+## The Readers
+
+There are two, possibly three, people who can be called readers. They live in different quarters and may not know about each other. Each has access to a room — a small one, usually behind an unmarked door — that contains records. Not archives in any organized sense: stacks of waxed-paper logs, ledgers in three or four scripts, rolls of pressure-tape gone brown at the edges, and in one case a wall of small ceramic tiles each incised with a number and a symbol whose meaning the reader is still, after decades, working out.
+
+The readers read. That is all they do. They do not write. They do not transmit what they read to anyone. They are trying to reconstruct, from the operational residue of the city, what the city was originally meant to produce — because the water, obviously, was not the end. The water was a medium. The water was carrying something, or cooling something, or washing something out of something else, and at the bottom, where the runoff disappears, something was being made, or grown, or refined, or fed. The readers want to know what. None of them expect to find out in their lifetimes. They are not even sure the question has an answer that would still be true if they found it; the city may have been repurposed several times before being abandoned to its own momentum, and the last purpose may have been as forgotten by its last operators as it is by the current readers.
+
+Still, they read. One of them, the oldest, has come to suspect that the city is not producing anything at the bottom and never was — that the *condensation itself* was the point, that somewhere a long time ago someone needed a place where water would reliably come out of air, in this quantity, at this rate, for this duration, and the rest of the city is just the machinery required to make that one fact true. She has not told anyone this. She is not sure she believes it. But she has stopped looking for the product and started looking for the *customer*, and this has changed what she notices in the records, and she is, in her quiet way, closer to an answer than anyone has been in a century.
+
+## The Ones Below
+
+There are people on the lower terraces. Nobody from the middle city goes down past a certain street — not from prohibition, just from disinclination, the way you don't go into a room you have no reason to enter — and the lower terraces are understood to be inhabited by a different sort of person. Quieter. Possibly more numerous. Possibly fewer. The pipe-fitters, who do go down when they have to, report that the lower city is wetter, darker, and warmer, that the wick grows thick enough down there to be harvested, and that the people they meet are polite and incurious and do not invite conversation. Whether these lower people are the same kind of people as the middle people, only adapted, or whether they are something else that has moved into the lower city the way moss moves into a wall, is not a question anyone in the middle city asks aloud.
+
+The apologetic creature on the lower terraces at night, the one with the long stride — the pipe-fitters do not discuss it, which is the strongest evidence that it exists.
+
+## What They Have in Common
+
+They are all, in some manner, *paired* with the city. Not devoted to it, not imprisoned by it — paired. The way a long-married couple is paired: they have shaped each other, and at this point neither could be extracted from the other without damage to both, and the original reason for the pairing has long since been absorbed into the pairing itself and is no longer separately visible.
+
+They do not have children, mostly. The tea-house woman never did. The watchmen mostly didn't. The pipe-fitters do, sometimes, but the children either become pipe-fitters or leave; there is no third option, because the city does not generate the small frictions out of which other kinds of lives are made. There is no marketplace. There is no court. There is no temple, though the tea-house comes close. There is the work, and the water, and the heat, and the slow attentive habits of people who have decided, without quite deciding, that this is enough.
+
+What they share, finally, is a particular relationship to the unanswered question — *what was the water for* — that hangs over the city. They do not try to answer it (except the readers, and the readers don't really expect to). They do not try to forget it. They live alongside it. It is, for them, the way the weather is for people elsewhere: a condition, not a problem. You don't solve the weather. You dress for it. You build your roofs at the right pitch. You go on.
+
+And when the bell rings, somewhere across the wet rooftops, they all hear it, and they all pause for a moment, wherever they are — the watchman mid-step on his route, the pipe-fitter with her hand on a valve, the tea-house woman with the kettle half-lifted, the reader with a finger on a tile — and then they go on with what they were doing. Not because the bell means nothing. Because whether it means something or not, the next thing to do is the same.

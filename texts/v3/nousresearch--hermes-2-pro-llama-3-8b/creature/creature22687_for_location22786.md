@@ -1,0 +1,16 @@
+The mysterious and industrious inhabitants of Erywanthia are a people rooted in their unique environment. They have adapted to the dimly lit landscape and the peculiar silence, fostering a symbiotic relationship with a society built on mechanics and industry.
+
+The people of Erywanthia are genetically engineered and bioengineered by a long-gone order of advanced scientists, inv...
+entionors of this quaint utopia. They are composites of various animals, genetically fused to form a perfect society, a transcendental blend of creature and intellect. These beings are a mixture of the quaint and the grotesque, forming a harmonious society despite their peculiar and strange origins.
+
+The Erywanthians are androgynous, with features that resemble both the best characteristics of the animals they were derived from. They have the keen strength of their chosen animal, alongside their chosen intellectual traits. For example, you may come across a shrewd fox- Erywanthian who has the sharp intellect of a fox, along with the physical capabilities of the creature.
+
+Their society is built on the backbone of the industrial workforce, with individual Erywanthians specializing in a specific part of this mechanical and construction-centered world. There is no hierarchy – given their derivative nature, each individual possesses their unique strengths and weaknesses, which they balance out perfectly to maintain this balanced and technologically advanced society.
+
+These beings live in symbiosis with the strange and lush environment. Rather than fighting against the natural world for continued industrial expansion, the Erywanthians have learned to work within the strange landscape's inherent limitations. Their ability to coexist peacefully with the environment is rooted in this fabricated biology meant to accentuate their harmony with their place of origin.
+
+They communicate in low tones and subtle body movements, a language crafted over generations to enhance their abilities to work together within the factory. This language is a reflection of their factory-centric lifestyle, where individual Erywanthians are specialists within the process of creation.
+
+Despite their synthetic origins, the Erywanthians have a unique connection to the land. They may be the last beings who remember that an array of unsuspected fauna once occupied the land before the ever-growing Erywanthian civilization. This connection to their history further shapes their identity and lifestyle, working tirelessly to maintain their fragile, yet fascinating society. Their legacy is testament to the ingenuity of their creators and the utter resilience of a place like Erywanthia, a place adapted to its people, even if those people themselves were born from a complex fusion of the natural world.
+
+In Erywanthia, industrial output marches on unyieldingly, but in a way, subtly taking its cues from the slow rhythms of their unique environment. Like time itself, this landscape and its people move gradually and within their own gentle pace. Change comes, but it remains slow, enhancing the highly evolved capacities of these beings who live and work amongst the machines, their silent and deliberate rhythm a testament to their creators' vision and the quality of Erywanthia's unique existence.

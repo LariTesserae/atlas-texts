@@ -1,0 +1,29 @@
+**What Lives in the Submerged Engine Grove**  
+
+Here, at the threshold of submersion, life is not just biological—it is symbiotic, a fusion of organism and artifact. The beings of the Submerged Engine Grove are as much a product of the ancient machinery as they are of the ocean’s embrace. They are neither wholly animal nor wholly machine, but something in between, evolved to exist in this liminal space where the industrial and the organic blur.  
+
+**The Tenders**  
+The most prominent inhabitants are the Tenders, creatures that resemble fish in their streamlined forms but are encased in segmented exoskeletons of iridescent metal. Their bodies are ribbed with what looks like hydraulic tubing, pulsing faintly with bioluminescent fluids that match the glow of the fungi on the walls. Their tails end in jagged, fin-like appendages that double as tools, capable of tightening screws, welding seams, or prying open rusted panels. The Tenders move with purpose, their glowing eyes scanning the machinery as if reading its needs. They are the caretakers of the cavern, though whether they were created to serve this purpose or evolved into it is unclear.  
+
+When the machinery hums to life, the Tenders gather around the pistons and gears, their bodies vibrating in harmony with the rhythms of the engines. They feed on the energy emitted during these cycles, their exoskeletons glowing brighter as they absorb the mechanical pulse. In return, they secrete a thick, oily substance from glands along their bodies, which they smear onto the machinery to lubricate its moving parts. This exchange is not just maintenance—it is a ritual, a dance of mutual dependence.  
+
+**The Dwellers**  
+Smaller and more numerous are the Dwellers, crab-like creatures with shells made of the same striated, wood-like material found in the walls. Their claws are tipped with tiny, magnetized probes that allow them to scuttle effortlessly across the steel plates and up the sides of pipes. They feed on the mosses and fungi, their mandibles rasping against the vegetation to extract nutrients. The Dwellers are opportunists, often carrying scraps of plant matter to cracks in the machinery, where they nurture small patches of growth in exchange for the faint bioluminescence that illuminates their burrows.  
+
+Some Dwellers have adapted to carry water in sacs on their backs, which they use to hydrate the mosses during the dry periods between seeps. Others have developed symbiotic relationships with the silvery fish, herding them into shallow pools where the fish’s waste enriches the water for the plants. They are the gardeners of this submerged grove, their labor ensuring that life continues to thrive in the crevices of the machine.  
+
+**The Lurkers**  
+In the deepest shadows, where the water is darkest and the machinery most ancient, the Lurkers reside. These are the largest and most enigmatic of the grove’s inhabitants, eel-like creatures with bodies segmented like the Tenders but far bulkier, their skin a patchwork of rusted metal plates and translucent, gelatinous tissue. Their eyes are compound, each facet glowing a different hue, as if they perceive the world in frequencies beyond human understanding.  
+
+The Lurkers rarely move, their bodies coiled around the oldest, most massive pipes, but when they do, the cavern trembles. They seem to be the regulators of the grove’s systems, their movements triggering the unseen mechanisms that keep the water levels in check and the cycles of the machinery running. Whether they are caretakers, overseers, or something else entirely is a mystery. Their presence is felt more than seen—a shift in pressure, a change in the hum of the engines, a sudden flare of light from the fungi as if the grove itself is responding to their will.  
+
+**The Symbionts**  
+Not all life here is visible. The air and water teem with microscopic Symbionts, single-celled organisms that have adapted to break down oil and rust, converting them into nutrients for the mosses and fungi. These tiny creatures form a vital link in the grove’s ecosystem, their work invisible but essential. They coat the surfaces of the machinery, their colonies glowing faintly under the right conditions, like a living patina that protects the metal from further corrosion.  
+
+**The Ghosts**  
+And then there are the Ghosts—the faint, lingering traces of the civilization that built this place. They are not living beings but echoes of the past, manifestations of the machinery’s memory. Occasionally, a dial will flicker to life, spinning briefly before returning to stillness, or a panel will emit a faint, synthesized voice, speaking in a language no longer understood. These are not hauntings but remnants, the last gasps of a system that refuses to die completely. The inhabitants of the grove seem to regard these events with reverence, pausing in their tasks to watch as the ghosts of the machine stir.  
+
+**The Balance**  
+Together, these beings form a delicate ecosystem, each playing their part in maintaining the balance of the Submerged Engine Grove. They are not bound by the same rules as life above the water—here, survival is a collaboration between flesh and metal, between the organic and the industrial. The grove is both their home and their creation, a living relic of a forgotten world, where the boundaries between life and machine have dissolved into something new.  
+
+In this place, the question of who—or what—lives here is not easily answered. The inhabitants are not just organisms; they are extensions of the machinery, and the machinery is an extension of them. They are the pulse of the grove, the heartbeat that keeps this submerged cathedral alive, a testament to the resilience of life in all its forms.

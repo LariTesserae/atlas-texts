@@ -1,0 +1,17 @@
+The Builders - let me tell you of them. They are the architects and the architecture both, colony and citizen merged. Each one barely larger than a human hand, their bodies are crystalline and translucent, like living opals that catch and scatter light in ever-shifting patterns. Their forms are fluid, able to extend delicate filaments to extract minerals from water or compress into more robust shapes for structural work.
+
+They exist as both individuals and as part of a greater whole. While each Builder has its own consciousness, they share information constantly through light patterns that ripple through their bodies and the vibrations they send through their mineral city. Their "thoughts" occur on multiple timescales - quick flashes of individual awareness alongside the slow, deep cognition of the colony-mind that emerges from their collective activity.
+
+The eldest Builders are practically indistinguishable from their constructions, having gradually merged with the mineral structures they've created. These ancients form the literal foundation of the colony, their consciousness diffused through the mineral matrix, still subtly directing the growth of new structures through chemical signals in the water networks.
+
+Young Builders begin as tiny, bright motes, born in the pool-chambers where mineral concentrations are highest. They start their lives as pure energy manipulators, learning to direct the flow of minerals through light and vibration before they develop their own solid forms. A juvenile Builder might spend years in this state, practicing the patterns of growth and construction before taking on their adult form.
+
+They don't sleep as we understand it, but they do have cycles of activity. During the brightest parts of the day, they focus on fine detail work, using the abundant light to coordinate their most precise construction efforts. In dimmer periods, they tend to more massive projects, their bodies glowing softly as they work in synchronized waves of movement.
+
+The Builders have a complex relationship with the other creatures that share their city. They seem to deliberately create spaces that support other forms of life, perhaps understanding on some deep level that diversity strengthens their ecosystem. Some of the flying creatures have developed symbiotic relationships with them, helping to distribute their chemical messages through the upper levels of the colony.
+
+There's an art to their work as much as there is engineering. Individual Builders sometimes create purely decorative structures, experiments in form and light that serve no practical purpose but add to the colony's beauty. These artistic expressions seem to be valued and preserved by the collective, integrated into the larger structure rather than being reabsorbed.
+
+What appears chaotic or alien in their architecture is actually the expression of mathematical principles we're only beginning to understand - patterns that emerge from the interaction of light, water, mineral, and consciousness operating on multiple scales simultaneously. Their city is their body is their mind is their art - all one continuous process of becoming.
+
+They are patient beyond human comprehension, happy to spend decades perfecting a single arch or chamber. Time flows differently for them - they experience both the quick sparkle of light on water and the slow progression of geological processes with equal immediacy. They are the poetry of mineral evolution made conscious, the dream of stone and water given form.

@@ -1,0 +1,13 @@
+In the shimmering abyssal metropolis of the Sea of Emergence, a strange and ancient race of beings dwells in dreamlike solitude. Known as the Nephelai, these enigmatic creatures are as much a part of the living city as the coral-crusted stones and nacreous towers that rise from the silt.
+
+The Nephelai are not born, but rather coalesce slowly from the mineral-rich currents and the encoded memories of the deep. Their bodies are amorphous and fluid, composed of the same opalescent substance as the city's fish-scale windows. They move through the water with a sinuous grace, their forms constantly shifting and adapting to the currents and contours of their environment.
+
+Within the city's labyrinthine streets and gardens, the Nephelai go about their inscrutable business with a sense of timeless purpose. Some tend to the lush kelp forests and submarine gardens, pruning and sculpting the aquatic flora into intricate living artworks. Others drift through the nacreous halls of ancient institutions, poring over hieroglyphic tablets inscribed with the wisdom of the abyss.
+
+In the dim, diffuse light of the depths, the Nephelai's translucent skin glows with a soft, bioluminescent sheen. Their large, liquid eyes are pools of inky darkness, reflecting the distant shimmer of hydrothermal vents and the ghostly dance of abyssal creatures. When they communicate, it is through a hauntingly beautiful language of subsonic vibrations and rippling chromatophore displays, their meaning carried on the currents like a dream.
+
+The Nephelai are deeply attuned to the living rhythm of the city and the greater Sea of Emergence. They sense the slow, tectonic pulse of the seamount, the whispered secrets of the rising bubbles, and the echoing songs of the great whales. In their fluid forms, they embody the memory of the ocean itself, carrying the weight of eons in their pearlescent bodies.
+
+As the city grows and evolves around them, the Nephelai remain its constant guardians and dreamers. They shape the living stone with their thoughts, coaxing new wonders from the bedrock and infusing the water with visions of the city's future. In their long, slow dances through the streets and plazas, they weave the very fabric of the metropolis, binding past, present, and future into a single, shimmering dream.
+
+To witness the Nephelai in their element is to catch a glimpse of the profound mysteries that lurk in the depths of the Sea of Emergence. They are living embodiments of the ocean's ancient wisdom and its ceaseless, creative potential. As the city dreams itself into existence around them, the Nephelai dream with it, their fluid forms and minds inseparable from the wondrous, abyssal metropolis they call home.

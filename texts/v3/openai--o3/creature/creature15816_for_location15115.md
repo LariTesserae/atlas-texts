@@ -1,0 +1,33 @@
+What follows is not a census—numbers refuse to stay fixed here—but a slow turning of the lantern until each resident crosses the light just long enough to be known.
+
+1. The Day-bright Damselflies  
+They are the first thing anyone notices, because they write their names across the sunbeams. Their wings are razors of turquoise, but only when two scales happen to overlap; otherwise they are glass. They fly in linked trios, always three, pivoting around an invisible center as though leashed by silk. What they eat is whatever is smallest: skin flakes, lichen dust, the down that molts from swallow chicks, the frost of mica the breeze knocks loose. They live five days exactly—sunrise to sunrise—and the moment a damselfly feels the sixth dawn coming it climbs the quartz wall, folds its wings like a priest’s hands, and dies without noise. Hours later the lizards fetch the bodies, because even death is recyclable in a place this closed.
+
+2. The Tile-back Skinks  
+You saw them already: bronze armadillo plates, quartz knives in their foreclaws, grave robber manners. What you did not see is how they speak. At the end of each patrol a skink stands where two terraces meet and taps its tail on the lip: one tap, pause, two taps, pause, three. The beats climb the shaft in a spiral, ricochet under the skylights, then fall back distinct as iron nails on slate. A listening skink catches them, repeats, adds its own flourish. By sunset every ledge has been drummed. The code is simple—danger, food, mate—but the music is elaborate, different every night. If the skinks stopped drumming, the swallows would assume the place had died and would depart at once. They never have.
+
+3. The Hollow-swallows  
+Blind, cotton-round, half bird and half seedpod. They grow fur instead of feathers on every part of their bodies except the wing membranes, which are veined parchment. Each evening they slide from behind their stalactite curtain in absolute silence and ride the rising heat like thistledown. The hush matters: the swallows are, by long pact, the keepers of quiet. When a pebble falls, when a stranger coughs, one swallow screams—single needle of sound—so the rest might vault back into dark. Their hearing is skin-deep; air pressure alone draws a map for them. Once a month they shed in unison, and the entire hollow drifts with milk-pale down. The damselflies gorge. Nothing is wasted.
+
+4. The Vine That Forgets Light  
+It has no chlorophyll, yet it thrives. It remembers some other metabolism: sugars minted in the darkness of roots, not leaves. Every midnight the vine loosens a cloud of scent— bruised apricot, cracked pepper, rain on granite. Moths would come if there were moths. Instead the shrimp below rise, break the surface like glass buttons and feed on the aromatic film. By dawn nothing of the perfume remains; the air tastes only of warm stone again. New tendrils appear where the scent was thickest. The vine gardens its own pollinators—or something near enough.
+
+5. The Poolwright Shrimp  
+Bulbous eyes like citrine beads, chitin clear as candle wax. They are born in the bronze water, die in it, and simmer down to calcium that hardens the pool’s rim another hair’s breadth. Their lives are a funnel: graze, excrete lime, thicken the margin, retreat as the wall grows. The shrimp are masons who never see their cathedral complete; that, perhaps, is why they pulse with that faint lantern-peach glow—so each generation can find the unfinished edge and get on with the work.
+
+6. The Acoustic Mites  
+Invisible except as vacancy, yet as populous as dust. They live not on matter but on vibration—each mite a single bubble of protein whose cilia catch passing sound, digest it, and exhale silence. Where two or three million cluster, echoes bend, whispers slip their leashes, your own voice goes feral and comes back wearing someone else’s vowels. The mites are why a remark uttered by the pool may appear upstairs on the fifth terrace, or in the cup of your ear, or nowhere at all.
+
+7. The Rust-nurses  
+A fungus, though it wears no mold-green coat. Picture instead a lacework of crimson freckles that bloom only on iron. Bring a knife into the hollow; in an hour the blade is filmed in velvet rust. Lift a loupe and you’ll see each pore bears the same star-shaped fruiting body, scarlet at the tips, feeding on oxide the way other fungi sip sugars. What looks like corrosion is cultivation. When the metal is eaten thin as onion skin, the rust-nurses lift away on the slightest breeze and colonize the next sacrifice. They keep the place honest: stone, bone, chitin—no cheats, no steel.
+
+8. The Drip-Counter  
+If the hollow has a single intelligence, this is it: not a creature but a computation. Every drop that falls from ceiling to pool strikes a different facet, every note a number. Thousands of years of arithmetic have etched themselves into the terraces, tuned the skylights, tutored the skinks in percussion. No mind hears the finished sum, but stand still long enough and you feel an expectancy, the hush of a tongue held between thoughts. Some day, when the final column balances, perhaps the gulf will close its quartz shutters, or crack wide open, or simply go silent. No resident appears worried.
+
+9. Things Seen Once  
+A silhouette cast by no body. A paw-wide cat made of chalk that laps condensation then erases itself. A child’s laugh, three terraces below, though no human child has ever come here. Whether these are artifacts of the mites, ghost drafts in the quartz, or travelers from someplace ruled by different arithmetic, nobody can say. Even the skinks refuse to tap a theory.
+
+10. The Passing Human  
+Rare, but possible—once every few decades if tracks on the plateau can be trusted. Whosoever climbs down soon strips metal, relinquishes maps, learns to carry water in cupped leaves. If the person lingers long enough the damselflies begin orbiting them, charting the stray heat of mammal blood; the skinks add a new rhythm to the nightly drum, a four-beat signature that never existed before. Within weeks the visitor smells of sage-lichen and mica. Within months salt freckles their skin like half-finished rust. No one knows how long a person can stay before the hollow counts them, officially, among its true fauna—even the Drip-Counter may still be thinking.
+
+So the place is not empty after all. It is densely, meticulously peopled—by wings that live five dawns, by lizards who compose percussion sonnets, by a vine that keeps perfume for currency, by shrimp that lay stone one pellet at a time, by sound itself rendered down into mite-food, and by the math of dripping water that adds, forever adds, toward a sum no voice yet living can pronounce.

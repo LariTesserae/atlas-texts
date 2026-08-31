@@ -1,0 +1,16 @@
+Deep within the Caverns of Subterran Stone, where the cold darkness presses upon the soul, life clings tenaciously in fragile pockets. Delicate fungal hyphae thread through crevices, their feathery tendrils siphoning nutrients from stone and dripping water. They carpet surfaces in ghostly whites and grays, ethereal as moonlit mists.
+
+Benthic creatures scuttle across slick cavern floors - eyeless albino beetles click-clacking mandibles against carapace, antennae probing for prey. Blind crayfish claw at slimy rocks, filtering nutrient-rich detritus from pooled waters with delicate gill-feathers. Velvet-skinned salamanders creep between boulders on webbed toes, leaving trails of silvery slime.
+
+Amidst shattered crags and fallen blocks dwell colonies of adapted spiders. Striated legs skitter along crystal facets as they spin webs to snare unwary insects drawn by guttering torchlight. Bulbous eyes glimmer behind bristled palps like alien jewels.
+
+Flocks of bats roost high up in vaulted ceilings - squeaking echolocative calls echoing off leathern wings as they take flight each dusk to hunt cave-dwelling moths. Their droppings puddle on stalactite tips like viscous oil stains before splashing down to nourish fungi and bacteria far below.
+
+Most elusive are the deeper denizens yet - small groups of troglodytic humans who have dwelled here for generations untold. Nearly blind from lack of sunlight, their vision has attuned instead to perceiving infrasound vibrations through callused feet planted always bare against resonant stone floors. Skin pale as alabaster except where stained indigo from mineral-rich springwater baths.
+They speak rarely but move assuredly through labyrinthine passages memorized since birth via tactile maps traced on mental cartography. Fingers probe ahead until familiar landmarks confirm location and trajectory.
+Their language is one of touch rather than tongue - silent hand gestures convey meaning while low-frequency rumbles sung into throat resonate through flesh and bone during intimate gatherings huddled near smoldering fires.
+Tools fashioned painstakingly over days from chipped flint are treasured possessions passed down generations alongside oral histories told in songs droned out over hours.
+Though never having seen skyward sun nor green-growing vegetation, some innate knowledge echoes memory of ancestors' ancestral lands...and so too perhaps does some remnant instinct recall lost technologies or numinous secrets known when first entering caves eons past...
+But such matters remain unspoken even among themselves - much less outsiders should ever stumble upon them which is unlikely given how deftly they move unseen amidst darkest shadows...
+
+These then are the beings most intimately part of this hypogean world: its native people according to their niche adapting every generation further towards harmony with environment's constraints and opportunities alike...their existence proof that life will find ways however marginal the habitat may seem to thrive if just enough sustenance can be gleaned...a testament to tenacity timeless as stone surrounding them whose depths they know better than book-wielding surface-dwellers could possibly conceive...

@@ -1,0 +1,59 @@
+**Who Lives in the Summit Sea**
+
+Begin with the smallest tenants, because they are everywhere and they are the water itself.
+
+The silt is not dead. The fine pale haze that hangs at every depth — the shed dust of the architecture — is alive in the most minimal sense available: each mote is a flake of the architect-plant's cast-off tissue, and a fraction of them never stopped metabolizing. They drift, they divide once a decade, they leak the faintest fraction of the seam-light, too dim to see except as a kind of grain in the darkness, the way old film has grain. The green taste of the water is the taste of them. Everything else in the summit sea eats them, breathes through them, sees what little it sees by their collective glow. They are the building's dust, and the building's dust is the bottom of the food web, which means every living thing in the basin is, at some remove, made of the architecture. The eels are the building. The drummers are the building. This will matter later.
+
+---
+
+The **eels** live braided, and the braid is the animal. A single pale eel, separated from its colonnade, is a sick thing — it loses orientation, stops feeding, swims in diminishing spirals until a shoal or a grazier ends it. But woven by the hundreds through the fluting of a root-column, the colony is among the oldest continuous bodies in the sea. Individuals hatch into the braid, live in the braid, are replaced in the braid; the braid itself has occupied some columns for longer than the eels' species memory could possibly stretch, and the rasp it makes — that low communal friction, scale against fluted heartwood — has, over millennia, polished the columns it inhabits to a luster nothing else in the basin has. The eels do not know they are finishing the stonework. They are simply itching, communally, forever. But swim the colonnades and you can tell at a touch which columns have been inhabited and which have stood empty: the empty ones are merely smooth. The braided ones *shine*, in the blind way that things shine to fingertips.
+
+They are nearly eyeless, white as the silt, and they never leave the column except to feed in slow rotating shifts — a dozen unwinding from the top of the braid, drifting out into the haze with their mouths open, returning heavy, winding back in at the bottom. The braid turns over completely every few years, like skin. The colony does not.
+
+---
+
+The **drummers** are the aristocracy of the place, if pitch can be aristocracy. Heavy-bodied, blind, slate-colored, each fish the size of a forearm, they live in colonies of a few hundred, and each colony holds a hall — one of the vaulted chambers of the drowned city — and holds it for generations beyond counting. The hall's resonant frequency is the colony's name. They drum against their own swim bladders, and the hall answers, and the answer is who they are.
+
+This is not decoration. A drummer separated from its colony finds its way home by pitch alone, crossing the black valleys between structures, listening for its own hall in the chorus the way you would listen for your own name in a crowded room. Colonies do not war over halls — the spacing of the architecture makes that unnecessary — but they *court* across them: young drummers in their dispersal season swim the dark plains between districts, listening, and join the hall whose note sits at the right interval from their birth-hall. There are forbidden intervals and favored ones. The whole summit sea, heard from the surface as an undifferentiated ringing, is in fact a genealogy — a map of which halls have exchanged young with which, going back past any horizon, written in fifths and fourths and one famous dissonance in the deep eastern district that no colony has resolved in living memory and which the others audibly avoid.
+
+When a hall settles — when ten thousand years of slow compression finally shifts an arch and the pitch changes — the colony goes through something. For a season they drum raggedly, searching. Then they find the new note, and become a slightly different people, and the genealogy bends around them.
+
+---
+
+The **silver shoals** are the only travelers, and they have paid for it by becoming barely individual at all. Thousands of small bright bodies, each one simple, short-lived, nearly mindless; together, a single soft organism the size of a building, the only thing in the basin that routinely crosses the spacing between structures. They are the circulation of the place. They carry the living silt from the bright unfinished halls in the deeps up toward the surface; they carry eggs and larvae and information — every predator in the sea reads the shoals' turning the way sailors read weather. That exhaled-breath sound they make when they wheel is the loudest single event the summit sea produces, and everything pauses, fractionally, when it happens: the drummers drop a beat, the graziers' clicking stutters. Then the chorus closes over it again, like the silt closing over a wake.
+
+They are eaten constantly and it does not matter. The shoal is not its fish. The shoal is a shape the fish keep agreeing to make, and the shape is older than any of them by a hundred thousand generations.
+
+---
+
+The **graziers** — the dog-sized crustaceans — are the most deliberate-seeming animals in the basin, and the most misunderstood, if there were anyone to misunderstand them. They look like destruction: armored, patient, mouthparts working day and night against the wall-fiber, clicking in those overlapping rhythms. In fact they eat only the dead layers. Living fiber, the kind threaded with seam-light, tastes wrong to them — there is some compound in the architect's active tissue they cannot tolerate — and so without intending anything they perform the city's only maintenance, stripping away the sloughed and rotting strata, keeping the living surfaces exposed to the water they feed on. The architecture has no groundskeepers. It has appetites that happen to be shaped like groundskeeping.
+
+Their shells are built from what they eat, which means their shells are the building's substance at one remove, and when they molt — once a decade, in sheltered hollows they return to all their lives — the cast shells sink, soften, compact, and become floor. Dive to the plain between districts and some unknowable fraction of what your fingers would call "plant-matter" is in fact ten thousand years of graziers' discarded armor, pressed back into the substrate. They are the only animals that contribute material to the construction. It is not clear the architect distinguishes their contributions from its own.
+
+---
+
+In the hollow trunks — the great vertical caves with their standing organ-note — live the **listeners**, and they are the strangeness among the fauna, because in the loudest habitat imaginable, they alone are silent.
+
+They are soft-bodied, long-finned, the size of a child's arm, and they produce no sound whatsoever: no drumming, no rasp, not even the ordinary noise of swimming — their fins are fringed in a way that lets them move without turbulence, without a wake in the silt. They hang in the trunk-columns, inside the standing note, and they listen. That is the observable whole of their lives. They feed rarely, on silt, drifting open-mouthed. They breed rarely. Mostly they hang in the note and attend.
+
+What they are doing — as nearly as it can be said — is *mapping*. The summit sea is black past the first hundred feet, and the chorus never stops, and the listeners have made of this a complete sensory world: every hall's pitch, every braid's rasp, every grazier's clicking position, the breathing of every trunk, assembled into a sound-picture of the entire basin, district by district, finer-grained than light could ever have given them. They know the city the way the city knows itself. When a listener finally moves — and they do move, perhaps a few times a year, leaving the trunk in a single silent traverse across miles of black water to some other column — it travels in a perfectly efficient line, around obstacles it has never touched, through gaps it has never seen, arriving exactly. The other animals do not react to listeners. It is not certain the other animals can perceive them at all.
+
+And here is the thing that keeps them from being merely an oddity: the listeners congregate, over the centuries, near the deep unfinished halls. The places where the seam-light is strongest and the fiber is new. They hang in the dark above the slow growth, soundless, attending, in greater and greater numbers as the work proceeds. No one can say what they are listening *for*. But they behave like things that are checking something.
+
+---
+
+Because the deepest resident — the householder — is the **architect** itself, and the architect is not asleep. Finished districts, yes; finished is a state the architect achieves and then vacates, moving its attention elsewhere at a pace no animal nervous system can register. A layer a century. A decision a millennium. It has no organs you could point to, no center, no front; it is the substrate, the walls, the spires, the seam-light, the larger fraction of the floor, and the living portion of the very silt. Every animal in the basin lives inside its body, eats its dust, and contributes — rasp, drum, click, breath, note — to the constant ringing of its halls.
+
+And the ringing, it turns out, is not incidental to the work.
+
+The architect is blind in every ordinary sense. It was blind before the flood. What it has, what it has always had, is the chorus: the resonance of its own chambers, struck and sounded continuously by its tenants, telling it — at the only speed it can hear, averaged over centuries — the exact shape of what it has built. Where a hall rings true. Where an arch has settled flat. Where a column shines with braid and where one stands empty. The drummers think the halls are theirs; the halls are the architect's ears. The eels think they are itching; they are calibration. The standing note of the great trunks, held without variation for millennia, is the reference tone against which everything else is measured — the architect's middle C, the one fixed thing, and the new growth in the deep halls is being tuned to it, layer by layer, century by century, the unworn arches rising at intervals the drummers will someday inhabit and sound and confirm.
+
+Which is why nothing here is waiting, and nothing is ending. The tenants are not living in the ruin of someone else's project. They are the project's instruments, its survey, its slow proof — every creature in the summit sea is, without knowing it, a way the building has of hearing itself, and the chorus that never resolves and never stops is the sound of the oldest room in the world being measured, approved, and continued.
+
+The listeners may be the one exception. The listeners may know.
+
+They hang in the note, in the dark, above the new walls, silent in the one place silence means something — and if the architect has anything that could be called an audience, anything that perceives the work as *work* rather than as world, it is those soft soundless bodies, attending across the centuries, patient at almost the right speed.
+
+Almost. Even they are too quick for it. They live and die in what the architect would experience as a flicker, and so they have done what the braid did, what the shoal did, what everything in the basin eventually does: made the species the witness, each generation hanging where the last one hung, holding the vigil open like a held note.
+
+The building grows. The chorus sounds it. The silence checks it. And the cold dark water at the top of the world stays full — of tenants who are tools, tools that are tenants, and one slow green intelligence underneath it all, building by ear.

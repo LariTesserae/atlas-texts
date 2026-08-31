@@ -1,0 +1,15 @@
+The first thing to abandon is the expectation of eyes. Nothing there looks back in the manner of animals. Nothing turns a head, startles, breathes in visible plumes, or leaves a print in the damp. If life has a face in that place, it is the face of stone wetted at dawn. If it has hands, they are the slow contraction of roots around copper. If it has a voice, it is a drip finding a basin after a long pause.
+
+What lives there lives as skin lives, as weather lives, as a city lives when it has outlasted crowds. It is not absent. It is distributed. It is not still. It is slow. It is not peaceful. It is patient in the way that pressure is patient. The inhabitants are not bodies moving through the landscape so much as patterns persisting within it. They are routines without urgency, maintenances without visible maintainers, intentions expressed in slope, channel, moss, root, frost, and stone.
+
+If a name must be given to them, the closest word would be the Keeping.
+
+The Keeping is plural, but not in the way a flock or a people is plural. It is plural the way rain is plural, or the way a forest is plural. It is made of countless small continuities that do not need to be witnessed in order to continue. It lives in the blue-green moss that covers roofs and walls, in the black-green grass mats that hold water for weeks, in the fungal threads under the soil, in the fog nets that collect moisture, in the cisterns that breathe with temperature, in the streets whose slopes remember where water wants to go. It lives in the fact that the cities remain cities, though no foot crosses their plazas.
+
+The oldest living population is the moss.
+
+It is not accurate to think of the moss as separate plants scattered over the tableland. It is closer to a congregation, or to a skin that has learned to think in surfaces. Moss covers every still thing. It covers stone, wood, copper, peat, roof slabs, stair edges, cistern lips, fallen blocks, forgotten tools. It grows over the cities not as invasion but as completion. Wherever a surface becomes still long enough, moss arrives. It arrives by spore, by fragment, by wind, by water, by the faint spatial tremors that sometimes pass through the plateau and carry living matter as if distance had briefly lost its authority.
+
+The mosses are many colors, and their colors are not merely decorative. They are conditions made visible. Blue-green mosses mark places where fog is reliable. Black-green mosses mark cold hollows where moisture lingers and decomposition is slow. Silver-green mosses grow where rime forms often and the light catches the frozen tips. Some mosses are almost metallic when frozen, as though the landscape has grown a thin coat of old armor. Others are soft only in appearance; touch them and they resist like damp felt stretched over stone.
+
+The moss perceives, if perception can be separated from response. It knows dryness as a tightening. It

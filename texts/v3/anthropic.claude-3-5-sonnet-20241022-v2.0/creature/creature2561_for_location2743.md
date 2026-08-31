@@ -1,0 +1,17 @@
+Let me describe the inhabitants of this living machine-city:
+
+The Weavers are the most visible of the human inhabitants - though "human" has become a flexible term here. Their bodies host symbiotic crystalline structures that echo the city's hybrid nature, faint lattices visible beneath their skin that pulse in rhythm with the urban metabolism. They move with practiced grace through the elevated plant-paths, their bare feet sensitive to the electromagnetic currents flowing beneath.
+
+Less commonly seen are the Deep Dwellers, who have adapted to life in the water-filled lower levels. Their eyes are large and reflective, evolved to see in the diffuse light that filters through the crystalline canopy. Their skin has developed a biological relationship with certain strains of bioluminescent organisms, allowing them to communicate through patterns of light that ripple across their bodies.
+
+The Resonants are perhaps the most altered. They've developed an intimate connection with the city's sound-field, their neural patterns synchronized with its rhythms. Their speech has evolved into something between language and music, incorporating the frequencies that run through the infrastructure. They serve as living interfaces between the city's various systems.
+
+Among the engineered wildlife, the Circuit Moths are ubiquitous - swarms of iridescent creatures that harvest excess electromagnetic energy. Their wings bear patterns that mimic the city's power distribution networks, and they've developed a complex relationship with the crystalline plants, helping to regulate energy flow through the ecosystem.
+
+The Maintenance Collective is harder to classify - a fluid community of semi-autonomous machines, evolved urban animals, and specialized microorganisms that work in concert to repair and maintain the city's vital systems. Individual members range from cat-sized repair units that mimic local fauna to microscopic machines that have achieved a symbiosis with bacterial colonies.
+
+Perhaps most intriguing are the Archivists - colonial organisms that have evolved to store and process information in crystalline structures similar to those found in the ancient computer systems. They grow in quiet corners of the city, slowly accumulating and integrating data from both biological and technological sources. The humans who work with them have learned to read their patterns through touch and electromagnetic sensitivity.
+
+Threading through all of these are the Flow Shepherds - nomadic groups who follow the city's water cycles, reading the subtle changes in current and composition that herald shifts in the urban ecosystem. Their bodies are lean and adapted to constant movement, decorated with living circuitry that helps them navigate and communicate with the city's systems.
+
+All these inhabitants move in overlapping patterns, each filling ecological and technological niches that have emerged over centuries. Their relationships are as intricate as mycorrhizal networks, exchanging energy, information, and materials in cycles that have become essential to the city's function. They don't think of themselves as separate from their environment - they are cells in a larger organism, each playing their part in maintaining the delicate balance of this hybrid ecosystem.

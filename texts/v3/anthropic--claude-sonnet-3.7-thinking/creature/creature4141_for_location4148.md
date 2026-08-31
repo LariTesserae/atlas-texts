@@ -1,0 +1,25 @@
+# The Hollow Keepers
+
+They are rarely glimpsed directly. At first, you might mistake them for unusual formations in the limestone—tall, slender protrusions that seem to bend impossibly without breaking. Only when they move do you realize your error, and by then, they've often slipped away, melding into the contours of their domain.
+
+The Hollow Keepers stand approximately two meters tall when fully extended, though they rarely achieve this posture, preferring a hunched form that allows them to navigate the low tunnels with practiced efficiency. Their bodies consist of a flexible cartilaginous structure rather than a true skeleton, allowing them to compress to less than half their height when necessary, squeezing through passages barely thirty centimeters high.
+
+Their skin is translucent and slick, similar to the biofilm that coats the cavern walls, but thicker and more organized. Through this membrane, a network of pulsing organs is visible—not in the familiar arrangement of terrestrial vertebrates, but distributed throughout their form in a decentralized system. These organs glow with the same bioluminescence as the cave biofilm, but with greater intensity and control, pulsing in complex patterns that serve as their primary mode of communication.
+
+They possess no eyes in the conventional sense. Instead, their entire skin surface functions as a sensory organ, detecting minute changes in air pressure, temperature, electrical fields, and chemical composition. Four long, tendril-like appendages extend from what might be called their shoulders, each capable of incredible precision and strength, ending in six smaller tendrils that function like fingers. These limbs can separate into independent parts when necessary, rejoining seamlessly afterward.
+
+Where a head would be on a terrestrial creature, they have a sensory cluster—a dense concentration of specialized cells that interpret the overwhelming symphony of the Hollows not as noise but as a detailed acoustic map of their environment. They can distinguish between thousands of individual sounds simultaneously, processing this information to navigate and hunt without what we would recognize as sight.
+
+They move without sound—an impressive feat in a place where even the smallest disturbance echoes. Their locomotion occurs through a combination of the four primary tendrils and a flexible lower body that can either form temporary leg-like structures or undulate like a serpent, depending on the terrain.
+
+The Keepers are not numerous—perhaps fewer than a hundred exist throughout the vast network of the Hollows. They appear to be solitary creatures, coming together only rarely in small groups of three to five. During these gatherings, their bioluminescent patterns synchronize in hypnotic displays that might be ritual, communication, or reproduction—perhaps all three.
+
+They practice a form of cultivation, maintaining certain chambers where they encourage specific species to thrive while culling others. Some tunnels show evidence of deliberate modification—not with tools but shaped slowly over generations through the application of specialized secretions that dissolve or harden the limestone. They've created a network of territories, each maintained by a single Keeper who knows every contour, every creature, and every drop of water in their domain.
+
+The Keepers consume selectively and sparingly, primarily ingesting the biofilm and certain arthropod species. They appear to enter dormant states for long periods, adhering to walls almost indistinguishably from the surrounding stone, their metabolism slowing to imperceptibility. Some of the oldest Keepers—distinguishable by their more complex bioluminescent patterns and slightly larger size—may have remained in the same territory for centuries.
+
+The rare humans who have encountered them report a profound sense of being known—of having every aspect of their physical presence read and understood. The Keepers appear neither hostile nor friendly toward human intruders, merely watchful, though they become aggressive if their cultivated chambers are disturbed or if humans attempt to remove creatures from the Hollows.
+
+Most tellingly, no Keeper has ever been found dead. They do not appear to leave remains, leading to speculation that at the end of their lives, they somehow dissolve back into the biofilm that coats the Hollows, their consciousness perhaps joining some greater network that permeates the entire cave system—becoming, in essence, part of the Hollows themselves.
+
+Whether they evolved here in isolation or are the adapted descendants of a surface species that retreated underground eons ago remains unknown. What is certain is that they belong to the Hollows in a way no surface creature ever could—not merely inhabitants, but embodiments of this alien ecosystem that breathes in darkness beneath our feet.

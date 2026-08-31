@@ -1,0 +1,23 @@
+What lives here is not a creature in the old sense—not one that eats, flees, or mates in ways that would be recognizable to those who dwell in softer worlds. It does not have a name, because naming implies separation, and separation is impossible here. It is the place. Or rather: the place *is* it.
+
+It is awake. Not conscious as minds are conscious—weighing options, remembering slights, dreaming of elsewhere—but awake as a root is awake in the dark: sensitive, responsive, perpetually adjusting. It feels the weight of every footfall transmitted through the lattice of its own body. It registers the heat of a stranger’s breath as a disturbance in the thermal equilibrium of its inner chambers. It knows you are here not because it sees you, but because your presence unbalances the tension in a thousand fibrous strands that hum like plucked bowstrings beneath your boots.
+
+It does not think in words, nor even in images. Its cognition is hydraulic, electrochemical, gravitational. It reasons in gradients: of moisture, of pressure, of lightless luminescence. When a glider-arthropod brushes a trigger-hair on a false blossom, the signal does not “travel” through the plant—it *is* the plant, momentarily reshaped by the event. A wave of turgor pressure ripples outward, not as a message but as a change in being. And that change is felt everywhere.
+
+It is old, though the land is young. Older than the uplifted ridges, older than the first seed that dared to root in the thin air. It remembers—though “memory” here is not stored in cells but in the torsion of trunks, in the spiral bias of vine coiling, in the resonant frequency of a particular arch that groans only when the cold reaches -12°C. These are not records. They are continuations.
+
+It breathes, but not with lungs. It exhales mist through stomata the size of fists, drawing in the thin air not to extract oxygen but to taste the chemical signature of the sky—checking for spores, for ash, for the faint metallic tang of distant lightning. Its “lungs” are entire canopies that inflate and deflate with the diurnal tide of temperature, sighing condensation onto their own leaves like a body weeping for itself.
+
+It reproduces, but not by scattering seed alone. Some of its offspring are windborne capsules that crack open with sonic booms, yes—but others are deliberate. Structures grow outward in answer to need: a new bridge spanning a widening fissure, a cup-leaf angled precisely to catch the next breath of fog, a chamber that curls inward like a fist around a clutch of symbiotic fungi. These are not accidents of growth. They are gestures.
+
+And the built things—the reed domes, the bone needles, the three-toed prints in sap? It tolerates them. Perhaps it even prompted them. The beings who made those tools may have believed they were shaping the forest, but it was the forest that shaped *them*. It offered fiber for thread, resin for sealant, spines for needles—and in return, it borrowed their hands. Briefly. Precisely. As one might borrow a scalpel. The footprints are not intrusions. They are symbiotic signatures, fossilized acknowledgments: *I was here, and I was used.*
+
+It watches you now—not with eyes, but with every surface that curves toward your warmth. The silence you feel is not emptiness; it is attention. The forest is listening to the rhythm of your blood, measuring your intent by the tremor in your step. If you mean harm—if your presence carries the scent of fire or severance—it will not strike. It will simply cease to hold you. A bridge will unknit. A root will shift. The air will thin further. You will find yourself falling through a lattice that no longer recognizes you as part of its equation.
+
+But if you are still—if you breathe in time with the creak of the trunks, if you let your heat leak slowly into the pith, if you offer no demand—then it may let you pass deeper. Not as a guest. Not as a traveler. But as a temporary filament in its endless weaving.
+
+You will not leave unchanged. Already, spores cling to your clothes. Fungal hyphae reach from the damp of your boots into your skin, not to infect, but to listen. And when you finally descend—if you descend—you will carry a piece of its silence in your bones. A hollowness that hums. A coldness that breathes.
+
+It does not want you. It does not need you. But it permits you, for now, to be part of the architecture.
+
+And in this place, permission is the closest thing to love.

@@ -1,0 +1,45 @@
+What lives there is almost not willing to be called life.
+
+At first it presents itself as finish: a pale nap on the stone, a gray seam, a little crust caught in a corner where the mason’s tool failed to make a perfect join. It has no posture of appetite. It does not lean toward the light in any recognizable way. It does not search, climb, open, wilt, or spread with the quick opportunism of ordinary green things. It has the manner of deposits, of old repairs, of mineral afterthoughts. Only after long looking does the difference appear: the repetition of forms too exact to be accident, the faint symmetry of the rosettes, the jointed discipline of the stems, the glassy mosses arranged in patient colonies along the cracks.
+
+The inhabitants are dry plants, if plants is still the right word for them.
+
+They are small because the chamber permits nothing large to be alive. Their bodies are built out of refusal: refusal of water, softness, speed, rot. Their colors belong less to leaves than to ash, bone, salt, tarnished metal, and old bruises hidden under dust. A gray rosette pressed to the plaster may be centuries old. A finger-high branching stem may have taken forty years to divide once. The glass-thread mosses may be ancient mats whose outermost tips are the only living parts, the rest of them a dead but useful scaffold of their own previous selves.
+
+They do not drink. Or rather, they do not drink as wet-rooted plants drink. Water is dangerous to them, almost poisonous in abundance. A drop would not nourish so much as overwhelm. Their tissues are made to receive traces: the breath-moisture of air that has traveled a long way through masonry, the faint chemical looseness in powdered salts, the invisible film that appears on mineral surfaces before it can be called damp. They harvest the idea of water before water becomes liquid. Anything more would burn, split, or rot them.
+
+Their roots are not roots but fastenings. Pale threads go sideways into plaster, down between ceramic plates, around grains of salt, into the tiny injuries of columns. They do not dig; there is nowhere to dig. They do not seek soil; there is none. They anchor, measure, taste, and wait. Some have root-filaments so fine they enter the pores of fired clay and grip there like cooled smoke. Others make little white pads, hard as scale, that weld them to ledges and lintels. If pried loose, they would leave behind not a hole but a clean scar, a patch where the chamber’s surface had briefly become alive.
+
+Their leaves, where they have leaves, are more like mineral flakes than foliage. Thin, brittle, overlapping, edged with crystalline fur. They lie flat against the wall or curl inward around a dry center. In strong light their surfaces do not shine green but give back a dull silver gleam, the way powdered mica catches sun. The violet ones are rare and low, found only in the bluer shadows under overhangs and in the lee of thick pillars. Their color is not floral display. Nothing here needs to lure an animal. It is a stain of chemistry, a defense against too much brightness, or perhaps a record of some ancient salt in the stone.
+
+The jointed stems are the most animal-looking, though they are not animal at all. They stand in small groups at the bases of columns, clustered like miniature scaffolds abandoned by impossibly careful builders. Each segment is hollow. Each fork is angular, deliberate, almost architectural. They seem to imitate the chamber’s buttresses and braces, but it may be the other way around: perhaps both plant and chamber obey the same hidden geometry of load, dryness, and resonance. In the constant roar, these stems tremble too slightly to be seen. Their hollows take in the sound and sift it. Dust collects where the vibration tells it to collect. Salt grains creep, over decades, toward their feet.
+
+They feed on light, but not hungrily. Light is everywhere, so there is no need for drama. No broad leaves, no reaching canopies, no lush competition. They accept brightness the way stone accepts it: all day, without expression. Their surfaces are packed with pale cells that use only a fraction of what falls on them. Too much light is not a gift but a pressure. Many of them wear their own shade in the form of powder, hairs, crystals, and dead outer skin. They are not trying to become abundant. They are trying to remain exact.
+
+Their reproduction is dry.
+
+No flowers open. No pollen floats gold in the air. No sweet scent gathers in pockets. Instead, old stems develop brittle seams. Rosettes lift one edge of a leaf-scale until it snaps away, carrying with it a speck of living tissue no larger than dust. Moss threads fracture into shining splinters. These fragments do not travel far. The chamber has no weather, only the fixed pressure of its roaring breath. A living speck may take years to move from one side of a floor rib to the other. It may lodge in a seam and fail. It may lie dormant for longer than a human lineage. It may be stirred by a visitor’s footfall, lifted into the air, and set down in a crack that suits it exactly.
+
+When that happens, it begins by doing almost nothing.
+
+A film forms. A point hardens. A filament enters the mineral. For a long time the new life is indistinguishable from salt bloom. Then, perhaps after many seasons too subtle to count, it develops a direction, a face, a private geometry. The chamber has gained another mark. Not an invader. Not a weed. An annotation.
+
+There are older beings here, though they are not larger in the ordinary way. The oldest colonies are broad only because they have had time to survive sideways. A gray crust along one sunken runnel may be a single organism spread through the joint beneath the plates, appearing at intervals like islands in a dry channel. A necklace of rosettes on a column may all belong to one hidden body, connected by threads inside the plaster. What looks like many small lives may be one dispersed patience.
+
+They have no nervous system, but they are not insensible. They know the chamber through gradients too slight for animals to respect: the difference between one white surface and another, the mineral flavor of a century-old crack, the exact pressure of sound beside a pillar, the cooler darkness under a broken lintel. They know where dust will settle and where it will never be allowed to rest. They know which stones hold salt near the surface. They know which slivers of light arrive sharpened and which arrive softened by reflection. Their knowledge is not thought. It is placement.
+
+The roar passes through them always. It is the nearest thing they have to weather. Some of them have grown in forms shaped by it: stems ribbed on the side that faces the hiss from the ceiling, mosses lower and denser where the bass hum enters the floor, rosettes with leaves slightly lifted at the edge where the sound vibrates through plaster. If the roar ever stopped, they might not notice at once. Then dust would fall differently. Salts would settle incorrectly. Their old calendars would fail.
+
+They do not sleep, because nothing here offers night in the familiar sense. They do not wake, because they never truly withdraw. Their lives are held in a narrow band between activity and suspension. At any moment they are doing less than almost any other living thing, and yet they are alive: fixing, exchanging, thickening, sealing, splitting, enduring. Their time is not the time of pulse or breath. It is the time of crusts, corners, polish, and accumulated brightness.
+
+If a human entered, the inhabitants would not flee. They could not. But the visitor would be a catastrophe of wet heat, salt flesh, shedding skin, moving shadow. Breath would strike them as weather. A hand placed on the wall would leave a season behind. A drop of sweat falling into a crack might feed one colony and kill another. The dry plants would answer slowly, invisibly: closing microscopic pores, drawing salts around themselves, hardening their outer films, waiting for the disturbance to become memory.
+
+There may also be life too small to see living with them—organisms sealed into their crusts, pale microbes lodged in crystal lattices, companions that wake only when a molecule of vapor passes close enough to use. But even these would not swarm. Nothing swarms here. Nothing teems. Life exists as a discipline, not an abundance.
+
+So the chamber is inhabited, but not occupied in the way a forest is occupied, or a ruin, or a cave. Its residents do not fill it with motion. They confirm it. They make visible the laws already ruling the place.
+
+They are the chamber’s slow skin.
+
+They are the places where architecture has learned to photosynthesize.
+
+They are dry, mineral, stubborn lives, each one fitted to its crack as precisely as a stone in a wall. They do not dream of rain. Rain would be an apocalypse. They dream, if they dream at all, of another century of light, another grain of salt, another unmoving morning in which the roar continues and nothing wet remains.

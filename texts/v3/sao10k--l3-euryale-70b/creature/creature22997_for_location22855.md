@@ -1,0 +1,15 @@
+This primeval landscape teems with life, though much of it remains hidden beneath the surface. The vibrant fungi are not mere ornaments; they form symbiotic relationships with the roots of the ancient trees, breaking down minerals and organic matter in exchange for sugars. Beneath each gnarled trunk stretch vast networks of mycelium, pulsating with nutrient-rich fluids that nourish both fungus and tree alike.
+
+Innumerable insects flit between moss-draped boulders and jewel-toned blossoms on stalks - iridescent beetles, dragonflies with wings like stained glass windows, delicate praying mantises mantled in living fur. They alight upon jeweled spider webs beaded with condensed moisture.
+
+A flash of color darts among the shadows - a sleek creature, like a cross between a weasel and a snake, sinuous and quick. It pauses at the edge of a slow-moving stream choked with floating logs and algae mats. Whiskered nose twitches as it scents the water before slipping silently in to snare minnow-sized fish darting against the current.
+
+Larger denizens lurk deeper within shrouded hollows - hulking amorphous beasts slumbering atop beds of humus and fallen timber. Their hides are mottled shades of olive, brown, and gray, textured like the bark they press themselves against. Empty eye sockets stare blankly ahead while they dream of past epochs when this land was dry plains roamed by herds that might fill the belly of such a one. Crustacean claws click against armored hides as yet more exotic flora sprouts from folds in their flesh.
+
+None truly hunts here except out of dire need or territorial dispute - for millennia these creatures have lived alongside one another in an uneasy balance mediated by the patient patience demanded by such a slow cycle of growth and decay.
+
+And then there is what lies within those distant towers... creatures born from dark fusion of flesh and metal who gaze out over their lush domain with eyes that burn cold fusion fire behind fractal screens. They ponder how best to nurture this garden world without tainting it utterly to suit their own purposes...for now they choose to keep its wild beauty alive to soothe something deep inside them which cannot bear too bright a light...
+
+They send forth avatars made entirely from woven plant-stuff - beings stitched together from vines heavy with water-swollen fruit and crowned with flame-colored blooms which whisper secrets back across kilometers of hammock-like fleshy strands connecting each hillside tower. These serene guardians drift from valley floor to slippery brook-side on diaphanous kites sewn from insect-wing chitin membranes, leaving trails of seed-pods in their wake which burst open into fast-growing creepers studded with bioluminescent berries that feed phosphorescent deep-cave dwelling species migrating up during mating seasons.
+
+There is great wonder here amidst alien lonesome grandeur but also threat enough lurking unseen...and yet even deadly peril has its place in nature's dance...if you can simply find it beautiful enough..."

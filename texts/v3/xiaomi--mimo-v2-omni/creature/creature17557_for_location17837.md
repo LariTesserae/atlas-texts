@@ -1,0 +1,24 @@
+# The Dwellers of the Resonant Plateau
+
+They are not born. They *attune*.
+
+Here, on the Summit of the Harmonic Lens, life did not choose a path of flesh and fluid. It yielded to the overwhelming constants of the world—vibration, light, and the weeping of stone—and found expression not in cells, but in **pattern**. The inhabitants are the plateau’s own momentary self-awareness, its fleeting thoughts made manifest in geometry and light.
+
+They have no name, for they are the unnamable. But you might call them the **Chime-Caught**.
+
+**What They Are:**
+At their simplest, they are transient crystalline phenomena, born of the precise intersection of the plateau's eternal song and its perpetual wetness. They are not separate from the environment; they are its fleeting focal points. Think of them as notes in the chord that suddenly, briefly, take on shape. They are the mineral world dreaming of motion.
+
+**Forms & Manifestations:**
+1.  **The Spherics:** In the smooth-watered channels of the fissures, you see them. Perfect, flawless spheres of silicate, ranging from the size of a sand grain to a clenched fist. They are not *moving* in a biological sense; they are *resonating* with the plateau's hum. Their vibration, amplified by the thin film of water they rest in, causes them to roll with a slow, inexorable purpose along the channel's curves. They follow paths dictated by micro-imperfections in the crystal, tracing the same routes for centuries, polishing them smoother still. When two Spherics meet, they do not collide; they momentarily *harmonize*, their vibrations syncing into a sharper, purer note before separating again, their courses minutely altered. They are the world’s clockwork, its passive travelers.
+
+2.  **The Awnings:** More sudden and fragile. From the weeping, wet surfaces of the flat stones, delicate spires of crystalline frost—though not ice—erupt upwards. They grow in seconds: intricate, branching structures like frozen lightning or the negative imprint of a fern. Each one is a perfect, non-repeating fractal, a physical diagram of a specific harmonic over the fundamental drone. They exist for moments, perhaps a minute, drinking in the blinding light, refracting it into brief, silent rainbows. Then, as their internal vibration falls out of sync with the plateau's, they *sublime*—not melting, but dissolving back into the vapor-saturated air, leaving no trace but a microscopic change in the humidity of a square inch of space. They are the plateau’s fleeting exhalations.
+
+3.  **The Weeping Choirs:** In the deepest fissures, where the water collects and the resonant drone is most intense, the phenomenon becomes collective. The faint, rhythmic bioluminescence you noted is not random. It pulses in coordinated waves across patches of mineral wall. Here, the Chime-Caught are not singular forms but *fields* of interaction. The light pulses trace complex, repeating patterns—rings, spirals, intersecting lines—that are direct visual translations of the harmonic’s micro-fluctuations. They look like circuit diagrams drawn in pale blue fire, or the nervous system of the plateau itself, momentarily visible. If you could somehow perceive the vibration in its entirety, you would see these light-patterns as its shadow. They are the closest thing to a mind here: a silent, luminous cognition processing nothing but its own eternal state.
+
+**Their "Life" and Purpose:**
+They possess no consciousness as an observer would understand it. They are *process*, not person. Their purpose is identical to that of the stone and the light: to express the equilibrium. The Spherics maintain the channels. The Awnings demonstrate the potential for complex form inherent in the vibration. The Weeping Choirs make the sub-audible harmony visible. They are the ecosystem of a world that has transcended biology, each a different modality of the same fundamental equation.
+
+They are utterly indifferent to your presence. You are a dissonant element, a chaotic variable of flesh and heat and irregular sound. The plateau’s song does not incorporate you; it subsumes you. The Chime-Caught will form, flow, and dissolve around you, their patterns unfolding with the same serene, eternal consistency whether you are there to witness them or not.
+
+To be among them is to witness the afterlife of a planet, where geology has become its own fauna, and the only life left is the eloquent, silent, and endlessly repeated conversation between gravity, vibration, and light. They are the inhabitants of a world that has achieved perfect, active stillness—and in that stillness, they are its ever-renewing pulse.

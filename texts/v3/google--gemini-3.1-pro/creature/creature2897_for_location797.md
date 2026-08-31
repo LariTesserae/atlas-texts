@@ -1,0 +1,37 @@
+Out of the howling, abrasive symphony of the high mesosphere, a silhouette emerges against the twilight. To a human eye, it might first appear as a mere knot in the architecture, a naturally occurring extrusion of the matte-silver boughs. But then the knot unspools. 
+
+They are the caretakers of the colossal sounding-board, the progeny of the self-repairing macro-structure. You could call them inhabitants, but it is more accurate to say they are the city’s localized consciousness, its mobile, autonomous immune system and architects. 
+
+Their bodies are masterpieces of dry, aerodynamic evolution. Lacking the heavy, freezing vulnerability of water, flesh, and blood, they are sculpted entirely from the same advanced carbon-matrix as their world. They resemble an elegant intersection between a mantis, a racing bicycle, and a tuning fork. Standing nearly eight feet tall when fully extended, their sleek, charcoal-black carapaces are swept back into frictionless, sweeping curves that offer zero resistance to the roaring gales. There are no right angles to their biology; every joint, every limb, is a perfect, wind-honed ellipse. 
+
+Instead of walking, they lock and glide. Their four primary limbs end in complex, carabiner-like digits—interlocking ceramic claws that snap around the diamond-braid vines and aerogel bark. They scuttle along the undersides of the quarter-mile-thick boughs, suspended over billions of tons of empty air, moving in abrupt, pneumatic bursts. When they bend their joints, localized pockets of highly pressurized, ionized dust hiss violently, cushioning the ceramic-on-carbon impact. 
+
+They have no faces. A face requires soft tissue, eyes that need moisture, a mouth to take in wet food. Instead, where a head might be, they possess a sweeping, swept-back sensory crest made of wafer-thin, overlapping layers of conductive graphene. Because the ambient noise of their world is a bruising, deafening cataclysm of grinding stress-joints and screaming winds, they are entirely deaf to airborne acoustics. They exist in a state of profound, majestic silence. 
+
+Instead of hearing the air, they *feel* the city. 
+
+By pressing their conductive limbs against the ancient, petrified wood of the boughs, they tap directly into the structural resonance of the metropolis. The entire city is a web of vibrations. Through the bark, they can feel the scraping serrations of grazing herbivores miles away, the sudden, artillery-crack decompression of a predator diving through a geodesic habitat, and the micro-fractures in a suspension cable begging to be restringing. They perceive the world as a complex, three-dimensional geometry of tension, harmonic frequencies, and dry-chemical stress points.
+
+Their "blood" is a thick, highly conductive liquid gallium, kept in a fluid state by the tremendous piezoelectric friction generated as they move. Their internal biology is a dry, electrical engine—a series of staggering capacitors and magnetic baffles that synthesize the heavy metals pulled from the piezoelectric moss they glean, refining it into pure structural material.
+
+Because they cannot shout over the roaring winds, they speak in voltage. When two of these beings meet on a sweeping suspension-vine, they grip each other’s forelimbs. Through this physical connection, they discharge micro-bursts of electricity and high-frequency shudders. It is a tactile, instantaneous telepathy. In a fraction of a second, they can download the tension-schematics of an entire city block, share the thermal mapping of the mesosphere updrafts, or express the harsh, mathematical equivalent of joy.
+
+They are the keepers of the city’s tension. The immense scaffold of the forest-city survives the relentless winds because it is constantly re-tuned, and these beings are the tuners. Working in coordinated swarms, they seek out slackened vines and warped platforms. Using specialized spinnerets at the base of their abdomens, they exude a slurry of liquid metal and raw carbon, weaving new diamond-fiber cables, grinding their serrated limbs against unlubricated friction-pulleys to tighten the city’s rigging. What to an outsider sounds like a chaotic, deafening clatter of an unmaintained machine is, in truth, an intricate, endlessly conducted symphony of maintenance. They pluck the cables. They listen. They adjust. 
+
+To traverse the vast, terrifying gulfs of open void between the main boughs, they do not climb down. They kite. 
+
+When a tuner needs to cross a mile-wide expanse of open, frigid air, it climbs to the pinnacle of a geodesic pod, facing into the howling gale. With a concussive snap of its pneumatic joints, it lunges into the void. Instantly, out of deep lateral fissures in its carapace, massive arrays of rigid, ultra-thin metallic foil snap open, locking into place. These are not wings for flapping; they are hyper-efficient, magnetic solar-sails designed to catch the extreme barometric drafts. Riding the violent thermal updrafts alongside the clattering origami-manta creatures, they navigate the sky like expert sailors, angling their rigid sails to ride the magnetic repulsions and acoustic waves right to the next towering bough.
+
+But their existence is not merely maintenance and survival. There is a deep, ecstatic rhythm to their lives, dictated by the relentless barometer of the atmosphere. 
+
+When the "blooming" cycle begins—when the city-blocks of hollow pods burst open with concussive booms, flooding the unending twilight with rivers of bioluminescent, neon-blue smart-dust—the tuners abandon their maintenance. 
+
+This is their apex. The atmosphere becomes supercharged with static electricity. As the glowing blue pollen seeks opposite charges, weaving temporary, gossamer bridges of hard light and pure electrostatic matter across the miles of empty void, the tuners leap onto them. The pollen coats their charcoal-black carapaces, illuminating them in electric, searing blue. 
+
+This is their time of mingling and migration. Out on the fragile, temporary bridges of blue light, suspended over a bottomless abyss in a roaring hurricane of wind, massive flocks of tuners from distant, isolated boughs meet. They sprint across the dissipating light, their ceramic claws finding purchase on the hardened static. At the center of the gulfs, suspended in the eye of the mechanical cosmos, they crash into one another, interlocking limbs in clusters of hundreds. 
+
+Here, in massive, glowing blue knots hovering in the mid-air, they exchange their liquid-metal genetics. They share the harvested data of a billion tuning frequencies, downloading the architectural history of their respective quadrants, merging into a singular, vast intelligence before the static charge dies. 
+
+When the bridges finally short-circuit and the pollen falls away into the dark beneath them, the swarms deploy their metallic sails in unison. A thousand razor-sharp kites snapping open in the twilight, scattering back to the matte-silver safety of the monolithic trees.
+
+They do not dream of water, for they do not know what it is. They do not crave warmth, for their liquid-gallium hearts burn perfectly in the freezing dark. They are the apex dry-tech angels of a bruised and roaring heaven, endlessly tightening the strings of a colossal, cracking bell, perfectly at home in the beautiful, violent noise.

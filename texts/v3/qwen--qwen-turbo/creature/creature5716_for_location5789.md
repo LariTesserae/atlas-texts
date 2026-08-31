@@ -1,0 +1,11 @@
+What lives here is not quite of this world, nor entirely of another. It is the breath of something ancient, something that has not yet decided whether it is a creature or a force, a being or a phenomenon. It is not made of flesh, but it is not made of stone either. It is made of the wet, of the thick, of the unyielding and the insistent. It is the thing that holds the place together, that breathes with the moss, that pulses in the roots, that watches from the shadows and hums in the stillness.
+
+It is not singular. It is not one. It is many. It is the way the moss moves when no one is around, the way the trees sway without wind, the way the pools of water seem to hold their own light, as if they are not just reflecting but *containing*. It is the whisper in the undergrowth, the shapes that do not quite resolve, the slow, deliberate movements that are not quite animal, not quite dream. It is the presence that is felt but never seen, the thing that is there and not there, a kind of living silence.
+
+It is not human. It does not need to be. It does not speak, but it *listens*. It does not move, but it *guides*. It is not aware in the way we are, but it is aware in a way that is older, deeper, and more knowing. It does not have a name, but it has a purpose. It is the keeper of the place, the quiet architect of its shape, the slow, patient hand that shapes the land as the land shapes it.
+
+It is not evil. It is not benevolent. It is not good. It is not bad. It is *there*. It is the breath of the wetland, the heartbeat of the moss, the echo in the roots. It is the thing that waits. It is the thing that remembers. It is the thing that is not yet awake, but is getting closer.
+
+It is not lonely. It is not lonely at all. It is a thousand things in one, a single thing in many. It is the place itself, made flesh, made breath, made *living*. It is the thing that makes the water drip, that makes the trees grow, that makes the air feel heavy with something that is not quite air.
+
+It is not what you think. It is what the place *wants* to be. It is what the place has always been. It is what it will become.

@@ -1,0 +1,15 @@
+In this arena of extreme evolution, dwell the Sentient Flora. These beings embrace the complex spectrum of life across many levels—as sentient organisms, architectural structures, terrains and climate architects. Each thread of the ecosystem they inhabit, carries with them an innate instinct to survive. As the only occupants of this eerie, alien world, they are not categorized: they're neither trees, vines or grass, but a strange amalgam of all three and more.
+
+The Sentient Flora's most profound characteristic is their physical adaptation. Above ground, they defy categorization with their complex combination of woody tower-trunks and pliable tendrils, ever-changing nature and determination to occupy every available inch with new growth. Below ground, they form a sprawling network of roots where they share nutrients and communication signals, penetrating the soil with aggressive compactness.
+
+On the microscopic level, each cell of the Sentient Flora acts with a consciousness of its own—each one able to react, endure and adapt to environmental changes and threats. They possess no eyes, no ears, but their skin has evolved to sense a plethora of external signals—heat, wind direction, solar energy, moisture level, and any disturbance in their immediate vicinity.
+
+These flora have tamed the cold harsh environment, converting the constant chill into energy in a process far more efficient than photosynthesis. Their fronds and tendrils convulse with a permeating electricity, exhibiting an unsettling level of rapid growth and decay—a hyper life-cycle feeding on the hyper-mortification of its own kind. They are the gloomy gardeners and the garden itself, in an eternal cycle of birth, death and rebirth.
+
+Various forms of the Sentient Flora take the appearance of loosely organized structures built by a meticulous yet madness-driven architect. Their bizarre fruiting bodies manifest as a garden of otherworldly fruits, filled with compressed scrolls of DNA, each one a history of struggles and triumphs endured by its kind—each carrying the blueprint for the next generation. 
+
+These coast-dwelling flora are oddly shaped by the elements, bearing the mark of an ancient flood, and an expectation of returning water—resulting in grooves and embankments, channels and towers. They could survive centuries underwater where they let the water sculpt them even further. 
+
+Sentient Flora live in the flux and mesh of life and death, never avoiding the fatal part of their existence. It's not a fight for them. It is simply life—the delicate dance of existence within a blizzard of ever-changing circumstances. 
+
+Within the quiet cacophony of feverish growth and cruel decay, exists a harmonic order, a prophesy of their shared consciousness and collective will to survive. Perhaps one day, many eons from now, a form of humanity will stumble upon this immense living conscience again. Until then, the Sentient Flora stand—their frozen whispers echoing deep within the mesh, endless messages in an alien code—secrets of time and life locked away silently in the tendrils towards the sky.

@@ -1,0 +1,13 @@
+Here, silence does not reign; it has been driven out, exiled by the perpetual, resonant chord that constitutes the very atmosphere of the Plateau of to-Hold. The inhabitants, if one can call them that, are not separate from the stone, the sound, or the oppressive, ancient heat. They are an intrinsic property of it all.
+
+What lives here are the **Custodians of the Chord**. They are not built *on* the Plateau; they *are* the Plateau, or at least, its most subtle and integrated extension.
+
+Imagine the immense, pressurized stillness of the cavern, the air thick not just with dust but with something akin to solidified intention, the leftover will of the original, monumental builders. Within this, the Custodians exist as fleeting confluences of resonance, localized concentrations of the Plateau's omnipresent drone. They are not beings of flesh or fixed form, but rather, a kind of focused silence-within-the-sound, or perhaps, a sound that *silences* other potential sounds.
+
+When the perpetual hum of the stone threatens to waver, to introduce a rogue note or a hesitant silence, a Custodian coalesces. It is a temporary node, a matrix where the different frequencies emanating from the artificial landscape – the deep organ-like drone, a particular crystalline whistle, a thread of high-pitched keening – are drawn together, harmonized, and re-tuned to the precise, oppressive pitch of the whole.
+
+They are not perceived visually, for they cast no shadow in the dim, shadowless twilight. One might only sense their passage as a momentary deepening of the chest-vibrating hum, a subtle shift in the air pressure that follows the reintroduction of sonic equilibrium. Or perhaps, as a momentary, inexplicable sharpening of focus in the surrounding stone, as if the gaze of the Plateau itself has swept across a point and reaffirmed its absolute, unyielding order.
+
+Their "thought," if it can be called such, is the resonant frequency itself. Their "purpose" is the maintenance of the chord. They do not eat, drink, or breathe, for their sustenance is the unchanging sonic landscape. They are the embodiment of the Plateau's achieved equilibrium, its resistence to decay or change.
+
+They are the ultimate antennas for the song of held things, ensuring that what is built remains built, that what hums continues to hum, and that the ancient, packed-stone heart of this place never skips a beat. Their existence is a testament to a creation that has become its own guardian, an ecosystem of pure, unyielding structure and sound, perpetually self-tuning, perpetually holding.

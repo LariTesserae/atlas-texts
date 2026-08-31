@@ -1,0 +1,15 @@
+In this place, where the air is thick as syrup and the light drifts like sediment in water, the beings that dwell are as much a part of the landscape as the breathing earth itself. They are not creatures of flesh and bone, not entirely—though they move, they do so with the slow, deliberate grace of something half-rooted, half-dissolved into the world around them.  
+
+Their forms are fluid, shifting between solidity and mist, their edges blurred as if seen through the distortion of deep water. Some appear as towering figures, their elongated limbs draped in what might be moss or might be their own flesh, fibrous and damp. Others are low to the ground, moving in ripples, their bodies barely distinguishable from the undulating terrain. They have no faces, not in any way that can be recognized—only impressions of features, like the ghost of a mouth, the suggestion of eyes that might be knots in the bark-like skin or hollows where the liquid air pools.  
+
+They do not speak, not with voices. Instead, they communicate in pulses—subtle vibrations that travel through the dense air, felt in the roots of the plants, in the slow currents that move between them. A language of pressure and presence, of shifts in the weight of the world. To witness it is to feel a deep, wordless understanding pass through you, like the memory of a dream upon waking.  
+
+They are not hostile, nor are they welcoming. They simply *are*, as much a part of this suspended reality as the half-ruined impressions of forgotten structures. They move with purpose, though what that purpose is remains unclear—perhaps they are tending to the land, or perhaps they are the land itself, rearranging its own body in slow, incomprehensible rituals.  
+
+Occasionally, one will pause, its form stilling as if listening to something beyond the veil of this world. In those moments, the shimmer in the air intensifies, and for a heartbeat, the being’s outline wavers, revealing glimpses of something else—another shape, another place, another time. Then the moment passes, and they continue their slow, endless wandering.  
+
+They do not die. Or perhaps they are already dead, and what remains is the echo of existence, lingering in this place where time has lost its meaning. They are neither alive nor not alive; they simply persist, as the land persists, as the liquid air persists, heavy and waiting.  
+
+If you were to stand among them, they might acknowledge you—not with recognition, but with the same distant awareness a mountain might have of a passing cloud. You would feel their presence, not as individuals, but as part of the greater stillness, the great exhale of a world that has forgotten how to change.  
+
+And then, eventually, they would move on, leaving you with the unshakable sense that you had not been speaking to beings at all—but to the land itself, wearing a face for just a moment, before dissolving back into the endless, liquid quiet.

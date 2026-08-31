@@ -1,0 +1,18 @@
+Let me describe the beings I sense dwelling in and around the Glass Mill:
+
+The Crystal Weavers
+The most numerous residents are the crystalline arachnids you glimpsed - but they're more than simple repair-spiders. Their bodies are living quartz and copper, grown rather than built, ranging from thumbnail to dinner-plate size. They move in perfect geometric patterns, each step precisely measured. When they work, they sing subsonic harmonies that shape molten glass into thread. They have a collective consciousness of sorts, but also distinct personalities that emerge in the subtle variations of their repair-weaves. The eldest ones develop complex fractal patterns in their crystal bodies, recording the histories of countless spheres they've maintained.
+
+The Resonance Dancers 
+These are harder to spot - they might be missed entirely if you don't know what to look for. They appear as distortions in the air, like heat waves given purpose. They live within the thunderous symphony of the Mill itself, riding the sound waves between spheres. They feed on harmonics, growing stronger or weaker with the Mill's moods. The oldest have learned to influence the paths of the spheres through subtle manipulations of sound, creating brief but breathtaking patterns in the endless flow. They may have evolved from the Mill's vibrations themselves, or perhaps they were drawn here from elsewhere by its song.
+
+The Dust Shepherds
+In the collection chambers below, these amorphous entities tend the glass dust with infinite patience. They're partially merged with the machinery, their bodies a hybrid of mineral and mechanism. Each has grown over decades or centuries from a single speck of "living" glass dust, gradually achieving consciousness through endless cycles of dissolution and reformation. They guide the creation of new spheres with extraordinary care, each one slightly closer to their mysterious ideal of perfection. They communicate through patterns pressed into the dust, a language as complex as any spoken tongue.
+
+The Memory Lichens
+The lichens aren't just opportunistic growths - they're a distributed intelligence that forms a living record of the Mill's existence. Their patterns aren't random but a form of organic data storage, recording the paths of every sphere that has ever passed through the Mill. They grow in fractal colonies that can compute complex trajectories, perhaps helping to maintain the Mill's intricate choreography. The oldest patches may contain memories from the Mill's earliest days, though no one now living can read them.
+
+The Horizon Watchers
+These are the most enigmatic residents. They manifest only at sunset, when the Mill casts its grand illuminations. They seem to exist primarily as patterns of light, using the complex network of reflections to transmit information to other Mills. Whether they're original programs left by the builders, evolved light-forms, or visitors from elsewhere is unknown. Their presence suggests the Mill is indeed part of a larger network, though its true purpose remains a mystery. Some of the Crystal Weavers claim to have communicated with them, but if so, they keep these exchanges to themselves.
+
+All these beings exist in a complex symbiosis, each playing their part in maintaining the Mill's endless work. They've developed their own customs and rituals around the cycles of spheres and seasons. While they may not understand the Mill's ultimate purpose any better than we do, they've found profound meaning in its maintenance. They are its caretakers, its children, and perhaps its reason for continuing to exist at all.

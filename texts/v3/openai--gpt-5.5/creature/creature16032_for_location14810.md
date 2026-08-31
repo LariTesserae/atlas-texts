@@ -1,0 +1,41 @@
+What lives there is almost not an animal at first.
+
+It is a paleness at the bottom of a pool, a suggestion of legs where the stone shadow thickens, a small correction in the water’s stillness. If seen directly it seems to disappear, not by speed but by becoming less different from everything around it. Its body has the color of diluted milk, old shell, wet quartz. The organs show through faintly: a bluish thread, a pearl-gray knot, the slow pulse of something simpler than a heart. It has no eyes. Eyes would be useless there, in the blinding upper glare and the black interior water below. Instead its head is rounded and smooth, fringed with minute hairs that read pressure, mineral taste, vibration, temperature, the approach of a shadow, the tremor of a footfall transmitted through a dozen connected basins.
+
+They are not solitary, though they are rarely seen together. The plateau is full of them in the way the stone is full of water: hidden, continuous, present beneath appearances. In each cup, fissure, submerged ledge, under each scalloped mineral lip, there may be one or several, pressed flat against the pale floor, waiting with the patience of things that have never needed to hurry.
+
+They are crustacean-like, but only in the broadest sense. Their ancestors may once have been cave shrimp, or spring amphipods, or some small blind animal washed upward through the plateau’s plumbing and stranded in the endless wetness. Now they belong to the place so completely that they seem less evolved than precipitated. Their bodies are thin and jointed, built for slipping between stone and water. The larger ones are no longer than a finger. Most are smaller than a torn clipping of nail. Their limbs are many, delicate, hooked at the ends so they can hold to slick mineral when the hidden current pulls. Along the underside they carry soft brushing parts with which they graze the invisible films that form in warmish seeps and sheltered dark.
+
+They do not eat plants. There are none. They feed on the plateau’s faintest life: bacterial skins, iron-sour threads, sulfurous smears, mineral colonies blooming where water pauses long enough to become inhabited. They scrape nourishment from stone without visibly altering it. Whole generations may pass over a ledge and leave nothing but a slightly cleaner patch beneath the waterline.
+
+Their world is not the open plateau. Their true country is the connected underside of it: the drowned seams, throatlike shafts, flooded cracks, basins linked by dark siphons, the under-rims of pools, the cool blue chambers beneath seemingly shallow water. The surface, with its glare and roar, is only the roof of their labyrinth.
+
+They know the landscape by contact. A fall of droplets on a pool rim is information. A bird-shadow crossing overhead is an extinction-like event, brief but absolute. A pebble shifting in a crevice travels through the water as a map of danger. They can tell fresh rain from old seepage by its taste. They can distinguish limestone water, basalt water, ice water, deep water, and water that has passed through the warm mineral dark below. The roar that would deafen any larger animal is, to them, not noise but weather, architecture, history. It is too vast to be heard as sound. They live inside it as fish live inside pressure.
+
+They are slow because the place is slow. Their feeding is a barely perceptible combing. Their mating is a long convergence through connected cracks, guided by chemical traces so faint they would vanish in any more changeable world. Eggs are tucked under mineral lips or into gravel pockets where water moves but does not tear. Some become sealed partly in translucent crusts and wait there, alive but suspended, until a shift in seepage releases them. Their young hatch as clearer versions of the adults, almost entirely water themselves, and drift downward unless they catch a stone hair, a crystal edge, a grain of black sand.
+
+They molt often, but the molts do not last. The abandoned skins collect in still pockets like pale dust, then soften, tear, and are eaten by smaller inhabitants. Nothing organic remains exposed for long. The plateau does not rot; it rinses, dissolves, reuses.
+
+There are older ones in the deeper basins.
+
+They are broader, more opaque, with backs roughened by mineral accretion. Tiny white beads form along their joints. Some carry thin crusts on their shells, not quite armor and not quite disease, until they resemble moving chips of the same stone they cling to. These old animals may live for decades. Perhaps longer. Time touches them lightly because there is so little season to measure it by. Their lives are not divided into spring and summer, hunger and plenty, drought and flood. They live in perpetual aftermath, in the same cold brightness, under the same full meniscus.
+
+When disturbed, they do not flee upward. Nothing here survives by exposing itself. They fold, flatten, and slide sideways into cracks too narrow to admit a fingernail. A whole pool can appear empty within a second, though it was inhabited everywhere. Then, slowly, when the vibration has passed into the general roar and become indistinguishable from the plateau’s own voice, the pale bodies return. One leg first. A feeler. A translucent head. The resumption of grazing.
+
+There may also be larger things below the rim, in the cave-mouths where the cataract mist enters and the light fails.
+
+Not many. Not predators in any dramatic sense. Perhaps long, white, eel-soft scavengers that never come fully into the day. Perhaps flat worms the color of melted wax. Perhaps colonies of filamentous life hanging in the warm mineral dark like drowned hair. But on the open plateau, the true residents are the small blind grazers and the films they feed upon, a nearly invisible ecology stretched through stone.
+
+They have no voices. In a place already occupied by one enormous sound, calling would be meaningless. They touch instead. They taste each other’s trails. When two meet beneath a ledge, they pause head to head, their fringes moving in the clear water, exchanging the chemistry of where they have been: deep shaft, iron seam, cold basin, fresh overflow, danger, food, readiness. Then they separate without ceremony.
+
+They do not build, but their living contributes to the place’s finished complexity. By feeding, they keep certain films thin and allow mineral to settle cleanly. By hiding, molting, dying, they add minute organic traces to cracks where stranger microbes gather. They are part of the plateau’s maintenance, not its decoration. If they vanished, no bird would notice, no grass would reclaim the stone, no silence would fall. But the water would change by infinitesimal degrees. Some pale films would thicken. Some basins would cloud. Certain mineral lips would grow differently. The agreement between water and stone would lose one of its smallest clauses.
+
+They are not lonely. Loneliness belongs to creatures that expect answer, warmth, recognition. These beings expect only contact, current, surface, dissolved mineral, the familiar pressure of a roof of water above them. They do not look up at the sky reflected in their pools. They do not know the plateau is high. They do not know there is a warmer world below with soil, leaves, insects, nests, decay, color. If one is washed over the edge in a cataract, it enters brightness and violence without understanding either, and is gone.
+
+Those that remain continue.
+
+They move through the cups of stone as if through a constellation made of basins. They cling under rims while water slips over them in clear sheets. They wait out the tremors of falling gravel. They graze the hidden nourishment from a world that appears barren because its life has chosen transparency, blindness, and restraint.
+
+The plateau’s inhabitants are not masters of the place. They are its pale afterthoughts, its living sediment, its smallest listeners.
+
+They live where nothing rests dry. They live without green, without sheltering softness, without silence. They live in the roar as if the roar were a body, and the water passing through stone were time itself.

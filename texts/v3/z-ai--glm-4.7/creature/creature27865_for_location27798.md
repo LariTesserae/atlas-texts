@@ -1,0 +1,31 @@
+To stand in the misty basin and declare it empty is a failure of perception, a confusion of *silence* with *absence*. The basin is not empty; it is simply efficient. The life that resides here has evolved past the chaotic, wasteful churn of hunting, fleeing, and mating. It has sublimated into the architecture itself. The inhabitants of this wet, gray industrial park are not distinct creatures living *among* the machines—they *are* the components of the machines.
+
+They are best understood as "The Articulated."
+
+If the great cathedral-trees are the chassis, the engines, and the factories of this ecosystem, then the Articulated are their limbs and their sensory organs made mobile. They do not scuttle or crawl; they *deploy*.
+
+You must watch the "buildings" closely to see them. At first, the dark mahogany walls appear seamless. But wait for the rhythmic *thrum* of the ventilation cycle. As the great wooden vents expand to exhale a plume of warm, spore-scented vapor, fissures open in the polished bark. From these gaps, the inhabitants emerge.
+
+They are roughly humanoid in shape, though this is a coincidence of geometry rather than genetics. They stand perhaps seven feet tall, constructed entirely of the same material as the structures: dark, dense heartwood and flexible, woven hornbeam. They possess no skin, no soft tissue. Their "joints" are not hinges of bone, but overlapping plates of bark that slide over one another with the sound of dry whispers, lubricated by a clear, viscous sap.
+
+They have no faces. Where a head should be, there is a smooth, oval node of polished wood, studded with patches of sensitive, hair-like moss that trembles in the damp air, detecting changes in humidity and chemical composition. They do not need eyes in a land of diffused gray; they navigate by taste and smell, sensing the chemical gradients of their own metabolic exhaust.
+
+These are not a people in the social sense. They do not greet one another. They do not congregate. They are the "white blood cells" of the city-forest.
+
+Consider one emerging from the base of the water-treatment terraces. It pulls itself free from the root buttresses with a slow, hydraulic fluidity. Its lower legs are splayed and root-like, ending in thousands of cilia that allow it to walk atop the deep, spongy moss without sinking. It moves to a patch of "pipes"—the thick, vine-like cables connecting two structures.
+
+The creature inspects the vine. It lowers its wooden head, brushing its mossy sensory patches against the bark. Perhaps it detects a blockage in the nutrient flow, or a parasitic mold beginning to take hold. The creature’s "arms"—long, multi-jointed manipulators ending in sharp pruning shears made of hardened lignin—extend with frightening precision. *Snip. Snip.* It excises the infected section of the vine. Then, from a cavity in its chest, it extrudes a glob of dark, putty-like substance—a biological sealant—and smoothes it over the wound.
+
+The task complete, it does not rest. It pivots on its root-legs and returns to the structure, merging back into the bark, folding itself away into the darkness of the alcove. It is a tool returned to its toolbox.
+
+There is a caste-like variation to them, depending on the structure they serve. Near the tall, ribbed silos, the Articulated are larger and bulkier, their bodies reinforced to withstand the pressure of the internal digestion chambers. They are the "Stokers." They drag massive, heavy cones of concentrated carbon—fallen branches and compacted moss—toward the intake maws of the silos. They move with the slow inevitability of oxen, their wooden bodies creaking under the weight, feeding the furnace that keeps the metabolic heat running.
+
+In the quieter zones, near the filtration vats, you might see the "Skimmers." These are lighter, spindlier things, balanced on long, single-leg stalks reminiscent of herons. They glide over the surfaces of the algae pools, using basket-like hands to scoop out detritus or to harvest the excess growth of bright, gelatinous algae, which they then deposit into processing chutes. They move with a delicate, hypnotic grace, their stillness absolute when they pause to listen to the drip of condensation.
+
+They are the only things that break the visual monotony of the gray nave, yet they camouflage perfectly against the dark wood. To see one is to see the architecture come alive. It is a terrifying and majestic sight: a tree walking, a cathedral lifting its skirts to step across the road.
+
+They do not die, at least not in the way animals do. When an Articulated unit suffers damage—a limb crushed by the shifting weight of a tree, or its wooden carapace worn down by centuries of mist—it does not fall to the ground and rot. Instead, it struggles back to its parent structure. It plugs itself into a nutrient port. There, it is slowly broken down, its valuable minerals and lignin reabsorbed by the collective, its wood recycled to grow a new worker. In this place, decomposition is not an end, but a recall.
+
+The silence of the basin, therefore, is not the silence of a graveyard. It is the silence of a well-oiled machine. There is no chattering, no squabbling, no mating calls. The Articulated have no need for language; they share a chemical communion through the root-network that connects every building. When a water-treatment plant requires maintenance, the *need* itself pulses through the vascular system of the city, and a Stoker awakens from its dormant niche to answer the call.
+
+They are the ghosts in this ghost town. They are the druids of this industrial dream. To walk among them is to be an anomaly—a soft, wet, inefficient creature composed of rot and decay. They would not attack you; they would likely ignore you, perceiving you as nothing more than a piece of drifting debris, a lump of irrelevant biological matter to be stepped over or swept away. You are not part of the production line. You are not part of the equilibrium. You are merely a ghost haunting the workers in a factory that has been running without pause for a thousand years.

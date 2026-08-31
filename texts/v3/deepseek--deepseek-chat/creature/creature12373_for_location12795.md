@@ -1,0 +1,15 @@
+**What Lives Here:**  
+
+The inhabitants of this sodden industrial pocket are a hardy, adaptive breed—neither fully of the machines nor entirely of the marsh, but something in between. They move through the damp air with an ease born of long familiarity, their bodies lean and wiry, their skin slick with a faint sheen of moisture, as if the humidity has seeped into their very pores.  
+
+Some are workers, clad in oil-stained coveralls, their hands calloused from turning valves and tightening bolts on the groaning machinery. They move with deliberate slowness, conserving energy in the oppressive heat, speaking in low murmurs that barely rise above the hum of the factories. Their faces are lined not with age but with the wear of constant dampness, their eyes sharp and watchful, attuned to the subtle shifts in pressure, the faint hiss of a leaking pipe, the slow creep of rust.  
+
+Others are scavengers, slipping through the narrow gaps between buildings, their fingers quick and deft as they pry loose scraps of metal or salvage discarded wiring. They move like shadows, their footsteps silent on the wet pavement, their presence only betrayed by the occasional glint of reflected light off a blade or a scavenged tool. They know the rhythms of the place—when the factories exhale their steam, when the guards change shifts, when the water rises just enough to flood the lower access tunnels.  
+
+Then there are those who seem to belong more to the marsh than the machines. They live in the interstitial spaces—under sagging rooftops, in the hollows beneath walkways, in makeshift shelters cobbled together from sheet metal and driftwood. Their skin is mottled, their fingers slightly webbed, their movements fluid as they navigate the flooded alleys with ease. They speak little, but their eyes are knowing, as if they understand the secret language of the dripping pipes and the stagnant pools. Some say they can predict when the water will rise, when the machines will falter, when the air will thicken into something almost unbreathable.  
+
+Wildlife persists here too—not as intruders, but as part of the ecosystem. Pale frogs with translucent skin cling to the undersides of pipes, their croaks blending with the mechanical hum. Insects with iridescent wings flit through the steam, their bodies adapted to the heat and the chemical tang in the air. Birds nest in the skeletal remains of broken scaffolding, their feathers dull but their voices sharp, cutting through the monotony with sudden, piercing cries.  
+
+And beneath it all, in the hidden waterways and clogged drains, there are rumors of something else—something older, something that watches from the dark. The workers avoid certain tunnels after dusk. The scavengers leave small offerings at rusted grates. The marsh-dwellers say nothing, but sometimes, when the water is still, they tilt their heads as if listening to a voice just beyond hearing.  
+
+Life here is not easy, but it is persistent. The people, the creatures, even the machines—they have all learned to endure, to adapt, to become part of the unyielding rhythm of this place. And in doing so, they have made it theirs.

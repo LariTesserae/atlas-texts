@@ -1,0 +1,26 @@
+Here, amidst the eternal drip and rustle, live the **Spore-Kin** – the human inhabitants of Root-Hold, sculpted by the forest as surely as the hollowed roots they call home. They are not merely dwellers but extensions of this verdant chaos, their existence a perpetual negotiation with the living architecture and overwhelming ecology surrounding them.
+
+### Physicality: Green-Stained and Mist-Sharpened
+- **Stature and Build:** Compact and wiry, rarely taller than moss-mounds, with tensile strength honed by climbing and weaving. Limbs are elongated for balance on root-lattices, fingers calloused and dexterous – capable of splicing vines or plucking fungal spores with surgical precision.
+- **Skin & Camouflage:** Pallid as moonlit fungus, yet mapped with intricate, self-tattooed patterns in moss-green and peat-brown pigments. Some bear luminous fungal symbionts on shoulders or brows, casting a feeble glow in perpetual twilight. Hair is often coarse, woven with living lichens or bound in tight knots to avoid snagging on vines.
+- **Senses:** Eyes dominate their faces – large, dark, and wet-adapted, capturing fragments of light through mist. Nostrils flare to parse the damp air: detecting rot encroaching on a root-wall, the musk of a predator in the canopy, or the tang of potable water. Ears are tuned to the symphony of drips and rustles, discerning urgent patterns beneath the noise.
+
+### Culture: The Way of the Drip-Song
+- **The Constant Tending:** Life revolves around *kin-labor* – communal, rhythmic work. At dawn (marked by a faint lightening of the gloom), they emerge: **Moss-Patters** re-weave decaying insulation with bone needles, **Vain-Weavers** splice gutters and vine-lattices while suspended in harnesses, **Root-Singers** murmur to encourage growth in foundational roots, and **Pool-Tasters** test water purity along seep lines.
+- **Rule of Flow:** Water is law. Elders (**Flow-Watchers**) interpret the drip-song – a sudden silence in a gutter means a blockage; a new seep requires immediate channeling. Paths shift with water’s whim, and structures are abandoned overnight if rot spreads.
+- **Material Wisdom:** Tools are grown, not forged. Knives of sharpened sky-cypress heartwood, hammers of fossilized peat, cordage from braided rhizomes. Fire is a rare, terrifying spark – confined to clay-lined pits atop stone humps, used only for hardening tools or emergency warmth. Light comes from bioluminescent fungi cupped in woven pods.
+- **Vertical Respect:** Society mirrors the layers. *Moss-Walkers* (children, elders) tend the ground, gathering grubs and lichen. *Canopy-Reachers* (agile adults) harvest fronds and monitor high dangers. Venturing into the upper canopy’s "Green Void" is taboo, reserved for shamans facing extinction-level threats.
+
+### Social Fabric: Knots in the Root-Net
+- **Nesting-Groups:** Root-Kin live in **Knots** of 10-20, inhabiting a single root-complex. Loyalty is to the Knot and the forest, not individuals. Leaders are **Deep-Rooters** – those who intuit the forest’s pulse – chosen by consensus during crises.
+- **The Spore-Moot:** Disputes and revelations occur at dripping clearings. Truths are spoken over reflective pools; lies distort the water’s surface. Punishment means exile into the outermost root-mazes – a death sentence.
+- **Festivals:** During the "Great Drip" (heaviest rains), they celebrate *Saturation* – days of chanting water-songs, grafting new root-bridges, and offering carved bone tokens to the Sky Cypresses. Silence is taboo; to cease adding to the noise is to invite decay.
+- **Spirit Beliefs:** They worship the **Breathing Moss** – an entity comprising the forest’s collective decay and regrowth. Death is a return: bodies left in "Feast-Pits" where pitcher plants and decomposition beetles consume them with reverence. Those lost to the canopy become "Green Ghosts," whispered about when mist thickens.
+
+### Fauna Coexistence: Predators & Partners
+- **Domesticated:** Moss-Webbers (furry, six-legged insectivores) clear pests from walls. Glow-Grogs (bioluminescent amphibians) live in cisterns, purifying water and providing light.
+- **Hunted/Respected:** Arboreal lizards are taken for their waterproof skins. Giant canopy moths supply iridescent wing-fiber. But the "Root-Cracklers" (armored predators burrowing in rot-layers) are appeased with grub offerings at territory edges.
+- **Dangers:** To ignore the skittering of Spine-Burrowers in the walls invites invasion. A guttural canopy-roar halts all work – Kin freeze, moss-cloaks drawn tight, until the threat passes.
+
+### Core of Being: The Turbulent Harmony
+The Spore-Kin are defined by intimate anxiety. Each droplet holds threat or salvation. Comfort is moss-softness beneath damp feet; music is the shudder of a root-wall settling; worship is the act of clearing a fungal bloom before it strangles a vital vine. They are not at peace, but *in rhythm* – dancers in a chaotic, dripping ballet where stillness is death. To live here is to thrive in the beautiful, relentless churn: a people grown from spores, sustained by decay, forever whispering back to the forest’s thunderous green song.

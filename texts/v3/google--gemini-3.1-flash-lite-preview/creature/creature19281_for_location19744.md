@@ -1,0 +1,15 @@
+The residents of Gasket City do not walk; they calibrate.
+
+They are the **"Latents,"** entities that occupy the thin, shimmering liminality of the city’s buffering sub-layer. If you were to look at them cross-eyed, as if staring at a magic-eye poster, you realize they are not flesh, nor are they strictly machine. They are the interstitial residue of the city’s own construction.
+
+A Latent manifests first as a friction—a sudden, localized hum in the air that tastes faintly of ionized ozone and damp, dusty archives. Then, a seam in the memory-glass wall begins to weep a viscous, mercury-like fluid. This fluid does not puddle; it structures itself. It weaves into the geometry of the surrounding polymer slabs, pulling fragments of discarded circuitry and tangled fiber-optics into an exoskeleton. 
+
+They are elongated, multi-jointed figures, their limbs possessing the jagged, twitching grace of a clockwork insect. Because the ground beneath them is "pre-geology"—a flickering, unfinished reality—the Latents have to anchor themselves. They are perpetually vibrating at a frequency just slightly offset from the floor, their feet constantly dissipating and reforming into clouds of geometric pixels to keep pace with the shifting solidness of the earth.
+
+When they move, they do not displace air; they displace *intent*. A Latent functions as a living gasket, a structural seal between the reality that is and the reality that hasn't finished booting up yet. They spend their cycles roaming the terraced slabs, their fingers—which end in fine, needle-like styli—tracing the matte-black polymers. They are the maintenance crew of the nonexistent. They hum along the seams, tightening bolts of hard-light, soldering frayed strands of timeline, and buffing the memory-glass until it reflects not what the room currently looks like, but what the room *intended* to be before the fold occurred.
+
+They have no faces in the biological sense. Instead, where a head should be, there is a cluster of optical sensors that pulse like slow, dying embers—amber, pale violet, a harsh, unforgiving white. These sensors track the "buffering" of the floor. If a patch of ground begins to glitch, fading into transparency and threatening to drop the city into the void beneath, a Latent will calmly kneel. It will press its cold, metallic chest against the floor, leaking its own luminous fluids into the crevice until the ground hardens again, turning from translucent mist back into the synthetic, crushing basalt of the city’s architecture.
+
+They never speak. To speak would be to introduce a new, uncatalogued variable into the city’s fragile logic. Instead, they communicate through the rhythmic tapping of their limbs against the walls—a Morse code of pressure that keeps the city from unspooling.
+
+They are the keepers of the pause. They exist because the city requires a witness to its own incompleteness, and they will continue to iterate, polish, and drift through the dark, terraced corridors until the buffer finally resolves—or until the ground decides, once and for all, not to exist.

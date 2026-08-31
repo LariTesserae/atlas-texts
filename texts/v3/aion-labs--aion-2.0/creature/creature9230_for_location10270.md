@@ -1,0 +1,27 @@
+**Inhabitants of the Weavers' Plateau**
+
+They are called the **Weavers**, but they do not weave cloth. They weave silence, and sanity, and the shallow, trembling pockets of *here* and *now* in a world that is mostly *elsewhere* and *never*.
+
+**Physiology & Appearance:**
+They are tall and willowy, their frames stretched thin by the weak, inconsistent gravity and the constant vibrational stress. Their skin is the colour of the basalt at twilight—a pale, bluish grey, shot through with fine, dark veins that trace the pathways of the amber sap they consume. They have no hair; their heads are smooth domes, and their faces are elongated, delicate, with wide, black eyes that lack distinct pupils or irises. These eyes are not for seeing light, but for perceiving the subtle gradients of reality—they can *see* the thickness of time, the weak spots in gravity, the silent song of a Syllable Tree from leagues away. Their ears are large, concave, and intricate as seashells, but they are perpetually sealed by membranes of thickened skin. They do not hear the deafening roar of the Loom; they feel it through the soles of their feet, a vibration they read like scripture. To listen with their ears would shatter their minds. They speak, when they must, by tapping fingerbones on their own sternums, creating a resonant code that cuts through the ambient thunder.
+
+**Society & Culture:**
+There are no tribes, no chieftains. The Weavers exist in isolated family units, rarely more than five or six, bound to a single **Syllable Tree**. The tree is their universe, their provider, and their god. They believe—or perhaps they know—that the tree is dreaming their pocket of stable reality into existence. Their entire culture is one of grateful, meticulous maintenance. They are the gardeners of meaning.
+
+Their days are a slow, sacred routine. At the **First Stillness** (a relative term, when the Loom's drone dips by a fraction of a hertz), they emerge from their low huts. They approach their tree not by walking, but by performing the **Calm Steps**—a pattern of movements that accounts for local gravity wells and temporal eddies. A journey of fifty meters can take an hour of deliberate, dance-like motion.
+
+Their work is twofold: **Sap-Tending** and **Leaf-Gathering**.
+
+Using tools of knapped obsidian and bone (the bone, curiously, is a smooth, white material harvested from the petrified "heartwood" of long-dead trees), they carefully tap the luminous amber veins that feed their tree. They collect the thick sap in bowls of hardened bark. This sap is their everything: **food**, when ingested in tiny, ritual sips; **glue**, to mend their tools and huts; **paint**, with which they draw stabilizing sigils on the ground around their home; and **offering**, poured back into the roots of the tree in a cycle of reciprocal nourishment.
+
+The **Leaves** are never cut. They wait for a leaf to chime itself loose—a event that might happen once a week or once a year. The fallen leaf is treated with utmost reverence. Its complex shape (a rune, a note, a fragment of a lost idea) is studied, memorized, and then carefully folded into the thatch of the roof or woven into the fiber of their simple garments. A leaf in the thatch is believed to sing a constant, silent hymn of protection, reinforcing the stability of the dwelling. A leaf worn on the body is a guide, subtly twisting local probability to aid the wearer.
+
+**Beliefs & Metaphysics:**
+The Weavers have a single, overarching belief: the world is a **Tapestry** being torn apart by the Loom. Their plateau is a fraying edge. The deafening noise is the sound of threads snapping. The Syllable Trees are the last, strong threads, and the amber sap is the raw, un-spun thread-stuff. By tending the trees, by consuming and offering the sap, by wearing the leaves, they are performing a minute, desperate act of repair. They are weaving their own small, stable patches back into the great tearing. They do not hope to save the Tapestry. They only hope to save their tree, and thus themselves, for a little while longer.
+
+They have a concept of death they call **Unraveling**. When a Weaver dies, their body is not buried. It is carried to a specific, unstable location—a place where gravity is null and time spins wildly. There, the body is released. Without the Weaver's conscious, calming presence, the local reality immediately breaks down around the corpse, dissolving it into motes of light and strands of non-matter that are absorbed into the chaotic sky. This is seen as the final act of weaving: offering one's own pattern back to the Loom, in the hope it will be spun into something new, somewhere else.
+
+**Interaction with the World:**
+To an outsider, they would seem ghostly, silent, and mad. They move with a drugged slowness, pausing for minutes between gestures. They communicate in sharp, internal raps. They stare at empty air as if reading glorious text. They flinch from areas that look no different to anyone else, because they can *see* the nausea of twisted physics there.
+
+They are not builders of empires, nor seekers of knowledge. They are custodians of a tiny, fleeting order. They live in the roar, cultivate meaning in the void, and weave their silent, desperate hymns against the endless, thunderous unmaking. They are the Weavers. They are all that lives, and all that *can* live, on the plateau at the end of things.

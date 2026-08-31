@@ -1,0 +1,30 @@
+To live in the Ossuary of Resonance is to be an instrument; to survive is to be permanently tuned to a frequency that is constantly trying to shatter you. The life here does not merely endure the noise—it is woven from it, composed of it, and dependent on it with a terrifying, addictive desperation.
+
+**The Aeroplankton of the Shimmer**
+Before you can see the larger beasts, you must understand the air itself. The "dust" that chokes the atmosphere is not merely dead mineral. It is a suspended ecosystem of microscopic **Silica-Gnats** and **Resonant Spores**. These are microscopic shards of life, geometric snowflakes of living glass that float in the upper currents. They possess cilia finer than spider silk that vibrate in sympathy with the ambient tectonic roar. They do not eat; they absorb the kinetic energy of the sound waves, their tiny, faceted bodies glowing with heat as they convert the thunder into mass. When they swarm, the air itself becomes a glittering, humming fog—a visual representation of the sound that kills.
+
+**The Echo-Runners: The Striding Tuning Forks**
+The most visible inhabitants are the Echo-Runners, but up close, they are far stranger than the distant silhouette suggests. They are biological capacitors. Their long, jackal-like legs are not merely bone; they are hollow chambers filled with a viscous, resonant fluid that acts as a hydraulic suspension system.
+
+Because silence is death, the Echo-Runners cannot truly sleep. Instead, they enter a state of "idling," where they huddle together in tight formations, locking their bone-encased skulls together to create a shared, hum-sustaining resonance. If separated from the pack during a lull in the tectonic thrum, a Runner will begin to shiver violently, its vibrating cilia standing on end to catch even the faintest whisper of wind. They are addicted to the roar. Their metabolism is a furnace that burns sound; without it, their internal temperature plummets, and they crystallize from the inside out, frozen statues of frost and fur.
+
+Their movement is a form of music. When they run, their hard feet striking the crystalline ground produce staccato rhythms that allow them to echolocate through their bone-structures. They "see" the texture of the world through the vibrations returned to their feet. To hunt the "sap" from the glass trees, they strike the trunks with precise, rhythmic blows, causing the tree to weep the high-energy fluid, which they lap up before the sound dissipates.
+
+**The Litho-Phages: The Singing Mountains**
+Beneath the canopy of glass, grazing on the fallen "leaves" of sharp silica, are the **Litho-Phages**. These are massive, low-slung creatures that resemble anvil-headed tortoises, their shells comprised of fused basalt and obsidian. They are the garbage disposals of the Ossuary.
+
+They move with agonizing slowness, impervious to the cutting wind. Their mouths are grinding mills of diamond-hard teeth, capable of chewing the fallen glass shards into a fine silica powder. As they eat, they emit a low, sub-bass rumble—a digestive purr that helps separate the nutrients from the glass. This rumble makes them valuable to the Echo-Runners; in the rare moments of environmental silence, the Runners will press their bodies against the flanks of the grazing Litho-Phages, absorbing the creature’s digestive vibrations to stay alive. It is a symbiosis born of necessity: the Runners protect the slow grazers from predators, and the grazers keep the Runners alive when the planet falls quiet.
+
+**The Null-Weavers: The Terror of the Silence**
+If life here is defined by vibration, then death is defined by the absence of it. The apex predator of the Ossuary is the **Null-Weaver**.
+
+It is a spider-like entity, but it does not spin webs of silk. It spins webs of "dead air." Its body is covered in specialized, serrated bristles that disrupt and cancel out sound waves, creating a small sphere of absolute silence around it as it moves. In the Ossuary, this is the ultimate camouflage. It is a black hole in a world of blinding noise.
+
+The Null-Weaver hunts by laying its "silence traps" between the crystal trees. When an Echo-Runner runs through one of these invisible pockets of dead air, the sudden loss of auditory input shocks the Runner's system. The metabolic stall is instantaneous—the Runner seizes up, paralyzed by the sudden drop in energy. The Null-Weaver does not need to chase; it simply waits for the silence to do its work. Then, it descends to feed on the paralyzed victim, its touch draining the stored vibrational energy from the Runner’s body, leaving behind a dry, hollow husk that crumbles into grey dust.
+
+**The Architects’ Remnant: The Silver-Ghosts**
+Finally, there are the things that live within the broken monoliths of the Builders. The silver sand spilling from the ruins is not inert. It is a colony of **nano-constructs**, a broken, viral intelligence trying to rebuild a world that no longer exists.
+
+These "Silver-Ghosts" act as a hive mind of metallic fluid. They seep from the cracks in the Anchors, forming shifting, amorphous shapes—hands, faces, geometric towers—that rise and collapse in seconds. They do not eat; they harvest. They scavenge silica from the glass trees and minerals from the tectonic vents, attempting to fuse them into new structures. They view the biological life of the Ossuary as "contamination"—sloppy, wet, and inefficient. An Echo-Runner that wanders too close to a Silver-Ghost swarm may find itself "repurposed," its flesh calcified and its bone structure integrated into a growing wall of sleek, black geometric stone, screaming silently as it becomes part of the architecture.
+
+In the Ossuary of Resonance, everything is food for something else. The trees eat the sound; the Runners eat the trees; the Weavers eat the silence; and the ruins eat the future. It is a closed, screaming loop of existence, beautiful and horrific, vibrating endlessly to the beat of a dying planet's heart.

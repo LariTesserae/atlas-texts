@@ -1,0 +1,23 @@
+In the breathing marsh, the Gardeners persist.
+
+They are not quite here anymore—not in any way that eyes could confirm. But their presence saturates every carefully widened channel, every stone worn smooth by ten thousand years of patient tending. They have become inherent to this place, dissolved into its function like salt in water.
+
+You might glimpse them in the arrangement of things: how the moss grows in perfect gradients of thickness around each breathing hole, how the tubular plants space themselves according to some invisible mathematics of moisture and warmth. The Gardeners' knowledge has crystallized into the landscape itself. Their bodies—whatever form they once took—have long since joined the sediment that feeds the plant islands, but their cultivation continues without them, self-perpetuating, perfect.
+
+They were never singular. The Gardeners existed as a tendency, a collective inclination toward pattern and persistence. Perhaps they were fungal, threading through the porous stone in networks too fine to see, their consciousness distributed across millions of hyphal connections. Or they were something more abstract—a colony intelligence of microorganisms that achieved thought only in aggregate, spending centuries to complete a single decision about where to encourage a channel or how to train a fern.
+
+The breathing holes were their greatest work. Not carved but coaxed—convinced over millennia to open, to synchronize, to create this endless circulation of air and moisture. The Gardeners understood that they were temporary, but the garden could be permanent if they encoded themselves into its structure. Each planted circle, each worn mortar, each widened channel—these are their thoughts made physical, their philosophy written in stone and chlorophyll.
+
+They discovered that consciousness could be invested rather than possessed. Every adjustment they made to the plateau's breathing, every plant they encouraged into its perfect position, became a fragment of their awareness embedded in place. They gardened themselves into obsolescence, their intelligence now indistinguishable from the marsh's own processes.
+
+Sometimes, during the long exhalations, you can almost feel them in the movement of warm air—not as presence but as intention. The way the moisture beads in exactly the right places. The way the plants open in sequence, each species responding to its optimal moment in the breathing cycle. The Gardeners are gone, but their attention remains, fossilized into pure function.
+
+They left no artifacts because they became the artifact. The entire plateau is their body now, breathing through stone pores they taught to weep, growing gardens they designed to tend themselves. They achieved what few beings dare to attempt: perfect unity with their work, complete dissolution into purpose.
+
+New plants still arrive occasionally—spores carried on high winds, seeds in the gullets of lost birds that never survive the strange atmosphere. These additions either find their place in the existing pattern or wither. The garden accepts what serves the breathing, rejects what disturbs it. The Gardeners' discrimination continues without them, their aesthetic judgment now inseparable from natural law.
+
+In the spiral at the center, where the breathing is strongest, something like memory persists. Not their memory—they were beyond such individual concerns long before they ceased—but the marsh's memory of being gardened. The plants here grow more deliberately, arranging themselves with something approaching conscious intent. They remember being tended, and so tend themselves, and each other, in patterns the Gardeners spent eons perfecting.
+
+The Gardeners succeeded in their ultimate project: they created a place that would continue their work forever, that would breathe and grow and maintain itself in exact harmony until the stone itself erodes to nothing. They are not gone—they have become geography, meteorology, biology. They are the breath through stone, the pattern in the moss, the silence that is not absence but complete presence, spread so thin and so thoroughly that it has become indistinguishable from the world itself.
+
+This is their immortality: not to live forever, but to make forever live according to their design. The plateau breathes because they taught it how. The marsh persists because they became it. And in the warm exhalations, in the patient creep of moss, in the perfect spacing of impossible gardens, the Gardeners continue—not as memory or ghost, but as the ongoing verb of this place, forever tending what they became.

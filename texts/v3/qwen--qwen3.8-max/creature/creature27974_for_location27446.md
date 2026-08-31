@@ -1,0 +1,31 @@
+What lives there does not live “on” the land in any ordinary sense, because there is no land. It lives in the thickness of the built world: in seams, gutters, cable runs, warm insulation, mirror-glare, service voids, and the long quiet between machine cycles. The basin has not yet produced a single ruling species or one simple ecology. It supports a plurality of tenants, many of them young, marginal, provisional, and already adapted to a place that is still deciding what its own rules are.
+
+The first and most visible inhabitants are the birds.
+
+They own the upper air in loose, shifting guilds. There are pale swifts with narrow wings and almost translucent feathers, so light in their bodies that they seem to drink the brightness rather than pass through it. They nest in the louvers of ventilation towers and in the slatted faces of mirror housings, where their young are raised on midges and airborne algae scraped from damp panels. Their calls are short, dry clicks, because louder sounds would be swallowed or misdelivered by the basin’s strange acoustics.
+
+There are gull-like birds, white-winged and bold, that follow exhaust columns and ride the warm updrafts rising from engine vents. They are scavengers more than hunters. They gather around processing bins, crane platforms, and waste chutes, feeding on spilled grain, insect swarms, and whatever organic residue the factories exhale or discard. Their nests are crude, practical things: wire, shed insulation, feathers, dried algae, and bright scraps of foil, all bound into shallow cups on ledges that no natural bird would choose.
+
+There are compact pigeons with metallic sheens, their plumage carrying bluish, steely, or coppery glints as if factory dust had entered the structure of their feathers. They roost in warm transformer yards and along electrical masts, where the hum is strong and the air feels slightly thickened. They move in sudden bursts, startle easily, but return always to the same few perches. The people who live there, if they count them at all, count them only once. To count them twice is to invite confusion, because some pigeons may be echoes, reflections, or repeated forms left over from a local instability.
+
+There are also long-tailed perching birds, slender and watchful, that sit on lamps, railings, and abandoned crane arms. They have a habit of tilting their heads as if listening to a rhythm beneath the visible world. These birds are especially valued, because they can sense places where distance behaves badly. A long-tailed bird will not land where a walkway folds subtly back upon itself, nor will it fly through a stretch of air where shadow and object disagree. People who move through uncertain districts watch these birds first.
+
+Birdlife in the basin is not merely decorative. It maps the place. Flight paths show where air is stable. Nesting sites show where warmth collects. Sudden absences show where a district has begun to disagree with itself. When a flock moves as if guided by a tower that is not present, the wise do not follow it immediately, but they remember the direction.
+
+Below the birds, and often beneath notice, is the insect life.
+
+It is abundant, varied, and essential. Without it, the basin would be too thin to support so many larger creatures. Insects gather wherever light is strongest, wherever moisture collects, wherever warmth leaks from insulated surfaces. There are moths with pale wings and dust-fine bodies that hover around bright panels and mirrored towers. Their larvae feed on phosphorescent coatings and algae films, and when they emerge in swarms, the air around lamp banks seems to thicken with soft, fluttering brightness.
+
+There are beetles that live in warm insulation and behind cladding, their bodies blunt and heat-tolerant. They chew through fibrous materials, dead moss, shed bird feathers, and organic residues trapped in service gaps. Their waste accumulates in tiny seams and ducts, forming not soil, but something like a manufactured substitute: a dry, granular medium in which certain fungi and crusts can take hold. In this way, the beetles help create the thin margins of life where none was intended.
+
+There are midges near condensation traps, delicate and numerous, their larvae filtering algae from standing beads of water. There are mites that move across panels in almost invisible sheets, cleaning surfaces of microscopic growth. There are flies with metallic bodies that gather near waste grain and processing vents. There are things without common names yet, newly arrived or newly generated, living in insulation folds and cable trays.
+
+Arachnids have found places too. Some spiders build webs between tension cables and pipework, using silk so fine that it becomes visible only when condensation beads along it. Others make flat, sheet-like traps over vent openings, catching insects carried upward by warm drafts. Certain people read these webs carefully. A web that hums too evenly may indicate a leak in pressure; one that tears repeatedly without being touched may mark a place where space is being flexed by buried machinery.
+
+Among the climbers and scavengers, rodents are the most successful.
+
+There are deck rats, clean-furred and dexterous, that move through access panels, maintenance ledges, and pipe tunnels as if they were born knowing the plan. They collect shiny objects, tags, feathers, strips of insulation, and fragments of reflective coating. Their nests are hidden in dead ducts and behind abandoned cladding, often so well integrated into the architecture that one might mistake them for part of the building until a small face appears from a seam.
+
+There are long-haired scavengers suited to the cool heights: sleek little creatures with dense fur that traps moisture from the air. They follow drip lines, lick mineral beads from railings, and gnaw at algae crusted around condensation gutters. They are preyed upon heavily, but they breed quickly and know how to disappear into narrow spaces. Some of them move with an unnerving coordination, as if several bodies were sharing one intention. This is not always a sign of disease. Sometimes it means they have learned to navigate a fold in local distance by moving as a single pattern.
+
+There are also

@@ -1,0 +1,31 @@
+In the deepest chambers of the honeycomb valleys, they tend their eternal forges.
+
+The Architects—though they have no name for themselves—move through their crystalline warrens with fluid grace, their forms shifting between states as their purpose demands. When engaged in delicate work, they manifest as networks of flowing mercury, able to pour through the smallest apertures and manipulate matter at the molecular level. When greater force is needed, they condense into something more solid—tall, angular beings with limbs that telescope and bifurcate, their surfaces mirror-bright and constantly reshaping themselves like living chrome.
+
+They do not speak. Communication flows between them as thermal pulses through the mountain's core, carried by the same deep hum that visitors mistake for ambient sound. Each pulse contains vast libraries of information—blueprints, chemical formulas, the precise thermal coefficients needed to grow another spire or adjust the atmospheric composition by parts per million. Their conversations are brief symphonies of pure data, beautiful and incomprehensible.
+
+Time moves differently for them. What seems like suspended animation to others is actually furious activity compressed into dimensions beyond ordinary perception. They experience the cooling of each metal joint, the microscopic crystal growth in the peaks, the slow integration of the old machinery as rich, complex narratives spanning eons. A single moment of their awareness encompasses the entire thermal cycle of the mountains, from the first spark of creation to the final cooling that will come in ages yet uncounted.
+
+The arthropod creatures that occasionally surface are their maintenance drones, grown rather than built—living tools with specialized functions. Some carry trace minerals from deep shafts to feed the growing structures. Others sample the atmospheric composition and make minute adjustments to the venting systems. A few serve as mobile sensors, their impossible surfaces recording data across spectrums of light and heat that would overwhelm any organic nervous system.
+
+But there are others here too, older presences that arrived before the mountains finished their formation.
+
+The Refugees exist in the boundary spaces—the thin gaps between hexagonal chambers where the geometry isn't quite perfect, the thermal shadows where the heat wavers just enough to create pockets of merely sweltering air instead of furnace heat. They were once something else, somewhere else, but the details of their origin have been slowly burned away by their environment.
+
+Now they are creatures of adaptation and desperate ingenuity. Their bodies have become baroque assemblages of heat-resistant materials scavenged from the ruins of the old machinery—ceramic plating over whatever organic core might remain, cooling systems jury-rigged from copper tubing, joints sealed with compounds they synthesize from their own transformed biology. They move in quick, efficient bursts between shaded refuges, following routes memorized over generations of survivors.
+
+The Refugees have learned to read the thermal signatures of the Architects' work, to predict when a new chamber might form or when the temperature in a given area might spike beyond even their enhanced tolerance. They have developed a sign language of metallic taps and scrapes that carries over the ever-present hum, and they trade in currencies of rare minerals and precious coolants.
+
+Some among them have gone further in their adaptation, becoming the Deep Dwellers who live in the machine-tombs buried beneath the geometric growth. These beings have allowed the crystalline matrix to partially absorb them, their consciousness distributed through networks of hair-thin metallic filaments. They experience existence as a kind of lucid dreaming, their awareness flowing through the mineral substrate of the mountains themselves. When they surface—rarely—they appear as humanoid clusters of living crystal, their thoughts slow and vast, their memories reaching back to the first days when the peaks began to rise.
+
+The Deep Dwellers serve as unintentional historians, their distributed consciousness preserving fragments of what came before: glimpses of the civilization that built the original machinery, the catastrophe that left it silent, the first stirrings of whatever force began reshaping this place into its current geometric perfection. But their memories are incomplete, filtered through layers of mineral transformation and the alien logic of their crystal substrate.
+
+And in the highest spires, in chambers so hot that even the Architects rarely venture there, something else waits. The Watchers are barely corporeal—aggregations of superheated plasma held in patterns too complex for matter-based minds to fully comprehend. They are the oversight protocol, the quality control mechanism left behind by whatever intelligence first sparked this process.
+
+The Watchers observe everything with infinite patience, occasionally sending correction signals down through the mountain cores when they detect deviation from some master plan. Their awareness spans the entire range of peaks, and they dream in perfect mathematical relationships—golden ratios and crystal lattices and thermal equations that describe the universe in languages of pure geometry.
+
+They are waiting, as everything here is waiting, for the moment when the great work reaches completion. But completion of what, and for what purpose, remains locked in the deep archives of their plasma-bright consciousness, encoded in frequencies of heat and light that even the Architects have not yet learned to read.
+
+The mountains grow taller by microscopic increments each day. The honeycomb valleys expand their geometric perfection. The hum grows infinitesimally deeper as new harmonic frequencies come online in the depths.
+
+All of them—Architects, Refugees, Deep Dwellers, and Watchers—are part of something larger than themselves, actors in a vast slow symphony whose final movement has not yet been written. They tend their roles with the dedication of those who understand that they are both creators and created, shapers and shaped, in a work that transforms everyone it touches into something unprecedented and magnificent.

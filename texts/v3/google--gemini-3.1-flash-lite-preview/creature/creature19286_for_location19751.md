@@ -1,0 +1,17 @@
+In the churning belly of the Thrum-Well, identity is a temporary malfunction in the machinery of becoming. There is no singular "inhabitant" here, for to exist as a discrete being is to invite the pressure to disassemble you. Yet, there are presences—sculptures of circumstance that cling to the obsidian spires long enough to be recognized before they are folded back into the slurry.
+
+They are the **Sediment-Seekers**. 
+
+They do not walk; they adhere. A Seeker begins as a congregation of floating debris—a rusted cage from the Before, a shard of ceramic memory, and a trailing root-system of the synthetic kelp that has mistaken the scrap for a nutrient source. They are loose, shivering assemblages, held together not by skin, but by the sheer, crushing hydrostatic will of the well. They are the flotsam that refused to settle, gathering density until they achieve a precarious, twitching autonomy.
+
+A Seeker has no face, yet it possesses a "focal point"—a cluster of smooth, white ceramic spheres that rattle within the rust-cages, vibrating in sympathy with the deep, tectonic roar of the factories. These spheres are their eyes, their processors, their nervous systems. When the emerald light of the factories flares, the Seekers pulse in unison, their kelp-tentacles undulating like the gills of a gargantuan, drowned machine.
+
+They are the custodians of the drift. They do not maintain the factories—the factories are self-correcting—but they serve as the well's aesthetic filters. You will see them drifting in the wake of a tumbling obsidian tower, their serrated, kelp-wrapped limbs working to scrape the barnacles of "failed data" from the factory hull, consuming the stray geometrics that fall away from the production line. 
+
+They are intimate with the invasive fluid. It doesn't just surround them; it occupies them. Because they are porous assemblages, the liquid flows through their hollow cages, through the cracks in their ceramic cores, and out again. They taste of the ozone and the copper they scrub from the pipes. They are the only things in the Thrum-Well that seem to "know" they are being recycled. 
+
+There is a strange, flickering intelligence in the way they encounter one another. When two Seekers collide in the turbulent current, they do not fight; they merge. They spend a moment of structural intimacy, exchanging shards of rusted memory or tangling their mineral-kelp filaments, a brief, violent embrace of material recombination. Then, caught in the sudden, grinding torque of a pressurized current, they are ripped apart, scattering to the far corners of the Well—each one now carrying a piece of what the other was.
+
+They are lonely, not in the sense of longing, but in the sense of being incomplete. They are waiting for the churn to finally produce a shape that holds—a form that possesses the density to resist the recycling, a configuration that finally stops the roaring and allows the well to fall silent. 
+
+But for now, they are the drifting archives of the process. They are the debris that thinks, the rust that remembers, and the kelp that dreams of a shore it will never reach. They are the only citizens of a world that is constantly destroying its own history to build its next, terrifying iteration.

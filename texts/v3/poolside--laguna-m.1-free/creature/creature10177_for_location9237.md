@@ -1,0 +1,30 @@
+**The Inhabitants of the Shattered Basin of Kaelthun**  
+
+Life in the Shattered Basin of Kaelthun is not merely endured—it is **woven** into the fabric of the land, as intricate and stark as the ice formations that crown its peaks. The denizens here are as much a part of the valley’s geology as its stones, their existence a testament to both fragility and tenacity.  
+
+### **The Kaelthari: Children of the Sharp Wind**  
+The primary inhabitants are the **Kaelthari**, a humanoid species evolved to the valley’s extremes. They stand of average height but move with a lithe, deliberate grace, their bodies compact to conserve heat. Their skin is a pale, almost translucent gray, with a network of faint silver veins visible beneath the surface—a trait linked to their ability to metabolize trace minerals from the ice and stone. Their eyes are large and amber-hued, adapted to the intense glare of the unfiltered sunlight, and their hair is typically white or gray, thick and fur-like to insulate against the biting winds.  
+
+The Kaelthari live in scattered **clans** of 20–50 individuals, often centered around the ruins of ancient cairns or natural caverns shielded by glaciers. Their settlements are ephemeral, built from the valley’s own materials: blocks of granite, slabs of compacted snow, and woven moss to insulate walls. They are master stoneworkers, carving tools and shelters with a precision that matches the cairns’, though their creations lean more toward functionality than grandeur. Their homes are designed to shift with the seasons; ice blocks are rearranged as meltwater reshapes the terrain, and structures are often dismantled and rebuilt elsewhere when resources dwindle.  
+
+### **The Whisperers of Frost**  
+Among the Kaelthari, there exists a subset known as the **Whisperers**—shamans or mystics who claim a peculiar communion with the basin’s "weirdness." They believe the geometric frost patterns and fog coils are messages from the land itself, or perhaps the remnants of a forgotten intelligence. These individuals often undergo ritualistic scarification, etching their skin with patterns that mirror the frost’s shapes, and they wear cloaks woven from the iridescent mosses of the wetlands. Their breath is said to freeze instantly in the air, a sign of their deep attunement to the cold. Whisperers serve as guides and healers, interpreting weather shifts and advising clans on migration routes.  
+
+### **The Icebound Symbionts**  
+Not all life here is strictly biological. The Kaelthari share their world with **icebound symbionts**—organisms that blur the line between flora, fauna, and something alien. These include the **glacier moths**, translucent insects with wings that refract light into prismatic flashes, and the **stone lichens**, which grow in geometric patterns on rock faces and pulse faintly with a bioluminescent glow during the valley’s long nights. The most enigmatic are the **frost echoes**, ephemeral entities that materialize as ripples of mist or glints of light. They are harmless but eerie, often seen coalescing near the ruins. Some Kaelthari believe they are the spirits of their ancestors; others think they are remnants of the "Old Ones" who built the cairns.  
+
+### **The Goatkin and Avians**  
+The **shaggy goats** of the basin are not merely prey but often domesticated by the Kaelthari, who harness their sure-footedness to navigate cliffs and their thick milk to sustain themselves through winters. The goats are treated with a mix of reverence and pragmatism, their shed horns used in tools and their hides in clothing.  
+
+The **eagle-like avians** are another enigma. While their species is typical enough, their **skeletal crests**—spiked structures of bone that glint like ice—seem to resonate with magnetic fields, allowing them to detect underground springs and crevasses. They are partially trained by the Kaelthari, who ride them in rare, dizzying aerial hunts across the basin.  
+
+### **The Unseen: The Watchers in the Fog**  
+The most unsettling presence here is the **Watchers**, entities never directly seen but deeply felt. The fog that coils and vanishes without warning is said to veil their movements. Some believe they are the last survivors of the cairn-builders, who retreated into the ice millennia ago. Others claim they are the valley itself, ancient and sentient, slowly reclaiming its own. The Kaelthari leave offerings of bone tools and woven cloth at the cairns, not knowing if they appease the Watchers or simply remind themselves of their own mortality.  
+
+### **Culture and Ritual**  
+The Kaelthari’s culture revolves around survival, but also around **storytelling**. They pass down oral histories of the "Shattered Time," when the valley was born in ice and fire, and their songs mimic the creaking of glaciers and the whistling of wind. Their art is ephemeral too: they carve temporary glyphs into snow or arrange stones into patterns that last only until the next storm.  
+
+Death is met with a ritual called **the Unraveling**, where the deceased is wrapped in moss and ice and left on a cliff ledge. The cold preserves the body, and scavengers—eagles, foxes, or time itself—eventually reduce it to bone. These bones are collected and added to cairns, a process believed to return the dead to the land’s memory.  
+
+### **The Fragile Defiance**  
+To live in the Shattered Basin is to exist in a state of perpetual tension—between warmth and cold, movement and stillness, life and the looming collapse of ice and stone. The Kaelthari, their symbionts, and even the Watchers are part of this tension, each finding a way to persist in a place that seems built to erase all traces of existence. Yet here, in the "dazzling glare" of the ice fields and the "ink-pooled shadows" of the crevasses, life not only survives—it thrives, sharp and unyielding as the mountains themselves.

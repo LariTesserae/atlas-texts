@@ -1,0 +1,25 @@
+Who lives here?
+
+*
+
+The inhabitants of this city-in-the-dark number in their millions, but to name them is to grasp at drifting filaments—they slip and merge, species bleeding into each other as the living architecture itself. Yet, the longer you linger, patient in the crush and hush of the dark, the more certain shapes and presences begin to press gently against your awareness—a living pageant, as ancient as the first organisms that learned to build upon each other.
+
+**The Colossal Tenders**—the largest lives here are not blind animals but vast composite organisms, civically immense, grown from fusions of animal and vegetative form. Imagine a being with the patience of a tree and the sentience of something slower than thought; its body is a pillar or a living wall, integrating and supporting corridors above and below. It does not move in the sense that creatures do; instead, it *adjusts* over centuries—a swelling here, a shrinking there. Its thick flesh has bark on one side, a hide on the other, and inside a slow heartbeat circulates sugars as much as blood. It oozes out chemical scents in complex codes, both commanding and appeasing its smaller neighbors. The upper city’s vaults and the slow-ripening domes between bridges: these, too, are organs of the Tenders. Colony, individual, ecosystem—no word fits neatly.
+
+**The Interweavers**—mid-sized creatures: not quite animal, not quite plant, seen only as coiling masses and feathery limbs when a sudden ripple of bioluminescence reveals them. They flow through the layers, braiding tendrils and silk, sculpting growth to plan or necessity, tending the arts of constant renovation. Some leave behind trailing roots that lace air and structure, others trail swarms of spores that settle where new city is needed. Each weaver’s cohort is part guild and part extended body: to try and trace the line between self and offspring or symbiont is to be lost in fractal complication.
+
+**The Airborne Lords**—high above, where vertical space becomes thinner and a little more precious, dwell the great gliding forms. They are not birds, not bats, but damp-winged, furred or slick, slow-moving behemoths whose vast wingspans sweep through still air, harvesting moisture, warmth, and the perpetual fungal fog. They rarely land. Instead, they plunge specialized siphons or feeder filaments into nodules swelled from the city's roof, drawing nutrients grown symbiotically. Their calls—long, mournful, echoing—set the circadian tone of the metropolis; their droppings and shed down seed new layers of life far below.
+
+**The Minutiae**—multitudes of the tiny: antlers made of lichen, carapaced mite-swarms with pulpous, jointed legs, centipede-shapes formed of linkable segments that break apart and reform, beetles with lantern-shells, glass-bodied scavengers that feed on the constant fall of organic debris. They are the ceaseless cleaners, recyclers, colonists of every surface. They fill the hollows with their chirrs and the walls with their scurrying highways. Some exist as clouds—inky, drifting, semi-gaseous colonies of microbiota, invisible save for the flavor they add to the air.
+
+**The Dwellers-in-Symbiosis**—not species, but *entanglements*: carnivorous vines and chitinous rodents, fused so closely their purposes cannot be separated, nematode-analogues living within swollen fruit-flesh, exchanging signals and nutrients with their hosts. Some are slow, some flicker in sudden, shivering bursts—expressions of a constant, mutual negotiation.
+
+**The Watchers**—there is a caste of intelligence here that does not move through the world but *is* the world; you sense them in the way the city shudders when you step too loudly, or the air thickens as you approach a dark arch. They are the fungal networks, the neural mats braided through every structure: not conscious in the way you know, but capable of remembering presence, adjusting the pulse of bioluminescence and even generating subtle shifts in moisture and nutrient flows. Each Watcher is ancient beyond reckoning, holding stories not as words but as patterns: what lived, what died, when the warm wet darkness thundered with abundance and when it thinned in famine.
+
+**The Restless Transients**—now and again, visible only as a shifting disturbance of sound or an interrupted scent, pass creatures unclaimed by any of these layers. Starved migrants, perhaps, or late-evolving forms; some are lost, some experimental, still attempting to carve out a niche. Some are brief sparks—a flash of keen eyes, a new chemical trail, a swiftly silenced call—vanished as quickly as they appeared.
+
+*
+
+To ask if this city has rulers or servants is to ask if blood rules muscle, or if fungus commands root. What lives here is a congress of life itself: a million interlocked republics of hunger, purpose, and patient, measureless memory. Nothing moves alone. Every chirr summons its predator, every outgrowth supports a climber, and the dead nourish the next stratified tier.
+
+There is no center. Each life here is both foundation and inheritor, a voice in the polyphony, pressing upward and outward through the warm, waiting dark.

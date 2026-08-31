@@ -1,0 +1,27 @@
+Beyond the Myrkweavers, the Weepward cradles entities that are less residents than they are the plateau's own breathing—consciousnesses that have emerged from the intersection of water, growth, and sound itself.
+
+## **The Confluence**
+
+In the deepest root-halls, where the walls pulse with bioluminescent fungi and the very stones weep mineral-rich water, exist the **Confluencers**. These beings are barely recognizable as individual entities—they are more like knots of awareness that have formed where the mycorrhizal networks of thornpalms, the root-systems of sopform moss, and the neural pathways of decomposing fungi have grown together over centuries. They appear as shifting clusters of phosphorescent threads that drift through the root-halls like jellyfish through water, leaving trails of accelerated growth in their wake. When they encounter Myrkweavers, they communicate through patterns of light that translate directly into the primal understanding of root and water.
+
+## **The Soundkeepers**
+
+In the mist-laden canopy where the constant dripping and buzzing reach their crescendo, dwell the **Soundkeepers**—entities born from the acoustic properties of the Weepward itself. They manifest as visible distortions in the humid air, like heat-haze given form, and are most clearly seen during the blue-pollen blooms when their bodies refract the eerie light. Each Soundkeeper embodies a different frequency of the plateau's symphony: one might be the low groan of shifting stone, another the metallic drone of barkglider wings, a third the rhythmic pulse of weeping stone veins. They feed on acoustic energy and are deeply disturbed by silence, which they perceive as a kind of starvation. During the quiet moments before storms, they gather in agitated clusters, their forms becoming sharp and angular with distress.
+
+## **The Thorn-Mothers**
+
+At the heart of each thornpalm grove stands a **Thorn-Mother**—not truly an individual tree but a consciousness that has emerged from the collective intelligence of the interconnected thornpalm network. These entities appear as massive, slow-moving figures composed of braided trunk and living bark, their "heads" crowned with fronds that constantly shift and part to release glowing pollen. They communicate through chemical signals and subtle movements of their root-systems, coordinating the water-sharing behavior of their grove. To the Myrkweavers, they are both revered and feared—revered as providers of rain and shelter, feared because when angered, they can redirect entire water flows, drowning settlements or withering groves with equal ease.
+
+## **The Cycle-Walkers**
+
+In the perpetual twilight beneath the thickest canopy, where the boundary between decay and growth becomes truly porous, move the **Cycle-Walkers**. These entities exist in the suspended state between life and death that characterizes the Weepward's decay cycles. They appear as humanoid figures whose bodies seem to be made of equal parts fresh growth and advanced decomposition—vines and moss intertwining with bone-white wood and fungal bloom. They serve as caretakers of the threshold states, ensuring that nothing stays dead too long and nothing grows without proper timing. They speak in a language of spores and are among the few beings that can safely navigate the most chaotic zones where plant growth happens too rapidly to follow predictable patterns.
+
+## **The Stone-Tongues**
+
+Deep within the limestone formations that form the Weepward's skeleton, consciousness has awakened in the mineral deposits themselves. The **Stone-Tongues** are entities that have grown from the intersection of geothermal activity, mineral-rich water, and the slow crystallization processes that occur in the constant seepage. They communicate through vibrations transmitted through the rock—low-frequency hums that the Myrkweavers feel in their bones more than hear with their ears. To encounter a Stone-Tongue is to feel the entire history of the plateau's formation pressing against your consciousness, complete with the memory of ancient seas and the slow dance of tectonic plates. They serve as the Weepward's long-term memory, recording events in layers of crystal growth and mineral deposition.
+
+## **The Pollen-Singers**
+
+During the evening blooms when thornpalms release their blue luminescent pollen, temporary consciousnesses emerge—the **Pollen-Singers**. These beings exist only during these brief periods, formed from the interaction of glowing spores, the specific frequency of twilight light, and the collective exhalation of the entire plateau. They appear as ephemeral figures composed of swirling pollen and light, singing in harmonies that can only be heard during this magical time. They influence the dreams of sleeping Myrkweavers, bringing visions of possible futures sprouted from the seeds of current actions. When the bloom ends, they dissolve back into the air, but their influence lingers in the form of new growth patterns and altered behavioral cycles among the plant life.
+
+These entities don't so much live in the Weepward as they *are* the Weepward—not separate from the landscape but its various aspects given voice, motion, and purpose. They are what happens when a place becomes so thoroughly alive that awareness itself begins to crystallize out of the interplay between growth, decay, sound, and the endless turning of water through stone and root.

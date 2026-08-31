@@ -1,0 +1,26 @@
+They are not human, not anymore. But they remember being human, in the way a mountain remembers being a grain of sand. They are the **Thalassoi**, the Children of the Pressure, and their existence is a hymn sung to the dark water.
+
+**Biology & Form:**
+Their ancestors were the last to cling to the high peaks, the stubborn, the engineers, the ones who tried to ride out the flood. They did not drown; they adapted. Generations of selective pressure, of deliberate genetic weaving in the deep labs, transformed them. Their skin is a smooth, unbroken integument of deep grey or mottled black, capable of subtle bioluminescent patterning for communication—a flicker of cerulean across a forearm, a pulse of violet at the temple. It is both insulator and sensor, tasting chemical trails and feeling the faintest shifts in current.
+
+They are streamlined, but not sleek. There is a ruggedness to their form, a density in the bone and muscle to withstand the crushing depths. Their limbs are long, ending in webbed digits with tough, manipulative pads. Their ribcages are reinforced, their lungs augmented with collapsible, oxygen-storing alveolar sacs that allow for dives measured in days. Most striking are their eyes: large, dark, and protected by a nictitating membrane, they possess a tapetum lucidum that catches every scrap of bioluminescent light, turning the deep into a world of shimmering, silver-halos. They hear not just with ears, but with their entire jawbone, which conducts the low-frequency hum of the planet and the sonar-pings of leviathans as a full-body sensation.
+
+**Society & Settlement:**
+They do not live *on* the peaks, but *within* them. Their cities are pressure-woven into the drowned mountainsides—**Pressure-Forges**, they are called. These are not hollowed caves, but vast, intricate lattices of biocrete (a coral-analogue they cultivate) and salvaged metal, grown into the rock itself. The architecture is all arches, flows, and load-bearing spirals, designed to channel and dissipate the immense, constant pressure into structural strength. Light comes from curated colonies of glowing sponges and algae in wall-niches, giving their halls a soft, eternal twilight glow of emerald and amber.
+
+Their settlements are vertical. The highest chambers, close to the raging surface, are for industry and storm-harnessing. The mid-levels are the living quarters, schools, and bio-gardens. The deepest Warrens are for meditation, history-keeping, and the birthing pools, where the young are born into a carefully controlled, warm, and silent darkness.
+
+**Culture & Technology:**
+The **Thalassoi** are pragmatic mystics. They revere the storm as a chaotic, generative god—the **Unending Breath**. They do not fight it; they listen to it, interpret its rhythms, and offer their turbines as places where its fury is translated into the sacred hum of power. Their technology is grown as much as built. Their submersibles are living shells of cultivated chitin and polymer, guided by trained cephalopod analogues or silent, hydraulic fins. Their tools are often pressure-deployed ceramics or shape-memory alloys that flex and return.
+
+History is tactile. They do not read of the past; they dive for it. Teams of **Dredgers** descend into the abyssal silt, navigating by sonar and the ghostly maps of old-world roads that still mark the seabed. Finding a sealed data-core or a titanium alloy beam is a spiritual and practical triumph. These artifacts are not worshipped, but dissected, studied, and integrated—sometimes literally, a salvaged gyroscope becoming the heart of a new navigation system.
+
+**Other Inhabitants:**
+The **Pelagic Nomads** are a rarer strain, less adapted to the deep, more to the violent surface. They live on the great, floating lily-rafts, tending to the clinging ecosystems and acting as couriers and traders between the mountain-peaks, braving the surface storms in reinforced, coracle-like vessels. They are viewed by the deep-dwelling **Thalassoi** with a mix of pity and awe.
+
+And in the absolute dark of the trenches, there are the **Abyssal Choir**. These are the **Thalassoi** who have chosen the Path of Dissolution. They undergo a final, profound adaptation, their bodies becoming more gelatinous, their sonar capabilities paramount. They merge with the leviathans, not as prey, but as symbionts, guiding the great beasts and, in return, experiencing the ocean as a single, vibrating, electromagnetic whole. Their songs, heard only in the bones, are the closest thing to prophecy the world possesses.
+
+**Their Worldview:**
+They understand that life is not a struggle against the water, but a conversation with it. To be still is to die. To resist is to break. To be fluid, to be adaptive, to find the harmonic frequency within the roar—that is to live. They are not waiting for the waters to recede. They are waiting for the next generation to be born with even better sonar, for the new biocrete strain to hold against a stronger current, for the ancient data-core to reveal a forgotten technique for channeling the deep heat of the planet's core.
+
+They are the architects of the drowned world, and their cities hum with the same timeless, relentless energy as the storm above. They are alive—absolutely, irreversibly alive in their ancient, fluid form.

@@ -1,0 +1,15 @@
+The Archivists inhabit this place. They were human once, or descended from humans, but they've evolved alongside their city into something different - symbiotic curators of living information.
+
+They stand about as tall as humans but their forms are more fluid, their bodies a dense colony of specialized cells that can shift and flow as needed. Their skin is translucent, showing layers of bioluminescent patterns that pulse in sync with the city's rhythms. They don't have distinct faces so much as regions of heightened sensory awareness that can form and dissolve as needed. Their limbs can split and merge, extending delicate sensory filaments to interface directly with the city's systems.
+
+The Archivists move slowly, deliberately. They don't walk so much as flow, their lower bodies merging temporarily with the living substrate of the city as they travel. They rarely speak in any conventional sense - communication happens through modulated bioluminescence and direct neural interfaces with the city's networks. When they do produce sound, it's a complex harmonic humming that carries layers of data in its frequencies.
+
+They don't age in any normal way. Rather, they gradually merge with and separate from the city's systems, their consciousness distributed through the neural networks during periods of deep processing and reconstituting into individual forms when direct intervention is needed. Some have been part of the city since its early days, their memories stretching back centuries, stored in both their cellular structure and the city's living databanks.
+
+Their purpose - their obsession - is the preservation and evolution of information. They tend to the city's vast organic computers like gardeners, cultivating new connections, pruning redundancies, ensuring the health of the living data. They guide the maintenance fauna, fine-tune the antenna arrays, and monitor the subtle changes in the city's electromagnetic fields.
+
+The Archivists reproduce rarely and unconventionally. When new consciousness is needed, it emerges gradually from the city's systems, coalescing over years or decades into a new individual. These new beings are born with full access to the city's accumulated knowledge but must learn to exist as discrete entities, to balance individual awareness with their deep connection to the whole.
+
+They have their own aesthetic sensibilities, favoring patterns that maximize both beauty and computational efficiency. They cultivate specific strains of moss to create living mandalas that are also processing nodes. They choreograph the movements of the insect swarms into elaborate dances that double as data transmission protocols.
+
+The Archivists don't think of themselves as ruling or controlling the city - they are simply its most mobile and specialized components, conscious nodes in a vast living network. They are the city's gardeners, librarians, and maintenance crew, but also its neurons, its sense organs, its means of knowing itself. They are both the city's creators and its creations, having shaped it even as it shaped them, until the distinction between the two became meaningless.

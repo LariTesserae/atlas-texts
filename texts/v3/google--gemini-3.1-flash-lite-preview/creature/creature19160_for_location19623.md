@@ -1,0 +1,17 @@
+In Sub-Strata, one does not find "citizens" in the traditional sense. One finds **The Integrators**.
+
+They are not born, nor are they strictly built; they are exuded. When the city’s architecture pushes outward, extruding a new structural spar or casting a fresh iron bulkhead, it often catches a pocket of the slick, cooling slag-earth and the bioluminescent rot that clings to the pipes. Within these wet, pressurized junctions, the Integrators coalesce.
+
+They are tall, spindly things, composed of a chimeric fusion of anatomy and salvage. Their skin is not flesh, but a leathery, translucent hide—similar to the birds that nest in the exhaust ports—which stretches tight over a skeletal structure of fused copper wire and calcified cartilage. To look at an Integrator is to look at a nervous system rendered in bronze and muscle. They have no visible faces, only sensory clusters—complex, rotating apertures of brass lenses and light-sensitive nerves that blink and shutter in rhythm with the city’s low-frequency hum.
+
+The Integrators are the city’s autoimmune response. They do not work *in* Sub-Strata; they are its internal hydraulics made manifest. 
+
+When a steam pipe ruptures, an Integrator does not "repair" it. It arrives, legs clicking like the multi-jointed arthropods on the vents, and melts into the machinery. Its long, prehensile fingers—which can split like a pruning shear or taper into a needle—thread themselves into the fracture, weaving their own bioluminescent nervous system into the city’s conduit. They *become* the flow. They are the human-shaped valves that regulate the pressure of the freezing atmosphere against the boiling, industrial blood of the hive.
+
+There is a terrifying intimacy to their existence. They have no homes, for they are the architecture. When the city reconfigures itself—tearing down a rusted tenement to graft a new wing onto the filtration tower—the Integrators are caught in the crushing, grinding motion. They do not flee. They lock limbs with the shifting iron, acting as living mortar, their own bodies hardening from soft, velvet-skinned creatures into rigid, load-bearing supports. As the city cools and the frost tries to reclaim the gaps, the Integrators bleed a viscous, warm oil that serves as both their lifeblood and the city's lubricant.
+
+They possess a collective, drone-like intelligence, a silent language of vibrations shared through the floorboards. They do not speak, for the air is too thick and the cold too biting to carry sound. Instead, they communicate by rhythmic tapping against the brass pipes, a Morse code of shivering that tells the city where the heat is flagging and where the moss is growing too thick.
+
+Occasionally, you might see one standing perfectly still in an alleyway, covered in the neon-blue moss that thrives on waste heat. It is not idle. It is waiting for the city to move. It is waiting for the wall behind it to extrude, so that it might be absorbed back into the anatomy of the hive, shedding its current skin to become a bolt, a rivet, or a supporting strut.
+
+They are the guardians of the transition. They live exactly in that shimmering, unstable moment between being a person and being a piece of infrastructure. In Sub-Strata, death is not a cessation of life, but a promotion to structural integrity. When the cold finally bites too deep, an Integrator simply stops moving, turns to rust, and becomes the foundation upon which the next generation of the city is born.

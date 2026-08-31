@@ -1,0 +1,28 @@
+They are not merely inhabitants of a place; they are components of a single, slow metabolism. In the Helios-Agronomic Sump, the distinction between the engineered and the evolved has dissolved. Here, the fauna are the machine’s white blood cells, its scavengers, and its dreams.
+
+**The Mist-Strikers**
+In the middle distance, where the yellow industrial light struggles against the updraft of warm vapor, you see the shimmer. These are the Mist-Strikers, descended from fish but now liberated from the buoyancy of water. They are sleek, torpedo-shaped entities of polished chrome and muscle, their bodies streamlined to cut through the thick air.
+
+They do not swim so much as they vibrate. Their "fins" are translucent, ribbed membranes that beat at a frequency invisible to the human eye, creating a low hum that harmonizes with the chamber’s background thrum. Traveling in vast, shifting schools (which the locals might call "fogs"), they navigate the eternal waterfall of condensation. Their mouths are small, needle-rimmed orifices designed to snatch spores and drifting motes of organic dust out of the air. They are the plankton of the vertical sea, forever darting through the humid gloom like scattered drops of quicksilver, terrified of the open water below and the dark ceiling above.
+
+**The Ferrum-Harvesters**
+On the vertical walls, clinging to the rusted ribs of the cylinder, are the laborers. The Ferrum-Harvesters are crustaceans the size of wolves, their shells a patchwork of calcified armor and oxidized iron. They have six limbs; the lower four are hooked and powerful, driven by hydraulic muscles that can crush rivets, while the upper two are fine, serrated pincers.
+
+They are detritivores of the machine’s decay. They move with agonizing slowness along the conduits, scraping the "lichen"—a mixture of grease, moss, and oxidized metal—into their mandibles. The sound of their feeding is a constant, grinding *skrrrrt* that adds a texture to the room’s ambient noise. They are oblivious to the observer, for they operate on a timescale of geology. They have evolved to synchronize with the pistons; when a massive city-block-sized rod begins its grinding heave, the Harvesters lock their claws into the metal grooves and go rigid, riding the displacement of the wall like surfers on a tidal wave, waiting for the stillness to feed again.
+
+**The Circuit-Weavers**
+Life clings not just to the walls, but to the great ferns. Anchored in the "soil" of waste and decay, the giant fronds are vascular systems of fiber-optics and sap. Living within these roots are the Circuit-Weavers. They are pale, many-legged arachnids, translucent enough that you can see the electrical pulses of their own nervous systems.
+
+They do not spin silk; they spin insulation. Using secreted conductive polymers, they mend the fraying connections between the fern’s biological roots and the machine’s electrical grid. In return, the ferns provide shelter and the sugary sap produced through photosynthesis under the artificial lights. The Weavers are the ecosystem's electricians, tiny and fragile, maintaining the tenuous life-support system that keeps the jungle glowing in the dark. If you look closely at a fern, you see the faint blue crackle of static where a Weaver touches a stripped wire, drinking the voltage to fuel its own small, spinning heart.
+
+**The Thermal-Gargoyles**
+Higher up, near the catwalks, the shadows sometimes detach themselves. These are the apex predators: the Thermal-Gargoyles. They resemble manta rays given the attributes of bats, with wingspans that stretch ten feet across. Their skin is not flesh, but a leathery, heat-absorbing material that mimics the texture of the rusted catwalks, allowing them to hang perfectly motionless, invisible against the iron.
+
+They do not hunt by sight; they hunt by thermodynamics. They can sense the heat signature of a Mist-Striker from fifty yards away. When they strike, they do not flap. They simply release their grip on the ceiling, folding their wings to become a plummeting stone of leather and muscle. They dive in total silence, a stark contrast to the roar of the room, snatching their prey from the air with a wet *snap* before banking into an updraft. Their cry is not a screech, but the hiss of venting steam—a mimicry that unsettles the other creatures, blurring the line between the living hunter and the dying machine.
+
+**The Sump-Leviathan**
+And then there is the bottom. The "depthless black body of water" is not empty. It is the stomach of the world. Down there, where light fails and the pressure of the machine is immense, lives the Sump-Leviathan.
+
+It is a massive, blind thing, a filter-feeder the size of a submarine. Its body is soft and amorphous, like a colossal amoeba, encrusted with the debris of centuries—rusted pipes, swallowed catwalks, and calcified bones. It moves by pumping water through vents along its flank, creating localized currents that stir the stagnant sludge. It is the ultimate recycler. It opens its cavernous maw to ingest the falling rain, the dead leaves from the ferns, the carcasses of fallen Gargoyles, and the silt of the machine. It processes this slurry, excreting the nutrient-rich paste that accumulates on the catwalks, feeding the ferns, which feed the roots, which feed the machine.
+
+It is a closed loop. The Leviathan is the heart, the Harvesters are the hands, the Weavers are the nerves, and the Gargoyles are the immune system. Together, they keep the dying god alive, pulsing in the dark, long after the builders have turned to dust.

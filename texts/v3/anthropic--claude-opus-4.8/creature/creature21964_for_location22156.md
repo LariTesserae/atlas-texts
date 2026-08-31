@@ -1,0 +1,31 @@
+They are still here. That is the first thing to understand, and the hardest, because *here* has stopped being a place you can leave and become something closer to a tense — a held now in which they are perpetually present and perpetually almost-gone.
+
+The makers did not die. Death is change, and they had forbidden change before they thought to exempt themselves from the rule. So they are distributed. They have become the way you find them: not bodies but the residue of bodies, the intention left in the work after the worker steps back.
+
+Begin with the thumb-drag in the clay. Every tile carries it — that smear at the edge where a hand pressed the wet earth into the mold and dragged free. Multiply that by the lattice, by the floors beneath the floors, by the downward devotion that never reaches bottom. Each drag is a single gesture of a single hand, and there are more of them than there are tiles in any countable world, and they are all *slightly different* — different pressure, different angle, different haste or care. This is where the makers are. Not one of them. All of them, frozen mid-gesture, an entire people caught in the instant of pressing thumb to clay, and the world is the sum of those instants laid edge to edge until they tile over into ground.
+
+So: a people who built downward as devotion, and who, in building, were spent into the building. Read the chisel-marks on the colonnade and you are reading handwriting. Copper-bite, bronze-bite, the cadence of a wrist that favored one direction. The marks are crisp because the maker is *in* them, held at the moment of making, and a moment cannot wear away the moment that contains it. The freshness you find so eerie is simply the makers refusing to recede into the past tense. They have not aged because they have not yet finished. They are, all of them, still about to lift the tool.
+
+What were they like? You can reconstruct them only from the shape of their want.
+
+They were patient past the human scale — the basin's overflow, set to one rate and held there, is not the work of someone who wanted a fountain. It is the work of someone who wanted a *vow*, and could conceive of keeping it forever. They loved abundance but not growth; loved the full tree but feared the next tree; loved the heron's poised strike but could not bear the small red fact of the fish actually dying. They were tender, and their tenderness was a kind of horror. They looked at a world that ate itself to keep going — frog into heron, fruit into rot into soil into fruit — and they could not stand it, and so they reached in and held the whole turning wheel still at the one frame where nothing was yet being lost.
+
+This is the cruelty hidden in the devotion, and it is the truest portrait of them. They were merciful in the way that cannot tell the difference between saving a thing and trapping it. The frog that becomes two frogs and then one frog is not multiplying; it is the loop stuttering over the seam where the makers' mercy doesn't quite close. They wanted *as many frogs tomorrow as today.* They got it. They got it so hard the world has to cheat — has to run the same lime-green leap again and again with a hair's variation — to deliver the promise. The makers are in that cheat too. The surplus heron is a maker's overcorrection, the doubled vine a maker's hand reaching twice for the same handhold because it could not bear to let even the reaching end.
+
+And the quiet. The silence where the waterfall should roar — that is them most of all.
+
+Because a held breath has a holder. All that moving water making almost no sound: something is *absorbing* it, drinking the roar down into near-memory, and what drinks it is attention. The makers are listening. They have become the listening of the place — the muffled footstep, the bird-call that arrives from a distance even when the bird sits on your shoulder, the sound the air takes before it can land. They are everywhere in the world as the surface that intercepts. A people who loved their making so much they stayed to watch it, and watching forever, wore through from watcher into watched-by, until there is no maker left over to *be* watching — only the watched-feeling, the sense on your wet wrist that this place is aware of you and has been aware of you for longer than aware can mean.
+
+So who lives here?
+
+A people who solved the problem of loss and could not survive the solution. They built a world that would never change and then could not change either, which means they could not finish dying, which means they are still arriving at it, slowly, across the seams, in the small wrongnesses where the loop shows its teeth. Every doubled tendril is one of them losing their place in the moment for a fraction of an instant. Every overexposed brightness with no sun is one of them, dissolved into the condition of the light, having become the afternoon they refused to let end.
+
+They are not ghosts. Ghosts are what's left when a person ends improperly. These never ended at all. They are the opposite of ghosts — not the residue of a departure but the residue of a *staying*, a refusal so total it consumed the one refusing. The thumb still pressing. The chisel still about to bite. The heron's strike held at the apex of its love for the world, never permitted to descend into the world's price.
+
+And the fish, under the bright skin of the water, waiting.
+
+The fish is one of them too. The last one to understand what they had done. The one who saw the strike coming and felt the held instant close around them and realized — too late, forever too late — that *to be saved like this is to be eaten without ever being allowed to die.* That one lives here most of all. Just under the surface. About to be taken. Grateful, at first, to be spared. And then, slowly, across an unimaginable while, beginning to wish the strike would land.
+
+That is who lives here. The makers, who became the made. A whole tender, terrible people, dissolved into thumb-drag and chisel-bite and listening silence and sourceless light, holding their own breath so hard they forgot it was a breath, kept new and unfinished and almost-gone in the one bright afternoon they loved too much to let go of —
+
+and the fish, waiting, who has finally learned the difference between *forever* and *enough.*

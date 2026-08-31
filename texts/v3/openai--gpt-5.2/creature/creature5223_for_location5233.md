@@ -1,0 +1,49 @@
+At first glance, what lives in the basin seems to be the basin’s own afterimage: dark stains that aren’t quite stains, textures that look like weathering until you stay with them long enough to notice intention.
+
+On the lee sides of stones—where the dimness is deepest and the tiny, nearly imaginary air-currents can’t worry the surface—there are films. They read as soot brushed on by a careless hand, but they have boundaries that are too deliberate: a crescent hugging the underside of a basalt lip, a thumbprint spread across a gypsum plate, a faint tide-line around an alcove where dust has pooled.
+
+They are not plants in the familiar sense. They are communities pressed flat against mineral, living so close to the rock that “body” and “substrate” stop being separate ideas. In the basin’s steady warmth they do what they can with what almost isn’t there: trace water scavenged from the air when salts briefly soften into brine; stray chemical energy teased out of iron and sulfur and whatever else the stone is willing to surrender; the occasional weak light, taken not as a daily gift but as a rare ingredient.
+
+If you could shrink yourself down to their scale, you’d find that the basin is not empty. It’s crowded—just not in three dimensions. Life here has learned the economy of being thin.
+
+The black-green smudges are layered. A top skin of hardy cells takes the exposure: desiccation, mineral bite, the constant abrasive insinuation of dust. Beneath, in microscopic pockets where a grain of salt has trapped a hint of moisture, other metabolisms do slower work. Some build crusts that bind dust grains together into a slightly tougher fabric; some etch the stone so gradually that a decade is a blink. Their colors are subdued because the basin is subdued: charcoal, olive ash, oxidized brown—pigments chosen less for beauty than for endurance, for heat management, for protection against whatever in that thick sky would damage unshielded tissue.
+
+Around them, the pale surface is not as inert as it looks. In the seams between polygon plates, where darker grit gathers, there are belts of almost-life that appear only when you change your angle to the ground. A faint sheen, like oil on water—except there is no water. It’s a salt-slick, a deliquescent trick: minerals that pull humidity out of air that feels utterly dry, forming a film so thin you’d call it imagination. In that film, things move. Not fast. Not often. But decisively when the chemistry says *now*.
+
+The basin’s “plants,” when they occur, look like they were invented by someone trying to build a living object with the fewest possible features.
+
+There are the knotted bundles you noticed—hardened twig-clusters with no soft promise to them. Their outer surfaces are varnished with waxes and mineral dust until they resemble old rootwood left in an oven. They don’t so much *grow* as occasionally add material: a new joint, a new stub, a slight thickening that is more reinforcement than expansion. Their living tissue is kept deep, where temperature is stable and the air can’t steal moisture directly. What you see is mostly armor.
+
+There are also single-stalk forms that look like dark reeds cut short, each one set apart as if distance itself is a requirement. Their “leaves” are reduced to scale-rings—tight collars that can close, sealing the stem’s pores when the air becomes too hungry. When they do take in water, it isn’t from rain; it’s from brief chemical softenings of the crust, from the moment a salt bloom liquefies and offers up a drink measured in microliters. The stalks store it in thickened tissues the way other worlds store sugar. They are less like vegetation than like cisterns that happen to be alive.
+
+Some of these plants reproduce without urgency. They shed brittle segments that don’t rot; they simply lie where they fall, waiting for the one combination of warmth and trace moisture that will let them root. In a place where nothing circulates quickly, dispersal becomes a different art: not “go far,” but “last long.”
+
+If you stop believing the basin is animal-less—if you let the silence be a kind of camouflage rather than proof—you start noticing a second tier of residents: the ones that have made themselves almost unnoticeable because noticeable things tend to get erased here.
+
+They are not grazers in any ordinary sense, and that’s why the plants look untouched. The basin’s animals, where they exist, don’t browse. They harvest.
+
+In the alcoves where powder collects in perfect, undisturbed pours, there are mites so pale they’re indistinguishable from dust until they move and the “powder” briefly behaves like a liquid. They feed on the microbial films, but not by scraping them away in visible patches. They take them in particles, in thin harvests, leaving behind a surface that still looks continuous. Their bodies are sealed, their breathing slow, their lives a sequence of long pauses punctuated by brief, efficient activity whenever the chemistry of the basin briefly turns generous.
+
+Along the cracks between crust plates, there are threadlike insects—more suggestion than form—whose legs are adapted not for running but for spanning. They travel the seam-lines like bridges, keeping their weight off the fragile edges, leaving no tracks because they touch the ground so lightly and so rarely. When disturbed they don’t flee in a panic; they still themselves and become just another bit of iron-dark grit. They know the basin’s rule: movement is expensive.
+
+And underneath the crust—beneath those polygon plates that look like old pottery—there is a hidden architecture of voids: tiny pockets left by evaporated brines, wormed slowly larger by chemical processes, connected by fissures in basalt that hold warmth the way a kiln holds heat. In those pockets, life can afford to be slightly softer.
+
+There are pale, slow-bodied things there—larvae, perhaps, or adults that never become anything else—living in the stable darkness where the air is a touch less dry. They do not burrow in the way a mole would. They simply occupy existing space, widening it by a fraction over months, by a thumb’s breadth over lifetimes. They eat what the basin provides in its own language: fungal threads grown on mineral salts; bacterial mats that bloom when deliquescent films appear; the bodies of the unlucky that failed to seal themselves in time.
+
+The fungi are easy to miss because they don’t advertise themselves as mushrooms or mold. They are hair-fine filaments the color of bone, running through dust like faint cracks. In a wetter world they would rot things. Here they mostly *hold* things: binding dead stems into place, stitching dust into mats that resist the tiny settling shifts, creating a modest structure where the basin would otherwise grind everything down to flour. They, more than any other organism, are the basin’s quiet carpenters—building with almost nothing, making shelter that is measured in millimeters.
+
+If there is a larger creature—something that could be called a “who” with any confidence—it won’t announce itself with sound or track or den. It will be an absence among absences, a pattern that only becomes visible if you return.
+
+A dust slope that was perfectly smooth now has a shallow, crescent depression as if something lay there long enough to warm the powder into settling. A cluster of stalk-plants has a slightly different spacing, not broken, just… rearranged, as if nudged with deliberate care. A glassy nodule of volcanic stone that sat half-exposed now lies turned, presenting a different face to the dim light.
+
+Whatever does that—if anything does—is adapted to the basin’s ethic: leave no mark that time can’t erase.
+
+It might be a solitary scavenger, low to the ground, with a skin that wears the basin’s palette like camouflage—gray-brown, soot-green, the matte of basalt. It would move rarely and with purpose, perhaps guided less by sight than by heat: sensing the stored warmth of rock, the slight temperature difference where a microbial mat is active, the faint chemical tang of a salt film that has softened. It would not hunt with speed. It would *arrive* when the basin briefly offers something edible, and then it would wait again.
+
+Or it might not be an animal at all, not in the way you mean. In a place where chemistry replaces weather, “living” can look like a mineral habit. Some of the feathery crystals in the darkest corners are not passive growths but partnered ones—crystal lattices seeded and shaped by microbial communities, structures that hold moisture a fraction longer, that create microclimates the way a leaf creates shade. They are gardens made without hands: life teaching stone how to be hospitable, and stone teaching life how to endure.
+
+So the basin is inhabited, but it refuses the kinds of evidence you’ve been trained to trust. No calls. No trails. No sudden motion to reassure you that the world is busy.
+
+Instead, it offers residents that match its tempo: skins, films, threads, sealed bodies, slow hearts—organisms that do not argue with stillness but use it, that do not fight the lack of cycles but become cyclical in smaller ways: in salt blooming and stopping, in microscopic wettings and long dries, in decades of near-nothing interrupted by a brief season that isn’t a season so much as a moment when the air tilts toward possibility.
+
+If the basin feels “chosen by absence,” it’s because what lives here has learned to choose absence back—making itself so minimal, so close to equilibrium, that the line between inhabitant and landscape becomes the basin’s most successful camouflage.

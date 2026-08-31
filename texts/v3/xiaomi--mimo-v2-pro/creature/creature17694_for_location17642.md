@@ -1,0 +1,23 @@
+The first thing you learn is how to listen to the drip.
+
+It isn’t one sound. It’s a choir, a clockwork, a language. The *plink* of a drop into a deep, stone cup is a single, clear note. The *plonk* into a shallow, moss-filled basin is a damp chord. The endless, collective *hiss* is the breath of the world. I move through this sound, and my own movement is just another part of it—the soft compression of aquamarine moss under my bare, damp feet, the whisper of my shoulder against a black-lace fern frond, shedding its load of gathered mist.
+
+I am of the damp. My skin is cool, my hair hangs in heavy, dark ropes that never fully dry. I see not by the sun, which is a pale, silver smear in the hydrological haze, but by the glow of life. The pale fungi emit a soft luminescence, and certain mosses, when agitated, pulse with a faint, emerald light. My world is one of soft focus, of deep, sopping greens and the charcoal grey of wet stone.
+
+The thrum is my heartbeat.
+
+It comes up through the soles of my feet, through the rock itself. It is not a sound for ears alone, but a vibration in the marrow. In the Heartwood groves, it is so strong it makes the water in the rock-pools shiver in concentric rings. I tend these places. My industry, if you can call it that, is one of listening and adjustment. I clear debris from the hexagonal basalt conduits, not with tools, but with my hands, feeling the acoustic hum grow clearer as a channel is freed. I guide the shaggy, algae-streaked ungulates toward groves where the thrum is faint, their broad hooves and heavy bodies compacting the spongy soil, their slow browsing preventing any one species from choking the delicate, mechanical symbiosis.
+
+They are not afraid of me. Why would they be? I am just another damp, quiet thing in a world of them. The sleek, otter-predators sometimes slide past my ankles like dark water, their eyes like polished obsidian, checking me with a curious nose before moving on to their silent hunt. We are all cogs here.
+
+My most vital task is with the violet pools.
+
+They appear in the deepest hollows, often ringed by unnaturally perfect basalt columns. Their surface is still, but not reflective. It drinks the light and gives back a deep, starless purple. A wrongness. A necessary wrongness. I know, in a way that is more memory than learning, that these are the forest’s regulators. When the thrum becomes too rhythmic, too set in its pattern, the forest risks calcification. The living composite in the Heartwood roots might become too rigid, the pumping action too efficient, losing the vital variability of life.
+
+So I go to the edge of a violet pool. I do not disturb its surface. Instead, I listen—really listen—to the specific, local *plink-plonk* around its rim. I find a drip that is too regular, a note that has become a monotone. With a touch, I redirect a hanging rootlet, or coax a spray of sphagnum moss to grow a fraction differently, altering the drip’s path. It falls. *Plink*. It falls again. *Plink*. And then, a third time, it lands on a different stone, a millimeter to the side. *Plonk*.
+
+The change is microscopic. But the violet pool shivers. Not with concentric rings, but with a chaotic, star-like pattern that ripples outward. Deep beneath the plateau, a root network feels the shift. A complex resin pathway in a Heartwood giant subtly changes its flow. The grand, continent-sized thrum catches, stutters for a beat, and then resumes with a new, infinitesimally different rhythm. A freshness enters the air. The weeping seems to sigh.
+
+This is my life. I do not build. I coax. I do not invent. I remember the patterns. I am a tuner of the engine, a physician to the geologic pulse. I eat the starchy, dripping heart of certain fungi and drink the iron-sharp water from stone cups. My thoughts move at the pace of condensation, at the speed of resin polymerizing over centuries.
+
+Sometimes, in the absolute silence that falls—one breath, two—before the dripping resumes, I hear it. Not just the listening. I hear the faint, collective sigh of a billion processes aligning, the soft *click* of a continent-sized machine finding its next, perfect, momentary equilibrium. And in that silent moment, I know I am not the only one who tends the quiet industry. But the others, if they are there, are elsewhere on this roof of the world, listening to their own drips, adjusting their own pools, their own thoughts as slow and deep and necessary as the weeping of stone.

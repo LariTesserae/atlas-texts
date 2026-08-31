@@ -1,0 +1,41 @@
+The inhabitants of the Threshold Mills exist in layers, like sediment deposited by successive floods of possibility.
+
+**The Millwright Collective** moves through this space with the unhurried precision of those who tend impossible machinery. They are human in outline but stretched thin by years of breathing probabilistic steam. Their coveralls shift color—sometimes the blue-gray of industrial uniforms, sometimes the deep green of chlorophyll. Oil stains on their clothes occasionally bloom into flowers that wilt back to grease by evening.
+
+They speak in the technical jargon of a trade that shouldn't exist, discussing "temporal gear ratios" and "existential bearing wear" with the casual expertise of career mechanics. When asked what they're building, they'll gesture vaguely at the valley and say things like "infrastructure" or "the framework" with the matter-of-fact tone of someone explaining plumbing. Their tools are familiar—wrenches, hammers, measuring tapes—but they use them to adjust concepts and tighten loose metaphors.
+
+The Millwrights work in teams of three or four, always including one member who exists only intermittently. This rotating absence serves as their early warning system: when Jess or Morgan or Old Pete starts flickering, the crew knows they're working too close to an unstable reality gradient. They'll pack up their impossible toolboxes and move to a different section of the mills, leaving chalk marks on solid air to warn the next shift.
+
+**The Steam Children** are perhaps their descendants, though no one seems sure. They emerge from the constant mist that rises from heated metal and evaporating possibilities. Child-sized and perpetually damp, they have learned to navigate the valley by reading the condensation patterns on leaves and machinery. Their laughter echoes from directions that don't exist, and they play games involving the careful arrangement of rust flakes and flower petals on surfaces that phase in and out of existence.
+
+The Steam Children collect things: bolts that fall upward, flowers that bloom from smokestacks, shadows cast by invisible structures. They trade these treasures with each other according to rules that shift like the machinery around them. A shadow might be worth three impossible flowers on Monday, but by Wednesday the exchange rate has reorganized itself around the sound a wrench makes when it tightens empty air.
+
+They sleep in nests woven from decommissioned conveyor belts and broad leaves, always in groups, always in places where the industrial sounds are gentlest. The adults leave food for them—sandwiches that taste like motor oil and hope, fruit that grows on assembly lines, water collected from pipes that transport liquid time instead of sewage.
+
+**The Quality Assurance Division** inhabits the space between what is and what might be. They appear as vague bureaucratic shapes in suits that flicker between fabric and blueprint paper. Armed with clipboards that document impossible specifications, they move through the mills testing the consistency of inconsistency itself.
+
+"This paradox is running within acceptable parameters," one might note, checking boxes on forms that occasionally catch fire and regenerate. "But we're seeing some drift in the causal loop over by the bamboo foundry. Better schedule a recalibration."
+
+They have an office that exists only when they need it, manifesting as a trailer with fluorescent lights that hum bureaucratic white noise. Inside, filing cabinets full of documents written in languages that won't be invented for another century organize themselves according to principles that would give conventional librarians nervous breakdowns. The QA Division reviews these files with the weary dedication of middle management anywhere, ensuring that the fundamental restructuring of reality proceeds according to proper protocols.
+
+**The River Spirits** are the valley's indigenous population, though they've adapted to the industrial colonization of their watershed with surprising grace. They appear as vague figures made of mist and current, occasionally solidifying enough to lean against a rusted turbine or sit on the edge of a loading dock that extends into probability space.
+
+The spirits speak the old language of water over stone, but they've learned technical vocabulary. They can diagnose problems with machinery that shouldn't exist and often serve as interpreters between the human inhabitants and the valley's more abstract residents. When a gear train connecting to crystallized time starts grinding, it's usually a River Spirit who explains that the temporal lubricant has thickened in the humid air and needs to be thinned with extract of Tuesday morning.
+
+They claim to remember when the first mill appeared—a modest affair that ground certainty into useful quantities of maybe. "It was louder then," they say in voices like water over pebbles. "Now the valley has learned to absorb the sound."
+
+**The Rust Prophets** emerge from the decay itself, humanoid figures whose bodies incorporate the oxidation patterns of abandoned machinery. They speak in metallic whispers about the future forms of corrosion, predicting which structures will next surrender to entropy and which will find new purposes in their dissolution.
+
+"The third conveyor belt will bloom next spring," they announce with the certainty of meteorologists. "Its flowers will taste of transmission fluid and possibility." They tend gardens of controlled decay, carefully nurturing the rust patterns that will eventually become new forms of life, new kinds of consciousness adapted to the valley's shifting logic.
+
+**The Heron Engineers** are exactly what they appear to be—herons—but they've developed an uncanny understanding of the valley's engineering principles. They nest in the angles of impossible architecture and use their beaks to make tiny adjustments to machinery that exists in too many dimensions for human hands to reach.
+
+The herons work with patient precision, understanding intuitively how to maintain the delicate balance between what is built and what grows wild. They've learned to fish in pools of liquid time, catching moments that taste like silver and uncertainty. Their eggs hatch into chicks that can walk on air until they're old enough to understand that air isn't supposed to be solid.
+
+**The Maintenance Dreams** are less inhabitants than natural phenomena, but they have something like consciousness. They manifest during the valley's sleep cycles—periods when the machinery runs on automatic and reality becomes especially fluid. These dreams take the form of translucent figures in work clothes, going through the motions of repair and adjustment on equipment that exists only in the space between sleeping and waking.
+
+The Dreams never acknowledge observers, focused entirely on their impossible tasks: replacing gaskets made of materialized hope, oiling joints that connect today to yesterday, adjusting valves that regulate the flow of consequence. They work with the gentle dedication of those who maintain essential infrastructure, ensuring that the valley's impossible machinery continues to function through the night shifts of existence.
+
+In the mornings, the living inhabitants find evidence of the Dreams' work—tools returned to their proper places, maintenance logs filled out in handwriting that belongs to no one living, repairs completed on machinery that wasn't supposed to need them yet. The valley hums more smoothly after these nocturnal visits, its systems running with the satisfied efficiency of something that has been properly tended.
+
+All these inhabitants coexist in a careful ecosystem of the impossible. They've learned to read each other's signs and signals, to step carefully around each other's work, to share the spaces that exist and to create new ones when needed. They understand that the Threshold Mills are not a place to be conquered or fully understood, but rather a community to be joined, with patience and humility and a willingness to let the extraordinary become, through daily habit, wonderfully ordinary.

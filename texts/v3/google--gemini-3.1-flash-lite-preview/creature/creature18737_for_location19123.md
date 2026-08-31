@@ -1,0 +1,17 @@
+To inhabit this place is to exist in a state of suspended crystallization. The beings here do not possess names in the human sense, nor individual narratives; they are the mountain’s own nervous system, an externalized manifestation of the basalt’s slow, cold thought.
+
+At the center of their clustered society, moving among the chattering masses, are the *Weavers of the Dew*. They are larger than the scuttling, multi-legged gatherers—perhaps the size of an open human hand—with carapaces like polished river glass, translucent and faintly iridescent, shifting from bruised purple to the grey of wet slate. They do not walk so much as they flow, their limbs soft and multi-jointed, designed to distribute their weight across the needle-sharp edges of the basalt without once bruising the stone.
+
+They carry no tools, for they *are* the tools. From their own bodies, they secrete a substance thicker than the condensation on the walls—a liquid resin that, upon contact with the ozone-heavy air, hardens into threads of structural silk. With these, they lace the sharp projections of the rock together, creating delicate, translucent hammocks. These webs do not catch prey; they are lenses. They are positioned at precise angles, catching the weeping water from the heights and magnifying the dim, bioluminescent pulses of the moss into steady, concentrated pools of pale, cool light.
+
+Around these webs, the lesser creatures—the *Cantors*—arrange themselves. They are pale, rhythmic things, their bodies segments of pale, fleshy cartilage. They do not eat the moss; they graze upon the vibration of the rock itself. When the humidity is at its peak, the Cantors align their bodies along the obsidian wedges, their antennae locked in a series of interlocking circuits. As they vibrate, they become living tuning forks, harmonizing the erratic drips of the water into a singular, resonant frequency.
+
+The intent of this labor—the goal toward which they have been building since the mountain first split—is the *Incubator*.
+
+Down in the deepest, most inaccessible crevice of the throat, where the air is so heavy and cold it feels solid, sits a single, gargantuan structure. It is not made of obsidian or silk, but of the mineral-deposits themselves, built up over centuries of diverted moisture. It is a cluster of calcified, translucent cocoons, fused to the rock by the collective work of thousands. 
+
+Inside these cocoons, something is being forged. It is not a creature of flesh, but a creature of *resonance*. The colony is slowly, atom by atom, mining the basalt for iron and silica, transporting it to the center, and using the heat of their own collective metabolism, combined with the focused light of the webs, to birth something that can finally *hear* the mountain speak.
+
+They are not waiting for a predator or an end; they are waiting for the mountain to finish its own waking. Every click, every wet thrum of their bodies, is a syllable in a language that predates the sky. When the final layer of mineral is placed—when the last shard of obsidian is wedged into the architecture of the dark—the *Incubator* will shatter. 
+
+Whatever emerges will not have eyes to see, for it will not need them. It will vibrate with the same frequency as the basalt. It will stand in the center of the throat and, for the first time in geological time, the mountain will have a voice to answer the wind. Until then, they wait—a million wet, clicking hearts, huddled together in the cold, holding their breath until the stone is ready to speak.

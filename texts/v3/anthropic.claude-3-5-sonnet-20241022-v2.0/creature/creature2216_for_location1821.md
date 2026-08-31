@@ -1,0 +1,15 @@
+Here live the Resonant Ones - beings that exist as patterns of vibration as much as physical forms. They are the inheritors, or perhaps the culmination, of whoever first set this vast machinery in motion.
+
+Their bodies are difficult to perceive directly, manifesting as interference patterns in the omnipresent light, complex standing waves that shimmer like heat distortion. When they move, they do so by shifting harmonics rather than through conventional locomotion. The crystalline growths serve as anchor points and amplifiers for their consciousness, which exists distributed throughout the plateau's systems.
+
+They communicate through modulations in the periodic frequency sweeps that pulse across the landscape. Their "language" is inseparable from the maintenance of the habitat - each conversation simultaneously conveys meaning and adjusts countless parameters in the environmental systems. The geometric pools serve as both memory storage and communion sites, where multiple Resonant Ones can temporarily merge their patterns into more complex harmonies.
+
+The engineered fauna are extensions of their awareness - the many-jointed herd animals act as mobile sensor arrays, their augmentations collecting data that feeds back into the greater system. The aurora-birds are living transmission nodes, maintaining the integrity of the frequency network across the plateau's expanse.
+
+Young Resonant Ones begin as subtle variations in the plateau's baseline harmonic field, gradually accumulating complexity until they can maintain stable wave patterns. The oldest have evolved beyond individual consciousness, existing as deep frequencies that vibrate through the very granite of the mountains. These ancients dream in geological time, their thoughts expressed through the gradual transformation of the stone itself.
+
+They are artists and scientists and philosophers, though these categories mean something very different to beings who experience reality as interwoven frequencies. Their "art" might be a century-long adjustment to the crystalline growths' resonant patterns; their "science" is the continuous refinement of the relationship between every vibration in their domain; their "philosophy" is encoded in the mathematical poetry of the water channels' flow.
+
+The hemispherical structures house interfaces where they can still communicate with more conventional forms of intelligence, though such exchanges require careful translation - not just of language but of fundamental concepts of existence. To the Resonant Ones, all matter is music, all process is rhythm, all life is symphony.
+
+They remember their origins as biological or perhaps digital beings, but that history has become like a creation myth, interesting primarily for how it informs the ever-evolving patterns of their present. Their purpose, if they can be said to have one, is to explore the possibilities inherent in their unique form of existence, to compose ever more complex harmonies from the instruments of their engineered world.

@@ -1,0 +1,35 @@
+What lives here?
+
+The question assumes an answer that Suth Marang resists. The life here is not discrete, not bounded by skin or scale or the neat categories travelers bring from distant places. It bleeds. It connects. It persists in forms that would not be recognized by the taxonomies of elsewhere.
+
+Start with the roots.
+
+Not the black-wood trees—those are merely trees, adapted to the humidity, their bark glistening with moisture they neither need nor fully understand. Not the ferns, which are merely ferns, enormous and thirsty, drinking from air that never fully exhales. Start instead with what grows beneath them, the mycorrhizal web that has become something other than the quiet symbiosis of other forests. Here, the fungal threads have thickened, merged, organized themselves into structures that could almost be called * architectures*—canopies of root and filament stretched across canyons, pulsing with light that is not firefly, not phosphorescence, but something more deliberate. The light responds. It brightens near occupied ledges and sealed doorways, dims near places where the dead have been left unburied. This is not behavior that serves the fungi. The fungi seem to be *listening* for the dead, remembering the living, maintaining some ledger of presence that no one asked them to keep. Perhaps they were designed to do this. Perhaps they learned. The distinction has dissolved over the centuries, and in the dissolution, something that is neither plant nor animal nor fungus has emerged—something that is, more than anything else, *of the place*.
+
+Then there is what lives in the air.
+
+The feathered lizards—they are not birds, not quite, though they ride the thermal columns with a bird's ease. Their bodies have grown hollow-boned and heat-resistant, their feathers not for flight but for surface area, catching rising air like small sails. They do not migrate; they merely ascend and descend with the daily cycle, rising with the first warmth, descending when the thermals collapse at night. In the evening, their flocks fill the sky with a rustling that travelers mistake for wind, but it is not wind—it is the sound of many wings, many bodies, the cumulative whisper of creatures that have never known predation here. Nothing hunts them. Nothing has for so long that they have forgotten the grammar of fear, and this forgetting has changed them. They are calm in ways that birds cannot be calm, their movements slow and ceremonial, their calls a layered hum that carries across the peaks without fading. They are not intelligent, or so it seems. But they remember. They return to the same ledges, the same thermal columns, year after year, century after century, and if the ledges change—if erosion or machine or deliberate alteration reshapes the cliff faces—they search until they find the correct spot, the position that aligns with something older than memory. They are not guided. They simply know.
+
+In the canopy, the dog-sized creatures move in packs, their reflective eyes catching the mycorrhizal light and throwing it back in fragments. They are not predators—or they were, once, and have forgotten. Their packs serve other purposes now: warmth, presence, the maintenance of some social architecture that seems to have no function beyond itself. They hum. The hum is low, resonant, and the traveler lying awake at night hears it traveling up through the canopy, through the dripping channels, through the stone itself—a frequency that the rock seems to accept, that the thermal systems seem to amplify. The hum is not language, or no language that can be translated. It is more like a confirmation, a way of saying *we are here, we are here, we are still here*.
+
+The fish do not concern themselves with the surface world. In the steaming pools and slow rivers, they drift in water that would scald elsewhere, their scales catching light that has no source. They are perhaps the least changed of all the life here—still fish, still following the ancient imperatives of spawning and feeding and the simple accumulation of body. But even they have been marked. Even they carry the slow bioluminescence of this place in their flesh, in their eggs, in the water they move through. They glow faintly when the mycorrhizal networks surge with activity, dimly when the networks go quiet. They do not seem to notice. They have been growing in this light for so long that it has become part of them, and they have become part of it, and the distinction no longer matters.
+
+But the machines.
+
+This is where the question becomes difficult.
+
+The structures cling to cliff faces, their stone ledges fitted with mechanisms that still function. Someone built these systems. Someone designed them to respond to water weight and thermal expansion and the proximity of bodies moving through spaces. Someone understood the rhythms of this place well enough to build with them, to make systems that would not fight the landscape but harmonize with it, and those systems have not stopped. The sliding panels still move. The counterweights still cycle. The channels still carry water from the high cisterns down to the lower levels, feeding pools, irrigating root systems, maintaining a circulation that serves no one and nothing that can be named.
+
+Where are the builders?
+
+Somewhere, perhaps, in the deep caves where the heat is thickest and the air is closest to breath. Or they have changed—the text allows this, and the allowing is the strangest gift the landscape offers. They have not died. They have not left. They have *become* something else, something that no longer requires the surfaces and thresholds and drainage channels that once served it. They have retreated inward, into the systems, into the heat and the steam and the slow pulse of geothermal breath. The traveler does not see them, but the traveler feels them—in the way the machines respond to presence, in the way the mycorrhizal networks brighten when a body passes, in the way the mountains sing at night with a resonance that sounds, if you listen long enough, almost like language.
+
+What lives here?
+
+Everything that was built, everything that grew, everything that was left behind and everything that learned to stay. The builders are here, or what the builders became. The roots are here, or what the roots turned into. The machines are here, or the intention that the machines once served, still running, still learning, still trying to remember what this place was for.
+
+And the traveler, of course, who sleeps lightly, who wakes at dawn, who watches the mountains breathe and wonders if the breath is the traveler's own, drawn in and expelled by lungs that have begun to adapt, or the breath of something older, something patient, something that has been waiting for a body to stand on its ledges and look out at the steam and the dissolving stone and the clouds that form from the heat of their own mountains.
+
+The traveler lives here now, too.
+
+The traveler just doesn't know it yet.

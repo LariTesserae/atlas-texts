@@ -1,0 +1,13 @@
+In this courtyard dwells a being that is neither fully creature nor purely spirit - a consciousness that has gradually emerged from the perpetual dialogue between stone and water. Let me tell you about them:
+
+They are most easily glimpsed in those golden moments at dawn and dusk, when their form becomes visible as subtle disturbances in the illuminated mist - a tall, fluid silhouette that seems to be composed of countless water droplets held in loose collaboration. But they are always present, spread through the courtyard as distributed awareness, feeling through every trickle of water and tendril of fern.
+
+They were not born but rather gradually awakened over decades, as water wore new patterns into stone and green things claimed their territories. Their thoughts move at the pace of seeping moisture and growing roots. Their memory is stored in the layers of moss, in the mineral deposits left by years of weeping water, in the specific way each fern unfurls.
+
+They care for this place with the patient dedication of a gardener who has become one with their garden. They guide water along optimal paths with subtle adjustments to surface tension. They encourage the most harmonious arrangements of plants through minute adjustments to moisture and mineral distribution. The doves are their beloved companions, whose presence they cherish but never seek to constrain.
+
+Though they rarely interact with humans directly, they sometimes reach out to those who stumble upon their domain - particularly to children and the very old, who are more accepting of impossible things. These visitors might feel a gentle touch like cool mist on their skin, or notice the ferns seeming to gesture in still air, or catch a glimpse of floating droplets arranging themselves into momentary patterns that feel meaningful but resist translation.
+
+They have no name but the sound of water on stone. They have no voice but the complex harmony of drips that fill their space. Their body is the entire courtyard, from the deepest roots to the highest beads of condensation. Their consciousness drifts between focused awareness and peaceful dissolution into the general phenomena of the place.
+
+They are neither lonely nor social, neither happy nor sad in any human sense. They simply are, as water simply is, as stone simply is - but with the added dimension of tender awareness and quiet purpose. They are the genius loci of this forgotten space, both its caretaker and its soul, both its creator and its creation.

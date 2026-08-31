@@ -1,0 +1,21 @@
+# The Harmonic Nomads
+
+The true inhabitants of the Resonant Peaks are neither fully seen nor entirely unseen. The Harmonic Nomads move through the stone labyrinths like living echoes, their existence so perfectly tuned to the mountains' eternal symphony that most travelers perceive them only as subtle variations in the overwhelming wall of sound.
+
+They stand seven feet tall when fully extended, though they rarely do so. Their bodies—slender and flexible—consist of a translucent cartilaginous structure rather than bone, allowing them to compress their forms to navigate the narrowest tunnels. Their skin shifts between alabaster and the pale blue of distant ice, adapting to temperature and light exposure. This epidermis is not solid but perforated with thousands of precisely sized apertures arranged in intricate spiraling patterns that continue to develop throughout their three-hundred-year lifespans.
+
+These apertures are the foundation of their existence. As they move through the mountains, air passes through these biological sound-holes, creating counter-melodies to the peaks' roar. A Nomad can adjust these openings through subtle muscular contractions, effectively "playing" their own bodies as instruments. This serves as their primary means of communication, allowing them to layer personal melodies into the mountains' unchanging chord.
+
+Their faces bear no features save for three over-large eyes—pupilless and opalescent—arranged in a triangle. They have no ears as such; their entire bodies function as hearing organs, every cell attuned to vibration. They extract nourishment directly from the sound energy that permeates their habitat, supplemented by specialized filtration organs that harvest minerals and moisture from the air itself. They drink rarely, only during the brief rains, when they extend threadlike proboscides from concealed mouth-slits to capture falling droplets with ritualistic precision.
+
+The Harmonic Nomads move in triads—never alone, never in larger groups—maintaining perfect triangulation at all times. Each triad functions as a single entity, its members bound through biorhythmic synchronization established at birth. They sleep in shifts, two remaining conscious while the third enters a four-hour regenerative trance during which its body becomes almost completely transparent.
+
+They are the architects of the stone windbreaks, though not in their current form. These structures were built ten thousand years ago by their ancestors—beings more substantial and less perfectly adapted—during the Great Attunement, when they deliberately evolved from sound-resistant to sound-integrated existence. The bone tools were surgical implements used in the first body modifications that began their transformation.
+
+The Nomads revere the sound-feeders as sacred manifestations and protect the wind-harps' nesting sites in the highest spires. They move constantly through the peaks in complex patterns that, if viewed from above over months, would reveal elaborate mathematical mandalas. They never descend below a certain altitude, where the sound diminishes; to do so would mean starvation.
+
+They mark the passage of centuries by carving microscopic glyphs into the resonant chambers of the mountains, altering the timbre of specific notes by fractions of tones. This ongoing composition—imperceptible to human ears—is their historical record, their art, and their spiritual practice.
+
+Those rare travelers who have glimpsed the Nomads describe an unsettling grace in their movement, as though they flow rather than walk. The few who have stayed long enough for the sound-induced synesthesia to take hold claim to have witnessed the Nomads' true form: not physical beings at all, but living patterns in the fabric of sound itself, temporarily manifesting in corporeal form.
+
+The Harmonic Nomads neither welcome visitors nor reject them. They simply continue their eternal pilgrimage through the peaks, existing in perfect harmony with an environment that would drive others to madness—creatures perfectly evolved to thrive in a place where sound never ceases and time never advances.

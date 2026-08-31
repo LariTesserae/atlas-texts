@@ -1,0 +1,15 @@
+In this strange and ancient place, a unique form of life has evolved in perfect symbiosis with the mountain itself. At first glance, they appear as nothing more than a scattering of pebbles and boulders strewn across the landscape. But a closer look reveals an astonishing truth - the very rocks are alive.
+
+These creatures, known as the Petrans, exist in a bewildering array of shapes and sizes. The smallest are mere grains of sand, while the largest loom like small hills. Their bodies are composed of a dense, stony material, shot through with veins of quartz, mica and stranger, more exotic minerals. Each Petran is unique, weathered and shaped by the eons into a distinct form.
+
+They move slowly, with the patience of ages. Over centuries, they gradually traverse the mountain slopes, following inscrutable migratory paths encoded in their crystalline neural structures. They communicate with each other through subtle vibrations conducted through the bedrock, and through shimmering patterns of bioluminescence dancing across their mineral skins.
+
+The Petrans are not merely passive inhabitants of the mountain, but active shapers of their environment. It is they who build the mysterious stone structures that dot the landscape. With infinite care and glacial slowness, they select, stack and balance the rocks, following intricate algorithms passed down through generations. The purpose of these constructions remains unclear, but some believe they serve as a form of data storage, preserving the collective knowledge and memories of the Petran civilization.
+
+The Petrans have a complex symbiotic relationship with the fragile web of organic life clinging to the mountainside. The tiny insects, plants and creatures that flourish in this harsh environment rely on the microclimates and sheltered spaces provided by the Petrans' stony bodies and structures. In turn, the Petrans absorb nutrients from the organic detritus that accumulates in their crevices, and harness the energy of photosynthetic microbes that grow on their sun-warmed surfaces.
+
+To the Petrans, the frantic lives of the mountain's organic residents must seem like the flickering of mayflies. They observe the dance of life and death play out in endless cycles against the backdrop of deep time, patiently absorbing the wisdom of the ages.
+
+It is said that the Petrans hold the memories of the mountain itself - that they have borne witness to the rise and fall of countless empires, the births and deaths of stars, the slow grinding of continents. In their crystalline minds, the long saga of life on this world is preserved, even as the details of their own origins and purpose have been lost in the mists of deep time.
+
+To wander among the Petrans is to step outside the flow of mortal time, and to touch the very bedrock of eternity. In their presence, one cannot help but feel both the ephemeral brevity of a human life, and the staggering grandeur of the aeons. To learn their secrets would be to grasp the very foundations of the world - a prize beyond value, and perhaps beyond the reach of any beings bound by the fleeting spans of organic life.

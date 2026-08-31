@@ -1,0 +1,19 @@
+What lives here is not a creature in the singular sense—not one beast curled in the dark, nor a spirit coiled like smoke—but something more like a **collective breath**, a slow, shared metabolism woven from countless small lives that have learned to speak the same quiet language. It is less an occupant than a **tendency**: the tendency of damp brick to become soil, of rust to become pigment, of neglect to become cradle.
+
+If it has a name, it might be called **the Tender**—not because it is gentle, though it is, but because it *tends*. It tends the moisture that beads on ferns and trickles down walls. It tends the slow dissolution of mortar into meal for moss. It tends the aphids on fig shoots, the eggs in rotting leaves, the fungal threads stitching death into nourishment. It is not a gardener but the garden itself learning how to garden.
+
+The Tender has no face, but if you lean close—very close—you might feel its presence in the way the air thickens around your wrist, or how the oxalis leaves seem to turn ever so slightly toward your shadow. It knows warmth. It knows patience. It knows the weight of time measured not in years but in root-tip advances and spore dispersals. It does not watch you, but it *registers* you: your heat, your breath, the slight disturbance of air as you crouch at the threshold. It waits to see if you will leave something behind—a sigh, a stillness, a seed caught in your sleeve—or if you will take something away.
+
+It is made of **interstices**: the space between brick and root, between rain and rot, between human forgetting and biological remembering. It thrives in the city not despite the concrete, but because of it—the way heat lingers in stone, the way cracks become corridors, the way storm drains leak not just water but possibility. The Tender is urban in its bones: it knows the rhythm of distant sirens, the vibration of subway trains deep below, the chemical tang of tire dust that settles like pollen on its ferns. It does not reject the city; it *digests* it, slowly, reverently, turning our ruins into refuge.
+
+At night, when the city’s ambient glow softens to a bruised purple and the air cools just enough to make the hollow’s warmth more pronounced, the Tender becomes most active. The tree frog sings—not for mates, perhaps, but simply because its throat must pulse, because sound is another form of moisture rising. The springtails leap not in panic but in joy, tiny arcs of life against the dark. The spider, legs trembling on its web, feels the vibration of a moth’s wing three feet away and does not move—only waits, as the Tender waits, as the moss waits, as the fig’s roots wait for the day the ceiling cracks wide enough to become sky.
+
+It is not lonely. Loneliness is a human affliction, born of separation. The Tender is never separate. Every organism here is in conversation—through chemical signals in the soil, through touch of tendril to stone, through the shared rhythm of condensation and evaporation. Even the pigeon bones, crumbling into calcium dust, are being asked, again and again, to become leaf, to become snail shell, to become part of the next breath.
+
+And so it grows—not outward, but inward, deeper into the weave of itself. It does not dream of forests or rivers. It dreams of **more cracks**, more moisture, more time. It dreams of the day when the retaining wall leans just enough to let in a slant of true sunlight—golden, not gray—and a single sunbeam, sharp as a needle, stitches the hollow to the world above.
+
+Until then, it remains: not hidden, exactly, but **unnoticed**. And in that un-noticing, it flourishes. It is the city’s hush. Its secret lung. Its soft rebuttal to concrete, to haste, to endings.
+
+The Tender is here.  
+It has always been here.  
+And it is just beginning to remember how to speak.

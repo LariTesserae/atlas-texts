@@ -1,0 +1,19 @@
+They are called, in the silence of the humming stone, the **Weavers**.
+
+You do not see them at first. The eye is drawn to the fern, the glittering water, the sleek casing of a turbine. But the presence is there in the periphery: a slow, deliberate motion where there should be none. A twitch of a cable that isn't from water-current. A shadow that detaches itself from the deeper gloom beneath a fern-frond, only to merge with the dark stain of wet concrete.
+
+They are the symbiosis. The living interface.
+
+They have forms, but the forms are suggestions. Imagine a lattice of dark, wet vine, but the segments are too uniform, the joints articulated with a precision that nature seldom bothers with. Imagine a frame of slender, blackened iron, but it is furred with a fine, emerald moss, and from its limbs, delicate rootlets extend, tasting the air, the water, the hum of electricity in a cable. They are not large—some the size of a hunting hound, others more serpentine, flowing along the rivulets. Their substance is both grown and built: chitin-like plates from cultivated fungal matter over a core of conductive filament, woven with threads of copper and silk.
+
+Their industry is maintenance. Tending. The patient curation of the reactor.
+
+A Weaver might be seen at dawn (the slight thinning of the mist), its multiple limbs tipped with needle-fine tools of stone and metal, delicately clearing a sediment-clog from a turbine's intake. It does not hurry. It works with the rhythm of the drip, the gurgle, the hum. Another will be poised on a weeping wall, its rootlets plunged into a seepage streak, not drinking, but *reading*—tasting the mineral content, the pH, the subtle load of dissolved silica. A tremor runs through its lattice-body, a signal transmitted through shared fungal networks in the soil, and elsewhere, in a bunker-lab, a valve adjusts by a micrometer.
+
+They are gardeners of geology and kilowatt-hours. When a new crevasse opens, a slow-motion catastrophe of shattered rock, the Weavers converge over weeks. They do not rebuild. They *integrate*. They guide the inexorable press of moss to bind the sharper edges. They anchor new cables with grips of hardened resin. They plant spores of specific, deep-rooted ferns in the cracks, their root systems acting as living rebar. They turn chaos into a new, functional seam of the system.
+
+They communicate through the medium of the mountain itself. A vibration in the stone, a change in the electrical frequency of a cable, a specific aromatic compound released into the damp air—these are their dialogues. They have no masters visible. The small factories are their charge, their purpose. The cultivation vats of glowing algae are their gardens; they harvest, they prune, they introduce new strains with the care of bonsai masters. The centrifuge whines, and a Weaver is there to collect the vial of rare earth precipitate, carrying it slowly, steadily, to a deep storage niche carved into the bedrock.
+
+There is no aggression in them. No fear. Only a vast, collective, patient intent. They are the immune system and the circulatory system and the groundskeeping crew of this terrarium-reactor. They exist because the system needed a gentle, intelligent hand to guide its own rapacious efficiency—a hand made of its own substance. The faint, sweet rot is sometimes of a fallen Weaver, its metal core glinting as it is slowly, reverently, overgrown by its kin, its materials reclaimed.
+
+To watch them is to understand: you are not looking at creatures that *live in* a place. You are watching the place *tend to itself*. The hum is not just the sound of machines. It is the sound of their collective breath, the resonance of their patient, endless work. The newborn mountain is being digested, yes, but also nursed. And the Weavers are the gentle, persistent, utterly inhuman hands that hold it to the green, electric breast of its own making.

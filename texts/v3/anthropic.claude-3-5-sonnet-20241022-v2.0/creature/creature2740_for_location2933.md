@@ -1,0 +1,17 @@
+Here, in this alien kelp forest, dwell the Harmonists - though they would never call themselves that, communicating as they do through ripples of bioluminescence and precisely modulated currents. They are the forest's conductors, its gardeners, and in many ways, its consciousness.
+
+A Harmonist's body is difficult to distinguish from the forest itself. Their core form resembles a flowing intersection of currents made visible, like smoke in air but purposeful and self-containing. Their tissues can shift from nearly transparent to opalescent, with strands of concentrated bioluminescence that pulse in complex patterns. They range in size from roughly human-scale to as large as a small house, though their boundaries are ever-shifting.
+
+They don't exactly swim so much as flow, manipulating the honey-thick water with such precision that they can create microscopic current patterns or massive vortices. This is how they tend the forest - conducting nutrients, directing the spiral dance of spores, weaving thermal highways between the kelp stalks. When multiple Harmonists work together, they can generate standing waves that persist for days, creating nurseries for the crystal swarms or suspension fields for injured creatures.
+
+Their consciousness is distributed through their current-bodies, more like a pattern of flowing thoughts than a centralized mind. They perceive through variations in pressure, temperature, and electrical fields, "tasting" the water's chemical composition and reading the forest's rhythms through their whole being. Time, to them, is measured in pulses and cycles rather than linear moments.
+
+Each Harmonist maintains a territory within the forest, but these territories overlap like notes in a chord. They communicate through their bioluminescent displays and by sharing complex current patterns, creating what amounts to living music that carries information about the forest's health, potential threats, or the great migrations of the larger beings that pass through their realm.
+
+Young Harmonists begin as something like current eddies, barely self-aware, learning to maintain their cohesion and gradually developing their bioluminescent abilities. The oldest among them can become vast and subtle, their influence felt throughout entire sections of the forest. These elders are often so integrated with their territories that they seem to merge with the forest itself, their consciousness expanding to encompass entire ecosystems.
+
+They have a complex relationship with the other forest dwellers. Some creatures seek them out, riding their currents or bringing them interesting materials from distant parts of the forest. The Harmonists, in turn, protect and nurture the forest's diversity, though their concept of protection has more to do with maintaining the overall harmony of the system than preserving individual organisms.
+
+Their primary obsession is with pattern and flow - they are endlessly fascinated by new current configurations, novel bioluminescent rhythms, unusual thermal gradients. They collect these patterns like others might collect art, sharing them with their neighbors and incorporating them into their environmental compositions.
+
+There's debate among xenobiologists about whether the Harmonists created this forest or emerged from it - their relationship with their environment is so intricate that the distinction may be meaningless. What's clear is that they are both caretakers and expressions of this place, living embodiments of its fluid music.

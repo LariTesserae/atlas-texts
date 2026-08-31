@@ -1,0 +1,19 @@
+You do not enter so much as fall into a fracture.
+
+The place is a clenched lung of space—scale barely 0.1 in three—embedded high inside a spire that has only just broken the sky. Outside, the elevation is merciless, 2.6 of three, an altitude where storms tear past like torn silk and air is only a rumor, but within this pocket the rules have not agreed to settle. The rock is young, 1.1 of three, born from fire so recently that it has not learned softness. Every surface is a needle, a tooth, a blade of black glass that catches the grey-green light—1.5 of three, nothing strange, only ordinary illumination struggling through hairline cracks—and holds it without giving anything back.
+
+The temperature is overwhelming, 2.9 of three. Geothermal, near-boiling. The chamber breathes heat from below, and it is wet—2.2 of three—profoundly, relentlessly wet. The walls weep. Hot water condenses from the air itself, running in silver threads down obsidian faces, pooling in shallow basins the color of old copper, steaming quietly, always cycling upward and downward in directions that should be impossible. The fog is heavy, silent, a curtain of its own making.
+
+There is almost no vegetation—0.5 of three. No green, no leaf, no root reaching for anything. This is mineral country. Only crystals of sulfur and salt grow in slow, starved frost, and in the darkest seams, a faint grey membrane—almost not life, fungal and simple—feeds on heat rather than sun, spreading like a thought that has forgotten who thought it.
+
+But the fauna—2.7 of three—are overwhelming.
+
+They fill the density—1.5 of three—layer upon layer, near-touching but never crushing. Thousands, perhaps more, packed into this intimate volume that unfolds deeper than the spire should allow. They are small, translucent, made of the same volcanic glass as the walls: droplets, needles, curved shards with no eyes you can name. They move constantly—1.7 of three—through the pools, across the sharp rock without cutting themselves, in silent choreography. They make almost no sound—0.4 of three—only the soft hiss of steam and the occasional drip of hot water falling, or rising; here, either is true. There is no chirp, no footfall, no breath. Only presence, dense and quiet.
+
+They carry tools.
+
+Nothing is built—0.0 of three—but they hold primitive craft, 1.0 of three. Each creature, or each cluster, grips a flake of obsidian sharper than its own body, a simple hand-tool, pre-metal, manual, chipped or found from the fresh rock. They use these silent flints to scrape mineral crusts, to open droplets of condensate, to score the sharp surfaces in patterns that are not language and not art, but use—pure, repeated, necessary. They are in constant motion: feeding, moving, hunting. Predator and prey share the same translucent forms, separated only by the angle of a stone flake, only by who holds the sharp edge and who receives it.
+
+The weirdness—2.8 of three—lives in the geometry of containment. You look up and see downward. Water falls upward in slow silver ribbons, drawn by a gravity particular to this room. The creatures exist in overlap—one body visible in two places at once—until a sharp edge of obsidian divides the vision. Time does not pass in lines; it pools, like the water, thick and slow and recirculating.
+
+And so they live: the glass-swarms, overwhelming and silent, swimming through impossible heat and wrong-direction rain, scraping their mineral food with black-glass tools, hunting their own reflections, overlapping and dividing in the fracture. No plant claims them. No builder shapes their space. Only the dense, near-touching dark, the weeping walls, and the constant, soundless choreography of creatures that have not yet decided what they are—only that they are here, sharp, translucent, and holding their flints in the heart of a newborn world.

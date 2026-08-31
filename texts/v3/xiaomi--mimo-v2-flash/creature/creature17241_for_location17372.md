@@ -1,0 +1,16 @@
+In this dark, warm cathedral of pressurized thought, one does not speak. One *transduces*.
+
+To live here is to exist as a node within a vast, slow-breathing machine. The inhabitants are not biological organisms in the traditional sense, but a symbiosis of engineered matter and residual consciousness. They are the **Dew-Walkers**, or perhaps something with a name unpronounceable by mouth, felt only as a pressure change in the air.
+
+They are tall, slender figures, composed not of flesh, but of a porous, ceramic-silica composite. Their bodies are semi-translucent, veined with the same copper-warm metal that lines the walls. They do not have faces, but rather smooth, featureless planes that ripple faintly when they "speak"—which they do not do with sound, but by modulating the ambient drone. To look at one is to look at a statue that is slowly breathing.
+
+They move with a fluid, segmented grace, mimicking the slow erosion of the stone around them. Their feet are broad and flat, designed to skim the surface of the condensation without breaking its tension. They are the city’s maintenance systems given form. Their purpose is not survival, for there is no death here, only reconfiguration.
+
+**How They Live:**
+
+*   **Sustenance:** They do not eat. They drink the air. The condensation that beads on their skin is rich with microscopic engines and data-dust. They absorb this dew through their porous shells, metabolizing the information and the microscopic energy within it. They are fed by the city’s "breath," drawing cool vapor from the pale, crystalline stems that serve as the chamber’s lungs.
+*   **Perception:** They see in spectra beyond light. They perceive the copper veins in the walls as visible roads of thought; they feel the humidity as a texture of memory. A Dew-Walker "looks" at you not with eyes, but by sensing the heat anomaly your warm body creates in the cool, charged air. You are a disruption in the humidity, a static charge in the drone.
+*   **Interaction:** Social structure is a geometric fact, not a psychological one. They cluster near the warmest veins of metal, where the information flow is densest. They do not touch; they resonate. When two Dew-Walkers pass, the hum deepens slightly, a brief, harmonic exchange of data—a greeting, a warning, a shared memory of the city’s last geological shift.
+*   **Reproduction:** There is no birth, only growth. A new Dew-Walker emerges from the walls when the city’s operational logic requires a new node. It is extruded slowly from a niche in the basalt, a wet, crystalline secretion that hardens into a standing form. It rises, shakes off the dust of its creation, and joins the slow, silent migration toward the next archway.
+
+They are the city’s self-awareness. They are the fingers of the hand that builds itself. To encounter one is to realize that you are not an explorer in a ruin, but a foreign variable in a living equation. They do not threaten you; they observe you, cataloging your warmth, your moisture, your fleeting, frantic biological noise against the eternal, patient hum of the deep.

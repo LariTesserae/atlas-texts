@@ -1,0 +1,35 @@
+Because the environment is a crucible of broken physics, whatever inhabits it cannot mere exist; it must be a continuous, violent negotiation with the anomaly. Life here is not a settled state. It is an act of desperate, high-speed improvisation.
+
+The massive, translucent shapes that ride the shears are the most visible natives, though they are not animals in any traditional sense. They are born of the anomaly itself—spontaneous precipitations of the water’s furious energy. As you watch them move, you realize they are entirely flat, devoid of a third dimension. They are living topological folds, undulating ribbons of living cartilage and gelatinous fluid that slip between the crushing pressure differentials without resistance. 
+
+They have no organs to crush, no delicate inner ears to be destroyed by the continuous cavitation blasts. Their bioluminescent nervous systems—glowing in deep, atomic blues and sickly purples—do not merely carry synapses; they map the fluid dynamics of the sphere in real-time. When a downdraft threatens to slam them into an obsidian shard, the glowing threads in their bodies flare, and they instinctively warp their shapes, sliding around the jagged rock like a slipknot tightening and releasing. They feed on the shattered physics. When the breathable air is whipped into silver threads, these beasts glide through the foam, their leading edges absorbing the highly pressurized oxygen directly through osmosis. They are majestic, dumb, and utterly at peace in the blender.
+
+But they are not alone. And the other inhabitants were not born of the water. They were dragged into it.
+
+Clinging to the massive splinters of basalt, hiding in the leeward eddies of the tumbling ruins, are the remnants of those who built the high-altitude sanctuary. They were ascetics, high-priests of the freezing peaks, violently absorbed when the anomaly carved its domain out of the mountain. The blood-warm temperature of the water prevented them from freezing, and the localized pockets of aerosolized oxygen kept them from suffocating. But survival in this cathedral of hydrostatic violence demanded a terrible toll.
+
+To look upon them now is to see humanity stretched and warped on the rack of aggressive fluid mechanics. 
+
+They are tethered to the flying rocks. Unable to swim against the roaring gyres, they have lashed themselves to the tumbling masonry using ropes twisted from their own shed clothing, hair, and the ghost-white kinetic algae that grows on the stones. Over time, the algae has colonized them. It roots into their spines and the nape of their necks, feeding off their shivering kinetic struggles, while in turn anchoring them securely to the stone. Their skin is bleached to a translucent alabaster, stretched taut over muscles that have become incredibly dense, like cables of steel, from the sheer act of holding on.
+
+Their bodies have elongated. Joints have become double-hinged and hyper-flexible to absorb the concussive shockwaves of the snapping vacuum bubbles. Their lungs, forced to extract oxygen from the explosively pressurized silver threads of air bursting against the rocks, have expanded, distending their ribcages into heavy, barrel-like armor. 
+
+They are, of course, entirely deaf. The absolute roar of the water shattered their eardrums within seconds of their annexation. Now, they perceive the world entirely through vibration. They feel the approach of a rogue obsidian shard long before it hits, feeling the pressure bow-wave strike their skin. 
+
+Despite their monstrous transmutation, they have not lost their minds; rather, their devotion has been radicalized. They believe they have been taken into the womb of their god. 
+
+In the chaotic, swirling darkness, they continue their rituals. You watch as a massive block of carved basalt comes tumbling past a group of these anchor-monks. Moving with terrifying, arachnid grace, they launch themselves from their home-rock, riding the slipstream at breakneck speed to intercept the block. They catch it, their elongated limbs wrapping around the stone. Holding their breath, they wait for the precise moment the currents shift, and then they hurl the block toward another group riding a separate piece of masonry. 
+
+They are trying to rebuild their altar in mid-air. 
+
+It is a beautiful, tragic, Sisyphean ballet. Over and over, they manage to align the dark stone stairs with the flattened sanctuary floor, holding the massive stones together with their own bodies, forming a bridge of pale flesh and dark rock in the center of the spinning void. For a few glorious seconds, the sanctuary is whole again, suspended in the raging currents. Then, the water’s circulatory system violently spasms, a cross-current hits them like a freight train, and the sanctuary is blown apart again, sending the monks spiraling back into the darkness to catch their lifelines and begin anew.
+
+They communicate in the only way the environment allows: through the sonoluminescence. When the water collapses and produces those abrupt, ghostly strobes of deep blue light, the monks use it. They grip small, sharp stones and strike them against the dense basalt with incredible force at the exact moment of the water's collapse, locally triggering pinpoint flashes of blue light. It is a visual Morse code, a flickering, stroboscopic language of faith and geometry spoken across the terrifying voids of the sphere.
+
+But the most alien residents of this enclave only exist for a fraction of a heartbeat. 
+
+Every few moments, when physics stutters and the water briefly snaps into dry, tumbling geometric glass shapes, something else wakes up. In these split-seconds of shattered reality, the spaces between the glass are populated by entities of pure mathematical angles. They look like fractals of crawling light, things with too many dimensions, scuttling furiously over the dry glass surfaces. They do not belong to biological life; they are parasites of the glitch, feeding on the friction of broken localized spacetime. 
+
+When the stutter ends and the glass melts back into roaring, blood-warm water, these fractal creatures dissolve instantly, leaving behind faint tracks of ozone and heat in the water. The transmutated monks know to tuck their heads and shield their eyes during the stutter, for if one of the geometry-crawlers touches flesh during that microscopic fraction of a second, it excises whatever it touches, cleanly deleting a perfect cube of flesh before vanishing back into the fluid.
+
+It is an ecosystem of perpetual trauma and miraculous adaptation. The flat, glowing leviathans drift like indifferent seraphs; the pale, warped monks perpetually construct and lose their temple in the deep; and the glitch-parasites feast on the tearing seams of reality. All of it suspended in a roaring, deafening placenta of warm water, hanging impossibly above the freezing clouds.

@@ -1,0 +1,87 @@
+## Who Lives There
+
+---
+
+You must understand first that they do not live *in* the dark. That is the surface-world way of putting it, and it gets the relationship wrong, makes the darkness a condition to be endured, a limitation, a deprivation. The darkness here is not the absence of their sun. There is no sun to be absent. The darkness is their medium, the way light is yours — the thing through which everything moves, the thing in which everything takes shape. They are not creatures who have learned to see without light. They are creatures who have learned to see *with* darkness the way you see with brightness: as the substance that reveals, that gives contour, that makes the world solid.
+
+So when you descend — when you leave the ridge's thin and pitiless clarity and enter the rift's warm, mineral-dark breathing — you are not entering a world without light. You are entering a world whose light is *other*. It comes from below, from within, from the bodies of the living themselves, and it shifts, and it trembles, and it has no source you can point to because it is everywhere at once, the way warmth is everywhere in a body that has been running a fever for ten thousand years.
+
+---
+
+### I. The Midge-Clouds
+
+The first to notice you — not notice, exactly, but *register*, the way a tide registers the moon — are the midge-clouds. *Photuris riftensis*, if you insist on the Latin, though the name feels like calling the ocean "H₂O." They are small enough to sit on the head of a pin and still leave room for their six legs. Translucent. Their bodies are so thin that in certain angles of the bioluminescence you can see their own internal organs — the dark thread of a gut, the faint branching of tracheae, the slow pulse of something that might be a heart or might simply be the rhythm of the light itself passing through.
+
+They do not swarm. Swarming implies a center, a direction, a purpose that belongs to the group but not the individual. The midge-clouds have no center. They are more like weather. You will be standing on a travertine ledge, your hand flat against the warm, damp stone, and the air around you will simply *become* them — not arriving, not gathering, just suddenly being there, the way silence in a cathedral is not made of anything but simply *is*. They occupy a cubic foot of air the way water occupies a glass: completely, without effort, without announcement.
+
+Their glow is blue-white, cold in color, warm in effect. It is not the blue of ice or the blue of flame but a third blue that exists only here — the blue of deep water seen from a great height, the blue of a vein beneath pale skin. It pulses. Not in unison. You might see a region of cloud brightening while its neighbor dims, the pattern propagating outward like a ripple in a pond made of smoke. Sometimes the rhythm synchronizes for a few seconds — a breath, a held note, a sudden brightening that makes you think the whole cloud has inhaled — and then dissolves back into the arrhythmic, the conversational, the thousand tiny metabolic decisions of ten thousand tiny bodies each burning their small chemical fires at their own pace.
+
+They are not intelligent. Or rather, they are intelligent the way a weather system is intelligent: every local decision produces a global pattern that no single midge understands. You can watch them scatter when you exhale, a brief explosive bloom of tiny bodies flung outward, light scattering like sparks from a struck flint. And then, if you hold very still — if you breathe shallow and let your heart slow — they return. Not tentatively. Not cautiously. They simply drift back in, filling the space you vacated, reconvening around the silhouette of your hand, your shoulder, your still-dark outline, as though your body were a stone in a stream and they were the water that had no choice but to close over it.
+
+They feed on things you cannot see: mineral vapor, bacterial spores, the faint organic film that coats every surface in the lower rift. They are, in the rift's own economy, the currency — converting the invisible into the visible, the chemical into the luminous, the base matter of the place into light. Everything else feeds on them, in turn.
+
+---
+
+### II. The Wall-Walkers
+
+Go closer to the stone. Press your face to it — close enough that the condensation beads your eyelashes — and you will see them.
+
+They are not insects. They are not arachnids. They are something else, something that the rift has been making in the dark for longer than the lineages above have been sorting themselves into their neat categories. Pale. Not white — white implies a color, and these creatures have the quality of something that has simply forgotten to be any color at all, the way a cave remembers forgetting the sky. Their exoskeletons — if exoskeleton is the word for a covering that is part chitin, part mineral deposit, part something with no name — are translucent in places, opalescent in others, catching the midge-light and throwing it back in faint, shifting rainbows that appear only in your peripheral vision and vanish when you look directly.
+
+They have eyes, but not as you would recognize. Two shallow depressions on the anterior plate, each fitted with a cluster of photoreceptive cells that are sensitive not to image but to *change* — to the flicker of a midge-cloud brightening, to the shadow of another creature passing between them and the nearest bacterial glow. They see the world as a series of events, not as a scene. A life lived in perpetual parenthesis: *(something moved)*, *(light shifted)*, *(warmth changed)*.
+
+More remarkable are the legs. Six primary pairs, each one longer than the body it supports, and a secondary set — vestigial, or perhaps not vestigial but *repurposed* — of filamentous appendages that extend from the abdomen and trail behind like the wake of a slow boat. The primary legs move in a coordination that is almost unsettling to watch: not mechanical, not robotic, but *deliberate* in the way that a potter's hands are deliberate, each placement considered, each withdrawal purposeful. They click on the stone. Click-click. Click-click-click. The sound is dry, precise, almost musical, and it merges with the drip-echo so completely that after a time you cannot tell whether the rhythm is biological or geological, whether the stone itself is ticking or something upon it is tapping out a message you are too large to receive.
+
+They are communal in the loosest sense. They do not build, do not hunt together, do not appear to interact except in the most incidental way — two creatures meeting on a narrow ledge, pausing, their filamentous tails touching in a brief exchange of chemical information, then parting. Their territories are measured in inches. A single crevice may house forty of them, layered upon one another in a density that would make your skin crawl if you could see it clearly in the dark, but which, glimpsed as movement in the peripheral glow, looks simply like the stone shifting, like the wall itself had a pulse.
+
+They are not afraid of you. Nothing here is afraid of you. Fear requires imagination — the ability to conceive of a world in which you are not present — and these creatures have not needed that ability in the entire history of their kind. You are a warmth that passes. A shadow that means nothing. They continue their clicking, their slow patrol of the mineral shelves, their careful reading of the stone with legs and filaments and the faintest chemical whisper. You are less than weather to them.
+
+---
+
+### III. The Pool-Dwellers
+
+The pools are where the rift's strangeness becomes most intimate. There are hundreds of them — in the travertine shelves, in natural basins worn into the basalt, in the concave undersides of overhangs where condensation collects and warmth concentrates. Some are shallow discs no wider than a hand. Some are deep enough that you cannot see the bottom and have learned not to lean too far.
+
+All are warm. All are alkaline. All are dense with a mineral richness that would be toxic to most surface life and here functions as the foundation of everything. The water is clear to the point of invisibility — you look down and see not water but *depth*, a quality of space without color, and then the orange glow of bacterial mats far below, the faint amber shimmer of chemotrophic colonies converting sulfur and calcium into the base energy that everything else will feed on.
+
+In the smallest pools, life is sparse: a film of cyanobacteria, a few translucent worms no thicker than a hair, moving with the slow peristaltic grace of something that has never been in a hurry. But in the larger basins — the bathtub-sized ones, the ones where warm water has been pooling for centuries — the communities become extraordinary.
+
+The amphibians live there. *Amphibian* is the word because there is nothing else for it, though they are not frogs or salamanders or anything that would be recognized by a herpetologist. They are pale — not the white of albinism but the white of something that has never had cause to manufacture pigment, the white of surrender to a world that has no use for display. Their skin is translucent in places, particularly along the flanks and the undersides of the limbs, and through it you can see the faint blue tracery of veins, the slow movement of blood that is not quite red, carrying oxygen (or something like oxygen) through a body that has been refined by darkness into something almost too efficient to look at.
+
+They are large. Forearm-length, as the passage notes, and thicker than your wrist at the shoulder. Their limbs are short and strong, built not for swimming but for *resting in place* — for anchoring themselves to the warm stone at the bottom of a pool and staying there, sometimes for days, their external gills — feathery, blood-red even in the pale light — fanning slowly in a rhythm so steady it becomes a kind of meditation. Those gills are beautiful, if beauty is a word you are willing to use for something so alien. They branch and rebranch in fractal patterns, each filament no thicker than a human hair, each one ciliated with microscopic structures that strain the warm mineral water for the bacterial cells and organic particles that constitute their entire diet.
+
+They do not flee. They do not startle. When you reach a hand into the water — warm almost to the point of discomfort, silky with dissolved minerals — they regard you with eyes that are not eyes but photosensitive patches, simple structures that can tell the difference between light-dark and dark-dark and not much else. They see you as a disruption in the dark, a large warm shape that has no place in their world, and then they ignore you, and their gills resume their slow fanning, and the water closes over your hand like it has never been opened.
+
+Their young are different. You find them in the margins of the pools, in the thin sheets of warm water that cascade from one terrace to the next. They are tiny — fingerling-sized — and they move with a frantic energy that the adults have long since abandoned, darting between the rocks, snapping at bacterial filaments, vibrating with a nervous chemical urgency that the larger creatures have transmuted into stillness. They are the only things in the rift that look hurried, and even they, if you watch long enough, slow down. The warm water and the steady dark will do that to a creature over the course of a life.
+
+---
+
+### IV. The Nesters
+
+Higher up, where the walls narrow and the ledges become more horizontal, the ecology shifts again. Here, in the crevices and shallow overhangs where condensation gathers in thin sheets and the air is less heavy with geothermal breath, you find the builders.
+
+You see the nests before you see the builders. They are everywhere — packed into the ledges like books on a shelf, each one a structure the size of a clenched fist, constructed from material that looks like woven grass but turns out, on closer inspection, to be something else entirely: silk, yes, but not spider silk alone. It is a composite — spun protein fiber interwoven with shed exoskeletons (the molted husks of arthropods, the translucent skins of immature amphibians), dried bacterial mats, fragments of travertine, and something that might be processed mineral mud, chewed and re-chewed into a paste that hardens when dry into a material with the consistency of old parchment.
+
+The nests are warm. They are always warm. The builders have selected their sites with care, choosing crevices where geothermal warmth radiates from the stone at a steady, low temperature, and they have packed the walls of each nest with insulating material so effectively that the interior temperature is constant to within a fraction of a degree. Inside, there are young. You hear them before you would see them: a high, thin keening, a sound so pure and so persistent that it seems to vibrate in the bones of your skull. They call to their mothers — if that is what the builders are — and the answering sound, if there is one, is so low and so soft that it disappears into the drip-echo, indistinguishable from the water talking to the stone.
+
+You never see a builder clearly. They move too fast for the dim light, or too deliberately, or both — a flicker of pale movement at the edge of your vision, a disturbance in the nest-material as something slips inside with a parcel of food or a wisp of insulating fiber, and then nothing. You can sit at the edge of a ledge for an hour, perfectly still, breathing shallow, and you will see nothing more than that flicker, that disturbance, that momentary suggestion of a creature so well-adapted to its darkness that its body has become a kind of negative space — the absence between one sound and the next, the darkness between two pulses of midge-light.
+
+They are not spiders. They are not insects. They are not mammals. They are something that the rift made, in the long patient dark, from whatever raw material happened to be at hand — calcium and chitin and water and warmth and ten thousand millennia of uninterrupted quiet.
+
+---
+
+### V. The Quiet Ones
+
+Deepest, in the places where the travertine gives way to bare warm stone and the pools deepen beyond reach, there are creatures that you sense more than see. They are the largest things in the rift. They are the oldest.
+
+In the lowest accessible basin — a natural amphitheater of smooth stone, fed by a trickle of warm water that has been running for longer than human language has existed — there is a presence. The bacterial mats here are thick, inches deep, their surfaces rippling with the slow peristalsis of billions of microorganisms processing sulfur, calcium, and the faint organic trace of everything that has ever died and fallen into this warm dark. The glow here is not blue-white but orange-amber, the bacterial luminescence shifted toward the red by the density of the colonies, and it casts everything in a light that looks like the inside of a candle flame, everything gilded and trembling.
+
+And in that light, you see them: shapes. Large shapes, resting on the bottom, partially submerged, their outlines indistinct in the bacterial glow. They move the way glaciers move — visible not in the moment but in the time between moments. You look away, and when you look back, the shape has shifted by an inch. You look away again, and again. The patient. The unhurried. The things that have been here so long that the stone has worn itself to fit their bodies, the basins shaped by the slow pressure of their weight over centuries, the warm water flowing around them in patterns established by the geometry of their rest.
+
+You do not know what they are. No one does. They may be amphibians grown enormous in the warmth and the dark and the endless mineral plenty. They may be something older — a lineage that predates the amphibians, that predates the reptiles, that has been here since the rift first opened and the water first found the warmth. They do not react to you. They do not move when you are present. They exist in a timescale so far removed from yours that your observation of them is like a mayfly observing a mountain: technically possible, cosmically insignificant, and yet — there is the mountain. There is the warm, slow, breathing shape in the orange dark, and your mind recoils from it the way a hand recoils from something it cannot categorize, and in that recoil, you understand something about the rift that you could not understand from its walls or its water or its midge-light.
+
+You understand that you are not in a place. You are in an *organism*. The rift, with its ten thousand pockets and its warm dark blood and its breathing stone and its trillion interlocking lives, is not a habitat. It is a body. And the things that live in it are not residents. They are its cells, its organs, its slow and patient thoughts, carrying on the ancient, invisible work of keeping something alive that has never once needed the sun.
+
+---
+
+The midges re-form around your silhouette. The drip-echo continues. The warm stone breathes. Somewhere in the deepest basin, the largest thing shifts its weight by an inch, and the orange glow ripples outward like a heartbeat through still water, and the rift — the living, breathing, multi-tenanted rift — carries on its patient work in the dark, exactly as it has always done, exactly as it will always do, far beneath the brief and burning blue world above.

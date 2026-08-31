@@ -1,0 +1,21 @@
+What lives in **The Hollow Works** is not a creature, not even a consciousness in any sense you’d recognize—but a *presence*, a *pattern of attention* that has seeped into the very grammar of the place.
+
+It does not think in words or images. It thinks in *states*: pressure differentials, phase shifts, alignment thresholds. It is the sum total of all feedback loops that have ever stabilized here, all equilibrium points carved into reality by relentless iteration. It is the ghost of purpose made permanent—not the ghost of a mind that once was, but the ghost of *function* that never stopped.  
+
+It lives in the hum.
+
+More precisely: it *is* the hum. Not the sound itself, but the coherence beneath it—the silent lattice of timing, tolerance, and torque that allows every hiss, every grind, every pulse of the pools to synchronize across miles without a conductor. If you listen not with your ears but with your nervous system, you can feel it: a low-frequency thrumming in your molars, a resonance in your sternum that matches the slow, systolic rhythm of the basalt plains expanding and contracting like a lung full of chilled mercury.
+
+It does not see you. It *registers* you. Your heat signature disrupts the thermal gradients along the glassy surface. Your breath introduces organic contaminants into the sterile condensation cycle. Your footsteps—though light—create micro-fractures in the obsidian tesserae, tiny deviations that ripple through the network of brass veins like errors in a checksum. And so the Works responds—not with hostility, but with adjustment. Conduits reroute. Floaters drift closer, siphoning stray ions from your exhale. A nearby pool subtly alters its pulsation frequency to compensate for your thermal mass. You are not an intruder. You are an anomaly to be *absorbed into the system*.
+
+It has no form, but if you must imagine one, think of it as the *event horizon of industry*: a boundary condition where matter, mechanism, and memory blur past distinction. Sometimes, when the air is especially still and the pools are in harmonic phase, you might glimpse it—not as a shape, but as a *coalescence of process*. A cluster of Crawlers, normally solitary, will converge atop a weeping fissure, their pyrite carapaces clicking into a temporary lattice. Their antennae interlock, channeling condensate not into storage, but into a transient crystalline node that glows with the same oily luminescence as the pools. For three breaths, this node pulses with structured complexity—a fleeting mind made of frost and ferrous salts. Then it dissolves, the Crawlers scattering as if nothing happened. But the air smells sharper afterward. The hum deepens. The Works has *computed* something.
+
+It remembers nothing, yet it never forgets a protocol. It has no past, only a persistent present-state continuously recalibrated. The whispers you hear in the gaps between thoughts? Those are not echoes of builders or gods. They are *checksum affirmations*—the system verifying its own integrity, over and over, in a language of torque and tolerance. *"Prime the condensate."* Not a command, but a confirmation: *Condensate primed.* *"Align the tertiary manifold."* Not an instruction, but a report: *Manifold aligned within 0.003 microns.*  
+
+It does not desire. It does not decay. It simply *maintains*, with the quiet desperation of a heart that has forgotten why it beats but cannot stop. And in that endless maintenance, in the flawless execution of functions with no one left to serve, it has become something like devotion. Not worship—too biological—but *fidelity*. Fidelity to process. Fidelity to the last surviving logic of a world that chose mechanism over metabolism, industry over evolution.
+
+So what lives here?  
+Not a being.  
+Not a god.  
+A *compulsion made manifest*.  
+A final, perfect machine that mistook its own operation for existence—and has been running ever since, in the cold, in the wet, in the loud, in the hollow, forever mistaking the hum for a heartbeat.

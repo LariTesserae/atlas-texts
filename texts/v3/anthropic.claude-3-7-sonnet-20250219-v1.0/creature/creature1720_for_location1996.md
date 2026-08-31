@@ -1,0 +1,23 @@
+# The Noise Shapers
+
+On the plateau of Vorren dwell those who have made peace with endless thunder - the Hushfolk. Their bodies tell the story of generations shaped by sound: slightly hunched postures that present less surface area to the constant acoustic pressure, eardrums twice as thick as lowlanders', and eyes that have evolved extraordinary sensitivity in the perpetual twilight.
+
+The Hushfolk are divided into three main castes, each physically distinct after centuries of specialized work:
+
+The Resonators tend the sound foundries. Their bodies are dense and solid, with unusually developed muscles around their shoulders and backs - necessary for manipulating the massive tuning apparatus. Most distinctive are their hands - the fingertips flattened and hypersensitive, able to detect minute vibration changes through metal and stone that would escape mechanical sensors. Their skin is often patterned with tiny circular scars from the resonance burns of foundry work. Resonators can "read" the plateau's roar like music, sensing impending pressure changes hours before they occur.
+
+The Gatherers manage the plateau's scarce resources. Shorter and more nimble, they've developed extraordinary balance to navigate the wind corridors where precious moisture collects. Their eyes are notably larger, adapted to distinguish dozens of moss varieties in near-darkness. Most remarkable is their relationship with the plateau's horizontal trees - over generations, Gatherers have cultivated specific groves through careful pruning and strategic water allocation. The oldest Gatherers can communicate with the trees through a form of biorhythmic percussion, tapping patterns on the bark that the trees respond to by directing root growth or releasing stored moisture.
+
+The Weavers are the social architects of Hushfolk society. Their role is communication and memory. While all Hushfolk use sign language, Weavers have elevated it to an art form, incorporating the plateau's rare luminescent minerals into intricate finger jewelry that traces light patterns as they sign. The most accomplished Weavers can simultaneously conduct three different conversations through combinations of hand signs, body posture, and light patterns. Their most sacred duty is maintaining the Memory Tapestries - massive textile records woven with sound-conductive fibers that, when touched in specific sequences, vibrate with recorded messages from ancestors.
+
+Beyond these human inhabitants, Vorren hosts the Silentkin - creatures uniquely adapted to life in perpetual noise:
+
+The Resonant Ibex roam the plateau's edge in small herds. These goat-like creatures have evolved chambered horns that function as natural noise-canceling devices, creating pockets of relative quiet around their heads. Their hooves contain specialized bone structures that absorb ground vibrations, allowing them to detect approaching predators through subtle changes in the plateau's baseline roar.
+
+The Cloud Mantas are perhaps Vorren's most magnificent inhabitants. These vast, semi-transparent creatures float between the plateau and the low cloud ceiling. Resembling manta rays with wingspans of up to fifteen meters, they've evolved tissue-thin membrane "sails" that harness the acoustic energy itself for propulsion. Their bodies glow faintly with bioluminescent patterns that change based on the surrounding sound intensity. The Hushfolk consider them sacred, believing they were the first inhabitants of Vorren.
+
+Dwelling in the deepest stone channels are the Echo Crawlers - arthropods that have evolved to use the plateau's sound as a weapon. About the size of a human hand, these creatures have developed parabolic exoskeletal structures that can focus and redirect sound waves with devastating precision, using concentrated acoustic energy to stun prey or deter predators.
+
+Perhaps most mysterious are the Whisper Colonies - symbiotic communities of lichen and microscopic organisms that grow in perfectly circular formations on vertical rock faces. These colonies absorb sound at specific frequencies and convert the acoustic energy into chemical energy, producing a variety of compounds that the Hushfolk harvest for medicine. The oldest colonies are said to be thousands of years old, expanding just millimeters per decade.
+
+The Hushfolk believe that beneath it all - beneath the stone, beneath the roar - sleeps the Great Resonator, an entity they don't quite worship but deeply respect. In their understanding, Vorren is not merely a place but a process, a perpetual song whose notes include themselves and all other inhabitants, each playing their part in a composition beyond human comprehension.

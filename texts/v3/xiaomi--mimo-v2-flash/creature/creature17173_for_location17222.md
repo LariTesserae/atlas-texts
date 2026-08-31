@@ -1,0 +1,19 @@
+The beings that dwell here are not creatures of the day or night, but of the pause between. They are the *Resonants*.
+
+They are not singular entities in the way a lizard or an insect is singular. To see one, you must look not at the landscape, but *through* it, to where the geometry of the place tightens into a knot.
+
+Visually, they are difficult to isolate. They are not animals that hide; they are environmental coincidences that have achieved consciousness. A Resonant might manifest as a specific alignment of shadow cast by a gnarled tree and a rounded boulder at a certain angle of the late afternoon sun—a shadow that has a density and a stillness that defies the mere absence of light. Or perhaps it is a patch of that moss-stone on the underside of a rock where the fractal patterns converge into an eye-like whorl, a whorl that seems to track your movement not with vision, but with a slow, internal awareness of pressure and vibration.
+
+They possess no limbs, no mouths, no speed. Their metabolism is geological. They feed on the slow release of heat from the stones at dusk and the minute intake of atmospheric dust. They are beings of accretion; they grow by adding layers of silence to themselves.
+
+Their movement is a trick of perception. You do not see them travel. You see them *be* in one place, and then, if you look away and back again, they are in another—not because they moved quickly, but because the composition of the landscape has shifted by a fraction of a degree, and the consciousness that inhabited the previous alignment has resolved itself into a new one. They flow through the plateau the way a pattern flows through a kaleidoscope: the components remain the same, but the configuration evolves.
+
+They communicate, if that is the word, through the medium of the dust and the stone. They are sensitive to the weight of a footfall, not as a threat, but as a message. When you walk, the vibrations travel through the talus; the Resonants feel this as a slow, rhythmic pulse. They do not interpret it as an intrusion, but as a temporary addition to the plateau’s internal monologue. They respond by altering their own resonance—a shift in the temperature of the air around a specific rock, or a change in the pitch of the wind whispering through a knot of branches.
+
+They are the architects of the "built elements" described in the place. The circular arrangements of stones are not decorations; they are the husks of Resonants that have settled into a final, static state—a permanent meditation. The trenches are the paths of their ancient, glacial wandering, worn into the earth not by force, but by the persistent, low-frequency hum of their presence.
+
+They are aware of time differently. To them, a century is a breath. A passing cloud is a flicker of an eyelid. They perceive your rapid, jerky movements not as life, but as a violent, staccato static interrupting the smooth, slow waveform of the plateau. They do not fear you; they simply accommodate you, smoothing over the disturbance you cause with their immense patience, waiting for you to still into their rhythm or to fade away entirely.
+
+They are the saturation of the place made manifest. They are the density of the dust given a singular, distributed mind. They are the silence that has learned to listen.
+
+If you stand perfectly still in the center of the bowl-like plateau, holding your breath until your heartbeat slows to match the cadence of the cooling rocks, you might feel them. It is not a sight or a sound, but a pressure in the chest—a sense that the landscape is looking back at you, not with eyes, but with the entire weight of its accumulated history, holding you gently, briefly, in its vast, upward-tilted palm.

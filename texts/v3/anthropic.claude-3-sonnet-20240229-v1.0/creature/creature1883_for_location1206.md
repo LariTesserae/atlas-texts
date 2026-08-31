@@ -1,0 +1,11 @@
+In this vast, mist-shrouded wetland, life takes on forms stranger and more unsettling than anywhere else on our world. Here, the boundaries between plant and animal, living and dead, have blurred into something wholly other.
+
+Beneath the inky pools and spongy earth dwell entities more akin to slumbering titans than mere organisms. Vast mycelial networks spread in a subterranean webwork, exchanging nutrients and slow thoughts across unimaginable distances. From these fungal nodes emerge grotesque fruiting bodies - fleshy, pulsating nodules that extrude spores into the thick air on billowing clouds of spore-laden vapors.
+
+The twisted, dripping trees themselves are not true plants, but symbiotic amalgamations. Their bark is a hardened, mineralizing sheath composed of interwoven fungal hyphae and the calcified husks of unknown microorganisms. Beneath this armored surface lurks a semi-fluid, circulatory system of decaying detritus, through which slow currents of primal ooze gradually redistribute matter and energy.
+
+Stranger still are the macroscopic motile forms - the shambling, plasmodial masses that ooze across the terrain, enduring cycles of fission and fusion. At their core, reservoirs of elemental awareness flicker in and out of dim sentience, perceiving the world around them through some obscure modality. They feed by extruding pseudopods into the soft, fertile earth to envelop and dissolve any organic matter encountered.
+
+Drifting among the vapors are stranger aerosapients - leathery sheets of tissue that propel themselves through intricate contractions, altering their very cellular architecture as needed. Some are hunters, using molecular sensors to track the ephemeral spore trails of their prey. Others are symbiotes, overseeing and shepherding the surrounding growth and decay.
+
+This is a realm of purely ecological intelligence, shaped over eons by the ceaseless interplay of competition and cooperation, consumption and renewal. A window onto the deepest workings of life itself, stripped of the comforting veneers of the terrestrial world. An eerily coherent biosphere animated by unfamiliar principles and unknown selective pressures.

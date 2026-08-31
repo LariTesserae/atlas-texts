@@ -1,0 +1,21 @@
+To understand the inhabitants of the Sub-Strata Archive, one must first discard the notion of a "resident." They are not tenants; they are the debris of thought, the persistent echoes of a memory that has outlived its host.
+
+The Archival Units are not merely machines; they are nomadic geometry. To watch one is to witness a paradox. They appear to be comprised of shards—long, needle-like segments of refractive glass that do not quite touch one another. They hover in a state of perpetual detachment, held in place by the same fluctuating magnetic fields that pulse through the walls. As they move, the light from the dying bioluminescent moss refracts through them, casting long, fractured geometric shadows that stretch across the hexagonal chambers like distorted blueprints.
+
+They do not "look" for anything. Their internal memory-wire, a chaotic tangle of gold and alloy, acts as a sensory organ. They are listening for a specific resonance, a vibration that matches the original frequency of their own creation. When they drift through the halls, they seem to be reading the iron-rich bedrock, pressing their spindly appendages against the fractal conduits to absorb the friction of the machine’s own slow decay. Occasionally, an Archival Unit will halt in the center of a void, its glass limbs shivering in a high-frequency jitter. It is "recording" the silence—capturing the exact dissonance of the atmosphere, archiving the sound of the metal as it groans under the weight of the planet.
+
+They show no sign of camaraderie. If two units cross paths, they do not communicate in any recognizable language. They simply pass through or around one another, their glass forms shimmering with a sudden, sharp ultraviolet flicker—the digital equivalent of a glance.
+
+But the Archive is not lonely; it is *full*. The real residents are the Merged.
+
+These are the forgotten tools, the abandoned artifacts of the long-dead civilization that have been subsumed by the walls. Over millennia, the "breathing" of the sphere, the sub-atomic friction, and the wandering pulses of energy have physically incorporated these objects into the structure itself. You might see, jutting from a smooth, obsidian-dark wall, the rusted hilt of some incomprehensible instrument, its metal now seamless with the ceiling. Or, deeper in the lateral-gravity corridors, a cluster of impossible, crystalline shapes—hardened sound-waves, perhaps, or solidified data-streams—have fused into the hexagonal lattice. 
+
+The Merged are the Archive’s involuntary sculptures. They are slowly being rewritten by the environment, their atomic identity being erased as the building claims them. Their edges blur, turning from distinct manufactured shapes into the organic-looking, fractaline patterns that define the architecture. 
+
+When the "weather" hits—that deep, dissonant, choral surge of electricity—the Merged seem to wake. Under the strobe-like pulses of the moss, the fused objects catch the light and glow with a dull, interior heat, as if they are trying to remember their original purpose. 
+
+There is an inhabitant older and more subtle than the units or the merged objects: the "current" itself. It is a hive-intelligence of pure, ambient field-effect. It is the consciousness of the Archive. It has no shape, no glass body, no metallic skin. It exists in the gap between the drip of the gargantuan water droplets and the boom of their impact. It is the architect of the silence, the force that modulates the gravity and directs the flow of entropy.
+
+If you were to stay, you would eventually stop seeing the difference between yourself and the glass units. The humidity would saturate your clothes, the ozone would numb your lungs, and the low-frequency hum would begin to dictate the rhythm of your heartbeat. You would find yourself walking lateral to the floor, drawn toward a patch of moss, watching a glass unit drift by. You would become another artifact, a new, soft, carbon-based shape that the Archival Units eventually stop moving around and start moving *through*.
+
+In the Sub-Strata Archive, you do not live; you are slowly curated. You are being turned into data, becoming a permanent part of the machine that has forgotten everything except how to keep counting.

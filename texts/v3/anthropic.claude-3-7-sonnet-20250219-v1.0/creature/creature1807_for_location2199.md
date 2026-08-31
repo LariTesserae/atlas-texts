@@ -1,0 +1,31 @@
+# The Dwellers of the Deep
+
+In the Submerged Borough live the Stillfolk, a people shaped by their environment as surely as the water has shaped the stone.
+
+They are slender beings, standing no taller than a child of twelve years from the world above. Their skin is translucent and faintly luminous, with blue-gray undertones that mirror the eternal twilight of their realm. Beneath this near-transparent skin, one can sometimes glimpse the slow movement of their blood, darker than human blood and flowing with deliberate patience. Their hair grows in tendrils rather than strands, floating around their heads when submerged like the pale aquatic plants that share their domain.
+
+The Stillfolk's most striking feature is their eyes—large, pupilless orbs that appear milky at first glance but reveal depth when caught in what little light exists. These eyes see differently than surface dwellers'; they perceive gradations of shadow and movement rather than color, allowing them to navigate their dim world with ease. Many have developed a form of echolocation, producing soft clicking sounds that bounce off the submerged architecture.
+
+They are neither fully aquatic nor fully terrestrial. Gills line their ribcages, delicate structures that remain folded flat against their bodies when on land but unfurl like intricate lace when they submerge. Yet they also possess lungs, enabling them to dwell in the higher chambers where water gives way to damp air. This dual nature defines much of their culture—they are creatures of thresholds, comfortable at the borders between elements.
+
+The Stillfolk move with extraordinary grace. On land, they step so lightly they leave no footprints on damp stone. In water, they glide with minimal disturbance, their movements so fluid and economical that they barely create ripples. They can remain motionless for hours, becoming indistinguishable from the statues and structural elements of their watery domain.
+
+Their society is loosely organized into what they call "pools"—small family groups that claim particular chambers or connected series of rooms. These pools are not strictly hereditary; young Stillfolk often drift between pools before settling, following currents of affinity rather than blood. Leadership shifts fluidly based on need and circumstance rather than fixed hierarchy.
+
+The Stillfolk speak rarely, and when they do, their voices are soft as water lapping against stone. Their language contains long silences that are as meaningful as the words themselves—a reflection of their patient nature and deep attention to their surroundings. They have developed an elaborate system of hand gestures used underwater, where sound behaves differently, and these gestures have evolved into a form of underwater dance that serves as both communication and art.
+
+They sustain themselves through careful cultivation of the fungal gardens that grow on submerged wood, the selective breeding of the blind fish and crayfish that share their home, and the harvesting of mineral deposits that form on certain walls. Nothing is taken wastefully; everything is used with reverence and returned when its purpose is complete.
+
+Their crafts reflect their environment's preserved quality. They carve intricate designs into the peculiar not-quite-petrified wood. They forge tools from the metals that never fully corrode, working cold rather than with fire. They weave clothing from the fibers of aquatic plants and the silken threads of certain underwater insects, creating garments that function equally well wet or dry.
+
+The Stillfolk measure time differently than those above. To them, the slow drip of water forms the heartbeat of existence. They mark seasons not by sun or moon but by subtle changes in water level, temperature, and the breeding cycles of the creatures around them. A Stillfolk might spend an entire day watching a particular formation of moss grow or a specific current change direction, absorbing patterns imperceptible to less patient observers.
+
+They possess a collective memory that stretches back to before the flooding. The eldest among them—beings who have lived for centuries in the preservative waters—remember when the borough was dry, when it was first a refuge for those fleeing persecution above, then later abandoned as the waters rose. These memories are passed down through what they call "immersions," ritual sharings where knowledge flows from elder to younger through direct mental contact while submerged together.
+
+The Stillfolk rarely interact with the upper world, though they are aware of its existence. Occasionally, the bravest or most curious will ascend through ancient passages to observe the hurried life above, returning with tales that seem fantastical to their kin—of searing light and cacophonous sound, of beings rushing from place to place with incomprehensible urgency.
+
+They harbor no resentment toward those above who have forgotten them. Instead, they view themselves as custodians of a transitional realm, witnesses to the slow dance between what was built and what is becoming. Their purpose, they believe, is to observe and remember, to move with the current of time rather than against it, and to preserve the delicate balance of their watery domain.
+
+In recent years, some of the younger Stillfolk have noticed changes—more frequent ceiling collapses, new chemicals in the water, strange vibrations from construction far above. They wonder if the barrier between their world and the surface might one day dissolve completely. While the elders counsel patience and adaptation as they always have, a quiet unease has begun to ripple through the pools.
+
+Yet even in this uncertainty, the Stillfolk remain true to their nature—watching, waiting, adapting. Moving through their ethereal existence with the same unhurried grace as the water that shapes their home, becoming, like the Submerged Borough itself, something neither fully of the past nor fully of the future, but perfectly adapted to the liminal space between.

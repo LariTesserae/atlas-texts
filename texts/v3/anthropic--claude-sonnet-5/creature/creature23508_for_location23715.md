@@ -1,0 +1,39 @@
+## The Small Life
+
+Begin with what's easiest to see, because even that takes patience here.
+
+The deer-shaped things — call them that for lack of better, though their joints bend in places deer-joints don't, an extra hinge partway down the foreleg that lets them fold close to the ground and rise again without sound — travel in loose herds of six to twenty, grazing not on the moss itself but on the spore-heads that rise from it in dense gray clusters each time the light pools unevenly into one of those hoarded-bright clearings. Their coats are the exact color of wet bark, and they have no visible eyes, only twin depressions where eyes should be, lined with something that catches what light there is and gives it back faintly amber. They do not flee from a human presence. They simply incorporate it — drift wide, reroute their grazing line by a few unhurried meters, and continue, the way water reroutes around a stone without alarm.
+
+The birds, if birds, never land where you can get close. Their flocking is the first hint of what the place actually is: too many bodies moving as one mind, banking together inside a hundredth of a second, a coordination that has no signal, no leader-bird breaking first. People who study flocking elsewhere call this emergence. Here it feels closer to puppetry — as if the flock is one idea being held briefly in many small bodies, and let go, and held again.
+
+The hand-sized insects are the closest thing to a constant. They work the moss-flowers in shifts that seem timed to the changing light, and their wingbeats, multiplied across a hummock's whole shimmering population, do contribute to the low thrum — but only a fraction of it. You can stand at the center of a hectare of them, deafened by their wings, and still feel the deeper bass moving through your sternum, utterly unrelated, coming from somewhere underneath even the insects' underneath.
+
+## What the Pools Hold
+
+There is one resident that almost nobody, in any honest account of this place, claims to have actually seen — only glimpsed, and only ever in the black mirror-pools that gather in the folds between hummocks.
+
+It surfaces as a face. That's the word people reach for, against their better judgment, because nothing else fits the shape that resolves there for half a second before the water remembers it's only water: something with the proportions of attention — a brow-like swell, a darker socketed place that might be regard — but built to a scale that makes "face" almost an insult, the way calling a mountain range a "wrinkle" would be. It is never the same size twice. It is never quite confirmed. Divers — there have been divers, expeditions with rope and lamps lowered into pools that read as bottomless on every instrument — find only more water, more cold, more dark, going down further than the plateau's own measured depth should geologically allow, and no body, no fish, no shape at all, organic or otherwise.
+
+The working theory, never provable, never disprovable: the pools are not separate from whatever else is happening here. They are apertures. Briefly, under the right failing light, something on the other side of the aperture looks back through it, the way a person passing a lit window at night might, for one stride, glance in.
+
+## The Walker With No Den
+
+The four-legged trails that end at sheer rock are the second clue, and the more disquieting one, because trails imply habit, and habit implies a creature with somewhere to be.
+
+Whatever presses these trails into the moss is heavy — heavier than the deer-things, heavy enough to leave a true compression line, root-felt crushed down to the old rubble beneath, a path you could follow with your eyes shut by the change in give underfoot. The trails are old. Some are old enough to have their own secondary moss-crust growing in the depression, meaning whatever walks them hasn't walked them recently, or walks them so rarely that years pass between passages, or — a third possibility, harder to sit with — walks them constantly, but not in a way that disturbs the new growth, the way water can run over stone for a thousand years without erasing what grew up around the original riverbed.
+
+The trails terminate at rock faces with no cave mouth, no fissure, no give. People have excavated at these termini. They find solid stone, ordinary stone, going down as far as anyone has bothered to dig. The trail simply stops being a trail, the way a sentence might stop being a sentence mid-word.
+
+The current, unsatisfying, only half-believed explanation, held by the handful of people who've spent real years on the plateau and stopped expecting tidy answers: the walker doesn't end at the rock face. It ends at the rock face only from this side. It is not entering the stone. It is withdrawing into the same body that the trail was always walking on top of — folding back down into the engine-warmth, the throb, the slow held breath the hummocks let out once a minute. The deer-shaped things graze its surface. The birds flock above its skin in shapes it may or may not be making them hold. The walker is not a separate animal living on the plateau.
+
+The walker, on this account, is the plateau noticing something, and going to look.
+
+## The Engine Itself
+
+If there is a single resident — the one true inhabitant, in the sense that everything else here is tenant, guest, parasite, or symbiote — it is not shaped like an animal at all, because it was never built to a scale where shape, in the animal sense, would mean anything.
+
+Picture, if you can bear to, something like a heart that has had ten million years to forget it was ever the size of a heart. It did not grow upward into a recognizable body the way a tree grows into a recognizable tree. It grew outward and downward and through, threading itself into the rubble beneath the moss the way mycelium threads through soil, except where mycelium is hair-fine, this is geologic — root-cables thick as the cathedral logs, running for kilometers under the plateau's whole skin, meeting at junctions whose pulse you can feel, sometimes, as those unaccountable warm patches, the places where two or three of its slow arteries cross.
+
+It does not have eyes, but it has, evidently, attention — the pools prove that much, or seem to. It does not have a mouth, but it has appetite, expressed only as a faint and patient consumption of fallen wood, drowned animals, anything that settles long enough into its standing water to be quietly absorbed rather than rotted. It does not have a voice, but it has the thrum, which may simply be the sound of its enormous slow systems doing whatever enormous slow systems do — digesting weather, metabolizing rain, running some process whose entire purpose might be nothing more dramatic than continuing.
+
+It is not hostile. There is no evidence it has ever harmed a person who didn't first harm themselves against its terrain — fallen in a pool, gotten lost in reeds taller than a house, frozen overnight in a fog it summoned in under a minute for reasons of its own weather, not anyone's malice. But it is not indifferent either, not in the way a mountain is indifferent. The face in the water, the trail that ends mid-stone, the shadows leaning toward their own light source instead of away — these don't read as the absence of a mind. They read as a mind operating on a clock so much slower than a human one that what looks like stillness is, from the inside, full of event: thought taking a decade, a glance taking a year, a single slow exhalation lasting as long as a human lifetime, breathed out through a hummock the size of a house, while a herd of wrong-jointed deer graze its skin and never once imagine they are standing on something that knows they're there.

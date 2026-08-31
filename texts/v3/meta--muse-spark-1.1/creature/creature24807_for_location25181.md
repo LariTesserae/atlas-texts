@@ -1,0 +1,37 @@
+What lives there is not *in* it. It *is* it.
+
+That is the first mistake to unlearn.
+
+At first you think, because your primate brain wants edges, that the builders left and the building remains. Or that small things live inside a big thing. It is the other way. The big thing is just the slow part of the small things. The mountain is not inhabited. It is secreting itself continuously.
+
+If you put your hand on the wall to steady yourself in one of those low, warm throats — and you will, because the floor is soft and gives — you feel it. The wall is damp and slightly warm and it gives back a little, like cartilage. Under the felt of moss and the slick of condensation, under the green, if you peel very carefully, you find layers like this:
+
+Paper. Not paper like a book. Paper like skin. Grey wasp paper made by wasps that are gone but whose great-great-granddaughters are working three meters above you right now. A single sheet is nothing, a chewing of dead tree, spit and wood fiber. A million sheets felted together over ten thousand wet seasons become sandstone. You can see the mandible marks in it still, the tiny overlapping commas where a mouth pressed pulp. And in the gaps between the sheets, living wasps, fat as your thumb joint, the color of old amber, crawling backwards. They don't sting here. There is nothing to sting. They crawl and chew the dead edge of the wall and excrete a new edge. Their larvae hang in open cells like white grubs in pockets, breathing the warm air. They are the foundation. They are the basement that is also the roof.
+
+On top of them, the mudders. 
+
+You hear them before you ever really see one. A constant, nervous chittering that becomes the hiss you thought was wind. Cliff swallows and furnacebirds and a dozen cousins that no one has bothered to name because they never come down below the cloud deck. Each one is small. The brown of dry river silt. Each one carries in its beak a pellet of mud no bigger than a pea, flown up two thousand feet from the rivers below, and plasters it with a flick of the head. Cup. Another cup pressed into cup. Another cup. You look at one wall and you think it is solid, eroded Adobe. You get close and you see it is all mouths. Everywhere mouths. Millions of open, fused cups, and in most of them a bird is tucked, or two birds, or a bird and three blind, gaping young that are the exact color of wet mud. When they fly they do not fly out. They fly through — shooting down the ventilation throats you saw that column of light falling through, a brown stitch through the dark, never touching the sides. They are the bricklayers. They never stop. The mountain gets a few grains heavier every time one comes home.
+
+And holding it all in tension, the silk-makers and the root-runners.
+
+In the white districts, where the air is a little drier, you have to turn your face away because the light catches it. Silk. Not a web. A felt, a weather-proofing, a tendon. Tiny brown spiders, social spiders that live by the thousand in a single fist-sized knot, have strung it wall to wall to wall until you cannot tell where one web ends. Big golden orb-weavers have made their wheels across chimneys twenty feet across and abandoned them, and other things have built on them. Caterpillars, fat green ones that will never become big moths — or will, and then will die in a week — have bound everything with their cocoon silk. It tightens when the cloud deck rolls in at night. You can hear it. A faint creaking, like a ship at anchor. And through it, the roots. The leaf-cutters come up from the forest far below, a black river of them on trails you can't see, carrying green flags on their backs. They don't eat the leaves. They chew them into paste in fungal gardens tucked into every hollow. And their fungus spreads. White mycelial fingers run through the paper, eat the old paper, soften it. The roots follow the fungus. Thin green stranglers that never saw sun have been coaxed, over centuries, to run like rebar through the mud. They die, they lignify, they become wood inside a wall that never had wood.
+
+That is what you would call the builders, but the builders are not the majority.
+
+The majority is what came after that the building made possible.
+
+The bats. God, the bats. In districts of the interior, where the paper was laid a little thinner and the air is perfectly still, they hang in curtains. Warm. They are small, warm-handed bats with leaf noses, pressed so close their fur interlocks. Each one alone is a mouse with wings. Together they are a lung. They breathe out and the whole tunnel gets half a degree warmer. They go out at dusk in a pour, when the swifts come in, and the entire mass rolls past you for ten minutes and the pressure changes. Their droppings fall and never hit a ground, because the cockroaches — shining, wingless, chestnut-colored roaches as big as your palm, slow and careful — are always there, cleaning. Their droppings feed the fungus that feeds the ants that train the roots.
+
+The cicadas and crickets you felt in your teeth — they are the voice. They are not in the walls, they are *on* the walls, they are the walls' voice. Crickets big as mice, with legs like wicker, saw at each other across inches that sound like miles because the tunnel throws it. Thumb-fat cicadas that spend seven years as grubs eating old mud and old frass, then climb out for one week and scream. They have no mouths left at that point. They just scream until they die.
+
+The frogs. Follow any ticking of water down three levels until you find where it stops ticking and becomes still. Black pools in a bowl of moss so thick you want to put your face in it. And the pool moves. It is frogs. Thousands of little golden condensation-frogs that never needed a pond, that lay their eggs in the cistern water that is really just sky squeezed out of silk. Their throats all go at once, low and out of phase, and the water ripples with it.
+
+And above, and below, and through it all, the green that is also an animal in its way — ferns that grow on nothing but old nest, orchids whose roots are in swallow spit, mosses that hold the whole dripping thing together like a towel.
+
+There is no queen. There is no center. There is no plan.
+
+What lives there is a habit that got too big to die. A closed loop that learned how to keep its own rain. It eats its own dead. The wasp paper dissolves and becomes fungus which becomes leaf-cutter paste which becomes ant exoskeleton which becomes bat guano which becomes moss which becomes mud when a swallow takes it back down in its gut and up again as a pellet. Nothing comes in except for leaf fragments and river silt and insects caught on the wind and light. Nothing goes out except heat and occasionally a swallow that doesn't return.
+
+If you stand in the dark and let your eyes go and your ears stop fighting, you stop counting species. You feel the place as a single tissue, as warm as the air — 28 degrees and close — with a pulse but no heart. A reef, but inverted, in the sky instead of the sea, breathing cloud instead of water, filtering insects instead of plankton, made of spit and silk and mud instead of calcium.
+
+And it shudders, softly, all the time, because somewhere, always, a tiny beak is adding one more pellet of mud to the rim of its cup.

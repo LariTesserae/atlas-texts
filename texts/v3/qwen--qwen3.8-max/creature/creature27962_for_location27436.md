@@ -1,0 +1,85 @@
+What lives there has not yet agreed on a body.
+
+At first, it seems like a scattering of small, unfinished animals: pale flecks drifting near damp corners, translucent crawlers on the walls, brief swimmers in water that will not last. They do not gather into a single visible nation. They are distributed, spaced out, each life tucked into its own thin niche as if the pocket cannot yet bear too much presence in one place. But if you watch long enough — and watching is difficult here, because the place changes when it knows it is being watched — you begin to feel that all these lives belong to one quiet inhabitant wearing many temporary shapes.
+
+The smallest of them are almost not creatures at all. The springtails drift in loose milk-white clouds above the moist angles of the walls, moving with the randomness of dust that has learned desire. They are no larger than grains of sand, but their bodies catch the cold light and multiply it, so that when they rise together they seem less like animals than a brief weather of shining motes. They feed on the faint films that form on wet stone, on mineral breath, on whatever first taste the pocket makes when condensation returns. When the air dries, they settle into cracks and become still, their brightness dimming until they could be mistaken for salt.
+
+The mites are slower and more deliberate. They move across the marl like thoughts crossing a closed mind. Their bodies are translucent, faintly glassy, and their legs leave traces that shine for a moment after they pass — not footprints exactly, but chemical lines, thin messages that fade as soon as the air decides what to do with them. They seem to map the walls, or remember them, or argue with them in a language too slow to hear. Sometimes several mites will pause at the same place, all facing a hairline fissure, as if listening to something on the other side of the stone. Then they separate again without signal.
+
+The wingless midges rest on the brighter surfaces in sparse constellations. Their wings have become small glassy scales, useless for flight but useful, perhaps, for holding moisture or catching light. They are quiet even by the pocket’s standards. When one moves, it does so with a tiny shiver, and the light around it trembles too, as though its body casts a reflection into the air rather than a shadow. They are prey, but not in a violent sense. They are the kind of small life that exists so quietly that its disappearance feels less like death than erasure.
+
+Then there are the swimmers, if anything so brief can be called a swimmer. The amphipod-like creatures live only in the temporary lenses of water that gather after the ceiling sweats. They are pale, jerky, urgent in the way of beings whose world may vanish within hours. They move through the shallow pools as if each second is a season. Their bodies are nearly clear, and inside them one can see faint beads of light moving with their digestion, or with something gentler than digestion. When the water shrinks, they become frantic in a very small way; when it evaporates entirely, they leave nothing behind but a faint stain and, sometimes, a single curled shell no larger than a eyelash.
+
+The blind larvae are the builders. They hang from the ceiling on threads of mucus, their bodies pulsing with weak light, and they make the pocket’s first architecture. Some build curved galleries of glued sediment against the walls, pressing grains together with their mouths until the grains become a kind of instant stone. Others spin cases no larger than seeds, spiral shells of hardened mucus and mineral dust, and carry these cases with them as they move. Empty cases lie abandoned in shallow hollows, polished inside by the bodies that once lived there. The larvae do not seem to know they are making structures. They build the way water beads: because the conditions have arrived.
+
+The flat, pale things like salamander nymphs but not quite salamanders are the pocket’s most unsettling residents. They occupy the damp basins when the basins exist, and they move with a sideways patience, as if they are always deciding whether to approach or withdraw. Their gills spread from their necks like frost ferns, trembling faintly even when no current passes through the water. They have no visible eyes, yet they turn toward disturbance with terrible accuracy. They do not look at you. They become aware of you in some other way, perhaps through the pressure your attention puts on the air. When they lift their heads from the shallow water, the light in the pocket thins for a moment, as if their watching spends it.
+
+Predators live among them, but predation here is not loud. It is a small tightening of the world.
+
+The whitish pseudoscorpion waits beneath a crust of hardened clay, so still that it seems to be part of the wall dreaming of being an animal. Its pale claws are folded close. It does not chase. It listens with its whole flattened body for the faintest tremor of a passing midge or larva. When it moves, it moves once, and then the wall is still again.
+
+Something long and soft-bodied hunts in crevices too narrow for anything with bones. It is more like a pale thread with appetite. It slides through gaps no wider than a straw, tasting vibrations, searching for larvae in their hanging threads. It is rarely seen whole. Sometimes only a faint wet line remains where it passed, shining briefly before the stone drinks it away.
+
+The beetle-like creature with the wet-paper shell patrols the edges of the damp basins. Its antennae move constantly, reading the bright air. It is not large, but in the pocket’s scale it has the gravity of a larger animal. It eats midges, larvae, anything small enough to be caught without struggle. It does not seem cruel. It seems necessary in the way condensation is necessary. After it feeds, it often remains motionless for a long time, its shell darkening slightly as moisture enters it.
+
+But these are not the only lives. There are also the fungal stains, the rootlets, the almost-plants, the pale moss no bigger than a coin. They too are part of what lives there, though they live less like individuals and more like conditions. The fungal filaments do not fruit; they write. Their marks in the marl look like veins, like frost, like a script the pocket is trying to remember. The rootlets from above do not truly enter. They brush the ceiling like hesitant fingers, drawing back when the stone grows drier, pressing closer when moisture returns. They are the pocket’s only connection to the world of soil and weight and footsteps, and the creatures below behave around them with a quiet wariness.
+
+If one must give the pocket’s inhabitant a single name, it would be better to call it the Marlborn than to pretend it is one animal.
+
+The Marlborn are not a people in the surface sense. They do not speak, do not build cities, do not keep tools. They are a scattered kind of being, half animal, half mineral event, living in the pause between water and stone. They are small — most no larger than a finger, some no larger than a bead — and their bodies are pale enough to seem made from the pocket itself. Their skin has the look of wet chalk, or the inside of an unopened shell, faintly translucent in places where the light gathers. Under that skin, tiny points of brightness move slowly, like sparks held in cold water.
+
+They have limbs, but their limbs seem optional. Some move on fine threadlike legs. Others fold themselves along the wall as if movement is more a matter of agreement than muscle. Their heads, if they can be called heads, are smooth and eyeless. Instead of eyes, they have shallow grooves or tiny crystalline points that sense moisture, vibration, and attention. When the air is damp, thin gill-like films open along their sides, spreading into delicate shapes like frost ferns. When the air dries, those films close, and their bodies become still and mineral-looking, easy to mistake for crusts or stains.
+
+They are not beautiful in an easy way. They are beautiful the way first drafts are beautiful: uncertain, excessive in some places, unfinished in others. Some have too many joints. Some seem to be losing limbs. Some have bodies that trail into threads, as if they have not decided whether to end. Some are almost larval, soft and segmented, while others are flatter and more patient, with broad gills and slow sideways movement. They do not look like one species. They look like several attempts at the same idea.
+
+Yet they share the same behavior, and that is what makes them feel like one being.
+
+They live by pulses.
+
+When the pocket is dry, the Marlborn withdraw. They press themselves into crevices, flatten against the marl, or curl inside empty cases. Their light dims. Their bodies harden slightly. They become indistinguishable from the pale stone, from salt flowers, from the faint stains left by old moisture. In this state they are not dead. They are postponed. They wait with the patience of something that has never known a full day.
+
+When moisture returns, they wake.
+
+The ceiling pores open. The walls sweat. A bead trembles and falls. The Marlborn unfold. Their bodies soften. Their lights brighten by degrees. They move out onto the walls, into the basins, along the ledges, wherever dampness has made the stone receptive. The larvae lower themselves from the ceiling. The mites widen their shining trails. The amphipods jerk into the brief pools. The flat nymphs lift their heads. The beetle-like creature emerges to patrol the new margins. Even the fungal stains seem to deepen, as if the pocket is remembering where its lines should go.
+
+They do not celebrate moisture. They obey it.
+
+Their feeding is quiet and strange. They graze on mineral films, on the first cold crusts that form where water has touched stone, on fungal threads, on shed skins, on the faint luminescence left by other bodies. Some seem to drink light itself, or at least to gather it into their translucent flesh and release it later in weaker form. Predation exists among them, but it is subdued, more a transfer of substance than a drama. When one Marlborn takes another, there is rarely a visible struggle. A tremor passes through the wall. A small light goes out. The stone accepts the absence.
+
+They breed, if that word fits, in the damp intervals. They leave egg-like spheres wrapped in fibrous thread in shallow niches, then abandon them. The spheres are not helpless; they seem to wait for the right pulse of moisture, perhaps for the right version of the pocket to arrive around them. Some are already ancient-looking, though they may have been made only moments ago. Others are fresh and faintly luminous, containing tiny inverted lights, as if each one is a room where a smaller pocket is trying to begin.
+
+Their constructions are not tools but instincts made solid. They glue sediment into curved galleries. They spin seed-sized cases. They sort grains along ledges, placing pale particles in lines that are too regular to be accidental and too fragile to be permanent. These lines may be trails, boundaries, signals, or prayers. They vanish with the next pulse of water, but the Marlborn make them again in slightly different forms. There is no progress in their making, only repetition with variation.
+
+They do not seem to know they are individuals. They may not be.
+
+Sometimes the pocket’s life appears as separate creatures: springtails, mites, larvae, nymphs, beetles, hunters. At other times, all these scattered forms feel like expressions of a single distributed body. The mites are its slow nerves. The larvae are its hands. The amphipods are its brief urgent thoughts. The flat nymphs are its attention. The predators are its hunger, kept separate so the rest may remain calm. The fungal stains are its memory. The rootlets above are dreams of another world pressing against its ceiling.
+
+If that is true, then the Marlborn is not a species but a condition: a living interior that has not yet hardened into one shape.
+
+There are moments when the pocket seems to gather itself into a more definite form. This happens most often when moisture is returning but has not yet fully arrived, when the air is full of mist and the walls are beginning to shine. In a shallow niche, or at the back of a basin, or in a crevice that was closed a moment before, something may appear that is larger than the others, though still no bigger than a hand.
+
+It is pale and flattened, pressed close to the stone. Its body has the softness of wet marl and the faint translucence of shell. Along its sides, gill-like films spread wide, trembling with the first dampness. Its head is smooth, eyeless, turned slightly toward whatever has disturbed the air. It does not move so much as become present. It may be one of the Marlborn, or it may be the pocket’s attention given temporary flesh. It does not threaten. It listens.
+
+When this form appears, the geometry of the pocket changes. The entrance may seem farther away. The far wall may lean closer. The light may gather around the thing like a veil, or retreat from it as if respecting its privacy. If you try to look at it directly, it becomes smaller, simpler, easier to dismiss as a trick of mineral glow. If you let your gaze soften, it seems to expand, not in size but in presence, until the whole pocket feels like the inside of its body.
+
+It is not hostile. It is shy.
+
+The Marlborn sense attention the way surface creatures sense weather. To be watched by them is not to be seen, but to be measured by the stillness. When a visitor notices them too closely, the pocket contracts. Distances shorten. Walls feel nearer. The entrance becomes a pale smear no larger than a coin. The creatures themselves become smaller, thinner, harder to distinguish from stone. Their movements grow cautious. Their light dims. The pocket protects itself by becoming less generous.
+
+When the visitor stops trying to fix the place in thought, the pocket opens. The walls recede by uncertain degrees. The basins deepen. The light spreads. The Marlborn move more freely. Their trails shine longer. The temporary pools widen. Even the silence becomes more spacious, less like absence and more like company.
+
+They do not make sound, not in the ordinary sense. Their sounds are too small for hearing: the tick of a crystal releasing tension, the whisper of a rootlet overhead, the soft click of a mandible against stone, the faint tap of condensation striking a shed skin. But they do make attention. When they move, the pocket listens. When they stop, the pocket waits. Their existence is a kind of quiet pressure on the world around them.
+
+They are also clean.
+
+The pocket consumes its own debris quickly, and the Marlborn seem to help this happen. Shed skins curl against the wall like pale scrolls, then soften, then vanish into the marl. Broken larval tubes are reabsorbed, their edges dissolved by dampness. A molted carapace may fill with condensation, become a tiny mirror for the pocket’s cold light, then collapse into powder. Nothing rots loudly. Nothing becomes ugly. Even death here is a small brightening, a transfer of moisture and mineral back into the unfinished walls.
+
+Their relationship to the surface is indirect. They do not know the sun. They do not know wind, except perhaps as a rumor carried by air through cracks too fine to see. The rootlets above are their only touch with the living world, and they treat those rootlets with something like reverence or fear. When a rootlet shifts, the Marlborn below grow still. When the ground above remembers the pressure of footsteps, the pocket’s light flickers faintly, as if a heavy thought has passed overhead. They may not understand the surface, but they feel its weight. They live beneath it the way a dream lives beneath a sleeping mind.
+
+Sometimes the temporary pools reflect things that are not present in the pocket: pale grass, an empty sky, a ceiling that is not this ceiling. The Marlborn gather near these reflections when the water is clear enough. They do not drink immediately. They seem to wait, as if the reflection must be tested or acknowledged. The flat nymphs lower their gills into the water and disturb the image, and then the pool becomes only a pool again. Whether those reflections are memories, leaks from other places, or the pocket’s own imagined future, the Marlborn do not explain. They simply live beside them.
+
+Their time is thin.
+
+They hatch quickly, live quickly, and vanish quickly, yet nothing about them feels hurried. A larva may hang from its thread for what seems like hours, pulsing with weak light, while the pocket around it changes in minutes. An amphipod may pass through an entire existence inside a pool no wider than a hand, and still its movements are not frantic. The Marlborn seem to experience duration differently, as if time here is measured not by hours but by pulses of moisture, by the opening and closing of stone.
+
+They may be ancient, or they may be newly invented each time the water returns. It is hard to tell. Their structures feel inherited,

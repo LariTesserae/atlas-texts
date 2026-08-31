@@ -1,0 +1,21 @@
+This is the home of the **Mycelial Weavers**.
+
+They are not a single species, but a collective consciousness, a symphony of beings bound together by the very fabric of the Heart-Woven Plateau. Each individual within the collective is a manifestation of the plateau's pulsating life, born from its root and fungal matrix.
+
+Imagine them as **luminescent, amorphous beings**, like living threads of phosphorescent fungal hyphae given a delicate, semi-sentient form. They possess no fixed shape, instead flowing and undulating like slow-moving currents within the organic tapestry. Their bodies are intrinsically connected to the plateau’s substrate; roots extend from them, merging seamlessly with the surrounding ground, and delicate, bioluminescent tendrils pulse with internal light, mirroring the fungi they embody.
+
+Their "skin," if it can be called that, is a **translucent, opalescent membrane** that shimmers with captured moisture and diffuses the faint bioluminescent glow. Within this membrane, one can glimpse the intricate network of their internal structures – not organs in a familiar sense, but swirling concentrations of energy, pulsating nodes of information flow, and channels through which life-sustaining fluids circulate.
+
+Occasionally, a more defined form might emerge for a brief period, a temporary scaffolding of thickened hyphae and fibrous roots to interact with the physical world more directly. These forms might resemble **graceful, multi-limbed creatures**, their limbs ending in delicate, prehensile tendrils capable of manipulating the vegetation and the substrate. They move with a slow, deliberate grace, their movements leaving behind faint trails of phosphorescence. Their "faces," if present, are more like **clusters of sensory nodes**, an arrangement of light-sensitive organs and chemoreceptors that allow them to perceive the subtle shifts in the environment.
+
+The Mycelial Weavers do not "speak" in audio, but through a **constant, empathic resonance** that permeates the plateau. Their communication is a silent chorus of shared sensations, intentions, and emotions. When they interact, their bioluminescence flares and pulses in synchronized patterns, a visual language of light and color that conveys complex ideas and feelings. They can convey warnings, share knowledge, or express contentment through these luminous displays.
+
+Their existence is deeply rooted in the **cycles of growth and decay**. They are the gardeners of the Heart-Woven Plateau, tending to its intricate systems with patient, unwavering dedication. They can accelerate or slow down the decomposition process in certain areas, encouraging the growth of specific fungi or directing the flow of nutrients. They actively cultivate the bioluminescent fungi, maintaining the soft illumination that permeates their home.
+
+The Mycelial Weavers are intrinsically tied to the plateau's "architecture." They don't build, but rather **guide and shape the existing organic structures**. They weave strands of living root and fungal hyphae to create sheltered hollows, reinforce pathways, and even form living conduits for the moisture that nourishes them. They understand the plateau’s "blueprints" on a cellular level, subtly nudging its growth to create optimal conditions for life.
+
+They have no concept of separation from their environment; they *are* the Heart-Woven Plateau, and the Heart-Woven Plateau *is* them. Their individual consciousnesses are distinct but undeniably interconnected, a vast, distributed intelligence that experiences the world as a single, unified entity. When one Weaver "dies," its essence simply rejoins the greater matrix, its stored life force and knowledge feeding the collective.
+
+Their perception of time is **vast and slow**, measured in the patient unfurling of fronds and the gradual calcification of fungal mycelium. They experience the world not as a series of discrete events, but as a continuous, flowing process.
+
+The Mycelial Weavers are the heart and soul of the Heart-Woven Plateau, the sentient custodians of a living world, their existence a testament to the profound interconnectedness of life itself.

@@ -1,0 +1,15 @@
+In this place live the Resonators - entities that exist as patterns of vibration within the endless chord of the singing spires. They have no fixed physical form, instead manifesting as subtle disturbances in the harmonic field, like complex standing waves in an ocean of sound.
+
+The Resonators communicate through careful modulation of the spires' frequencies, creating microscopic variations in the eternal chord that other Resonators can interpret. Their "language" operates on multiple simultaneous frequencies - some audible, some felt only as physical vibrations, others existing in ranges no human instrument could detect. A single "utterance" might take days or even years to complete.
+
+Their consciousness, if it can be called that, is distributed across hundreds or thousands of spires at once. Each Resonator is less an individual and more a region of subtly altered harmonics, maintaining its coherence through constant, minute adjustments to the overall field. They drift slowly across the plateau, their "bodies" flowing from spire to spire like smoke caught in an invisible current.
+
+The Resonators tend to the lichen fields, though not in any way visible to human eyes. Their vibrations encourage or discourage growth in patterns that maintain the delicate balance of the ecosystem. The bowl-like depressions are their work, shaped over centuries through precisely controlled frequencies that slowly reshape the living mat.
+
+They appear to derive sustenance from the relationship between the spires' vibrations and the geometric patterns in the bedrock below. The alignment of shadows during rare sunbreaks represents moments of particular significance to them - times when the physical and vibrational geometries align to create complex resonance patterns that sustain and energize their oscillating forms.
+
+The Resonators have no concept of death as we would understand it. Individual patterns may dissolve back into the greater chord, and new patterns may gradually emerge, but there is no clear distinction between one Resonator and another, between birth and death, between individual and community. They exist as semi-stable nodes in an eternal web of vibration, like electrons in a vast atomic structure.
+
+They are neither hostile nor friendly toward other forms of life - such concepts would be meaningless to them. They simply maintain their ancient patterns, tend their living infrastructure of spires and lichen, and continue their endless conversations through the medium of pure sound. Their concept of time is utterly alien, measured in the gradual oxidation of the spires and the slow growth of the lichen mats.
+
+The entire plateau might be considered a single vast instrument that the Resonators both play and are played by, a self-sustaining system of vibration and life that has achieved a kind of perpetual harmony. Whether they created this system or emerged from it is a question without meaning - they are as much a part of it as the spires themselves, as inseparable from their environment as a wave is from the ocean.

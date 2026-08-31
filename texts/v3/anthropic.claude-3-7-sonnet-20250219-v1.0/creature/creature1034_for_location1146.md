@@ -1,0 +1,25 @@
+# Dwellers of the Shrouded Plateaus
+
+The Arheni are the true inhabitants of Parn-Vesh, though "inhabitant" may be too definite a term for beings that exist in a state between matter and energy, solid and liquid. They appear to human eyes—when they choose to appear at all—as translucent, elongated figures with proportions that suggest humanity but defy its limitations. Their bodies taper to graceful points where legs might be, and what could be arms extend as undulating appendages capable of extraordinary precision.
+
+Arheni skin has the appearance of liquid glass, with rippling patterns of luminescence that echo the phosphorescent glow of the plateau waters. Their features are subtle depressions and elevations rather than distinct facial structures—no eyes as we understand them, but sensory regions that perceive vibration, temperature, electrical fields, and wavelengths of light beyond human comprehension.
+
+They move primarily through the deeper pools, emerging occasionally to glide across the plateau surface with such fluid grace that they seem to float rather than walk. When they move, the mist parts around them, not from any physical displacement but as if the fog itself acknowledges their presence and yields willingly.
+
+The Arheni are caretakers, though they would not use this term. They exist in symbiosis with the plateau and its hidden machinery. Their language—a complex system of vibrations transmitted through water and stone—can activate, adjust, and repair the ancient technology beneath the surface. What humans perceive as random bubbling or counter-gravitational water flow is often the consequence of an Arheni's maintenance work or communication.
+
+They exist in a different temporal framework than humans—a single Arheni thought might unfold over what humans would measure as days. This explains their apparent stillness when observed; they are not motionless but moving with deliberate patience beyond human perception. The plateau's unchanging nature mirrors their own sense of time—gradual, purposeful, measured in geological spans rather than hours or years.
+
+The Arheni reproduce rarely, through a process of division that occurs perhaps once in a millennium. When this happens, the entire plateau responds—the waters warm slightly, the phosphorescence intensifies, and the hidden machinery adjusts its rhythms to accommodate the new consciousness. Young Arheni spend centuries as seemingly inert crystalline formations at the bottom of the deepest pools before slowly developing mobility and awareness.
+
+They possess a collective consciousness—not a hive mind, but rather a shared perspective that preserves individual identity while maintaining connection to all others of their kind. The oldest Arheni retain memories of the plateau's creation, though whether they built it themselves or were created alongside it remains a mystery even to them.
+
+The palmlike vegetation serves as both sustenance and communication network for the Arheni. They don't consume the plants in any recognizable way but absorb energies from them through a form of photosynthetic exchange. The luminescent fronds respond to Arheni presence by subtly altering their light patterns—a form of communication legible only to those who can perceive variations in light across thousands of discrete wavelengths.
+
+Arheni regard human visitors with fascination rather than fear or hostility. They study these ephemeral, hasty creatures with the detached interest of beings observing a fundamentally different order of existence. They sometimes follow humans across the plateau, not to threaten but to observe, manifesting just at the edge of perception—a shimmer in peripheral vision, a subtle disturbance in the mist.
+
+The Arheni consider themselves not owners but components of Parn-Vesh—as essential to its function as the hidden machinery or the endless pools. Their purpose, insofar as it can be translated to human understanding, is harmonious continuation—to exist in perfect equilibrium with their environment, neither controlling nor being controlled by it, but participating in an eternal dance of mutual sustenance.
+
+To the rare humans who have gained their trust through patient stillness and respectful presence, the Arheni have occasionally shared visions—not through words but through direct sensory impression—of what lies beneath the plateau: vast chambers of living crystal, geometric perfection achieved through eons of growth, and machinery that is both technology and organism, pumping not just water but information through the body of Parn-Vesh.
+
+These visions never last more than moments, but those who experience them return changed, carrying within them an expanded sense of time and existence that both comforts and disquiets them for the remainder of their human lives.

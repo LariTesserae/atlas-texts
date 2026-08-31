@@ -1,0 +1,11 @@
+The inhabitants of this Condensate Hive are amphibious humanoids, approximately one meter tall, with translucent skin that shifts between pale blue and slate gray. Their bodies are muscular but lithe, perfectly adapted to the damp environment—with webbed hands and feet, external gill-like membranes along their necks, and a dense layer of mucus that allows them to move seamlessly between wet and dry surfaces.
+
+These creatures have large, lidless eyes with nictitating membranes, positioned slightly to the sides of their elongated skulls. Their eyes reflect the bioluminescent environment, often gleaming with an internal phosphorescence that matches the wall's soft yellows and greens. Communication happens through a complex language of chirps, skin color modulations, and precise hand gestures.
+
+Their bodies are covered in a fine, scale-like texture that helps regulate moisture and temperature. When working, they move with a fluid grace—fingers extraordinarily nimble when shaping clay, movements synchronized with the environment's subtle rhythms. Tools are extensions of their bodies: clay-shapers carved from exotic bones, baskets woven from fibrous underground roots.
+
+Genetically, they are neither strictly male nor female, but exist in a complex reproductive spectrum. Offspring are conceived communally and nurtured by multiple caregivers, emerging as small, translucent beings that gradually develop their characteristic coloration and gill structures.
+
+Their consciousness seems distributed—not individual in the human sense, but more like a collaborative intelligence where each creature is simultaneously an individual and part of a broader, interconnected awareness. They perceive the hive's architectural shifts as extensions of their own bodily sensations, blurring lines between organism and environment.
+
+Intellectually, they are pragmatic problem-solvers, with a deep understanding of hydrology, material properties, and ecological balance. Their technology is biomimetic—always working with natural processes rather than attempting to dominate them. Each generation refines the hive's structures incrementally, creating an architecture that is simultaneously a habitat, a tool, and a living record of their collective memory.

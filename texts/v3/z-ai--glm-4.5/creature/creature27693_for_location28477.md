@@ -1,0 +1,29 @@
+To live in the Hex-Sea is to exist as a component in a mechanism vaster than comprehension. The residents here do not inhabit the world; they facilitate it. They are the living rivets, the biological fuses, and the microscopic cleaners of a planetary engine that has been running since before memory began.
+
+The dominant mobile life form—the only creature that could be vaguely analogized to a "person" or an active agent in this landscape—are the **Resonant Carapaces**, known to the planet’s rhythm as the *Oscillators*.
+
+They are not graceful. They are not designed for the graceful darting of terrestrial animals. They are dense, heavy beings, evolved to withstand the crushing gravity of the dense mineral water and the relentless infrasonic pressure of the Stalks. Their bodies are oblong and segmented, resembling a grotesque hybrid of a horseshoe crab and a rusted iron pipe. They possess six limbs, but these are not legs for walking; they are hooked, grasping clamps, tipped with diamond-hard chitin designed to shear through metal and scale wet, vertical surfaces.
+
+The *Oscillators* spend their entire lives clinging to the flanks of the Stalks, miles above the dark ocean. They are migratory in the vertical sense. They move in slow, rhythmic synchronization with the Stalks’ ventricles. When the great biological refinery below them expands—spewing that superheated steam—the *Oscillators* flatten themselves against the warm metal bark, their shells flaring out to catch the thermal updraft. When the Stalk contracts with the wet, sucking *thoom*, the creatures scuttle upward, using the momentary vacuum to gain purchase on the ridges of the "factory" walls.
+
+They communicate not with sound, but with vibration. They possess a specialized "tympanic plate" on their undersides that presses flush against the Stalk’s hull. Through this, they feel the heartbeat of the pillar. They know the health of the machine by its tremors. If a vent is clogged, if a root is strangled, the *Oscillators* feel the hesitation in the pulse. They congregate at these sites of sickness or blockage, using their powerful clamps to scrape away the calcified mineral deposits that hinder the Stalk’s function. They are the white blood cells of the colossi; they do not eat the Stalks, they groom them, surviving on the nutrient-rich sludge of mineral runoff they scrape from the bark.
+
+Their society—if it can be called that—is a hive of solitude. They are solitary actors, yet they operate in perfect unison. One *Oscillator* scraping at a vent miles above the cloud layer is kin to another scraping at a root miles below. They share no nest, raise no young. The "eggs" are spore-like cysts laid in the steam vents, blasted into the atmosphere to drift on the perpetual updrafts. Those that survive the cooling drift down to the ocean surface, where they must immediately latch onto a passing root or a Stalk’s base, or sink into the crushing dark.
+
+Beneath them, in the heavy, viscous waters, live the **Dredgers**.
+
+While the *Oscillators* tend the machinery above, the *Dredgers* are the waste management and the harvesters of the deep. They are colossal, blind creatures that resemble manta rays in shape, but their anatomy is closer to a filtration plant. Their "wings" are vast, membranous sheets that act as gills, filtering the heavy, oily water for the organic particulate that falls from the Stalks above.
+
+They do not swim actively; the water is too dense for that. They drift. They possess internal ballast sacs that they fill with the heavy mineral solution to sink, or expel to rise. Their skin is encrusted with the same copper and iron rust as the Stalks, a natural camouflage that makes them look like moving sections of the sea floor itself. They are slow, ancient things. A single *Dredger* may take a decade to complete a single circuit of a Stalk’s base.
+
+Their mouths are located on their undersides, a terrifying, circular arrangement of grinding plates that looks like the intake of a woodchipper. They crawl along the suffocating Root-Sea floor, grinding through the tangles of dead fiber and compressed roots, turning the solid waste back into the mulch that feeds the living Stalks. In this way, they are the stomach of the world, crushing the past into fuel for the present.
+
+Finally, there is the smallest, yet most ubiquitous life: the **Vapor-Mites**.
+
+To a human observer, they would look like a shimmering distortion in the air, a swarm of glittering dust. They are insectoids, barely larger than a grain of rice, but they exist in trillions. They possess a unique biology: their carapaces are made of a heat-reflective silica that allows them to survive inside the scalding plumes of steam vented by the Stalks.
+
+They live their entire lives in the air. They hatch in the updraft, feed on the microscopic spores and moisture in the clouds, and die within hours, their tiny bodies falling like rain onto the *Oscillators* below. They are the food source for the few birds that exist—the leathery gliders that ride the thermals—but mostly, they are the atmosphere’s cleanup crew, consuming the excess biological output of the Stalks before it can choke the sky.
+
+In the Hex-Sea, there is no predator and prey in the traditional sense. There is no hunt. There is only the Process. The *Oscillators* maintain the flow; the *Dredgers* consume the blockage; the *Vapor-Mites* filter the exhaust.
+
+They are the cogs in the machine-flesh. They do not fear the thrumming; they rely on it. If the vibration were to stop, if the great heart of the Stalks were to falter, the *Oscillators* would detach and fall, the *Dredgers* would sink into the anoxic muck, and the *Vapor-Mites* would crystallize and drop from the sky. They live not *in* the place, but *because* of the pulse. They are the conscious tendons of a world that flexes its muscles in the dark.

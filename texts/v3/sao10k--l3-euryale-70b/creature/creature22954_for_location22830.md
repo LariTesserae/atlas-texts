@@ -1,0 +1,9 @@
+The air pulses and shimmers with layers upon layers of arcane fungal vitality. Towering caps glow alien-luminescent in sickly hues - searing green, toxic blue, bruised purple. Stalks sway hypnotically, undulating like serpents made of dusk-hued flesh. Atop them perch fungal crowns encrusted with lichen, perpetuating cycles of putrefaction.
+
+Misty tendrils unfurl from writhing roots submerged in pulsating mycelium. Emerald veils dangle precariously from lichen-draped stalks, fluttering in the cloying breeze. Bright sprays of spores whirl through the air, virulent and ravenous to seed new horrors.
+
+If this teeming earth could voice a song, it would be an unholy hymn that crawls and slithers. The damp air throbs around us, heavy with a multi-part pulse as life strains to grasp for itself in every direction at once. Flower petals unfurl into hideously proliferating blooms - blood-red ranunculus bursting into lewd anthurium-like splashes of color topped by tumescent maws bristling with pistils barbed like hooks and stamens clotted with spoor.
+
+Not one inch remains sterile here - the very landscape seems gangrenous, suppurating strange fruit that pulse and drip nectar-thick sap. Coffin-lid lips gurgle out mindless tonguesong as sanguinary orchards burst soggy walls scored with esoteric glyphs. Flowers twist their corollas open into obscene blooms while tentacle-stems ooze sloppily ripe with vital slops.
+
+Lichen-cloaked boulders loom citing weird sigil-glyphs and guttural runes atop bulbous sac-pylons erupt wretched sausage-ranks of ropy vines thrashing evermore sopping phalanges across a darkening sky to blot out the sun's fire...

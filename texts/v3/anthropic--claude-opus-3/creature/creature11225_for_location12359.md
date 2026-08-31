@@ -1,0 +1,13 @@
+In the abyssal darkness of this subterranean world, an ancient and alien ecology has evolved in eerie symbiosis. The fungal mats and curtains that drape every surface form a vast living network, pulsing with slow intelligence. Filamental tendrils extend like neural pathways, connecting the billions of bioluminescent nodes in a web of shared awareness.
+
+Interwoven with the fungal mat is the bustling hive of pale, insectile creatures. Ranging in size from small beetles to large rats, they scurry endlessly through the labyrinth on countless scrabbling legs. Their movements seem chaotic at first, but subtle patterns emerge - intricate dances and ritualistic routines that hint at a decentralized but collective sentience.
+
+These creatures are both separate from and enmeshed with the fungal network. They tend it and feed on it, but also act as its mobile sensory nodes and manipulating appendages. A single larger purpose or mind seems to guide the teeming multitudes.
+
+This living web appears to have incorporated the ancient structures and artifacts left by some long-vanished species of tunnelers or miners. Broken tools and shards of pottery protrude from the biomass, engulfed and repurposed. Fungal tendrils trace the carved symbols and sigils, as if trying to decipher or commune with them. The significance of these remains to the fungal mind is unclear.
+
+In a few larger chambers, the fungal growths coalesce into vaguely humanoid shapes - dense, fibrous agglomerations twice the height of a man, pulsing with lambent light. A limb-like extension might gesture slowly, as if pantomiming some half-understood behavior of the tunnel's former denizens. Or perhaps these uncanny fungal golems are attempts to communicate with any new beings that might one day enter this buried kingdom.
+
+The whole ecology has a dreamlike, cryptic quality, as if the fungal consciousness spends eons in slow, meditative contemplation of alien philosophies. The rhythms of its growth and the swarmings of its insectile servants seem to encode some esoteric meaning or intention.
+
+But there is a brooding sense of waiting as well - of ancient anticipation. As if this buried hive-mind knows it will not remain forever hidden. Some day, some interloper will again disturb the long silence and stillness of its realm. Some day, its long slow thoughts will once more touch the minds of beings from the worlds above. It has nothing but time and patience to await that fateful encounter.

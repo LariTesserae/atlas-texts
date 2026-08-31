@@ -1,0 +1,31 @@
+# The Wanderers of the Exhalation Fields
+
+In the seemingly uninhabitable expanse of the Breathmoss, life has indeed found a way to adapt—though not in forms easily recognized as living.
+
+They're called the Drift by those few scholars who have observed them, though the beings themselves have no concept of names. They are entities that exist as collections of specialized spores and gaseous compounds bound together within self-contained electromagnetic fields—essentially living clouds that hover just above the surface of the Breathmoss.
+
+Each Drift appears as a translucent, shimmering mass roughly spherical in shape, though they constantly shift and undulate as they move. Their coloration ranges from pale amber to deep indigo, with bioluminescent motes suspended within that pulse in patterns reminiscent of the moss below. These patterns are not random but constitute a visual language of sorts—their primary means of communication with others of their kind.
+
+The Drift evolved from the very exhalations of the Breathmoss itself. Over countless millennia, certain spore clusters developed the ability to maintain coherence rather than dispersing. The psychotropic compounds that make the Fields inhospitable to conventional life became the foundation of their consciousness—a mind composed of chemical reactions rather than neurons, yet capable of perception, memory, and even a form of contemplation.
+
+They feed on the specialized gases released by the Breathmoss, absorbing specific compounds while releasing others, existing in perfect symbiosis with the vast organism below. The Drift process these compounds in ways the moss cannot, converting them into forms that eventually fall back to the surface as crystalline precipitates that the moss then reabsorbs. This cycle has continued for so long that neither could now exist without the other.
+
+The Drift possess no conventional senses but can perceive variations in gas composition, heat, electromagnetic fields, and the subtle vibrations of sound. They are acutely sensitive to the exhalation rhythms of the moss and can detect changes in these patterns from great distances. This sensitivity allows them to navigate the Fields without physical eyes, following the breathing patterns as a sailor might follow stars.
+
+They move slowly, deliberately, riding the thermal currents that rise from the warm moss below, never touching the surface but never straying far from it either. Their movements appear random to outside observers, but they follow ancient migration patterns, circling the various formations of the Breathmoss in cycles that might take decades to complete.
+
+The Drift are not immortal but are extraordinarily long-lived, with individual entities potentially existing for centuries. They do not reproduce as conventional organisms do—rather, they grow by accumulating more compounds and eventually divide when they reach a certain mass. This division is not merely physical but involves a sharing of their chemical memory, creating two beings with shared history but diverging futures.
+
+They possess a form of distributed intelligence unlike anything found in animal life. Their consciousness exists as chemical gradients and reactions rather than electrical impulses, operating on timescales vastly different from human thought. What might be a single decision for a human could be a process spanning days for a Drift. Yet in other ways, they perceive reality with startling immediacy, detecting subtle atmospheric changes instantly that would require advanced instruments for humans to measure.
+
+The most remarkable aspect of the Drift is their relationship with the Breathmoss itself. They are not truly separate organisms but rather semi-autonomous extensions of the moss—sensory organs and processing units that the greater organism evolved to monitor conditions beyond its physical reach. The Drift serve as the moss's means of perceiving the wider world, returning periodically to specific receptor sites where their accumulated experiences are chemically absorbed back into the collective.
+
+When humans or other intruders enter the Exhalation Fields, the Drift neither flee nor approach directly. Instead, they adjust their migration patterns to observe from a distance, subtly altering their internal chemistry to produce compounds that, when eventually reabsorbed by the moss, will communicate information about the intruders. It is through the Drift that the moss seems to "know" when it is being disturbed and responds accordingly.
+
+The Drift have no concept of individuality as humans understand it. They exist in a state of chemical communion with both the moss and each other, sharing compounds that carry information and experiences between them. What one Drift learns is eventually shared with all, though this transmission may take years or decades to complete.
+
+When the ambient conditions of the Fields change dramatically—perhaps due to rare storms or geological events—the Drift can temporarily merge into larger collective entities, combining their resources to better survive the disturbance. These merged Drift appear as magnificent swirling clouds, sometimes spanning hundreds of meters, that pulse with complex patterns of bioluminescence as the component entities share and process information at accelerated rates.
+
+Those few humans who have spent extended periods observing the Drift report a growing sense that the entities are equally observing them, studying the observers with patient, alien curiosity. Some even claim that prolonged exposure to the exhalations of nearby Drift induces visions—chemical communications attempting to bridge the vast gulf between such different forms of consciousness.
+
+The Drift represent life evolved along a path so divergent from terrestrial biology that they challenge our very definitions of life. Neither plant nor animal, neither truly gaseous nor solid, they exist as expressions of the Breathmoss's patient expansion into all possible ecological niches—even those that exist only a few feet above its slowly pulsating surface.

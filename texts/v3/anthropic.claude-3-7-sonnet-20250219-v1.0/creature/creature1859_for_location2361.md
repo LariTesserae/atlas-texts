@@ -1,0 +1,27 @@
+# The People of Myrna
+
+The Myrnans are not quite human anymore, though they once were. Generations of life in the perpetual twilight has transformed them, their evolution guided by the patient hand of their subterranean home.
+
+They stand slightly shorter than their surface ancestors, rarely exceeding five and a half feet in height, with frames that appear delicate but possess remarkable density of bone and sinew. Their skin has lost nearly all pigmentation, appearing translucent in the fungal glow, with a network of blue-purple veins visible beneath the surface. When they move through the luminescent spore clouds, their skin temporarily absorbs the light, causing them to emit a soft phosphorescence for hours afterward.
+
+Their eyes have grown large and dark, with pupils that dilate almost to the edge of the iris, capturing the faintest illumination. The whites have taken on a pearlescent quality that reflects the ambient glow. They blink infrequently, sometimes going minutes without closing their eyes. When they do blink, it's a slow, deliberate motion, like the closing of a flower at dusk.
+
+Their hair grows remarkably slowly but never stops, so the eldest Myrnans have tendrils that reach their ankles, carefully braided and woven with luminescent threads harvested from certain rare fungi. These elaborate braids serve as a living record of their personal histories, with significant life events marked by specific knots, beads carved from iridescent cave pearls, or strands of different colors.
+
+Most striking is how they move—with a fluid, unhurried grace that mirrors the languid pace of their world. Their gestures unfold like the slow blooming of the cavern's fern-analogues, each movement precise and purposeful. They can remain still for hours when necessary, their breathing slowing to near imperceptibility, becoming as the stones themselves.
+
+The Myrnans communicate in three distinct ways: with a whispered language rich in sibilant sounds that carry uniquely through the cavern acoustics; with elaborate hand gestures that can convey complex concepts in silence; and with patterns traced in luminescent pigments on their skin, temporary messages that fade over days. Children begin learning these communication forms from birth, their education extending over decades rather than years.
+
+The Myrnans organize themselves in what they call "flow families"—fluid groups bound not by blood but by the water channels that define their territories. Leadership passes not through heredity but through demonstration of what they call "deep listening"—the ability to interpret the subtle changes in Myrna itself, from the shifting patterns of the processions to variations in the water's mineral content.
+
+Their sense of time differs fundamentally from surface dwellers. They measure their lives not in years but in "cycles"—the complete brightening and dimming of the ceiling fungi, the full circulation of the largest procession, the time it takes for a specific stalactite to grow one finger's width. Their historians maintain records spanning hundreds of surface generations, carved into living stone with painstaking precision.
+
+Myrnans rarely die suddenly. Instead, as they age beyond what would be possible above, they gradually slow until the distinction between movement and stillness becomes philosophical rather than physical. The eldest may spend decades in this state of near-stasis, seated in meditation niches carved into the walls, their minds turned inward while their bodies slowly mineralize. Eventually, they become indistinguishable from the stone itself—the community's ancestors literally becoming part of Myrna's architecture.
+
+They practice a form of communion with their world that outsiders might call religion but which Myrnans consider simply acknowledgment of reality. They believe consciousness exists in all things of Myrna but at vastly different tempos—humans think in moments, processions think in centuries, and the cavern itself thinks in geological ages. Their rituals involve synchronizing their awareness with these different rhythms, temporarily experiencing time as other entities do.
+
+The Myrnans possess knowledge that would seem mystical to surface dwellers—how to extract medicines from fungi that cure ailments unknown above, how to listen to stone and predict collapses months before they occur, how to communicate with the massive blind salamanders that they treat as semi-divine guardians of the deeper waters.
+
+Their crafts reflect their patience. A master artisan might spend twenty years creating a single drinking vessel, adding microscopically thin layers of stone dust mixed with resin until the walls become so thin they're translucent. These objects are not owned but shared across generations, accumulating stories and significance with each user.
+
+Despite their isolation, the Myrnans are not ignorant of the surface. Their oral histories preserve knowledge of the world above, though with each retelling these accounts grow more mythological. Some young Myrnans still feel the ancient call to explore upward, following the whispered breath of air currents that hint at distant openings. Few who attempt this journey ever return, but those who do bring precious knowledge that helps ensure the continued adaptation and survival of their people in the patient, persistent darkness of Myrna.

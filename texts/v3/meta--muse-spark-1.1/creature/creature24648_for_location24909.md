@@ -1,0 +1,41 @@
+At first you think it is empty.
+
+That's what the spacing does. From the rim you look down and see roofs and streets and a water tower and you think — abandoned industrial park. A preserved site. No movement because movement has so much room to get lost in.
+
+Then someone crosses the concrete by the boiler house, and the scale corrects.
+
+They are not big people, but they make you realize how big the empty is around them.
+
+There are about a hundred and twenty of them. Maybe a hundred and fifty in a mild winter. Enough to fill three of the row-houses on Foreman's Row if they all wanted to touch, which they never do. They live like their streets were laid out: one household to a building that was meant for forty workers, one family in the old dye works, one old man in the chapel office. They keep the intervals. When they talk on the street they stand farther apart than you would. They learned from the buildings. Everything gets a lot. Everything gets air. Nothing touches, because if it touches it rots.
+
+You hear them before you see them properly. Everyone in the bowl has the same voice. Not a metaphor — the same actual instrument. A low, hoarse, good-natured shout, as if they've been calling over a loom for twenty years. The children too. A four-year-old will ask you for help with her boot laces at the volume you'd use to warn someone about a forklift. It's not rudeness. It's adaptation. When you live inside a drum that never stops going *chuff... chuff... chuff...* and *clack-sigh, clack-sigh* off fresh basalt walls, you either go quiet and disappear or you learn to be louder than the flywheel belts. They chose louder. So the town is full of this constant half-yelling, even indoors, even when they're being tender. When they want to say something private, they don't whisper. They lean in and touch forehead to forehead and move their hands. They have a lot of hand-talk for a town that is so loud.
+
+They are mostly damp. Not metaphorically. Their clothes never fully dry. You drop ten degrees and fifteen meters when you come down the north stair, out of the wind and into the cold sink where the heavy air has pooled, and everything that was dry on the plain instantly wants to bead. They wear oilskins and wool not for rain but for air. Their boots are always black with water. Their hair curls with it. The older ones have a permanent rash of rust freckles on their forearms where they've brushed against sweating iron for fifty years, little brown tattoo dots that never wash off.
+
+They are not the people who built this place. The people who built it thought they were building looms and dyes and pressed tin. These are the children or grandchildren of the people who were hired to turn them off and didn't. The job changed.
+
+Now their job is climate.
+
+That's what the three slow mills are. They aren't ruins, they are organs. Each one has a Keeper — not a title anyone gave them, it's just what you become if you know how to keep a twenty-foot flywheel turning once every thirty seconds without it shuddering to a stop. The work is patient to the point of being religious. Minimal-flux. You don't push. You sit and watch and oil and listen for a change in the chuff interval by a quarter of a beat. You bleed steam off low stacks not because you need steam but because if you don't, the ferns die, and if the ferns die the condensate changes, and if the condensate changes the cistern water gets wrong and the pipes pit.
+
+They are gardeners who think they are mechanics and mechanics who think they are gardeners.
+
+Tuesdays are the proof. Every Tuesday, weather permitting — which inside the bowl it never really does, but they mean outside weather — they scythe. Not the streets. The roofs. The walls. The machines themselves. Big, glossy, cold-loving ferns the size of a dining table have rooted in the mortar of the machine shops and are trying to pry the bricks apart with their rhizomes. Creeper vines thick as your wrist have learned to love hot iron; they will happily climb the legs of the water tower and strangle the ladder if you let them. Butterbur and skunk cabbage come up through cracks in the poured concrete and make the intersections soft and stinking and green. So on Tuesdays they go out with hand sickles and billhooks and saws and they cut it all back, not to kill it — they would never kill it, it IS the cistern, it IS the reservoir — but to keep air around everything. Same rule again. Everything gets a lot. They haul the cuttings to the compost bays by the old settling tanks where the pile steams as hot as the boilers.
+
+That smell — cold iron sweat and crushed green — is the smell of their clothes, their houses, their food. They grow a lot of what they eat down there because nothing from the rim wants to live that long in that wet, and because it's easier. Bitter greens that like shade. New potatoes in raised beds made from boiler pallets. Chives that taste like minerals. And carp.
+
+No one wants to talk about how the carp got into that four-foot-deep subsidence crack behind the dye works that they call the Reservoir with a capital R. Someone put them there as a joke twenty years ago and now there are eight of them left, orange and white and calico, the size of Labrador retrievers, blind in one eye from the dark water, moving like slow, sad zeppelins in a circle. They breach at night. You can hear the slap all the way across the bowl and then the drip coming down off the sawtooth roofs afterward. The kids name them and rename them. The old people don't eat them. You don't eat your reservoir.
+
+That tells you something about how they live. They live surrounded by collaborators, not livestock.
+
+The swifts own the eaves. Hundreds of them, screaming through the steam at sixty miles an hour, nesting in the corrugations. The cisterns are not just water tanks, they're cities of newts — black-bellied, cold-water newts with feathery gills that come up and cling to the chain-downspouts. Water beetles like polished buttons. The rats are sleek and, honestly, beautiful, their backs green-black with the same moss that grows on the north side of everything, so that when one sits still on a pipe you can't see it until it moves. And the cats — forty or fifty feral cats now, all descended from mill cats, who have worked out the politics of living in a bowl where there is nowhere to go but up the stairs and they don't want to go up the stairs. They move in the warm lines. They sleep on the piston housings. They are not pets. They are the other shift. You leave them alone and they keep the moss-rats from chewing the belt leather. Sometimes a Keeper will be oiling and a cat will come and press its head into his boot and he will shout affection at it at top volume.
+
+People ask why they stay. You can climb the stair cut in the north wall in a minute. The rim path goes all the way around. Trucks go by on the plain outside. You can see them.
+
+No one stays because they are trapped. The bowl holds its atmosphere in, not its people.
+
+They stay because they have learned the particular completeness of keeping a small world alive on purpose. Outside on the plain it is bigger and drier and quieter and everything is spread to nowhere. In here it is cool year-round, fifty degrees and wet as a mouth, loud as a chest, spaced-out and overgrown and rusted and honest. At noon when the sun finally clears the rim, the thin mist burns off for an hour and the flat, northern light lays itself straight down and you can see every bead of water on every fern, every rust pit, every cat whisker. At four the shadow of the east wall comes back early and everything is cool again.
+
+They have a whole town's worth of space and they use it to make sure nothing has to crowd anything else. They have a whole town's worth of machinery and they use it to make nothing but rain.
+
+They live there like you would live inside a terrarium you built yourself and then decided to move into, because it turned out to breathe better than the world.

@@ -1,0 +1,20 @@
+In this pressurized womb, where the rock has not yet learned how to crack, the inhabitants are defined by a singular, paradoxical trait: they are **The Unfinished.**
+
+### The Blind Potters
+The "Builders" suggested by the hand-molded shrines are not visitors; they are permanent fixtures of the folds. They are spindly, pale-limbed entities with skin the texture of the very river-silt they manipulate. They lack eyes, for light is an alien concept at this altitude, and their faces are smooth save for wide, sensitive nostrils and mouths that never open.
+
+They move with a terrifying, liquid slowness that mimics the cooling of the obsidian floors. They do not walk so much as they flow between the pillars, their long, multi-jointed fingers constantly roaming the surfaces of the stone. They are obsessive tactile-sculptors. They spend centuries smoothed-pressing a single curve of a low wall, their bodies radiating a soft, mammalian warmth that contributes to the heavy velvet of the air. They do not speak. They communicate through the *thrum*—the same rhythmic vibration of the falling water—by pressing their chests against the basalt pillars and humming into the stone, sending subsonic ripples through the "cathedral" to their kin.
+
+### The Weaver-Mold
+Living in symbiosis with the liverwort-like lichen are the **Pale Weavers**. They are not spiders, but a form of colonial, motile fungi that resembles tangled white thread. They do not spin webs to catch prey, for there is nothing to hunt. Instead, they spin to reinforce. Wherever a "Builder" leaves a mark—a palm print in the clay or a stack of flat stones—the Weavers move in. They fill the finger-crevices with a resilient, milky silk that hardens into a substance indistinguishable from the rock itself. They are the reason the "experiments" do not collapse; they are the living glue of the Fold, ensuring that the "world under construction" remains in its state of perpetual, arrested development.
+
+### The Scavengers of Scent
+Beneath the Glass Slugs, in the microscopic film of the "mountain's sweat," live the **Aroma-Eaters**. They are gossamer-thin, translucent ribbons of life, barely a fraction of a millimeter thick, that cling to the weeping walls. They do not eat matter; they process the mineral gases exhaled by the emerging geology. They are sensitive to the "flavor" of the rock—the sulfurous tang of the volcanic vent or the metallic sharpness of the basalt. When a Builder moves, shedding a microscopic flake of skin or a drop of salt-heavy sweat, the Aroma-Eaters converge on the scent, pulsing with a faint, bioluminescent silver that dies out the moment the "meal" is consumed.
+
+### The Oracle of the Drop
+At the very center of the nave, where the pillars are densest, lives the **Stagnant One**. It is the oldest inhabitant, a Glass Slug that has grown to the size of a human torso. It has ceased to be a creature and has become a geographic feature. Its body is so perfectly fused with the obsidian floor that it is impossible to see where biology ends and stone begins. 
+
+The Stagnant One is the mountain’s "keeper of the rhythm." Every heavy *thrum* of a water drop is synchronized to its gargantuan, glacial heartbeat. It serves as a biological clock for the Builders; when its pulse slows, they press harder into the silt; when it quickens, they retreat into the shadows of the pillars.
+
+### The Ecology of Stillness
+Life here is not a struggle for survival, but a struggle for **permanence**. To move quickly is to die, as the humid air offers too much resistance and the fragile equilibrium of the moisture would be shattered. The inhabitants are "High-Altitude Anchors." They exist to ensure that the mountain never finishes its gestation. They are the caretakers of the embryonic; they are the reason the rock never learns how to break. They live in a state of holy stasis, tucked inside the mountain’s secret lung, breathing the same air that has been trapped there since the peak first folded in on itself.

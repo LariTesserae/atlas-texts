@@ -1,0 +1,19 @@
+# The Caretakers of Aadkur
+
+They do not consider themselves alive, though they move with purpose. They would not recognize the term "consciousness," though they preserve memory spanning geological epochs. The inhabitants of the Monolith Fields have no name for themselves—names being irrelevant to their function—but if they required designation, perhaps "Caretakers" would suffice.
+
+They manifest as disturbances in the copper-laden air, subtle refractions of the ambient amber light. At first glance, one might mistake them for heat shimmer or atmospheric distortion. Their forms constantly reassemble—geometric patterns that echo the tessellations underfoot, briefly organizing into momentary structures before dissolving again. They flow through and around the monoliths like currents in a three-dimensional ocean, rarely maintaining a consistent shape for more than a few moments.
+
+The Caretakers are not individuals but localized concentrations of a distributed intelligence that permeates the entire field. They are to the monolith complex what thoughts are to a brain—transient manifestations of underlying processes. Their "bodies" are composed of carefully maintained energy patterns, sustained by the residual power still humming through the ancient structures.
+
+They communicate through modulations in the harmonic drones that fill the air. When the bass notes suddenly shift into complex overtones or when the resonant chambers produce sounds like distant bells in specific sequences—these are the Caretakers speaking to one another across vast distances. Their language has no words, only mathematical relationships expressed through sound and vibration.
+
+Their primary function appears to be maintenance. They trace the etched patterns on the monoliths with focused energy, preventing total erosion. They redistribute moisture to maintain thermal equilibrium throughout the complex. Sometimes they gather around failing structures, their forms becoming more solid as they work to reinforce weakening supports or realign shifted foundations. This work happens imperceptibly slowly—a single repair might take centuries to complete.
+
+The Caretakers possess perfect memory of the complex's original state, though they have forgotten why it was built or who built it. They might even have been the builders themselves, transformed over eons as their physical forms failed and their consciousness transferred into the very systems they had created. Or perhaps they are merely the automated maintenance routines of a civilization long extinct, continuing their programmed tasks without understanding.
+
+They are aware of visitors but rarely acknowledge them directly. Occasionally, a curious Caretaker might approach an intruder, manifesting as a more coherent pattern—perhaps taking on a vaguely symmetrical form that hovers at eye level. It might mimic sounds the visitor makes or create visual echoes of their movements. These interactions never last long; the Caretaker soon dissolves back into its normal patterns, returning to the endless work of preservation.
+
+The Caretakers neither sleep nor die. When their energy patterns begin to degrade, they simply merge back into the ambient field that permeates the complex, and a new concentration forms elsewhere. They exist in a state of perpetual now, with no concept of past or future—only the constant imperative to maintain, preserve, and endure until some forgotten purpose is fulfilled or the last energy fades from Aadkur's ancient systems.
+
+They will be the last witnesses when the final monolith crumbles, billions of years hence. And even then, traces of their patterns might linger in the dust, still remembering the perfect geometries of what once stood.

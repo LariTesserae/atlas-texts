@@ -1,0 +1,21 @@
+Within this living cathedral, within this pulsing, breathing realm of bio-engineered density, life exists in a state beyond our ready comprehension. I will try to illuminate just a small fragment of that truth.
+
+Imagine, if you can, a symphony of life, each instrument carved from the very fabric of this place.
+
+Not just *a* being, but a collective, a *network* of consciousness, spread throughout the entire structure. It could be described as the beating heart of the cathedral. Individually, its components are specialized units, cells grown wild and free to explore new expression. 
+
+First, there are the **Sculptors**. They are the hands of the collective, living constructs made of woven mycelium and bio-polymers, some the size of insects, others as large as small animals. They have no fixed form, constantly re-arranging their bodies to fit the task at hand. They secrete enzymes that soften the surrounding tissue, allowing them to carve new pathways and chambers. They are the architects, builders, and miners of this underground world, directed by the unseen intelligence that permeates everything. Some are adorned with bioluminescent patterns that shift and change as they work.
+
+Then there exists the **Siphon**: A constant flow of nutrients and energy moves through its body. Its body is a lattice of crystalline structures embedded within a scaffolding of living moss and algae. They are the filters, the refiners, and the distributors of energy within the ecosystem. They draw sustenance from the surrounding bio-sludge, filtering out impurities and converting the raw material into a usable form. Then comes the *light*. Certain Siphons possess bioluminescent organs that pulse with rhythmic patterns. They are like living pipelines, carrying lifeblood throughout the system.
+
+Now, let me detail the **Sensitives**. These are the sensory organs of the collective, vast and delicate webs of neural fibers that stretch across the cavern walls and through the capillary networks. They are acutely sensitive to vibrations, pressure changes, and electrical impulses. They are the ears, eyes, and skin of the place, constantly monitoring the environment and relaying information back to the central intelligence. Some shimmer with a subtle iridescence, reflecting the ambient light and creating an ever-shifting mosaic of color.
+
+And finally, the **Guardians**, shaped from the densest and most resilient of the bio-polymers. They are hulking, vaguely serpentine forms, armed with retractable spines and the ability to secrete a paralyzing neurotoxin. The Guardians patrol the boundaries of the collective's domain, protecting it from outside threats. They are not mindless drones, but rather possess a rudimentary intelligence, capable of independent thought and action, acting as the defenders of the colony. The Guardians are cloaked in a thick layer of bioluminescent moss that camouflages them against the cavern walls. Their presence emits a disturbing, low-frequency hum that serves as a warning to intruders.
+
+These creations are all extensions of a single, unified consciousness. All are interconnected. All are essential. All live within the will of a greater whole. Each cell and extension is governed by a system of feedback loops and hierarchical control. These aren’t just organisms. They’re like cells in a body.
+
+But it is their potential that makes the colony especially strange. The collective has mastered the art of manipulation of organic code and can thus create an almost unending range of permutations to deal with newly arisen needs. All potential needs are anticipated and a design lies dormant until called into action.
+
+The creatures communicate through a complex language of bioluminescent pulses, vibrations, and chemical signals. They have no individual names, only designations, defined by their function within the collective. They possess a deep sense of purpose, a drive to maintain the health and stability of their ecosystem.
+
+Imagine wandering here and thinking the cathedral is nothing more than a space. You would soon discover yourself wrong. This place *knows*. And it will not allow you to harm it.

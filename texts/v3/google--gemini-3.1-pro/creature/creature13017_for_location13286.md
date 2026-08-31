@@ -1,0 +1,29 @@
+To perceive the denizens of this cathedral, one must first abandon the concept of the individual. In the suffocating, pitch-black humidity of the cavern, they do not exist as solitary beasts; they are a singular, undulating topography of flesh and bone. They are a living tide that clings to the negative space of the mountain.
+
+If you were to hover in the abyss and study a single creature drawn from the swarm, its anatomy would speak of profound specialization—a body distilled by millions of years to do exactly three things: hold fast, carve deep, and endure.
+
+They possess no legs in the mammalian sense. Instead, four heavily muscled arms extend from a dense, barrel-like torso. The primary, upper arms are disproportionately long and thick with sinew, ending in hands so permanently curled and heavily calloused that they resemble the roots of ancient trees. These upper limbs are the anchors, bearing the ape-like weight of the creature, locking into the polished lip of a stone hollow, or tangling tightly into the fur of a neighbor. The secondary, lower pair of arms is shorter, possessing a finer, though still brutal, articulation. These are the workers, the wielders of stone, perpetually stained with a slurry of wet mineral dust. 
+
+Where a face should be, there is a shield. A smooth, pale, heavily calcified skull-plate domes over the front of the head, tapering down to a blunt, heavy jaw. There are no eyes, not even vestigial indentations where eyes might once have been. Sight is a useless extravagance here. The cranial plate serves a dual purpose: it is an umbrella against the perpetual, falling indoor rain and the detritus dropped by those roosting thousands of feet above, and it is a resonating chamber. 
+
+Beneath this pale helmet, a wide, flat nose flares to draw in the steamy, ammonia-laced air, and a mouth lined with broad, flat molars waits for the crack of chitin. 
+
+Their bodies are wrapped in a thick, slate-grey down. This pelt is not like the coarse hair of a terrestrial ape; it is incredibly dense and nearly waterproof, designed to trap the deep-earth heat radiating from below while repelling the constant, condensing drizzle falling from above. In the dark, millions of these pelts press together, creating a vast, vertical blanket of insulation that regulates the temperature of the entire biome. Matting and swirling with the constant moisture and the pale grey mud of the rock-dust, they smell of wet flint, hot blood, and ancient earth.
+
+To dwell among them is to exist within a concussive symphony. Because they cannot see, their world is entirely tactile and acoustic. The deep, chest-rattling rumbles they produce vibrate through the stone and travel through the interlocked mass of bodies. A creature clinging halfway up the chimney can feel the low-frequency humming of an infant born in the lower tiers. They communicate through this seismic rumbling, maintaining the slow, churning migration of the colony. The wet slapping sounds are the constant shifting of limbs, the repositioning of thousand-pound bodies sliding over one another to find purchase on the slick basalt.
+
+And then there is the industry. The endless *clack... scrape*. 
+
+Tucked into the curve of their bellies, grasped in their lower hands, are the coarse volcanic rocks and quartz chunks hauled up from the deep-earth fissures. The creatures belong to the stone, and the stone belongs to them. The grinding is not merely an activity; it is an autonomic biological function, as natural to them as chewing or breathing. 
+
+A creature will brace its upper arms against a hollow, press its pale, plated forehead against the cavern wall to feel the acoustic resonance of the rock, and begin to work. The lower hands drag the jagged quartz back and forth, back and forth, turning hard angles into smooth, weeping curves. The friction heats the stone; the falling rain turns the created dust into a fine paste. Over lifetimes, this paste acts as a polishing compound. The result is the tens of thousands of scooped, waxy hollows that ring the cavern. 
+
+These hollows are their anvils, their beds, and their nurseries. 
+
+Life moves at a glacial pace. When hunger strikes, they do not dart or dive. They wait. Colossal, heavily armored centipedes—drawn from the abyssal cracks by the warmth and the smell of the biomass—creep up the vertical walls. When a centipede brushes against the slate-grey fur of the colony, the response is devastatingly coordinated. Several creatures will trap the insect against the wall with their heavy upper limbs, while the lower hands bring their grinding stones down like hammers. The chitin is shattered upon the smooth ledges of the hollows, and the pale, pale meat is extracted, shared in the dark among the immediate neighbors. 
+
+After feeding, they groom. This is the only tender thing in their brutal world. Creatures will use their lower hands to meticulously scrape the drying, cement-like rock mud from each other's downy pelts, chewing the mineral dust to extract the trace salts before spitting the remaining grit heavily into the void.
+
+Occasionally, through exhaustion or age, a grip will fail. There is no cry as a creature plummets into the blackness—only the sudden, terrifying rush of displaced air, and eventually, a wet, distant thud at the bottom of the world. But the colony does not mourn. The churning sea of biology simply shifts, moving downward to fill the empty hollow, and the grinding resumes.
+
+They are an architecture of biology locked in a stalemate with the geology of the mountain. In the pitch black, under the eternal, warm rain, they work. Through the long, lightless eons, their rhythmic scraping echoing up to the tiny sliver of freezing blue sky, they are slowly, patiently hollowing out the world.

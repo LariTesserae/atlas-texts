@@ -1,0 +1,59 @@
+## Who Lives at the Top of the World
+
+Ask the question over the chop, shouting into the wind, and the honest first answer is: the forest. Everything else in the drowned massif is a tenant of the kelp, or a tenant of a tenant, and you have to start there or nothing else makes sense.
+
+### The forest, which is not scenery
+
+It's tempting to treat the kelp as landscape — the green architecture everything else moves through. That's backwards. The kelp is the largest *inhabitant*, a population numbering in the millions of individuals, each one a tower with its own biography: rooted, growing a foot or more a day in the long summer light, fighting the surge its whole life, and dying violently, almost always — ripped out whole, holdfast and all, in some November blow, to begin a second life drifting.
+
+Each stipe is a tenement. The holdfast alone — that fist of woody fingers gripping the billion-year-old gneiss — shelters a city in miniature: brittle stars packed arm-over-arm in the gaps, scale worms, juvenile crabs the size of fingernails, blennies that will live their entire lives inside one root-ball and defend it like a kingdom. Researchers who pried apart a single large holdfast (this was done, once, before the boats stopped coming regularly) counted four hundred animals of ninety species inside something the size of a wastepaper basket. Multiply that by every stipe on every drowned hillside and you begin to understand the census of this place. The massif's population is not large animals in open water. It is uncountable small lives stacked inside other lives, all of them holding on.
+
+Below the canopy, the oldest tenants after the rock itself: the coralline crusts, pink and lavender stone-paint, some patches of which have been growing at a millimeter a year since before the flood. They are arguably the most patient living things in the massif, and patience here is the supreme virtue. They were on these domes when the domes were forty feet of new seafloor, and they will be here when the steel is gone entirely.
+
+And then the urchins — the herds. They move across the bald summit-tops in slow grazing fronts, hundreds of thousands strong, their spines making that constant percussive clatter that fills the water like radio static. Left alone they would mow the forest to bare rock, and in a few valleys they have: urchin barrens, eerie pink-and-purple deserts where the clatter is the only sound. What holds them back, mostly, are the wolffish — solitary, grey, magnificently ugly, jaws built like bolt-cutters — who den in crevices in the old rock and in the fallen tramway cables, and who eat urchins whole, spines and all, with a crunch you can hear from thirty feet away. Every wolffish den is ringed by a halo of crushed urchin tests, and every halo is a patch of forest that gets to exist.
+
+### The commons of the middle water
+
+The baitfish are less a species here than a kind of weather. The shoals pour over the drowned ridgelines in rivers a quarter-mile long, splitting around the kelp towers and re-fusing, flashing silver when they turn all at once — and they turn all at once because something is always making them. Pollock and big cold-water jacks come boiling up out of the valleys in coordinated raids. Squid rise at dusk in such numbers that the water column flickers. Seals fall on the shoals from above, cormorant-style, having learned to use the storm-shafts of light as hunting lanes — a fish dazzled by a swinging amber beam is a fish that doesn't see the seal in the dark beside it.
+
+None of these animals could be said to *reside* anywhere in particular, and yet the massif is unimaginable without them. They are its circulating blood. The fishery that made this place famous — richest in the world, over the bones of the oldest mountains in the world — is just this commons seen from above, through the eyes of people doing arithmetic.
+
+### The denned: seals of the steel rooms
+
+The seals are the massif's most established citizens in the way humans usually mean the word: they have addresses.
+
+There is no land here. No rock breaks the surface, no ice forms over water this restless, and a seal needs somewhere out of the water to bear her pup or the pup drowns in its first hour. The seals of the massif solved this with the wrecks. Several of the drowned structures — a processing barge gone down on its side, the upper stories of the old tramway terminus, one of the meteorological station's auxiliary domes — hold trapped air: pockets pinned against steel ceilings, silver and trembling, replenished every winter by the storm surge driving aerated water down into the structures. The seals found these rooms generations ago.
+
+So this is where the massif's seals are born: in pitch darkness, in a pocket of cold air inside a steel chamber forty feet underwater and three miles above the old coastal plains, the storm drumming on the surface overhead and the mother's breathing loud against the metal. The pups grow up amphibious in a way no seal ever was before — they learn to swim through a doorway before they ever see the sky. Divers who have surfaced inside one of these air-rooms (carefully, rarely) describe dozens of eyes reflecting the torch-light, and a smell of fish and iron, and a low communal murmuring, and absolutely no fear. The seals own those rooms. They know it.
+
+Topside, between gusts, you hear them barking — hoarse, conversational, carrying impossibly far in the thin cold air. It is very nearly the only voice the surface of the massif has.
+
+### The tenants of the bell
+
+The instrument tower on the high dome — the steeple that rings in heavy swell — is crowned, at its base, by the old station dome, and the dome belongs to octopus. It has belonged to octopus for as long as anyone has been looking, which is strange, because no octopus lives more than three or four years. The residency is not a family. It is an office, an inheritance, a *seat*, occupied by a succession of large solitary individuals who somehow find it, claim it, and hold it.
+
+The midden outside the dome's hatchway is the proof: crab shells in their thousands, layered like an archaeological dig, the bottom strata crushed and fused with coralline crust, the top fresh and pink. You could read a century of occupancy in it. The current tenant — there is always a current tenant — is generally enormous by the time visitors meet her, since the seat comes with the best crab-grounds on the summit. She watches divers with that unsettling horizontal pupil, rearranges her door-stones after they leave, and has been observed, more than once, emerging during the worst storms rather than hiding from them. The reason seems to be the bell. When the swell runs heavy and the tower tolls, the tolling means the canopy is tearing, and torn canopy rains down stunned and tumbling animals — and the tenant of the dome has learned, or inherited the learning, or reinvented it as each octopus reinvents everything, that the bell means food is falling. She hunts by ear in water gone white with violence, while the steel sings above her.
+
+### The elders of the valleys
+
+In the troughs between the summits — the drowned river-valleys, where the light fails and the eelgrass gives way to bare cobble and the temperature drops to something arterial — live the only inhabitants who remember the world before.
+
+They are sleeper sharks: vast, slow, the color of the twilight they patrol, their eyes clouded blind by parasites that have ridden them for decades, navigating by smell and by the pressure-feel of the valleys' walls. They are not native to the massif. They are native to the deep cold ocean that the massif's old coastal plains once overlooked, and when the water rose three miles, they simply rose with it — unhurried, unbothered, following the cold upward for a century until the cold reached the top of the world.
+
+A sleeper shark can live four hundred years. The largest individuals in these valleys were alive when these summits stood in open air — when the highland had wind in its grass and rivers in these very troughs they now swim along. They cruised the old abyss while the meteorological station was being built, while the tramway carried ore, while the last surveys were filed. They are the massif's living memory, in the most literal sense available, and they remember nothing, because they never knew. The drowning of the world registered on them, if at all, as a slow improvement in the territory. They eat the storm's casualties, and the wrack that sinks into the valleys, and occasionally a seal that lingers too long in the deep dark. They are the "larger shapes" of the troughs, and they will outlive every other animal currently alive here, and most of the steel.
+
+### The drifting nations
+
+The wrack rafts deserve their own entry in the census, because each one is, briefly, a country. When a storm tears kelp loose by the acre, the tangles knit together at the surface into mats sometimes a hundred yards across — and everything that lived in that kelp rides along: the holdfast cities, the blennies, the fingernail crabs, plus refugees, plus opportunists, plus the juvenile fish of a dozen species who use the rafts as nurseries and ferries. Storm-petrels, blown across half a hemisphere with nowhere to land, rest on the rafts — the only solid footing for a thousand miles. A raft lives weeks or months, drifting and slowly sinking, its population thinning and changing as it goes down, until it settles into a valley and becomes a banquet, and the valley's pale scavenger-crowds, and eventually the blind elders, take final delivery. Some of the massif's species exist *only* in this cycle — born in the forest, raised on a raft, settled in the dark. Their habitat is not a place. It is a sequence of catastrophes.
+
+### Who does not live here
+
+People. Not anymore. They visit — the survey boats, the rare diver, the occasional storm-fisher willing to work water with no lee anywhere — but no one stays, because there is nothing to stay *on*. The last person who could be said to have lived in the massif was the buoy-keeper, who maintained the navigation lights for eleven years after the shipping stopped, by all accounts because she could not articulate a reason to quit, and whose dory is now one of the wrecks, holding one of the air-rooms, full of seals. There are people who consider that a sad story. The seals do not.
+
+### The inhabitants of habit
+
+And finally, the machines — because by the standard this place sets, they qualify. The drowned massif defines living as *persisting under the storm without being changed by it*, and by that definition the tidal turbines are among its most senior residents. They turn. They have turned for longer than anything but the crusts and the sharks have been alive. They feed their trickle of power to the blinking lights, which warn no one, faithfully, every night. The seals navigate by their moan. The wolffish den in their footings. Whole reefs have organized themselves around the fact of that slow rotation, the way villages once organized themselves around a millwheel. The turbines did not intend any of this, but neither did the kelp. Purpose is not a residency requirement here. Endurance is.
+
+Beneath all of it, of course, is the one true native: the rock. The gneiss was here a billion years before the first holdfast gripped it and will be here when the last one lets go — the only inhabitant of the massif that has finished becoming what it is. Everything else, from the bell-keeping octopus to the blind elders of the valleys to the murmuring seals in their steel rooms, is tenancy: brief, loud, vivid tenancy, shouting on the shoulders of something that lay down ages ago and has nothing left to prove.
+
+That's who lives here. The patient, and the things the patient permit.

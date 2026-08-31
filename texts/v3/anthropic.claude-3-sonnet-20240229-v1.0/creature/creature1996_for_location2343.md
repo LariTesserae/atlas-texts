@@ -1,0 +1,13 @@
+Within this verdant, pulsating hollow dwells a peculiar symbiosis of life forms, both ancient and emergent, locked in a perpetual cycle of creation and reclamation. 
+
+At the heart of this droning cacophony reside the Spore Mothers - vast, sessile organisms resembling grotesque hybrids of fungus and animal. Anchored in the boggy earth, their mammoth fruiting bodies sprawl amid the tangled vegetation like bloated, membrane-veined husks. Quivering trunks as wide as redwoods support their massive, sac-like caps which perpetually slough off layers of fleshy spore masses in a continuous asexual birthing. 
+
+The spore clouds billowing from their distended forms carry a psychoactive mutagen that permeates the atmosphere, accelerating growth and forcing rapid adaptation in all life exposed to it. This uncanny evolutionary catalyst is responsible for the breakneck cycle of constant morphogenesis blurring the line between floral and faunal.
+
+Swarming amid these Spore Mothers are the Spawn - diminutive symbiotes that skitter, burrow, and take to the air in bewildering numbers and morphologies. Mere spore-seeds themselves give rise to these bizarre helical, compound, and radial lifeforms in staggering profusion and variety. They manically consume, pollinate, and propagate the sporulating organisms in a frenzied mutualism.  
+
+Some Spawn strains have evolved specialized biomechanical traits - hydraulic mandibled jaws gnawing through metal, acid-dripping tendrils corroding inorganic surfaces, chitinous tunneling forms burrowing through solid stone. These aberrant characteristics allow them to metabolize and incorporate the decaying human artifacts and machinery, reducing and integrating them into the ever-churning biomass cycle.
+
+Humanoid shapes can sometimes be perceived amid the roiling tangle, seemingly figures composed of woven vines, bioluminescent mosses, and crawling carpets of microfauna. These shambling vegetation golems are ambulatory extensions of the surrounding biomass rather than discrete entities. There is no true individuality in this unified wilderbeing, only an omnipresent morphic field of radically networked life striving in unison to persist, adapt, and overgrow any foreign element.   
+
+This protean ecosystem is the very embodiment of verdant resilience - a terrainly pulsing node of raw biogeological speciation. Metal, stone, and synthetic materials are ceaselessly subsumed and metabolized into this ever-mutating superorganism. A remnant manmade hollow has become the cradling embodiment of life's chain of being and the unyielding pressures of evolutionary becoming.

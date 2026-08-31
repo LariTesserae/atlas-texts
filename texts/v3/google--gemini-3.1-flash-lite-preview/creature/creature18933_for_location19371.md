@@ -1,0 +1,15 @@
+In this place where time hangs in a suspended exhale, the inhabitants are not creatures of distinct form, but rather manifestations of the humidity itself. They are the *In-Betweeners*, the soft, transient architects of the static.
+
+Because the air is thick enough to support them, they do not walk or crawl; they dissolve and reform, moving through the viscous atmosphere like ink dropped into lukewarm oil. To see one clearly is to see a distortion in the air—a subtle refraction, like heat rising off a highway, but trapped within the heavy, emerald dimness.
+
+They have no bones. To possess an internal skeleton would be an act of linearity, a rigidity that this landscape rejects. Instead, their "bodies" are shifting geometries of translucent jelly—a substance the color of a bruised plum or the underside of a rotting leaf. They are composed of a thousand vibrating threads, fine as gossamer, that branch out into the surrounding foliage like mycelium. They are connected to the mud, connected to the vines, and connected to the stagnant moisture; they never truly disengage from the environment that sustains them.
+
+Their faces—if they can be called that—are vestigial. They do not possess eyes, for there is no distance to gauge and no horizon to watch. Instead, they share the sensory awareness of the moss. They feel the environment through a web of nerve-fringes that ripple across their, skin, detecting the slightest shift in the humidity or the rhythmic grinding of the insect chorus. 
+
+They are the tenders of the stillness. They do not hunt, for there is no "before" or "after" to justify a meal. They feed on the tension of the moment, absorbing the surplus energy of organisms that are frozen mid-leap. As they glide through the vertical labyrinths, they leave no trail, only a slight, oily residue that vanishes as the air closes in behind them. 
+
+Among the tangled, thigh-thick vines, one might perceive a shape that is slightly *more* than the rest—a knot of fibers that has coalesced into the suggestion of a limb. It reaches toward a bead of water trembling on a fern, but it does not disturb the drop. It merely hovers, cradling the vibration of the water's surface, vibrating in perfect, agonizing unison with the insectile drone. 
+
+They are the guardians of the loop. If a creature were to die—if a leaf were to finally fall and shatter the symmetry of this place—the residents would be there instantly, not to scavenge, but to dissolve the anomaly. They would wrap their jelly-like filaments around the interruption, smoothing the jagged edges of change until the forest returned to its breathless, purple-lit perfection.
+
+They do not speak, for there is no need to communicate across gaps that do not exist. Their consciousness is a collective hum, a subsonic pulse that keeps the valley from waking up. They are the silence inside the noise, the soft, suffocating embrace that ensures nothing in this place ever has to face the indignity of tomorrow. They are the ultimate expression of the landscape’s desire: to remain, for all eternity, an unhatched, glowing egg, suspended in the dark.

@@ -1,0 +1,17 @@
+In this city live the Condensarii - beings whose bodies are a synthesis of biological and technological components, evolved specifically for this environment. They stand roughly humanoid in shape, but their skin is a translucent, membranous material that reveals the complex network of fluid channels beneath - channels that pulse with both water and a bioluminescent solution that gives each individual a subtle, unique glow pattern.
+
+The Condensarii don't walk so much as glide, their lower bodies capable of forming a cushion of pressurized vapor that allows them to move silently through their city. Their movements are deliberate and efficient, much like the city itself. They communicate through subtle variations in their internal luminescence and through controlled releases of vapor that carry chemical signals - a language of light and mist.
+
+Their "faces" are arrays of moisture-sensitive organs that can detect minute changes in humidity and temperature, allowing them to read the city's rhythms like we might read a newspaper. Their limbs can extend and become almost gossamer-thin, allowing them to reach into the narrowest maintenance channels or spread out to maximize their surface area for heat dissipation.
+
+The Condensarii don't sleep as we understand it, but rather enter periodic states of reduced activity during which they partially merge with their city's systems, their bodies plugging directly into the hydraulic network to share both energy and information. During these periods, their normally distinct forms become almost indistinguishable from the infrastructure around them.
+
+They reproduce through a process that mirrors their environment's water cycle - individuals combine their genetic material in specialized chambers where it's suspended in carefully maintained vapor, eventually condensing into new beings that emerge fully formed but small, growing through the absorption of energy and moisture from their surroundings.
+
+The maintenance drones aren't separate entities but extensions of the Condensarii themselves - like temporary limbs they can project to perform tasks in areas where their primary forms would be inefficient. These drones occasionally swarm together to form larger, more complex temporary structures when needed.
+
+The Condensarii have no concept of individual ownership - their consciousness flows through the city's hydraulic systems like water itself, creating a kind of distributed awareness. They experience themselves as both individual nodes and part of a larger, city-wide organism. Their memories are stored in the mineral deposits that gradually accumulate in the city's reservoirs, creating a physical archive of their collective experience.
+
+They are neither entirely organic nor mechanical, neither fully solid nor liquid, but exist in a carefully maintained state between these extremes. Their society is as carefully regulated as the moisture in their city, yet as adaptable as water itself - able to flow around obstacles and fill whatever space they inhabit with their particular form of life.
+
+The absence of conventional animal life is deliberate - the Condensarii have engineered their environment to optimize it for their own unique biology, creating a space where the boundary between living being and built environment becomes meaningfully indistinct. They are, in every sense, both the inhabitants and the soul of their city.

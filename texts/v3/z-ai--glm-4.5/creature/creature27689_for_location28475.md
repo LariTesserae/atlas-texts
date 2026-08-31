@@ -1,0 +1,25 @@
+If life here is an error, then what lives here is the mistake that learned to walk.
+
+At first, you see nothing but the shuffling of the hexagonal plates. The rhythm is steady: *click, hiss, slide.* But occasionally, a plate depresses deeper than the others, held down by a weight that is not water, not stone, but something with density and intent.
+
+It emerges from a vertical intake shaft, slipping out of the darkness like a clot of wet iron. It is low to the ground, a sprawling, asymmetrical thing that seems to have been assembled from the spare parts of the room itself. It is difficult to distinguish the creature from the "Total Built" environment; its back is a jagged carapace of hardened concrete, grey and pitted, seamless with the walls. It wears the geology of the room as armor.
+
+As it moves, the armor cracks. Along the creature’s flanks, the concrete shell splits and flakes with every motion, revealing the raw, slick darkness underneath. This is not muscle, but a pulsating lattice of black hydraulic hoses and synthetic fiber bundles. Where the concrete breaks, a bioluminescent fluid pulses—not red, but the same sickly, grey-green phosphorescence that bleeds from the walls. It glows faintly through the cracks in its shell, a lantern made of broken stone.
+
+It has no obvious head, only a forward-facing bulge in the carapace, studded with sensors that look like rusted rivets. It does not see the room; it tastes the iron static in the air. A series of breathing orifices line its sides—vertical slits that flutter open and shut, inhaling the cold static and exhaling jets of hot steam. The steam curls in the freezing air, mixing with the oily mist, giving the creature a perpetual, ghostly halo.
+
+Its limbs are the most disturbing part of its anatomy. They are too long, folding back on themselves like the legs of a crab, but constructed entirely of exposed, galvanized steel. There are six of them, ending not in claws, but in tools that serve no predatory purpose. Two limbs terminate in heavy, blunt tamping heads; two end in delicate, needle-fine nozzles; and the final two are simple hooks, worn smooth.
+
+It moves with a skittering, industrial gait. The steel tips of its legs spark against the moving floor tiles, *tick-tick-ticking* in time with the shifting plates. It is synchronized. It knows the rhythm of the "Hidden" scale. It steps onto a tile just as it locks into place, perfectly balanced, waiting for the shift before moving again. To survive here is to anticipate the mechanism.
+
+The creature stops near the central column, the source of the embryonic geology. The slurry oozes from the nozzle, wet and heavy. The creature approaches the spill, its movements slowing. It is not here to eat the mud. It is here to correct it.
+
+It extends a limb tipped with a tamping head and begins to tap against the fresh, wet rock. *Tap. Tap. Tap.* It is testing the cure. It listens to the resonance of the wet concrete. Satisfied, it extends a different limb—the needle nozzle—and sprays a fine, clear mist over the wet stone. The smell of sharp chemical accelerant cuts through the damp cement odor. The creature is an artisan of the incomplete. It helps the stone to set. It tends to the erosion that runs in reverse.
+
+On its back, amidst the concrete and the cracks, the "rust-colored fur" grows. It is the same mold found in the alcoves, but here it is cultivated. The creature allows the oxidation to bloom along its spine, a thick, velvet pelt of rust that it seems to prize. Occasionally, it curls one of its hook-limbs over its own shoulder to groom the rust, combing through the metallic fibers with an almost tender care. It feeds on the iron in the water, and in return, it carries the spores of the only vegetation in this world, a gardener of decay in a factory of creation.
+
+It is a lonely, ceaseless laborer. As the room sighs and the great gears grind in the gloom, the creature works its way along the base of the wall, spraying accelerant on the concrete stalactites, testing the firmness of the floor, grooming the rust on its back. It is a symbiotic glitch in the system—a biological component inserted into a mechanical simulation, ensuring that the rehearsal for a world continues without flaw.
+
+Eventually, the testing cycle of the room shifts. The lights dim further. The pistons heave in a sharp intake of breath. Sensing the change in pressure, the creature retracts its limbs. The concrete plates of its back slide together, sealing the glowing grey-green fluids inside. It folds into a shape that looks exactly like a pile of discarded scrap or a malformed rock formation. It goes still, indistinguishable from the "Total Built" chaos.
+
+In the silence, only the drip of water remains. The room practices being a planet, and the creature practices being part of the machinery, waiting for the moment the lights return, so it can walk again.

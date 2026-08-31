@@ -1,0 +1,37 @@
+They have no name for themselves because naming is a thing fast minds do, and nothing here is fast.
+
+Begin with the most numerous, because they are the ground-tone of the chord, the drone beneath the drone. Call them the **grazers**, though the word is too active. They are flat — palm-wide, hand-wide, some the breadth of a dinner plate — and they lie against the walls like lichen that decided to want. A grazer is mostly a single surface pressed to the accreting stone, and along that surface runs a slow mineral mouth, a band of hardened tissue that scrapes the fresh granular growth off the towers a grain at a time. You would not see one move. You would come back after a season and find it a hand's-width higher, climbing toward the unfinished crown where the building is youngest and softest, where the eating is good. They do not climb so much as *advance*, the way frost advances across a pane.
+
+The scrape of them is the lowest sound in the city. Multiply it by the uncountable. That is the floor of the chord, the sustained grinding hum you feel in your sternum: a hundred million slow mouths eating a city, in chorus, forever.
+
+The grazers do not see. They have never seen. They have no organ for it and no concept it could fill. They taste the wall — the chemistry of where the growth is freshest, where the rock weeps richest — and they go there, slowly, by the gradient, never deciding, only leaning. A grazer's whole life is a single lean toward sweetness that takes a century to complete. At the end of it, at the high crown of a tower, in the coldest fog, it stops. It does not die so much as *finish*. And the wall, still growing, lays itself down over the stopped thing, and folds it in, and the grazer becomes a seam of itself inside the next hundred feet of tower — fossil and foundation at once, eaten and eater, the meal becoming the table.
+
+Above the grazers, threaded between them, are the **callers.**
+
+These are the ones who make the tones, the held notes, the layered resonant voices the towers catch and amplify. A caller is longer than a grazer, a ribbed tube of the same patient mineral life, and where the grazer presses flat the caller stands a little proud of the wall, a half-pipe, a partial column, hollow. It feeds as the grazers feed — scraping, slow — but its body is shaped to *ring.* When it draws the wet air through itself, slow as a long exhalation, it sounds: one note, sustained for hours, shifting by quarter-tones as the creature shifts its own resonant length, growing a hair longer, settling a hair lower.
+
+The callers are not calling to each other. That is the first thing you would assume, and it is wrong. They are not signaling, not courting, not warning — there is nothing here to warn of, no predator that hurries, no danger that arrives in less than an age. They sound because sounding is how they *find the shape of the world.* A caller hears its own note return off the towers, off the fog, off the bodies of ten thousand other callers, and in that returning it knows where it is, how full the city is around it, how the architecture leans. They are a single distributed organ of hearing, and the chord is not their song — the chord is their *vision,* the only vision this place has ever needed. They see by sounding. They map the dark by drowning it in tone. And what they map, the whole plateau humming itself into self-knowledge, is too vast and too slow for any one of them to hold — so they hold it together, the way a coral holds a reef, the way no single cell holds the body it is.
+
+You, with your eyes, are deaf to most of what they know.
+
+Then there are the **menders** — though they neither mend nor intend, and I use the word only because of what they do.
+
+The mender is rarer, larger, and it does not graze. It moves — relatively; a mender can cross a tower's face in a decade, which here is a sprint — along the seams where the city is being unmade, where the water has worked into a crack and the cold has widened it and a slab of half-formed wall hangs ready to spall away into the fog and be lost. The mender goes to the wound. It does not heal it. It *lays its body across it,* presses into the failing seam, and there it draws matter from the wet air faster than its kin can, accreting itself into the gap, becoming wall. The mender does not repair the city. The mender becomes the part of the city that was about to be lost, and in becoming it, dies, and in dying, holds.
+
+So the towers do not fall, though they are always falling. The menders catch them by turning into them, one slow body at a time, century upon century, until a single old tower is a palimpsest of ten thousand menders who threw themselves into its cracks and stayed. The smooth old stone at the base of the city — the part that no longer feels granular under your hand, the part that has finished — is solid with them. The oldest, deepest, most finished stone is the most densely dead, and the most structurally sound, for the same reason. The city stands on its own self-sacrifice, fossilized, and does not know it, because knowing is fast, and this is not.
+
+And there is one more thing, and I am least sure of it, and it is the thing the whole place is *for.*
+
+In the very newest growth, in the soft granular crowns of the youngest towers, in the fringe of unfinished lattice that reaches up into the fog feeling for the next layer — something is being *grown* that is not yet a creature and is not merely a wall. The grazers will not eat it; they lean away from it, the only thing in the city their sweetness-gradient turns from. It accretes differently. It is laid down with a regularity that is not the regularity of mineral, a patterning, a recursion, the granular structure folding into itself in a way that begins — only begins — to resemble the ribbed hollows of a caller, the pressed flatness of a grazer, the wound-seeking shape of a mender, all at once, undifferentiated, potential.
+
+The city is breeding. Not the creatures — *the city.* The fauna and the architecture are not two things that happen to share a plateau; they are one slow organism at two phases of its life, and what I took for a city teeming with creatures is a single creature in the act of giving birth to its own next generation out of fog and weeping stone, so gradually that the distinction between *building a tower* and *bearing a child* has no meaning here, because here they are the same, the way burial and construction are the same, the way the meal and the table are the same.
+
+The grazers eat the city. The city is the grazers. The callers sing the dark into a map of itself. The menders die into the cracks and hold the whole thing up with their finished bodies. And at the top, in the cold and the fog and the single deep shifting chord, something new is being assembled, grain by grain, that will lean and scrape and ring and mend in its turn, for ages, finishing nothing.
+
+You asked what lives here.
+
+Everything. One thing. It has not finished being born, and it never will, and that is not a failure of the place — that is the place. It is alive the way a slow fire is alive, the way a glacier is alive, the way the chord rolling out across the plateau is alive: not in any single voice, but in the refusal of the whole to ever fall silent, ever finish, ever stop leaning toward the next molecule of itself in the patient, weeping, sourceless dark.
+
+It does not need your eyes.
+
+But it heard you come.

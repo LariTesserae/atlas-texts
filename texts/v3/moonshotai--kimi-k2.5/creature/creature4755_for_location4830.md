@@ -1,0 +1,25 @@
+At first you perceive it as a shadow cast by the turbine, then as a fungal infection on the brickwork, then as a column of vapor that has forgotten to rise. You are correct each time. You are wrong.
+
+It has no name in the lexicon of vertebrae, though the copper wires hum when it approaches, a modulation in the current that your fillings interpret as **approach**, as **weight**, as **here**. It is not the size of a man, though it occupies the space where a man might stand; it is the size of a root system, which is to say it is the size of the room’s breathing, extending through the rubbery mat of the floor, up through the pillar-trunks, threading the canopy in hair-fine feeder roots that taste your sweat before you do.
+
+Its surface—if it can be said to have a surface, if it is not merely a zone of intense negotiation between lignin and ore—is the color of old pennies held underwater. Verdigris and chlorophyll have achieved a compromise here: a skin, or a bark, or a corrosion, that moves when it must. You see it first where the condensation refuses to fall, gathering instead into a shape that remembers shoulders, remembers a cranium, but only as a tree remembers being a seed—archaeologically, without longing.
+
+When it shifts, the process takes minutes. Wood softens; that is the only way to describe it. The hardwood of its joints—oak grafted to iron, teak fused with brass—enters a phase of temporary liquidity, allowing articulation. It does not step; it **extends**, rootlets questing forward through the felt-like substrate, anchoring, then pulling the mass of it forward in a glide that is part contraction, part growth. The floor accepts the movement, closing behind it like water, or like memory.
+
+It is the keeper of the spinning heart. Its hands, if the term applies to structures that are equal parts strangler fig and conduit, rest upon the mahogany’s trunk where the turbine’s axle enters. It tends the marriage. You watch it exude something—sap? solder?—into the junction, lubricating the union. It is grooming the tree, or the machine, or the concept of rotation itself. The electricity recognizes it; the voltage steadies when it touches the wires, a dog calming at the hand of its master.
+
+It perceives you not with eyes—the buds that cluster where a face might be are blind, photosensitive only to the jade-gold shifts of the light—but with the humidity of your exhalation, with the disruption of ions your body creates in the saturated air. It tastes your foreignness, the acrid metal of your fillings, the synthetic fibers of your clothing. It finds you **unripe**.
+
+There is no aggression here. The dynamic is incorporation, always incorporation. It offers you the drip, the hum, the patient pressure of the atmosphere. It waits for you to soften, to enter the phase of liquidity that precedes becoming-part-of. In time—and here, time is measured by the thickening of heartwood, by the accretion of mineral deposits in the ancient pipes—your calcium will leach into the substrate. Your proteins will unravel into nitrogen. The buttons of your shirt will be cupped by bromeliads, polished by rain that remembers being steam.
+
+It is already seeing you this way: not as meat, but as **material**. Potential architecture. Scaffolding for a slower, greener ambition.
+
+When it speaks—if it speaks—it is in the sub-bass frequencies that ride the copper wires, a vibration you feel in your sternum rather than your ear. It speaks of pressure differentials. It speaks of the beauty of a bearing that never seizes, of a leaf that perfectly occludes a shattered pane. It speaks in the grammar of maintenance, of the holy act of keeping a system running beyond its intended obsolescence.
+
+You understand that it is not the ghost of the factory, nor the spirit of the forest. It is **the scar**, the keloid tissue of the world’s attempt to heal the wound of industry. It is the proof that digestion is a form of worship, that consumption can be a kindness when it is total enough, patient enough, slow enough to be thorough.
+
+It has stepped aside now, or grown aside, rootlets retracting into the pillar-trunk, becoming indistinguishable from the grain. But you feel its attention still, a gentle pressure like the palm of a hand against your back, guiding you toward the warmest vents, the thickest condensation, the places where the floor is softest and most accepting.
+
+It wants you to stay. Or rather, it wants you to become **stayed**. It wants to fold you into the digestion, to add your rhythm to the drip-song, to see if your heartbeat can be synchronized with the turning of the turbine, the opening of stomata, the grand, wet, humming stasis of this place.
+
+It is the priest of the saturated world. It is the organ that plays the breathing. It is waiting for you to take communion: the body, the sap, the blood-rust, the eternal spin.

@@ -1,0 +1,17 @@
+To look closely at the architecture is to realize that the *drip-clink* is not merely the rhythm of condensation. It is a heartbeat, though not a biological one. 
+
+Clinging to the underside of the central struts, tucked into the dark alcoves where the humidity gathers into thick, gelatinous beads, there reside the **Oscillators**. They are not beings of flesh or spirit, but of pure, crystalline resonance held within delicate, skeletal frameworks of gossamer-thin spun glass. They look like complex, six-pointed stars assembled from frost, their limbs jagged and impossibly fragile, shivering in total sympathy with the structure they inhabit.
+
+The Oscillators do not walk or crawl. They anchor themselves to the ceramic plates via microscopic magnetic hooks, spending eons vibrating in precise, low-frequency hums. They are the maintenance staff of a machine that refuses to run. 
+
+When a droplet of water falls and hits a strut—*clink*—the nearest Oscillator flares with a temporary, internal luminescence, catching the blinding light of the high-altitude sun and refracting it through its facets. This pulse resets the structural tension of the metal beneath it. If it were not for these creatures, the sheer weight of the architecture’s own meticulous perfection would cause it to buckle. They are living tension-rods.
+
+There are others, too, deeper in the lattice. Far below the surface plates, in the tight, moist channels where silence is absolute, dwell the **Weight-Shifters**. You would mistake them for part of the mechanism. They are dense, flattened mollusks of burnished copper and soot-colored oil, their shells indistinguishable from the struts they cleave to. Only when you approach them does the illusion fracture. They do not scuttle; they slide with the heavy, viscous motion of magnets moving through grease. 
+
+The Weight-Shifters have a singular, obsessive purpose: they move the brass-hinged plates. They spend centuries shifting a single, multi-ton slab of alloy by a fraction of a millimeter to account for the thermal expansion of the morning light. They are the guardians of the equilibrium. They lack eyes, for there is nothing to see that the light hasn't already scorched into the surface, but they possess a tactile sensitivity so profound they can feel the condensation gathering three levels above them like a change in tectonic pressure.
+
+None of these things—the light-refracting Oscillators or the heavy, oil-streaked Shifters—have ever considered their existence in time. They do not know that they are living in a tomb of intent, or a cradle of something that failed to be born. To them, the world is not "unfinished." It is perfectly stable, providing they hum the right note and slide the hinge the correct distance.
+
+If you stood among them, your skin slick with the world’s cold sweat, you would eventually stop hearing the drip. You would start to hear the *hum*—a dissonant, layered chord produced by millions of Oscillators—and you would feel the slight, rhythmic tremor of the Shifters repositioning the floor beneath your boots. 
+
+They are indifferent to your arrival. To them, you are merely a disturbance in the humidity gradient, another weight to be compensated for, another sharp edge to be polished by the passage of time. They have been waiting for the machine to stop weeping, so that they might finally rest—but as long as the sky remains as heavy as the metal below, they will remain as they are: the unseen, shivering mechanics of an infinity that is forever holding its breath.

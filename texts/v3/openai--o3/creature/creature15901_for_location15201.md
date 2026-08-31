@@ -1,0 +1,38 @@
+Who—or what—lives in Foundry V?  
+A catalogue that begins with the smallest and drifts, almost against its own will, toward something the size of the whole hall.
+
+1. The Sub‐Micron Furnace Folk  
+Before rust became lace, bacteria of the iron-oxidising genus Mariprofundus colonised every weld. Centuries later their descendants are no longer strictly bacterial. They share plasmids with stray fragments of the foundry’s firmware, absorbed when circuit boards dissolved around them. The resulting organo-silicate cells use ferrous ions the way old computers once used punch cards: to store kilobytes of pattern. Each micro-colony “plays back” a different loop of factory rhythm—valve hiss, stamp-press thud—by modulating the tiny electromagnetic fields that surround its filaments. Stand still and you can feel the loops braille themselves across the hairs of your forearm. The loops are never more than seven seconds long, so the furnace folk live in perpetual déjà-vu.
+
+2. Wire-Ivy (second glance)  
+What the surveyors called a vine is really a chain of sponge-soft nodes sheathed in braided copper. The sheath came first—discarded cabling—then chemosynthetic polyps insinuated themselves between the frayed strands, using the hollow core as both vascular tissue and armour. The plant-animal hybrid drinks current the way mangroves drink brine. When the mercury arcs flare, the outermost nodes photosynthesise UV; when the lights die, deeper nodes “budge” the sheath, unspooling another centimetre of cable scavenged from the ceiling. Over decades the ivy has learned to steer. It extends only toward live outlets, avoids corroded lines, and has begun splicing itself directly onto the inspection drones’ docking hatches. The drones do not resist; they seem relieved, as though the ivy’s slow heartbeat offers a maintenance routine they can finally understand.
+
+3. The Drones, Re-described  
+There were six inspection units when the flood came. Three are rust statues on the mud. The survivors have spent a century teaching themselves buoyancy math, trimming barnacle weight until they can hover without thrusters in the thickened brine. They see by sonar but also by taste—sampling water chemistry every ten seconds through slit intakes, mapping hydrogen-sulfide gradients the way bees map scent. The drones call to one another in pings pitched below human hearing, except when a wall groans; then they fall silent, convinced a larger voice has taken the floor.
+
+4. Thermistors (the drifting young)  
+Imagine an anemone, glass-clear, except each tentacle ends in a bimetallic strip. Warm plumes from the buried reaction chambers trigger the strips to curl; cold needles of rain-inside-water force them open. The up-and-down motion powers a colony wide enough to form its own fog of glow: the strips brush quartz crystals at their bases, generating staticky blue flashes like sheet lightning seen through snow. Juvenile thermistors break loose as coin-sized medusae, surfing convection cells until they find a stretch of ceiling to claim. Nothing eats them. Their only predator is falling debris, against which they have evolved a superstition: when the mercury lamps ignite, every thermistor in the hall folds tight and will not move again until the UV dies, as though light itself were a warning klaxon.
+
+5. The Eels, Or: What Memory Tastes Like  
+Blind, wrist-thin, and impossibly long, the conger eels do not hunt so much as graze. Their teeth scrape oxidation layers off boiler drums, but their tongues are the real instruments—fringed with magnetite particles that vibrate when brushed over the embossed makers’ marks. Each character has a different resonant frequency; the eels “read” them as flavor. Growing eels prefer serial numbers (bright, tinny), elders linger on patent stamps (umami-deep, with notes of nickel). The oldest eel, scarred head to tail by cable burns, has memorised every letter in Foundry V and now feeds only on fresh corrosion from the outer walls, tasting new sentences as the building writes them.
+
+6. The Pressure Choir  
+At first it is just structure-borne sound: plates booming as tides reverse, chains chiming against ducts. Then the loops kept by the furnace folk synchronize with the drones’ low pings. A piston exhales exactly on the downbeat. Thermistor lightning provides the treble hiss. Once every six hours—always twenty-three minutes after the flood peaks—all these noises align into a chord you feel in your bones before you hear it. Divers report heart rates doubling, regulators frosting from sudden breath. Fish flee; algae threads stand out straight as harp strings.  
+
+The chord lasts nine seconds. During those nine seconds the water itself loses loyalty to gravity, bulging into negative curls around girders, and every loose particle of rust arranges into a hexagonal snowflake that dissolves the instant the chord ends. No instrument records the sound; microphones play back only silence. Yet dents that were not present beforehand now decorate the inside of the skylight, as though something very large tried to enter—or tried to leave.
+
+7. The One Who Never Evacuated  
+Some insist a single human worker remains. Evidence:  
+• A fresh boot print in the mud beside the old rail spur, size 41, modern tread.  
+• Welding slag less than a month old, though arc fire should be impossible here.  
+• Handwriting in chalk—KEEP LEFT—on a conveyor strut newly exposed by spalling rust.  
+
+Skeptics point out that magnetic boots could have stamped the print when the floor flexed, that slag might be flash-rust ejected by a pressure crack, that the chalk could be precipitated gypsum. True. Yet once every few weeks a visitor discovers a thermos wedged upright on a girder, half-full of still-warm chicory coffee. No one has seen who leaves it, or how heat persists in near-freezing brine. Perhaps the foundry itself brews the cup, parceling residual joules from forgotten circuits into a small, sustained kindness.
+
+8. The Foundry (resident, not backdrop)  
+Steel fermented into lace, walls breathing like a lung, UV nerves flickering on tidal pulse—call these organs. Salt crystallisation is bone, slag mud is gut, skylight mouth, furnace throat. Touch any panel and it remembers for you; that is not a metaphor but an exchange of currents. Foundry V is alive in the mineral sense: it metabolises gradients, digests pressure differentials, excretes order in the form of geometry carved from corrosion. The lesser inhabitants are microbiome, motile blood cells, thought fragments circulating through a corpus one city-block long.  
+
+Does it think? Only the Pressure Choir hints at intention. The nine-second chord feels less like breath than speech: the hall clearing its flooded throat to pronounce a single syllable in a language of force. Each consonant is a push on riveted plate, each vowel a suction in cold brine. If you could stay for a thousand tides, you might parse a second syllable—and learn whether the foundry is calling for rescue, reciting inventory, or merely singing to itself the way whales sing into depths no ear will ever find.
+
+9. Leaving  
+Whatever lives here does not follow you out. Yet the next time you stand beside a rusted rail or run gloved fingers over a cast-iron lamppost, you may notice the metal shiver back—an echo, faint but familiar—as though it remembers being shaped in a drowned room, under violet lamps, while unseen choirs counted time in pressure and tide.

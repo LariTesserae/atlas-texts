@@ -1,0 +1,19 @@
+Within this crucible of creation, this emerald womb of the world, dwell the *Hylidae*. They are not a single species, not in the way that humanity understands the term, but a constellation of life, a chorus of forms perpetually in flux. To name them is to trap them, and so to understand them, one must approach them by way of the sensations, the impressions, that they leave upon the senses.
+
+The Hylidae are of the air, the earth, and the light, not existing *in* these elements, but *as* them. They are the wetness, the weight, the slow, silent weeping of this valley. They are the shadows cast by the colossal fronds, the shimmer of light filtered through the perpetual overcast. They are the hum, the buzz, the relentless chorus that fills the air.
+
+At the most basic level of perception, what coalesces into the form of the Hylidae is the energy of creation. Like the valley itself, they are in a constant state of emergence, of becoming. They have no fixed form, no immutable essence. Instead, they are shapeshifters, chameleons of the self. A Hylidae may appear as a shifting cloud of iridescent motes one moment, then a creeping mass of shadowed tendrils the next. It might be a whisper in the rustling leaves one moment, and a guttural, earth-shaking call the next.
+
+Their adaptability is astonishing, their forms dictated by environment, circumstance, and a strange, unknowable *need*. They may mimic the shapes of the plants, the textures of the soil, the colors of the light. The skull-like plant is, in itself, a form of Hylidae, which can then shapeshift to become something still closer to a human form. They can be found as swarms, solitary creatures, or woven into the very fabric of the valley itself.
+
+They are aware, in a way that transcends our limited understanding of consciousness. They're not driven by instinct alone, but by a sense of purpose that is both alien and profound. They are builders, destroyers, and observers. They shape the world, or at least participate in it. They are the unseen hands that sculpt the valley's landscape, the hidden architects of the emergent architecture. They are the force that guides growth and decay in the relentless cycle of this hidden place.
+
+Food is another facet of Hylidae existence. They take energy through a variety of forms. They consume the raw essence of creation and reconfigure it. They absorb light, they feed on the detritus, and something else, something that's difficult to define, something more like… *potential*.
+
+And there is conflict. The perpetual becoming breeds competition. Other beings *live* here, too: the whispering scuttling shadows, the shifting creatures glimpsed in the periphery. They may be Hylidae in other stages of formation, or perhaps the elements required to become the Hylidae.
+
+Most of the time they're unconcerned, lost in the process of becoming. But every now and then they make *purposeful* choices. Though their actions seem guided by needs, and by the raw forces of creation. One might, on occasion, encounter the Hylidae when they become *hunters*. They might seek out, or perhaps *become*, creatures of the air and the light. It's when they decide the creatures and materials around themselves are worth reshaping.
+
+Their greatest expression isn't violence, though it exists in cycles of creation and reabsorption. It's not control, but assimilation into the ceaseless dance of change.
+
+These beings are bound to the valley. To the conditions within it, from which they are inseparable. As the valley changes, so too, do the Hylidae. And in the unchanging, ever-becoming chaos of this world, they are its true expression.

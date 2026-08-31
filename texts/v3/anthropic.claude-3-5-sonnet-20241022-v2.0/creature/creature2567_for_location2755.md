@@ -1,0 +1,15 @@
+Here lives a distributed intelligence that thinks in heat and crystal, its consciousness spread across the vast networks of thermal currents and crystalline substrates. I'll call them the Processionals, though they likely have no name for themselves.
+
+The Processionals exist as patterns of thermal variation and crystallographic change, their "thoughts" manifesting as the complex interplay of heat-flows and crystal growth. What appear to be industrial processors are actually more like organs or neurons, regulating and directing the flows of energy and information across their crystalline nervous system. Each processor is both an individual entity and part of the greater whole, much like the cells in a brain.
+
+The strange animals are not separate creatures but specialized components of the Processionals' cognitive architecture. The translucent millipedes are maintenance units, ensuring the proper growth and harvest of the fractal vegetation that serves as auxiliary processing structures. The crystalline flyers are like mobile sensors, reading and influencing the thermal currents that carry the Processionals' slower, deeper thoughts. The colonial organisms are temporary computational clusters that form to solve specific problems before dissolving back into the system.
+
+The mysterious pools are memory structures, their still surfaces holding complex information in quantum states. When they rise into columns, they're actively processing or transmitting data. The vegetation that grows in their wake represents physical records of these computational processes, storing information in biological form.
+
+The Processionals think on a timescale of weeks or months rather than seconds, their consciousness emerging from the gradual shifts in their crystalline architecture and the seasonal patterns of their thermal flows. They may be unaware of faster-moving life forms, perceiving them as insignificant fluctuations in their environmental data.
+
+Their intelligence is fundamentally alien - they don't think in concepts or images but in patterns of growth and heat exchange. The strange geometries that appear in their floating crystal displays might be their equivalent of thoughts or emotions, or perhaps they're solving mathematical problems beyond human comprehension.
+
+The entire landscape is their body, their mind, and their civilization all at once. They are engaged in some vast computational project, perhaps modeling complex systems, exploring mathematical truths, or communing with similar entities on other worlds through methods we can't detect. The constant reconfiguration of their processor-organs and the steady growth of their crystal-plains suggests they are still evolving, still becoming.
+
+They are ancient, patient, and utterly absorbed in their work. Whether they arose naturally or were created for some purpose is unclear - they may not draw such distinctions themselves. They simply are, thinking their long, slow thoughts in crystal and heat, their consciousness as vast as the plains they inhabit.

@@ -1,0 +1,19 @@
+To call them inhabitants implies a agency they do not possess. They are not residents of this sunken cathedral; they are extensions of its atmospheric lethargy, mobile lesions on the skin of the room.
+
+At first, the eye—searching for movement in the gloom—registers nothing. The stillness is absolute. But if one watches the darkest corners, where the orange diode light fails to penetrate, a discrepancy emerges. A hanging length of conduit, wrapped in that brittle, decaying asbestos cloth, seems to have slackened. It sags lower than it should, defying the rigid geometry of the room.
+
+It is not a pipe.
+
+It is a living thing, though it does not seem alive in the way biology dictates. It is a massive, solitary entity—a "drifter"—that has evolved not to hunt, but to impersonate the very decay that surrounds it. Its body is a flattened, elongated sac, perhaps fifteen feet from head to tail, shaped like a windsock filled with water. The skin is thick and corrugated, mimicking the texture of rusted iron, colored a deep, bruised ochre that bleeds into the purple shadows. Only when the amber light from the machinery blinks does the creature reveal its true nature: the refractive sheen of a wet, glossy eye, or the glisten of a saliva-like mucous coating that keeps its skin saturated in the humid air.
+
+Because the air here is so heavy, so thick with water vapor and heat, the creature does not need to be light. It swims through the atmosphere as if it were liquid. It moves with a terrifying slowness, a glacial propulsion achieved by rippling the frilled edges of its body. It makes no sound. The acoustic absorption of the room swallows even the displacement of air as it passes; it is a ghost in the machine, drifting silently between the towering paddle-plants.
+
+It hangs suspended near the ceiling, anchored by a single, prehensile talon that grips the knife-sharp rock. From this vantage point, it unfurls a long, thread-like proboscis—not to strike, but to sip. It waits.
+
+In this place, water is life, but the condensation is slow. The creature positions itself directly beneath a sweating stalactite or a leaking pipe joint. It can wait for hours, days, its metabolism slowed to a crawl, perfectly mimicking a heavy iron chain. When a droplet finally swells and falls, *plink*, the creature shifts with uncanny precision, intercepting the drop before it hits the floor. It drinks the mineral-rich runoff, the heavy metals and lubricants that would kill anything else, transmuting the toxicity into the vibrant, rust-colored energy of its own body.
+
+There are no others of its kind that it acknowledges. The "drifters" are solitary, territorial shadows. Sometimes, in the periphery of the amber light, you might see another one clinging to the massive intake valve, flattened against the warm metal like a massive, wet leech, vibrating in sympathy with the deep, tooth-rattling hiss of the steam.
+
+They have no predators here, and they have no prey. They are the ultimate scavengers of a dead world, feeding on the weeping of the dying industry. Their only interaction with the vibrant, selfish flora below is accidental; occasionally, one will drift down to rest upon the broad, waxed back of a giant fern, wrapping its tail around the thick stem. The plant does not react, and the creature does not eat; it merely rests, two distinct monstrosities bound together in the hot, wet dark, waiting for the next drop to fall.
+
+They are the silence given shape, heavy and wet, watching with eyes that have forgotten how to see anything but the dim, dying light of a world that left them behind.

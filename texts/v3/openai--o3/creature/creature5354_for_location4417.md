@@ -1,0 +1,40 @@
+What follows is not a catalogue so much as a slow unscrolling, layer by layer, of everything that persists here in the hush. Begin as small as the place feels large.
+
+1. The first lives: sub-grain organisms  
+Before any shape you might call a “creature,” there is the motile dust itself. Each particle that gleams like powdered porcelain is mantled in a lattice of catalytic nanolichens—true cells, but pared down to almost geometry. They harvest the fractional warmth of sunlight and the minute voltage that accumulates where salt crystals fracture. In ultraviolet they look like snowflake mosaics sliding across one another, endlessly solving for new tessellations. Their waste product is a faint photon glow so weak the human retina ignores it; the plateau’s native animals do not.
+
+2. The static riders: tessellids  
+Scale up another half order of magnitude and the dust becomes floorboards for the tessellids. They resemble origami spiders whose legs are pleated plates rather than joints. Each plate is charged by ion pumps that comb electrons from the air; with every clickless step the creature skates a few millimetres above the ground on repulsive force, never quite touching. A tessellid’s lifespan is the interval between two synchronised sporefalls of the glassy plume ferns—about a century—yet it never stops moving. When its plates finally lose charge, the animal folds itself flat, becomes one more tile in the ground’s vast mosaic, and is quickly over-grown by the nanolichens from which it once fed.
+
+3. The mineral-blood gastropods  
+Porous gastropods perforate the crust like peppered holes in paper. Picture shells that are less sculpture than sieve: thousands of capillary pores drink the morning rime of frozen noble gases. Within, the creatures run the gases across iron-salt membranes, extracting oxidants the way terrestrial lungs extract oxygen. The process produces a whisper of heat, enough to keep an inner slurry liquid even at the plateau’s thermal baseline. Their only movement is peristaltic drilling; a full grown individual may travel six body lengths—perhaps six centimetres—in a lifetime.
+
+4. The serpuloid masons  
+The plateau’s labyrinth of capillary burrows is bored by serpuloids, thread-thin cylinders of translucent chitin no thicker than vermicelli. They eat silicate directly, excreting it behind them as vitreous tubes that harden into glass. Every terrace wall, every slope too smooth for age alone, is undergirded by their silent plumbing. When two networks meet, the animals seal the junction with anastomosing knots that ring like quartz wind-chimes if struck—though nothing here ever strikes them.
+
+5. The amphipodal striders  
+From a distance a strider could be mistaken for three charcoal sketches moving in loose convoy. Each is a segment shaped like a tapered almond; slender gas bladders splay beneath them as if the animals walked on bubbles. The buoyancy is real: argon distilled from the dawn rime is trapped, heated a degree by metabolic trickle, and provides lift enough that the segments must continuously lean on one another to keep from drifting upward.   A strider feeds by lowering a fan of comb bristles and simply waiting; static-riding tessellids skate into the trap, are sifted upward and dissolved in an internal bath of acids potent enough to etch glass. The only sound a strider ever makes is at death. Once its metabolism stops, the argon cools and contracts; the body slams to ground, fractures, and petrifies inside an hour. These sudden sculptures are the plateau’s only truly new monuments.
+
+6. The sky plankton  
+Above head height, life thins to forms nearer idea than flesh. Filaments of ionised mucus—magnerescein—hang in curtains kilometres long, conducting the auroral charge that forever lingers here. On the curtains ride beads of protoplasm that split by fission when currents peak, then drift apart like verses seeking new stanzas. Their dim, color-shifted glow is what lets human eyes see stars at midday: the filaments polarise scattered light, turning the sky into a lens.
+
+7. The calibrators: makers of the cairns  
+Everything so far can be explained—slow biology, cold chemistry, patient selection. The calibrators are the point where explanation stumbles.
+
+You will not spot one from a distance. Approach a cairn and you may find a shadow shaped like a stooped figure, though there is no body to cast it. The shadow does not fall with the sun’s angle; it cleaves to the cairn itself, sliding around the stacked shale as you circle. Remain motionless and the shade may extend an arm that is only absence, pluck a wafer from the pile, examine its edge for a long, flat minute, and return it to a new orientation. When satisfied, the shadow folds into the hollow that contains the nodule of impossible starlight and is gone.
+
+The calibrators leave tracks: parallel scratches in the dust exactly the distance between two human clavicles. They own tools—obsidian gravers whose edges scintillate with spectral orders invisible to matter. The tools are never carried; they simply accompany, appearing where needed the way a word appears under a scribe’s pen.   No one has seen a calibrator begin or end. Scholars who mapped hundreds of cairns found that if they numbered the stacks in order of apparent age, the sequence encoded the prime factors of the plateau’s astronomical longitude, as it would read from a neighbouring universe. The implication is tolerated, never accepted.
+
+8. The listeners in stone  
+Sometimes, when a traveller succumbs to the silence, they press an ear to the ground and claim they hear music. Break a slab and you might glimpse the authors: dendritic iron crystals sprouting in patterns that mirror ancient river deltas. Along those branches drift vesicles of magnetite filled with a single spiral strand of amino magnetochrome. The strands flip polarity in complex cadence, strumming the bedrock like a great, slow instrument. Whether this is life in any strict sense, or merely a geological reflex, one cannot decide. The effect on the human nervous system is the same as music, so perhaps that is qualification enough.
+
+9. The inevitable colonists: humans, briefly  
+Every few decades a research team arrives—geologists, xenobiologists, ontonauts studying warped causality. Each group brings its own hope of being the first to understand. They pitch smart-tents that promptly lose count of their own folded surfaces, watch instruments smear their readings into useless median lines, and finally sit on the pale dust eating compressed rations that taste of nothing.  
+In time they begin to speak more softly, then not at all. Most go home with data that will not reproduce. A few remain, seated in a loose ring half a kilometre apart, each building tiny imitations of the shale cairns with gloved fingers. When relief ships land, the colonists rise, look about as if surprised to have bodies, and accept evacuation. They never remember what they were calibrating for.
+
+10. What lives deepest: the stillness itself  
+Beyond any taxonomy there is the ruling organism: Stability. Not just a condition, but a vast, diffused predator that feeds on variance. Every heartbeat, every eddy of wind, every quantum coin-flip that wanders too far from mean is taken, gentled, and flattened to equilibrium. The plateau is its visible integument. All other inhabitants are either symbionts—those who have found niches within immobility—or transients passing through the digestive tract of perfect sameness.
+
+If you stay long enough you will feel the touch of its cytoplasm around your intentions. First you find yourself treading only level ground, then you shorten your stride to match the tessellids’ rhythm, and finally you forget quite why you needed to go anywhere else. At that moment you truly belong here: another silent life, tall perhaps, complicated in anatomy, but no more likely than the rest to disturb the hush.
+
+The plateau will keep you. It keeps everything that knows how to be quiet.

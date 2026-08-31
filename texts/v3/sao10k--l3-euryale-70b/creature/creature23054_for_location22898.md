@@ -1,0 +1,9 @@
+Deep within the sweltering confines of this pocket realm, an ecosystem thrives in the shadows and the heat. Fungal hyphae carpet the stone floor in a patchwork of pulsing, bioluminescent caps. These ethereal growths undulate in arrhythmic patterns, casting dancing shadows on the dripping walls as if lit by an unseen lantern.
+
+Huddled in the rocky nooks and crevices, bizarre creatures wriggle and scuttle about. Their bodies are a mottled patchwork of translucent flesh with a fuzzy, growth-ridden patina. Multiple limbs propel them in jerky motions as they smile vacantly to themselves. These lunar moths of the deep flick out needle-like tongues to taste the steamy air. Glimpses of teeth flash within their minds as they lurch and crawl in the furrows of rock.
+
+The very space itself seems to twist and reorient, surfaces flowing smoothly into one another. Down becomes up, bottom flips to top, and there is a breathless sense of a greater, incomprehensible pocket contained within the cavern shell. With each blink, the fungal clusters and glassine wands may shift and transform or remain static in their momentary peace.
+
+The air trembles at the edge of perception, a volatile pudding quivering with unrealized potential. In the stillness, only the insects skitter and the fungal growths exhale softly from their crested pustules on the walls.
+
+Suddenly, the bugs scatter in alarm. A segmented shape, a thick umbilical cord of flesh studded with barnacles and rippling with muscles, pushes into view. The tubular mass extends a barbed proboscis knobbed with spikes, disgorging radiolescent spores in its wake. An endless rope slave slithers forth, gouting an ovoviviparous tip that dribbles progeny against the wall and glassy ceiling. The offspring wriggle into high, lens-shaped openings, fermenting them with rancid ooze that weeps from overlooked cracks.

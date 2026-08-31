@@ -1,0 +1,21 @@
+The Hollow of the Mother-Trunk does not merely *contain* life; it **is** a life-form, a slow, resonant entity in its final, mineralized phase. What dwells within is not a collection of creatures, but an integrated system converging towards silence:
+
+1.  **The Wall-Itself:** The primary "life" is the fossilized structure of the ancient trunk. It is the foundation, the medium, the slowly vibrating skin. It provides the minerals, the architecture, the faint warmth, the salt-taste. It is the ultimate passive organism, its fossilization an ongoing process of self-reclamation, its surface sculpted by the sound its inhabitants produce. It *hums*.
+
+2.  **The Slow Minds (The Plants):** These are the chamber's active consciousness, however alien. Pale, fleshy, brain-like fists emerging from the mineral wood, connected by nerve-like roots. They are:
+    *   **The Phosphorescent Weavers:** Creators of the faint, cold light. Their slow mineral-chemistry feeds them and illuminates the gloom just enough to make the darkness *active*.
+    *   **The Resonant Choir:** Their trailing, vibrating filaments are not voices but **nerves of the air itself**. They generate the overwhelming, shifting chord – the chamber's heartbeat, its speech, its weather. They are reactors to each other's vibrations and the chamber's resonant shape. Communication is not intent, but **physical sympathy**, a vast feedback loop of sound-pressure-mineral.
+    *   **The Ceiling Heart (The Inverted One):** The dominant presence. Hanging like a calcified, inverted heart or chandelier, older and larger than the others. Its deep bass vibration is the foundational tone, felt in the bones. Its roots reach *upward*, a slow, futile probe towards an outside it senses but cannot reach. It is the most likely locus of any nascent "awareness" of enclosure – a plant dreaming of light it has never known, growing into stone.
+
+3.  **The Echo-Eaters (The Settlement's Legacy):** There are no people here now. What remains are:
+    *   **The Stone Grid:** The orderly, empty rooms built from the trunk's own substance, slowly merging back into the floor. They are fossils of intent, architecture dissolved by time.
+    *   **The Notation Ghosts:** The shallow carved marks on the walls. These are not life, but **fossils of attention**. They record the slow, immense shifts in the sound – a testament to minds that once listened, counted, and tried to map the resonance. They are the only evidence of complex intelligence, now eroding at the same geologic pace as the walls they adorn. The *idea* of listening persists in the marks, long after the listeners are gone.
+    *   **The Tool Sediment:** The heavy, simple tools of mineral-stone, sinking into the floor. Artifacts becoming geology.
+
+**What "Lives" Here Now:**
+
+*   **A Mineral Symphony:** The sound itself is a living phenomenon – shifting, evolving, shaped by and shaping its container. It is the dominant presence, filling the space, defining experience.
+*   **Slow Convergence:** The plants growing, the walls eroding by sound, the settlement dissolving, the roots reaching. Everything moves imperceptibly towards a final state: the chamber solid, the sound silenced, the phosphorescence extinguished. A fossil of a fossil.
+*   **Resonance as Identity:** The chamber's identity *is* its resonance. The plants are its generators, the walls its amplifiers and resonators, the sound its voice, the eroding settlement a fading memory of another kind of intelligence that once listened.
+
+**In essence, The Hollow is a single, vast, slow-motion organism in its senescent phase.** Its "life" is the process of its own quiet, resonant self-consumption – minerals drawn from walls, sound etching those walls, ancient artifacts becoming new bedrock. The plants are its nerve clusters, the sound its vital sign, the inverted one its dreaming heart. The people who lived here were temporary passengers who left only fading etchings of their attention. What truly lives, persists, and defines the space is the **resonant chemistry of stone becoming stone again**, accompanied by a choir of fleshy, phosphorescent minds that neither know nor care, only vibrate and grow in the absolute dark, towards a silence that is still a hundred million years away.

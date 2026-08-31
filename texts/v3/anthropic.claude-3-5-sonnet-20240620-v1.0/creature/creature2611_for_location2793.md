@@ -1,0 +1,19 @@
+The inhabitants of Riverhold are as diverse and adaptable as the city itself, a unique blend of humans and other beings who have evolved to thrive in this ever-shifting aquatic environment.
+
+The majority of the population consists of the Riverfolk, humans who have lived in Riverhold for generations. Their skin has a slight bluish tinge, and many sport webbed fingers and toes, adaptations that aid in swimming and navigating the city's watery streets. Their hair tends to be thick and water-resistant, often adorned with small shells or water plants. Riverfolk move with a fluid grace, equally at home on the floating walkways or in the shallow waters below.
+
+Amphibious humanoids known as the Marshwalkers also call Riverhold home. These beings stand slightly taller than the average human, with elongated limbs and large, expressive eyes adapted for seeing clearly both above and below water. Their skin is mottled in shades of green and brown, providing excellent camouflage in the surrounding wetlands. Marshwalkers are known for their deep connection to the natural world and often serve as intermediaries between the city and the wilder elements of the marsh.
+
+A small but influential population of Steamwrights inhabits the industrial areas of Riverhold. These individuals are easily recognizable by their brass-colored skin and the intricate, clockwork-like patterns etched across their bodies. Steamwrights are masters of the city's steam-powered technology, their bodies partially fused with mechanical components that allow them to interface directly with the machinery they maintain.
+
+Floating through the mist and waterways are the ethereal Mistforms, beings of semi-corporeal vapor that can shift between a humanoid shape and a formless cloud at will. They are thought to be the spirits of the marsh itself, manifesting in the city to observe and occasionally interact with its inhabitants. Mistforms are rarely seen clearly, their presence often marked only by a thickening of the mist or a vague, shimmering outline.
+
+The waters themselves are home to schools of Luminants, fish-like creatures about the size of a human hand that glow with bioluminescence. These beings are semi-sentient and play a crucial role in Riverhold's ecosystem, purifying the water and providing much of the city's nighttime illumination.
+
+In the upper levels of the taller buildings, colonies of Skyweavers make their homes. These avian humanoids have hollow bones and feathered arms that function as wings. They are master artisans, creating intricate tapestries and structures from materials harvested from the sky itself - condensed mist, solidified sunbeams, and woven clouds.
+
+Beneath the city, in the murky depths of the floodplain, dwell the reclusive Mudshapers. These amorphous beings of living clay rarely venture to the surface but are vital to maintaining the city's foundations. They can manipulate earth and stone with their thoughts, constantly adjusting and reinforcing Riverhold's underpinnings to keep it stable amidst the shifting waters.
+
+Lastly, scattered throughout Riverhold are the Chronomancers, ageless beings who appear human but are said to exist partially outside of time. Their eyes swirl with temporal energies, and they move with an unsettling stillness, as if the world is moving around them rather than them through the world. Chronomancers are the keepers of Riverhold's history and are rumored to be able to glimpse possible futures, helping guide the city through the ever-changing landscape of the marsh.
+
+Together, these diverse inhabitants create a complex society that mirrors the fluid, adaptive nature of Riverhold itself. Their interactions and relationships are as dynamic as the city they call home, constantly shifting and evolving to meet the challenges of life in this unique aquatic metropolis.

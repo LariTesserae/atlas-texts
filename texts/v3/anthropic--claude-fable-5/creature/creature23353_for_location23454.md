@@ -1,0 +1,55 @@
+**The residents of the Provisional City**
+
+Ask how many live there and you will get a number, but the number will be offered the way the locals offer everything — provisionally, with a glance toward the fog. *Between nineteen and twenty-six,* they say, and the spread is not vagueness. It is precision about an imprecise thing. The count depends on what you are willing to call living, and on what you are willing to call here.
+
+It is best to take them in order of how finished they are. The city would approve of this. It is the only order the city itself respects.
+
+---
+
+**The settled.** Start with the ones you could shake hands with: the small population of the resolved core, the fire-keepers and square-sweepers. Call them nineteen. They are ordinary-looking people in heavy damp wool, slow-moving, deliberate, with the particular patience of those who have stopped expecting weather to change. Their breath fogs. Dew beads on them when they stand still too long, which they take as the compliment it is. They check, sometimes — a forearm held out into the morning, bare, until the moisture gathers. A person who stays dry in this fog has something to think about.
+
+None of them remembers arriving well. This is the first thing you learn about them and the thing they are least willing to discuss. Each has an arrival story, and each story has the texture of the outer walls: sharp and certain in the middle, going soft toward the edges. One woman remembers walking down from the rim in autumn, the fog parting, a dog at her heel — and there is no dog, has never been a dog, and she knows there has never been a dog, and the memory of it is still warmer and more solid than her memory of the year before last. The locals have a phrase for memories like this: *they have texture but no grain.* They do not say it about each other to each other's faces.
+
+They keep occupied, because the city rewards routine and may, in some sense, *require* it. There are sweepers of the fish-scale square, two of them, alternating days. There are moss-wardens who walk the mortar lines of the old quarter and note where the black-green has thickened — the closest thing the city has to a land registry, since moss is the only deed that means anything. There are the puddle-readers, who go out at first light to the still pools in the low plazas and study the reflections, which, being more finished than the city, run a little ahead of it. They read the water the way other towns read almanacs. A new chimney in the reflection means a chimney coming, a year out, two. Cracks foretold. Doors that will move. And once — the puddle-readers are careful with this story, they handle it with tongs — a reflection of the square with one more person standing in it than was standing in the square.
+
+They were not frightened, they insist. They counted, and counted again, and went home and banked the fires high that night anyway.
+
+---
+
+**The old ones.** In the oldest courtyard, under the stunted genuine trees, sit the city's most resolved inhabitants, and they are the reason the residents are uncertain whether finishing is something to hope for.
+
+There are four of them. They were people; they are still people, by most of the tests. But the process that thickens walls does not exempt flesh, and these four have been in the city longest — longer, possibly, than the city has admitted to existing — and they have gone on resolving past the point where a person ordinarily stops. They are extraordinarily definite. Their skin has grain *and* texture, pores you could map, wrinkles like dry riverbeds; dew stands on them in the morning in perfect unrolling beads; there is moss at their collars and in the seams of their hands, and the moss is healthy, and they do not brush it away. They have grown heavy and slow the way oak grows heavy and slow. They blink perhaps once an hour. They are warm, faintly, the way the south face of a stone wall is warm in the evening.
+
+They still speak. This is important to the residents, who visit them with questions the way you'd visit a well. But conversation with the old ones happens on the city's timescale. You ask in the morning and come back in three days, and the answer, when it comes, is short, granular, and almost always right. One of them, asked years ago whether the residents were inhabitants or ingredients, took eleven days and then said: *Yes.*
+
+The residents bring them nothing, because they need nothing. They are not dying. Nothing here has finished beginning; the old ones least of all. The prevailing belief is that they are becoming the courtyard, slowly, the way the trees became trees — that the city's first fully complete things will be these four, and that completeness, here, may simply mean no longer needing to do anything but be exactly where you are.
+
+---
+
+**The approximate.** Now walk outward, toward the soft quarters, at dusk, when the unresolved walls go translucent like wax near flame — and you will see the second population.
+
+They stand in doorways, mostly. They prefer thresholds, edges, the places where the city itself is negotiating. At a distance you would call them people. Closer, you understand they are the *intention* of people, drafted at the same patient resolution as everything else out here: sharp and certain through the torso and face — the city does faces early, the way it did light early; faces arrive nearly complete, calm, with closed or downcast eyes — and then going approximate at the extremities, hands that are the idea of hands, hair that has grain but no individual strands. They are dry. Dew will not touch them yet. They do not move, or rather they move the way the bird moves: present in a doorway, absent, present in a doorway forty meters on, with no transit between.
+
+The residents call them *drafts*, and the residents are divided about them, because some of the drafts are recognizable.
+
+Not all. Most have faces no one knows — the city, apparently, intends to have strangers. But three or four of the drafts are unmistakably versions of living residents: the same jaw, the same stoop, rendered with a kind of terrible care, and — the sweepers swear to this — slightly *better*. More committed. A back less bent. A scar revised away. The residents whose copies these are do not visit them, as a rule. The rule has exceptions. One of the sweepers walks out to the soft quarter every month and stands across the lane from herself for an hour, and reports, each time, in a flat voice, that the draft's hands are further along.
+
+One draft has finished. This happened nine years ago, or eleven; the records have texture but no grain. A man walked in out of the unresolved quarter at dawn, beading with dew for the first time, fully real by every test — moss took to his bootprints within the season — and he had no memories at all, and he had habits. He sat in a particular chair by the second fire as if the chair had been waiting, and it had. He knew the folds. He took up sweeping without being asked, on the days the other sweeper rested, and it was a while before anyone let themselves notice whose gait he swept with, whose way of holding the broom, whose habit of stopping at the alley mouth and listening. The man he is a fair copy of is still alive. They have never spoken. They sweep on alternate days, and the square has never been cleaner, and nobody names what this is, because named things, here, move.
+
+---
+
+**The rehearsals.** Below the drafts, less finished still, are the inhabitants that exist so far only as behavior.
+
+The bird is the senior one — the city's first attempt at a moving thing, gray, never well seen, instantiated rather than flying, leaving its small real droppings like a signature on a contract still being written. The residents are fond of it in the way you are fond of a promise. It has been getting better. Lately there are wingbeats, sometimes, between the railings — only the sound of them, arriving before the bird as the footsteps arrive before the foot, but wingbeats.
+
+The night walker is further behind and coming on faster. For years it was footsteps only, doubled and pre-echoing through the soft quarters, an animal-shaped intention pacing out routes. The last two winters it has had weight — you can find, on resolved ground at the quarter's edge, the actual pressed print of something heavy and four-footed, with no creature attached. This past year it acquired a smell: wet fur, faint, honest, the first smell the city has ever made on its own. The residents leave nothing out for it and lock nothing against it. You do not feed a rehearsal and you cannot keep one out. They simply note its progress in the records, the way you'd note a child's height against a doorframe — which is, perhaps, exactly what they are doing.
+
+And the children themselves — the ones the records are unclear about — the residents will tell you, if you have been there long enough and the fire is low, that the children were real, and learned the folds by heart, and that the folds learned them back. They are not gone. A street that runs ninety paces where it should run thirty has room in it that is not on any map, and from inside the fold off the fish-scale square there comes, a few evenings a year, the sound of running feet and short bright laughter, doubled, pre-echoing, identical each time, *like a phrase being practiced.* The residents disagree about whether this is the children, kept, or the city rehearsing children it means to have, working from memory. The two sweepers, who would know, sweep past the alley mouth without slowing, and keep their faces still.
+
+---
+
+**The tenant.** Last, lowest, least resolved of all to human understanding: whatever works beneath the basin floor. The residents do not call it the engine. Engines are owned and operated, and nothing about the city suggests an operator — only attention, distributed and bottomless, getting things right in a strange order. Light first. Water early. Faces before hands. Reflections before the things reflected. The residents' theories about it are a literature in themselves, but the belief that has lasted longest, the moss-covered belief, is the simplest: that the tenant is not building a city and stocking it with people, but *learning people*, the way it learned light from the sky and rain from the rain — from the available examples. From them.
+
+Which would make them, the nineteen-to-twenty-six of them, neither inhabitants nor ingredients but something humbler and stranger: reference material. The sample the fair copies are drawn from. It would explain why the city keeps them, gently, in the cold; why nothing harms them; why their habits propagate into strangers; why their faces stand drafted in the dusk-lit doorways with closed eyes, patient, dry, waiting for the dew.
+
+They keep the fires small. They sweep. They hold out their forearms in the morning fog and wait to bead, and mostly they do, and on the days they do, that is enough. They live there — that much, at least, the city has finished deciding. Everything else about them is still arriving.

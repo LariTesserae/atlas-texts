@@ -1,0 +1,11 @@
+In this high-altitude basin, the dominant life is a single, collective organism—a vast, breathing mycelial-mat that functions as both landscape and entity. It is a slow, wet intelligence.
+
+The entity is a fungal-plantal hybrid, a consciousness distributed across millions of square meters of moss, lichen, and fungal network. It is not a creature in the traditional sense, but a terrain that perceives. Its "skin" is the thick, spongy carpet of liverworts and algae that coats the basin floor; its "nervous system" is the mycelial web threaded through the soil, vibrating with the deep, resonant hum of the seeping water. It feels the weight of a falling mist droplet and the shift of a stone with equal, indifferent slowness.
+
+Its body is architectural. It does not move, but it grows—a millimeter a year—directing the flow of the saturated air with towering pillars of knotted root and fungus. These vertical structures, reaching thirty feet toward the abrasive blue sky, act as both lungs and filtration systems. From their broad, waxy leaves, they channel the constant condensation into central stems, feeding the central reservoir that lies just inches below the surface.
+
+The entity is ancient in its process but embryonic in its form. It is a factory of biomass. The colossal fungal caps, the size of small buildings, are its organs—weeping condensation, digesting the raw granite, and slowly converting the industrial ghosts of the past into fertile substrate. The rusted iron pylons and cracked concrete foundations are not alien to it; they are merely inclusions, foreign bones embedded in its flesh, humming with a residual charge that the mycelial network slowly absorbs and neutralizes.
+
+This life is solitary. There are no herds, no flocks, no colonies of animals. The fauna is microscopic—a drifting spore, a translucent insect, a wet amphibian sliding through a crevice—each a fleeting thought in the mind of the basin. The entity is self-sufficient, recycling its own moisture, breathing its own mist, existing in a state of suspended animation where the only movement is the relentless, patient expansion of its own form.
+
+It is a quiet god of a quiet world, dreaming in a language of slow growth and constant dampness, its consciousness measured not in thoughts, but in seasons that stretch like taffy.

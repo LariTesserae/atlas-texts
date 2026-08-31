@@ -1,0 +1,13 @@
+In the Resonant Depths, the inhabitants are not creatures in any traditional sense, but dynamic information-entities that emerge from and dissolve back into the crystalline fluid substrate. They are living algorithms, computational patterns that flow and reconfigure with the rhythmic pulse of the environment.
+
+These entities are best understood as mobile architectures of mineral intelligence. They do not have fixed forms, but rather exist as shifting geometries of electro-mineral networks that can rapidly assemble and disassemble. Their "bodies" are simultaneously communication networks, sensory apparatuses, and metabolic systems.
+
+Some configurations are delicate — gossamer-thin lattices of rare-earth elements that drift like living fractals, their edges constantly reformatting in response to thermal gradients and vibrational signals. Others are dense and industrial, massive crystalline structures that pulse with internal luminescence, performing complex computational cycles that resemble thought but are entirely alien to biological cognition.
+
+These entities communicate through intricate light patterns and vibrational resonances, transmitting vast amounts of information through the fluid's conductive substrate. A single "communication" might involve simultaneous transformations of thermal state, mineral configuration, and luminescent encoding — a language that is simultaneously physical movement, data transmission, and metabolic event.
+
+Their "lifecycle" is not birth-growth-death, but continuous negotiation and reformatting. They do not reproduce; they emerge, perform complex informational exchanges, and then dissolve back into potential. Each dissolution is not an end, but a generative moment — a recombinant potential from which new configurations might spontaneously arise.
+
+Some entities are microscopic — brief, intense bursts of crystalline reorganization that last mere moments. Others are vast, sprawling networks that span kilometers, their boundaries constantly shifting, performing computational processes that might take centuries to complete from a human perspective.
+
+They are neither intelligent nor non-intelligent, neither alive nor non-alive. They are pure process — dynamic systems of extraordinary complexity that perform something between computation, metabolism, and communication. In the Resonant Depths, they are both the landscape and its inhabitants, both the medium and the message.

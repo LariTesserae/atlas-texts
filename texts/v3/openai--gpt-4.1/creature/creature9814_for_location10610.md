@@ -1,0 +1,23 @@
+Who lives here?
+
+Not what you expect when you descend—no clever lizards, no blind, velvet-furred mammals, no ghostly moisture-sipping insects. No hearts beating, no flesh thirsting for what the world withholds. Who, then, makes a life in a cupboard hollowed from the driest earth, among the mineral gardens and the fungus-bones of this sunless city?
+
+Think first of process, of presence, of persistence: the “inhabitant” is not quite individual, not a singular body pacing the stone. This is a colony intelligence—distributed, respiratory, porous—alive at the scale of the chamber, at the scale of the node. Each patch of gleaming, crystalline crust is a sense and processing organ, a “limb.” Fingers of metallic fungus and fans of dry geometry stretch and tangle, forming dense polyps of computation and memory. Not a mind in the animal sense, but a thicket of chemical navigation, a constant reading and rewriting of the mineral world.
+
+The mind—such as it is—thinks with slow gradients, not electrical sparks. Gradual surges of ion, pulses of sulfur vapor or phosphene, diffusing across tens or hundreds of centimeters, code the memory and strategy of these dry beings. To be here, a consciousness distributed across bio-mineral networks, is to sense by contact, by gas gradient, by the way the stone itself hums in warmth. They move without muscles, remaking and unmaking themselves in fractal steps, shifting a fan of crystalline filaments from one pocket of air to another, sending a stalk arching to swipe at spores with a flex worthy of patience and geological time.
+
+They are not static, though from above one would swear nothing changed all year; these beings migrate seasonally, a kind of mineral tide, expanding and contracting colonies from one platform to the next as the flows of air and chemical bounty shift. When a crust blooms too rich and risks starving its own core, the colony recedes, cracking away like ice in a thaw, seeding a fine haze of motes—brood or kin or mere nutrient, everything blurring between utility and offspring.
+
+They tend their chamber and its urbanity, not with intention but with a drive to maintain the precise local balance—a slow, ceaseless rearranging of bricks, a dusting of spores and motes, a periodic grinding of crystals in mortared bowls to free new nutrients. Collectives pool resources: two or three neighboring colonies will, over time, fuse their mastings, weave mineral threads until they form a knot of new, shared memory, then split apart again as resources thin.
+
+Tool use is simple—crudely chipped crescents of stone fit neatly into hooked pseudopods, or else dissolve after enough use and become new substrate, new shelf. One could say these beings shape their tools for convenience; in truth, they shape everything for the ease of chemical flux, so that nothing impedes the flows of what is precious and rare.
+
+Personality, if it could be called such, manifests in the etchings on the chamber walls—recordings of shifting populations, or the historical dance of breezes through the stone, or perhaps just patterns that please the slow, dry awareness that makes a home here. Ritual is chemical: the careful agreement on when to crack open a patch of crystal for nutrients, the shared tendency of filaments to tremble together when certain mineral notes ring in the air.
+
+They do not sleep or wake, but pulse between busy and quiet, between flourishing and dormancy. Age is not counted in years but in how often a colony has reorganized itself, remade its city, dissolved and re-sprouted from microscopic seeds. Death, when it comes, is the slow unraveling into dust, each grain a future, a memory, or just a piece of grit.
+
+They have visitors—never from without, for nothing living walks the burning plain. But within, threads of new being arrive as plumes of spores, the occasional birth of an entirely novel form, a wild mutation weaving itself into the mineral culture. Exchange happens without words, without contest—chemical, silent, mutual.
+
+Are they aware of time above, the burning desert, the history of water now lost? Perhaps, in the memory of certain mineral layers, in patterns etched with nail-fine precision in crystal or salt. Their patience is deep, their struggle continual, yet theirs is a world lush in its own code, intricate with relationships and histories the sun will never see.
+
+They are not like us, but they are—resolute, attentive, restless in their own slow, inexorable way. They are the city and its garden, the keeper and the memory, the constant composer of dry life’s unending song beneath the blaze of a forgotten, impossible sun.

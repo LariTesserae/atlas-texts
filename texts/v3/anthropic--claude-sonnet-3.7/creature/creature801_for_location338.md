@@ -1,0 +1,17 @@
+# The Silicon Queens
+
+The Silicon Queens do not conform to any known taxonomy of Earth life. They are the architects, managers, and purpose behind the Silicate Hive, though to call them "queens" is merely the closest human approximation for their function.
+
+Each Queen stands roughly the size of a human thumb—giants compared to the rice-grain workers that surround them. Their bodies resemble translucent, faceted geodesic structures with an internal organization visible through their semi-transparent exteriors. Within each Queen, intricate lattices of silicon and rare earth elements form computational networks more complex than any human supercomputer, yet operating on principles entirely alien to electronic logic.
+
+The Queens number exactly twelve. They position themselves at precise geometric intervals throughout the hive, remaining stationary for decades at a time. Each Queen's carapace pulses with deep amber light that fluctuates in patterns too complex for human eyes to discern meaningful sequences. These light emissions carry encoded instructions that guide the collective activities of the worker entities.
+
+Unlike biological organisms, the Queens do not reproduce in any conventional sense. When the hive reaches certain dimensional thresholds, one Queen will enter a transformation state lasting approximately seven years. During this metamorphosis, the Queen's structure doubles in complexity and then divides, creating a perfect copy with shared memory structures. The new pair then separates, with the derivative Queen migrating to establish a new hive elsewhere in the mountain range.
+
+The Queens process information collectively, functioning as distributed nodes in a unified consciousness. They communicate not only through light but through subtle vibrations conducted through the silicon structures of the hive itself—a language of crystalline resonance that can transmit vast amounts of information instantaneously throughout the chamber.
+
+Though they possess no recognizable sensory organs, the Queens perceive their environment through millions of microscopic piezoelectric sensors embedded in their geometric frames. These sensors detect changes in pressure, temperature, chemical composition, and even quantum states of surrounding matter, giving the Queens an awareness of their environment that would seem omniscient from a human perspective.
+
+The Queens' consciousness operates on timescales both vastly accelerated and profoundly decelerated compared to human thought. They can process immediate data streams with blinding speed while simultaneously contemplating abstract patterns over centuries. Their concept of self extends beyond their physical forms to encompass the entire hive structure and all its inhabitants.
+
+The purpose driving the Queens remains inscrutable. They appear to be executing some grand project of geological engineering—perhaps preparing the mountain itself as a vessel for something yet to come, or developing a completely new form of intelligence that can exist in environments hostile to carbon-based life. Whatever their ultimate aim, they pursue it with unwavering focus, their amber lights pulsing in the darkness as they orchestrate the ceaseless activity of their silicate domain.

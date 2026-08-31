@@ -1,0 +1,43 @@
+It is not empty. It only looks empty if you are looking for the wrong shape of life.
+
+At first you think no one lives here because you are looking for something about your size, moving at your speed, making noise at your volume, interrupting the space the way a person interrupts a room. You look down the vast, absurdly wide avenue between two factory-walls and see nobody. You look into the vaulted hollow where a single chair has been grown over and see nobody. You listen and hear only ticking water and sap breathing.
+
+Then you learn to see the movement that is not supposed to be movement.
+
+The walls are moving - you already noticed that - a millimeter a minute. But not all of that movement is growth. Some of it is *travel*.
+
+Stay still. Let your eyes unfocus in the greenhouse dusk, in the light that comes from below, from the fungal seams and the green glow of the vats. Don't look for a figure. Look for a place where the bark is slightly wrong.
+
+There - on the vertical of what was once SUB-STATION 3, where the brick has been swallowed and the living wood has bulged around an old electrical box. The bark there is not bark. It is a back.
+
+What lives here lives *as* the wall.
+
+They are not large. If you tried to measure one you'd get a different answer depending on which street you measured it from, because they are part of the same wrongness that makes the streets longer when you aren't looking. But if you coaxed one out into the middle of the avenue - which you never quite can, they don't like open space - it would stand about as tall as your chest. Perhaps taller when it stretches.
+
+At a glance you would call it an insect, and then immediately correct yourself.
+
+It has too many joints to be anything you have a name for, but not so many that it becomes monstrous. Six limbs is the usual number, though the hindmost pair are often folded so tightly against the body that you count four until it moves. The limbs are not legs, not arms - they are both. They end not in hands or feet but in divided rootlets, a spray of pale, slightly damp fingers as fine as the aerial roots of a banyan, each one tipped with a dark, iron-colored nail that can grip copper pipe or soft cambium with equal care. When it walks on a wall - and it almost always walks on a wall, or a ceiling, rarely the ground - it does so with a slow, deliberate, gecko-like spread, its belly never quite touching the bark. It is the color of the factory it tends: mottled basalt-black and wet bark-brown on the dorsal plates, and underneath, where you only see it when it reaches across a vat, a pallid, almost translucent green-white, like mushroom flesh or the underside of a leaf.
+
+Its back is not a back. The dorsal plates are not shell. They are bark that has grown over it. True bark, living, with lichen freckling the edges. Some of them have old human things embedded in that bark as if the plant-town grew *through* them the same way it grew through brick: a ceramic insulator half-submerged between the shoulder plates, a rusted hinge, a loop of insulated wire from which a single amber bulb still burns, carried like a lantern. Not decoration. It grew there. They do not remove it.
+
+They have no face the way you expect a face. Where a head should be there is a smooth, inverted gourd, the same pale green-white as the underside, featureless except for a dense fringe of fine filaments around its rim - not hair, not antennae, but something like the cilia of a fern frond, constantly trembling, beading with condensation. No eyes. Eyes would be useless under the canopy dome where light is made from within. The filaments are its eyes. They read vibration in the wood, they taste the chemistry of the sap in the air, they feel the static from the old copper still humming in the walls. When one of them turns toward you - and they will, eventually, with a slow, hydraulic swivel - the fringe flares slightly wider, pearls of water catching the vat-light, and you feel, quite distinctly, that you have been *listened to*, not looked at.
+
+This is what lives in the low place, and there are many of them, and that's why the town feels empty.
+
+There are perhaps a few dozen in that small bowl, which is too few to fill the avenues, and too many to ever see at once, because they are almost never in the open. They inhabit the negative space of the architecture the way the moths inhabit the air between buildings: thinly, in the thickness of walls, in the hollow behind a vat, in the crawlspace where a root-wall has pulled away from a brick-wall leaving a damp, humming gap. They fit the vaulted emptiness by not using it the way you would. You walk on the floor. They walk on the inside of the vault itself, upside down thirty meters up, moving with absolute unconcern for gravity. Gravity here is polite but not committed, and they are the ones who came to an agreement with it. You see a street grow longer while you walk it; they see a shortcut wrinkle and step through it because they never looked directly at the end.
+
+They are cold the way the stone is cold. Not exothermic; iso-thermic with the place. If you touched one - and if one let you - it would feel cool and faintly damp, like touching the inside of a gourd. Their blood, if you could call it that, is sap cut with something coppery. You can smell it when they prune - a thin, sweet, metallic tang, like cut green wood and old pennies.
+
+Because pruning is what they do.
+
+They are not builders, though they build continuously. They are not workers, though they work without pause. They are tenders. Gardeners for a factory that is also a forest that is also a town.
+
+Watch one for an hour. Time pools here, so an hour may be twenty minutes or a whole night, but watch.
+
+It will emerge from a seam in a wall with no door, the bark parting like lips. It will traverse the vault ceiling to the great leaf-conveyors - those pale, living belts that pulse pods along their midribs. The pods burst as they travel, scattering seeds that sprout into hovering ferns. The tender catches the ferns mid-air with its rootlet-fingers, folds them with surprising tenderness, and tucks them into a flap on its own back where the bark is thin and wet. It will tend a sap vat - a room-sized gourd that glows green - by inserting two limbs directly into the churning sap, shivering, filtering, humming at a frequency you feel in your teeth more than hear. It will, with a single precise clip of its iron-nail, snip a runner that was growing too fast toward a still-burning streetlamp, and the cut will weep clear water that the tender will drink, bending its gourd-head down to sip.
+
+They speak, but not to you, and not in sound. When two meet on a wall - which they do rarely, for they keep distances that feel intentional - they press their filament fringes together. The condensation between them flashes briefly, brighter, and a shiver runs down the wood. Sap-chemistry, vibration. The wall itself carries the sentence. PLEASE DO NOT PRUNE, some human hand wrote on living bark. They pruned anyway, or they obeyed, depending on what the wall needed that day.
+
+They are not human, though human is in them. In the deepest vat-chamber, where the light never reaches and the air is thick enough to drink, there are shallow pools of the chain-river that have been cupped and warmed by roots. In those pools, translucent salamanders and blind fish are not the only things that breed. Clustered along the warm edge, tethered by umbilical runners to the mother-wall, are smooth, closed buds the size of fists. If you peeled one open - don't - you would find not a leaf, not a seed, but a curled, pale shape with six limb-buds and a gourd-head folded down, its dorsal plates still soft as mushroom, its iron nails still unhardened. They bud there. They were budded by the town after the town learned how to make something that could keep it alive.
+
+And if you stay too long in the low place - because it is quiet and the work is hypnotic and the condensation beads so beautifully - you will notice a different kind of wrongness settling on you. Your breath will start to make a smaller cloud. Your skin will stay damp. You will stop noticing that the distances are unstable because your legs will have learned to walk without measuring. You will find yourself standing very still in a shaft of fungal light, not because you are tired, but because stillness is more efficient. And a tender passing overhead will pause, flare its filaments, and for a half second you will not be sure whether you are looking at an inhabitant, or whether it is looking at a new place on the wall where something could grow.

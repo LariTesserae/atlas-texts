@@ -1,0 +1,15 @@
+To inhabit the Mycelial Metropole is not to possess a body in the traditional sense, but to participate in a negotiation. 
+
+Here, the residents are the **Mycelarchs**—entities that are less "individuals" and more localized eddies in a vast, subterranean stream of consciousness. They have no skin, nor do they strictly require it, as the climate of the Lowlands provides a cocoon of humid, pressurized air that acts as a sensory membrane for everything within it.
+
+When you see a Mycelarch, you are watching a colonial ambition take shape. They appear first as a smudge of bioluminescent violet against the slick, ochre bark of the dais. Then, they bloom. They are spindly, elegant architectures of semi-translucent hyphae, tall as a person but gossamer-thin, branching out into fractal lattices that twitch in rhythm with the pulsing ground. 
+
+They do not walk; they resolve. A Mycelarch wishing to move across the dais simply retracts its support structures, allowing its consciousness to dissolve into the local filament network, traveling as a ripple of electrochemical intent through the floor, to then "re-bloom" a dozen yards away.
+
+Closer inspection reveals that they are not empty shapes. Within their woven chests—which are more like decorative cages than organs—glow small, trapped clusters of iridescent spores. These are the archives. Each spore contains a memory, a snippet of genetic history, or a fragment of a song hummed by the ancestors of the Veingate. The Mycelarchs are the librarians of the rot; they spend their cycles meticulously rearranging these spores, exchanging them with one another through delicate, antenna-like filaments that brush together like the legs of insects.
+
+They have no faces, though they often manifest "gaze" by orienting their most concentrated clusters of light toward phenomena that interest them. When they communicate, they don't use sound. Instead, they modulate the ozone concentration in their immediate vicinity. A conversation here is felt as a sudden, sharp clarity in the air, a metallic taste on the tongue, followed by a profound, damp warmth that settles behind the visitor’s eyes.
+
+Yet, there is a frantic, hungry edge to their existence. They are curators of a hungry home. Occasionally, the floor beneath them buckles, digesting a section of tower or a cluster of stagnant air, and the Mycelarchs react with frantic, synchronized grace, weaving new support webs in real-time, knitting the architecture back together with liquid enzymes spat from their center-nodes. 
+
+They are the caretakers of a living machine, and they are terrified of stasis. If the Veingate stops pulsing, if the fermentation slows, the Mycelarchs know they will simply harden into cold, brittle driftwood. So, they dance. They weave. They keep the ozone sharp and the decay rapid, ensuring that in the Metropole, nothing ever truly ends—it only changes shape.

@@ -1,0 +1,28 @@
+In the Vermilion Sump, the distinction between "resident" and "architecture" is porous. There are no citizens here, only varying degrees of biological function within the great, vegetative lung. To live here is to be a component of the machine, a cog made of meat, or a ghost in the circuitry of the canopy.
+
+**The Architects of Mucus**
+The primary sentient force—and it is a force, not a singular species—are the Architects. They are not born; they are extruded.
+
+In the translucent cysts that hang like glowing fruit from the brutalist tree-pillars, you can see them suspended in the nutrient sludge. They resemble human-sized, larval forms, their skin a pale, wet membrane wrapped around a skeleton of dense, cartilaginous lattice. They possess no distinct facial features, only smooth planes of flesh that ripple with the pulsing violet light of the city’s energy grid.
+
+They do not "live" in the cysts; they *are* the cysts. Their nervous systems are spliced directly into the woody walls of the chambers. When the city’s machinery hums—the grinding of leafy gears and the pumping of woody pistons—it is the Architects conducting the symphony. They dream the city’s geometry forward. Through the viscous time of the Sump, they project their will, calcifying the embryonic ground into walkways and forcing the pillars to grow toward the darkness. When an Architect dies—or perhaps, when they achieve a state of computational saturation—their cyst hardens into a grey, stone-like node, becoming a permanent part of the pillar’s structural masonry.
+
+**The Cranked-Limbed Scavengers**
+Scuttling in the damp shadows of the hollow avenues are the creatures that maintain the gross physical reality of the Sump. They are the crustaceans mentioned only in passing, but closer inspection reveals a horror of utility. They are bipedal, standing on hind legs that end in spiked, calcified points designed to grip the wet, unstable pavement. Their upper bodies are a riot of specialized limbs: some end in pincers for shearing overgrowth, others in spinning bristle-brushes for scrubbing the moss from the bio-luminescent veins.
+
+Their heads are encased in shells that resemble intricate, rusted iron helmets—a natural camouflage that mimics the industrial decay of the city. They do not speak, but communicate by clicking their pincers in a staccato binary that echoes like hail on a tin roof. They are the sanitation crew, the immune system of the Sump. When a cyst leaks or a pipe bursts, they swarm, repairing the damage with a secretion that hardens instantly into a bio-weld. They are terrified of the open plazas, sticking always to the periphery, knowing that in the center, the geometry cannot be trusted.
+
+**The Grazers of the Infinite Loop**
+The "stacks of wet pottery" are the passive observers of the Sump, the grazers that drift through the non-Euclidean spaces. They are massive, towering creatures composed of stacked, clay-like plates that shift and slide over one another as they move. Between the plates, a soft, blue bioluminescence leaks out, illuminating the wet floor beneath them.
+
+They are blind, navigating by sensing the electromagnetic fields of the "cables that bleed." Because they move with terrifying, fluid silence, they seem to glide rather than walk. Their relationship with the Sump’s reality breakdown is unique: they exist in a state of quantum superposition. When you look at a Grazer, it is there. When you blink, it may have moved fifty feet, or it may have rotated into a shape that no longer resembles a stack of pottery but a singular, smooth boulder.
+
+They eat the mossy carpets, but they also consume the "glitches"—patches of air where the light stutters or distance folds. By feeding on these fractures in reality, they stabilize the Sump, preventing the non-Euclidean geometry from unraveling the city entirely. They are the anchors, heavy and silent, ignoring the observers because, to them, we are just temporary fluctuations in the data stream.
+
+**The Echo-Children**
+Perhaps the most haunting inhabitants are the ones that might not be real at all. They are slender, humanoid figures that appear in the corners of your vision, always just out of focus. They are composed entirely of the "afterimages" that linger in the viscous time of the Sump. They are the visual stutter of a bird taking flight, frozen and given form; they are the lingering shadow of a gear shifting.
+
+They have no mass. If you were to try to touch one, your hand would pass through a sensation of intense cold and the smell of static electricity. They do not interact with the physical world; they only interact with memory. To see an Echo-Child is to suddenly remember a future that hasn’t happened yet, or to vividly recall a childhood that isn't yours. They are the byproduct of a reality constantly overwriting itself, the ghosts of deleted moments. They gather near the "grey ichor" fissures, drinking the ozone, shimmering like heat haze on a road, waiting for the moment the rest of the world forgets them so they can finally dissolve.
+
+**The Collective of the Lung**
+There is no hierarchy here, only a circulation. The Architects dream the structure; the Scavengers scrub the tissue; the Grazers digest the errors; the Echo-Children haunt the synapses. They are all organs in a single, massive entity that breathes in the dark, waiting for a command that no one remembers. They live in the Vermilion Sump not as masters of their domain, but as cells in a body that is holding its breath, terrified that if it exhales, the dream will end.

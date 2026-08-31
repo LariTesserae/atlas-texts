@@ -1,0 +1,19 @@
+What lives here is not a people. It is a *condition*.
+
+It is the sound of a breath held for a century. It is the pressure of stone remembering fire. It is the chill of a shadowless wall against a sweaty back.
+
+They call themselves the Packed. They are not a tribe, nor a family, nor a city. They are a *solution*—the human element dissolved into the geometry of the hollow until the two are indistinguishable. Their skin is a map of mineral stains, ochre and rust and the faint blue-green of copper salts. Their hair is cropped short or worn in thick, damp braids to keep it from the machinery. Their eyes have adjusted to the perpetual twilight, the pupils wide and dark, reflecting the amber glow with a nictitating sheen when the steam vents flare.
+
+They move like parts of a living machine. A woman on a catwalk does not walk; she *translates* along a tensioned line, her bare feet finding purchase on the rivets by memory alone. A man tending the algae mats in the central pool works with a slow, paddling rhythm, his arms moving in time with the sub-audible hum of the geothermal pumps. Their speech is low, consonant-heavy, words swallowed by the damp air. They have no names, only *functions* and *cycles*. You are the Terrace-Tender. The Pipe-Sealer. The Shiver-Watcher—the one who stands still when the stone dreams, hand on the wall, reading the tremor’s direction in the grit.
+
+Their children are born with the smell of wet stone and hot copper in their lungs. They learn to climb before they walk, scaling the ribbed ceilings like geckos, their small hands finding the only flat spots in a world of curves and protrusions. Play is reenactment: simulating a canal-clog, a pump-failure, a roof-garden harvest under a failing bulb. Their games are not of escape, but of *perfect maintenance*. To lose is not to die, but to create a inefficiency.
+
+Their religion, if it can be called that, is a veneration of *the next layer*. The sedimentary record of their world is their scripture. The rough-cut foundation stone is the First Word. The eroded brick is the Second Expansion. The stained concrete block is the Great Standardization. To uncover an older, deeper layer is a holy act. To add a new brick on top is a sin against the sequence. Their greatest fear is not the stone’s shiver, but the day the hum stops—the day the deep machinery forgets.
+
+They eat what grows in the heat: the fermented rust-fruit, the starchy tubers from the vertical vines, the occasional grilled six-leg-rat. They drink the copper-tinctured water, filtered through charcoal and prayer. Their only luxury is a sip of the clear, cold water that sometimes drips from a rare, high fracture in the north wall—a垂直 gift from the rumor of the world above.
+
+They do not wonder about the strange details. The shadowless light is how things are supposed to be. The dry patches of air are the lungs of the stone. The canals that run uphill are the mountain’s way of testing their vigilance. The shivering is the mountain turning in its sleep. To question is to invite a crack, an emptiness, a margin—the one thing their world cannot abide.
+
+What lives in The Remainder is a perfect, closed loop of adaptation. It is the children of the hollow, raised by its heat and pressure. They are not inhabitants; they are the hollow’s *realization*. Their calm patience is not serenity; it is the absence of an alternative. Their relentless, verdant growth into every crack is not ambition; it is *physics*.
+
+They are what happens when a place is so dense with itself that it begins to dream in human shape. And in the dream, there is no outside. There is only the stone, the heat, the slow hum, and the relentless, patient, packed *knowing* of being exactly where you are, with no space left for anything else.

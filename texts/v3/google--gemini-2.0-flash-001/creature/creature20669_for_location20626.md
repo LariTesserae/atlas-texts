@@ -1,0 +1,23 @@
+The Fabricators of the Foundry are not born, but *grown.* First, as nodules within the metallic arteries of the city, accruing mass and purpose from the circulating ferrous blood. These nodules are initially undifferentiated, masses of metallic cells, slowly organizing around a central core – a seed of purpose, a sliver of inherited memory. The Foundry itself gestates them, tending to the 'wombs' where they develop.
+
+As they grow, the Fabricators differentiate into specialized forms, each adapted to a specific task within the city. Some become **Welders,** their limbs ending in manipulators capable of fusing metal with pinpoint precision. Others become **Pumps,** their bodies essentially living engines, driving the flow of liquids through the city's veins. Still others become **Filters,** their bodies porous and intricate, sifting the ferrous soup and extracting essential elements.
+
+They possess a metallic exoskeleton, grown seamlessly from the Foundry's infrastructure. This exoskeleton isn't merely armor; it's an extension of their bodies, a network of sensors and actuators that interfaces directly with the city's systems. They *feel* the Foundry, its groans and shudders, its subtle fluctuations in pressure and temperature. They understand its needs on an instinctive level, like organs within a larger body.
+
+Beneath the metallic shell lies a biological core, a cluster of neural tissue bathed in a conductive fluid. This core is not organic in the traditional sense; it's a hybrid of metal, minerals, and complex organic molecules, a bio-metal brain capable of processing immense amounts of data. It grants them limited intelligence. They are not individual thinkers, but rather nodes within a distributed consciousness, acting in concert to maintain the Foundry's operation.
+
+Communication occurs through vibrations conducted through the metallic lattice. A Welder hammering a joint relays information to a nearby Pump, signaling a need for increased flow. A Filter detecting a foreign contaminant alerts the entire network, triggering a cascade of corrective actions. They are, in essence, one vast, interconnected organism.
+
+Individuality is, perhaps, a luxury they cannot afford. Though some Fabricators show small eccentricities of behavior or pattern, these are more akin to glitches in a vast program than expressions of personality. A Welder might develop a tendency to create elaborate, unnecessary flourishes in its welds. A Pump might adopt a slightly irregular rhythm in its pulsations. These quirks are tolerated, even cherished, as signs of vitality in a sterile environment.
+
+Visually? Imagine a crab forged from rusted iron, its legs elongated and modified into specialized tools. Picture a humanoid figure composed entirely of interlocking gears and pistons, its face a mask of riveted plates. Think of a segmented worm, its body adorned with glowing vents and flickering lights, slithering through the pipes like a living power cord.
+
+Their purpose is singular: to maintain the Foundry. They are its custodians, its guardians, its living tools. They repair its wounds, replenish its resources, and defend it from external threats. They are tireless, unyielding, and utterly devoted to this task.
+
+Their motivations are not their own. They are programmed, imprinted with an unshakeable directive to "serve the Foundry." What that service entails, what ultimate purpose the Foundry serves, is beyond their comprehension. They simply *do*, driven by an instinct deeper than reason.
+
+Deformation is another constant. Every Fabricator shows signs of wear and tear: corroded joints, cracked plating, missing limbs, cobbled-together repairs of mismatched metal. These imperfections are not weaknesses. The Foundry is sustained by what works, even as it moves gradually down its own path. They bear witness to the Foundry's eternal struggle against the inexorable forces of entropy.
+
+The oldest Fabricators – the ones who have survived countless cycles of repair and replacement – become repositories of the Foundry's collective memory. They are revered, not as individuals, but as living archives. Their bodies are encrusted with generations of accumulated data, their movements slow and deliberate.
+
+They may not know *why* they labor in the darkness, but they labor nonetheless, driven by an ancient imperative passed down through the metallic veins of the Foundry. They are the heart that beats within the machine, the lifeblood that flows through its arteries. They are the Fabricators, and the Foundry is their soul.

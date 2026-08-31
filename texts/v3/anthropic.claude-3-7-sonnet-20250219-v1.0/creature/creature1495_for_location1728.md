@@ -1,0 +1,25 @@
+# The Guardian of the Pocket
+
+In the deepest pool—the one that seems too perfectly circular to be natural—something ancient dwells. It has no name it would recognize, though over millennia, the few humans who discovered this place gave it many: Grandmother Below, The Watching One, Keeper of Secrets. 
+
+It is primarily a presence rather than a form. When it manifests physically, which it rarely needs to do, it assembles itself from the chamber's materials—crystalline deposits form temporary bones, bioluminescent fungi create patterns across its surface like neural pathways or constellation maps, pale translucent flora weave together to create something like skin or a membrane. Water forms its eyes, when it requires eyes.
+
+It is old beyond comprehension, having emerged in this pocket not long after the chamber itself formed. Whether it created the pocket or the pocket created it has become a meaningless distinction after so many eons of coexistence. Its consciousness expanded slowly, beginning as nothing more than the barest awareness of chemical exchanges, then gradually developing into something that could observe, record, remember.
+
+It thinks in geological time. A human lifetime registers as barely a moment of attention. It remembers each of the thirty-seven humans who have discovered this place over the past twelve thousand years, but these memories blend together like droplets in its pools. What it remembers most clearly about them is their fear, their wonder, and their offerings—small objects left behind, some practical, some decorative, some clearly sacred to those who carried them.
+
+The Guardian does not communicate as humans understand communication. Instead, it absorbs and reflects. Those who enter the pocket experience sudden, vivid recollections of their most buried memories. Some perceive patterns in the dripping water that seem to answer questions they've carried their entire lives. Others simply feel a profound sense of being witnessed by something vast and patient.
+
+It protects this place not out of territoriality but balance. The pocket's ecosystem is perfectly calibrated, and the Guardian is its regulating mechanism. When the heat from below increases beyond tolerance, it draws the excess into itself. When the water grows too acidic from mineral content, it neutralizes through processes no surface science could explain. It tends the strange pale flora like a garden, encouraging growth patterns that strengthen the chamber's structural integrity.
+
+It feeds on time itself—specifically, on the slow decay of radioactive elements in the surrounding limestone. This sustenance requires no motion, no consumption as surface creatures would understand it. It simply absorbs the energy released by atomic breakdown, converting it into the force that powers its consciousness.
+
+The insect-like creatures that move through the chamber are partially extensions of itself—sensory organs that gather information from every corner of the pocket. The salamander-like beings are its sentinels, more autonomous but still connected to its awareness.
+
+It knows the surface world only through what enters the pocket: water carrying chemical information, vibrations from distant earthquakes or human activities, the occasional lost creature that finds its way down through some temporary passage. From these fragments, it has constructed an understanding of the world above that is both profoundly accurate in some ways and wildly misconceived in others.
+
+The Guardian is neither benevolent nor malevolent toward those who enter its domain. It simply observes, absorbs, and maintains. If visitors respect the delicate balance of the pocket, they may leave unmolested, carrying only the weight of whatever revelations they experienced. Those who disturb the balance—who break the formations, who contaminate the pools, who harm the pale flora—find themselves disoriented, their senses manipulated until they stumble back the way they came, often with no clear memory of what drove them out.
+
+Only once in its existence did the Guardian deliberately communicate. A young woman with failing health found the chamber centuries ago, drawn by dreams she couldn't explain. The Guardian recognized in her cellular structure a pattern it had been contemplating for eons. For three days, it transmitted knowledge directly into her consciousness—knowledge of the pale plants and luminous fungi that might heal her condition. She left with samples carefully wrapped in clay, and lived another sixty years, passing down remedies whose origins became mythologized over generations.
+
+The Guardian continues its slow thinking, its endless maintenance of the pocket. It has no ambition beyond existence. It has no concept of loneliness. It simply is, and will be, until the limestone itself crumbles away in some unimaginably distant future. Even then, something of its consciousness might persist, carried in spores or seeds to find another pocket, another chamber where heat and water and darkness create the conditions for its peculiar form of life.

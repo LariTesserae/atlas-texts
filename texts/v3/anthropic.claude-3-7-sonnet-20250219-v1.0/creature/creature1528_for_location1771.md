@@ -1,0 +1,29 @@
+# The Keepers of the Breathing Lowlands
+
+They have been called many names by visitors—the Mist Tenders, the Breath Wardens, the Between Folk—but they refer to themselves with a sound that cannot be written in human language, something between a sigh and a clicking purr that resonates in the hollow spaces of their elongated throats.
+
+These beings stand taller than humans by half a measure, their slender bodies supported on three limbs arranged in triangular formation. The limbs appear root-like at first glance, branching into dozens of fibrous tendrils where they meet the marshy ground, allowing them to distribute their weight perfectly across the unstable terrain. They move with a flowing grace that never disturbs the water's surface—no ripples mark their passage.
+
+Their skin exists in a state between solid and liquid, a translucent membrane that shifts colors with their moods and the surrounding atmosphere. Beneath this outer layer, complex networks of capillaries pulse with amber fluid, more visible when they stand in direct light. Most striking are the respiratory chambers that line their torsos—a series of gill-like openings that expand and contract in perfect synchronization with the breathing of the lowlands themselves. These beings do not merely inhabit this place; they help regulate its rhythms.
+
+Their faces are surprisingly delicate—wide-set eyes with horizontal pupils that can perceive both above and below the water's surface simultaneously. They have no nose as humans understand it, but rather sensitive feathery appendages that analyze chemical compositions in both air and water. Their mouths are small and rarely open except during their communal singing rituals at dusk, when they produce harmonies that seem to strengthen the health of the surrounding ecosystem.
+
+Communication between them happens primarily through subtle changes in skin luminescence and the release of chemical compounds that create momentary patterns in the mist. They can learn human languages with remarkable speed but prefer to speak in whispers that blend with the ambient sounds of the lowlands.
+
+They build nothing permanent but tend to everything. The ceramic vessels scattered throughout the landscape are their creation—living instruments that help regulate water quality and mineral distribution. What appears to be random placement to human eyes follows a precise mathematical pattern that only becomes apparent when viewed from high above.
+
+The beings live in symbiotic relationship with certain plant colonies, particularly the circular arrangements of broad-leafed species. These plant formations are carefully cultivated over decades to create living dwellings. At the center of each circle is a hollow chamber lined with a waterproof resin where they rest during the heaviest rains, though they rarely sleep as humans understand sleep.
+
+They have a complex society without hierarchy as humans conceive it. Each being serves shifting roles throughout their extraordinarily long lives—sometimes tending to the plant islands, sometimes nurturing the countless amphibian species, sometimes maintaining the ancient stone platforms that predate even their presence in these wetlands.
+
+Their relationship with time differs fundamentally from human perception. They experience time as a rippling medium rather than a linear progression. Their memories are collective, shared through a process involving the exchange of specialized fluids during ceremonial gatherings held when certain constellations align overhead.
+
+Most remarkable is their relationship with the countless creatures of the lowlands. The translucent amphibians often cling to their limbs, seemingly drawing nourishment from the beings' skin secretions. The dragonflies serve as their messengers, carrying chemical signals across great distances. The fish schools respond to subtle vibrations they produce through specialized chambers in their torsos.
+
+They are neither aggressive nor particularly shy toward human visitors, but maintain a careful distance, observing with patient curiosity. Those humans who have earned their trust report being guided to specially prepared platforms where they may safely rest. Some claim to have been shown remarkable sights—underwater chambers where ancient knowledge is stored in living patterns, nocturnal blooming events synchronized across miles of territory, or the ceremonial "breathing circles" where dozens of these beings gather to collectively regulate the entire ecosystem's rhythm.
+
+They have witnessed the rise and fall of human civilizations from this same marshy basin, their own society changing so gradually as to appear unchanging. The stone platforms were not their creation but the remnants of a human culture they outlived millennia ago. They have incorporated these remains into their stewardship patterns, preserving them while allowing natural processes to soften their edges.
+
+The few human researchers who've gained their confidence believe the beings are capable of extending their consciousness throughout the entirety of the lowlands—that they can, through some unknown means, perceive simultaneously through every creature that draws breath in their domain. This may explain the uncanny sensation visitors report of being watched from all directions at once.
+
+What most humans never discover is that the breathing rhythm of the lowlands is not natural but carefully maintained—a therapeutic regulation performed by these beings to heal some ancient wound in the land itself. They have been engaged in this healing work for so long that it has become their defining purpose, a multi-generational commitment to restoring balance that may continue for thousands of years to come.

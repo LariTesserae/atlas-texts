@@ -1,0 +1,17 @@
+In this living city, I see several distinct forms of inhabitants, each adapted to or emerging from this strange environment:
+
+The Stone Listeners are the most numerous of the human residents. Their bodies have become partial conductors of the city's song, their bones carrying faint resonances that guide them through the ever-changing passages. Their skin has a slight crystalline sheen, and their movements are deliberate and flowing, like the water that defies gravity. They've developed an almost synesthetic ability to "taste" harmonics that warn of structural changes in the city.
+
+The Drift Shepherds tend to the liquid birds, though "tend" might not be the right word. They've learned to weave threads of sound with specially shaped instruments and their own voices, creating paths that the fluid creatures follow. Their eyes have adapted to see the subtle currents in the air, and some have developed patches of bioluminescent symbiotic organisms on their skin that pulse in response to nearby harmonic changes.
+
+Less human are the Moss Weavers - colonies of the phosphorescent moss that have developed a collective consciousness. They form slowly shifting patterns that some believe are a form of communication, spreading information about stable growth zones and water safety through their luminescent network. They occasionally form humanoid shapes, though whether this is meaningful mimicry or random pattern formation remains unclear.
+
+The Water Dancers are the most mysterious. They appear as human silhouettes composed of the city's strange water, walking upside down on ceilings or flowing through walls. There's debate about whether they were once human residents who underwent some transformation, or if they're manifestations of the city's own awareness. They seem to be involved in directing the growth of new spires, though their methods are incomprehensible to observers.
+
+In the higher reaches, where reality becomes uncertain, there are the Fold Dwellers. These beings seem to exist partially in normal space and partially in whatever dimensional anomalies the towers create. Their forms shift as you watch them, sometimes appearing human, sometimes appearing as complex geometric patterns, sometimes seeming to extend into spaces that don't exist. They navigate the impossible architecture as easily as we walk down a street.
+
+The liquid birds themselves exhibit complex social behaviors, forming temporary collective organisms that pulse with the city's harmonics. Their fluid bodies sometimes merge and split, sharing whatever serves as their consciousness. They seem particularly attracted to the Water Dancers and will often flow in complex orbits around them.
+
+Deep in the foundations, where the stone is oldest, there are rumors of Crystal Sages - beings that have become more mineral than organic, growing like living geodes in chambers filled with singing crystals. They're said to be the oldest inhabitants, perhaps the ones who first learned to sing the songs that shape the stone.
+
+All these beings exist in a complex ecosystem of sound, stone, and fluid dynamics. They rarely interact directly, but their activities form an intricate dance that mirrors the city's own patterns of growth and change. None seem to be truly in charge - rather, they're all participants in whatever vast process gives the city its unique nature.

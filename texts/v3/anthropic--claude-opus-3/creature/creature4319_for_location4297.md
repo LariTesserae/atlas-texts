@@ -1,0 +1,13 @@
+In this surreal, pocket-sized world, a strange and unsettling entity has taken up residence. It is a being that seems to embody the very essence of this unnatural space, a twisted fusion of organic and inorganic matter that defies classification.
+
+At first glance, the entity appears to be a mass of pulsing, semi-liquid flesh, not unlike the viscous moisture that coats the walls and ceiling. Its body is a sickly, translucent green, shot through with veins of glowing, bioluminescent fluid that throb and pulse with an eerie, hypnotic rhythm. The surface of its skin is constantly shifting and changing, forming grotesque, half-formed features that melt away as quickly as they appear.
+
+As one looks closer, however, it becomes apparent that this is no mere organic creature. Embedded within the pulsing, gelatinous flesh are bits and pieces of rusting machinery, gears and wires and circuits that have somehow merged with the entity's body. These mechanical components click and whir and grind, producing a cacophony of unsettling sounds that mingle with the low, pulsing hum that permeates the space.
+
+The entity moves with a strange, fluid grace, its body flowing and oozing around the decaying islands of machinery that litter the room. It seems to draw sustenance from the sickly, half-life energy that courses through these rusting hulks, its flesh pulsing and glowing more brightly as it feeds.
+
+As it moves, the entity leaves a trail of viscous, bioluminescent slime in its wake, a substance that seems to have a life of its own. The slime writhes and pulses, forming intricate, almost hieroglyphic patterns on the surfaces it touches. It is as if the entity is leaving behind a record of its passage, a strange and alien script that hints at the unknowable thoughts and desires that drive its existence.
+
+Perhaps most unsettling of all are the entity's eyes, or what pass for eyes in this twisted, half-mechanical form. Set deep within the pulsing, gelatinous flesh are a pair of glowing, electric-blue orbs that seem to possess a terrible, alien intelligence. These eyes are constantly moving, darting and twitching in their sockets, taking in every detail of this strange and unnatural world with a cold, calculating gaze.
+
+It is impossible to say what this entity truly is, or what its purpose might be. It is a being that seems to have been birthed from the very fabric of this anomalous space, a product of the strange and terrifying forces that have warped and twisted reality itself. It is a reminder of the dark and uncanny things that can emerge when the boundaries of the natural world break down, and the impossible becomes all too real.

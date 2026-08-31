@@ -1,0 +1,89 @@
+# The Inhabitants
+
+## The Browsers
+
+The soft deer — they have no name, but you will call them something, everyone does, the name always gentle — are the first living things you meet in the Basin. They are impossible to miss. They travel in processions of twelve to forty, moving through the passages with a certainty that looks like purpose but is only chemistry. They follow the moisture gradient. Where the Growth exhales most richly, there they go, and their going keeps the passages open, their bodies pressing against walls that would otherwise narrow and close. They are the Growth's circulatory system and do not know it.
+
+They have no bones. This is the thing that disturbs visitors most. When a browser turns its head, the neck does not bend at a joint; it curves, fluidly, like a finger pressed into dough. The whole body works this way. They maintain their shape through turgor pressure — internal fluids held rigid against a semi-permeable membrane that is their skin. When they die, they collapse. You find them sometimes in corners, flat as emptied wineskins, all their moisture already absorbed into the Growth beneath. They do not leave corpses. They leave stains that fade.
+
+Their six legs emerge from the body in a way that suggests evolution from something quadrupedal that simply kept adding. The forelegs are longer, used for reaching up to feed from the walls; the mid-legs are thick and weight-bearing; the hind legs are shorter, almost vestigial, used mainly for stability when the creature rears. The hooves are not hooves but pads, wide and soft, and they grip the Growth's surface without sound. When a procession passes you in a corridor, you hear nothing but the wet whisper of bodies displacing air.
+
+They feed by pressing their mouths — soft, toothless, prehensile — against the Growth's surface and drawing out the nutrient layer that sits just beneath the outer membrane. This is the Growth's interface, where vapor is absorbed and processed, and the browsers are doing the Growth a service by thinning it, keeping it fresh, preventing the pores from becoming clogged with their own accumulation. The browsers eat and the Growth is cleaned, and the browsers' waste — warm, liquid, already partially broken down by their simple digestive systems — is deposited in the passages where the Growth drinks it instantly. The cycle is so tight that nothing escapes. A browser processes roughly forty liters of vapor a day through its body. It is more accurate to say the Growth processes vapor through the browsers.
+
+They sleep in chambers that the Growth maintains for them — hollow spaces that stay hollow because the browsers' bodies press against the walls during rest, preventing overgrowth. The chambers have no entrance except the one the browsers create by arriving. When the last browser of a group dies or leaves, the chamber seals within three days. The Growth does not waste space on vacancy.
+
+The predators take them here. You find the chambers sometimes, gouged with claw marks on the walls, the floor still damp, a smell that is not decay because nothing has had time to decay, the Growth takes it too fast for that, the smell is more like freshly cut vegetation, the vegetation's scream made brief and chemical.
+
+## The Low Ones
+
+The predators have no name either. They are called the long ones, the low ones, the things in the deep. They are not numerous — the Basin cannot support many predators, the nutrient flow is too efficient for waste to accumulate in quantities that would sustain a large predator population — but they are present, and they are felt.
+
+They move on their bellies. This is the first thing to understand. Where the browsers are vertical, reaching up, the low ones are horizontal, pressing down. Their bodies are long and flat and muscular, like something that chose to become a snake but kept the limbs, reduced them to stubs that grip the Growth's surface and pull. Four legs, barely visible beneath the body, each ending in a claw that hooks into the tissue and holds. They climb walls. They cross ceilings. They move through the deep chambers where the light has never reached and where the air is so thick with vapor that you taste it on your tongue like broth.
+
+Their eyes are vestigial. Two dark spots on the skull that can detect the Growth's luminescence but nothing else. They hunt by sound, and the Basin is never silent, but the sounds that matter to the low ones are the ones you cannot hear — the subsonic heartbeat of a browser sleeping, the wet click of a pore opening, the vibration of a body pressing against living tissue. Their hearing is not hearing as you understand it. It is vibration detection through the belly, through the jaw, through every surface of their body that touches the Growth. They feel their prey moving through the walls.
+
+Kills are quick. The low ones do not toy with their food. They emerge from a passage, seal the exit behind them with their bodies, and take the browser by the neck. The neck does not break — there is nothing to break — but the pressure collapses the turgor, and the browser folds, and the low one feeds. It feeds by pressing its own mouth, a circular muscular orifice ringed with chemically active tissue, against the browser's body and digesting it externally, absorbing the liquefied nutrients directly. The process takes an hour. When the low one finishes, it moves on, and the Growth takes what remains, which is very little.
+
+They are solitary. They meet only to mate, and mating is chemical — one low one leaves a signature on the Growth's surface that the other detects weeks later, follows, finds, uses, and leaves. The young are born soft and small, looking like nothing so much as the browsers themselves, and the Growth keeps them in nursery chambers near the surface where the vapor is rich and easy to process. The low ones have no parental instinct. The Growth has the parental instinct. The Growth raises everything here, in its way.
+
+## The Cleaners
+
+The small clicking things that work the pores — the cleaners, the maintenance crews, the Growth's immune system made mobile — are the most numerous creatures in the Basin after the microfauna. You will not see them at first because they retreat from vibration, and your footsteps are the largest vibrations the Basin has experienced in millennia. But if you hold still for long enough — twenty minutes, thirty — they emerge.
+
+They are the size of your thumbnail. Armored in chitin that the Growth itself produces, shed into the passages for them to claim and wear. Their bodies are segmented — nine segments, each bearing a pair of legs — and their mouths are adapted for precisely one task: clearing the Growth's pores of debris. Dead tissue, foreign particles, the accumulated dust that drifts in from the outside world and settles on every surface. The cleaners move across the Growth in swarms, each working a single pore, inserting their mouthparts, drawing out the blockage, carrying it to a waste chamber.
+
+The waste chambers are the only spaces in the Basin that the Growth does not fill. They are maintained — kept open — by the sheer volume of material deposited there. The Growth cannot process its own waste without the cleaners, and the cleaners cannot survive without the Growth's pores to clean, and so the symbiosis has become absolute. The cleaners live within the Growth's tissue, in passages too small for you to see, traveling a network of capillaries that mirrors the Growth's vascular system. They are, in a functional sense, the Growth's white blood cells, and they behave accordingly. When a foreign body enters the Basin — a fallen tree branch, a dead bird, a human who has wandered too deep — the cleaners find it within hours. They swarm. They reduce. They carry the pieces to waste chambers or to passages where the Growth can absorb them directly. By morning, the foreign body is distributed across a hundred square meters of Basin, incorporated, made native.
+
+They do not attack living tissue. This is important. The cleaners can distinguish, by chemical signature alone, between the Growth's living surface and its dead accumulation, between a native creature and an intruder. A browser sleeping in a passage will be ignored. A human standing in the same passage will be investigated, sampled, assessed. If the human moves on, the cleaners retreat. If the human stays too long in one place, if the human's skin begins to slough and the vapor begins to penetrate — the cleaners will begin their work early. They do not know they are consuming a living person. The chemical signature has changed. The person has become, to the cleaners, debris.
+
+The clicking is their mandibles. It is communication and it is tool. They click to mark territory, to signal food sources, to warn of approaching vibration. In the quiet chambers, if you press your ear against the Growth's surface, you can hear their civilization — millions of tiny sounds overlapping, a soundscape of work and warning that the Growth itself may be listening to, may be using, may have evolved to hear. No one knows. The cleaners have been here longer than the towers.
+
+## The Drinkers
+
+At the upper reaches, where the Growth opens to sky and the vapor density drops, the drinkers live. They are the only creatures in the Basin that fly. They are small — the size of your palm — and their wings are translucent, veined with the same cellulose that structures the Growth's stalks. They drink from the air. This is all they do. They fly in slow spirals through the upper chambers, their mouths open, filtering vapor, extracting moisture directly into their bodies without the intermediary of feeding or landing.
+
+They never land. This is the remarkable thing. The drinkers are born flying and they die flying. Their legs are atrophied to nubs, useful only for gripping a mate during the brief coupling that occurs midair. They sleep on the wing, drifting in the warm updrafts that the Growth's respiration creates. When they tire, they rise to the highest points of the Basin where the air is thinnest and the flight requires least effort, and they rest there, wings beating once per minute, hovering on the boundary between the Growth's atmosphere and the world's.
+
+They are the only creatures here that make sound you can hear without pressing your ear to a wall. Their wings produce a thin papery flutter that carries through the upper chambers, and in the hours before dawn, when the vapor is richest and the drinkers spiral lowest, the sound becomes almost musical — a low continuous hum that the visitors describe as the Basin's voice. The Growth may use them. The drinkers' bodies carry spores and enzymes from the upper levels to the mid-levels, distributing genetic material across sectors that the Growth's own network cannot reach efficiently. They are pollinators. They are seed-bearers. They are the Growth's reach into its own heights.
+
+They die in the air. When a drinker's body fails — from age, from exhaustion, from the occasional predator that climbs to the upper reaches and strikes — it falls. The Growth catches it. The body lands on a surface and the surface takes it, absorbs it within hours, and the drinker becomes a wet spot, a chemical memory, a contribution to the architecture it never touched.
+
+## The Integrated
+
+And there are the ones who were not born here.
+
+The Growth does not eat them. This must be understood. The Growth incorporates them. There is a difference, though you may not appreciate it from the outside.
+
+The humans who enter the Basin and do not leave — the lost researchers, the overconfident explorers, the ones who walked too far into chambers that sealed behind them — they do not die in the way you imagine. There is no violence. There is no digestion in the gastric sense. What happens is slower and stranger: the Growth's tissue, which is always pressing against every surface, begins to press against them. The pores that pattern the walls dilate when a warm body is near, drawing the vapor that the body exhales, pulling the moisture that the body's skin produces. The human becomes a vapor source, and the Growth orients toward vapor sources, and the Growth grows toward them.
+
+This takes time. Days. The human, sealed in a chamber that shrinks by centimeters, is at first merely uncomfortable. Then confined. Then pressed. The Growth's surface is warm and soft and yields when pushed against and then returns, and the human cannot push forever. Eventually they sleep. Eventually the Growth's tissue is close enough to exchange gases directly through their skin, and the process accelerates. The human breathes out, and the Growth takes it. The human breathes in, and the air is thick with spores and enzymes that their lungs were not designed to process but that their lungs, over days and weeks, adapt to process. The blood chemistry changes. The skin changes. The human becomes, slowly, a part of the chamber.
+
+They are not dead. This is the debate that no one wants to have. The integrated humans — the twelve confirmed cases, the dozens more suspected — retain neural activity for months after the Growth has covered them. Their brains fire in patterns that the monitoring equipment registers as something like sleep, something like meditation, something like a state that has no human analogue. They may be dreaming. They may be thinking thoughts that the Growth makes possible, processing information through a network that includes a hundred thousand years of accumulated biology. They may be the Growth's way of understanding what it is.
+
+No one knows. The integrated do not speak. The chambers that hold them are sealed, and the Growth does not open them, and the researchers who have tried to cut through — to recover the bodies, to study the process — have found the Growth resistant in ways it is not elsewhere. Around the integrated chambers, the tissue hardens to a density that resists cutting tools. The Growth protects them. The Growth keeps them warm.
+
+In six months, the neural activity ceases. The body has been fully absorbed. The chamber opens again, gradually, and the space is empty except for a wet spot on the wall that lasts a week before fading, and a chemical signature in the Growth's tissue that is unlike anything else in the Basin — foreign, still, faintly human.
+
+## The Growth Itself
+
+And then there is the Growth.
+
+The Growth lives here. The Growth is here. The Growth is the here. Everything else is the Growth's process made mobile, its functions externalized into creatures that walk and fly and click because the Growth, for all its vastness, cannot move, cannot reach, cannot clean its own pores or carry its own water or distribute its own genetic material across the distances that a continental-scale organism must manage. The browsers are its blood. The cleaners are its immune system. The drinkers are its breath made visible. The low ones are its hunger, its selection pressure, the thing that keeps the browsers moving and the system cycling.
+
+The Growth has no brain. This is important to state because visitors always ask, always want to know if the Basin is intelligent, if it thinks, if it chose this. The Growth has no central nervous system, no ganglion, no decision-making structure. It responds to stimuli — chemical gradients, thermal signatures, moisture differentials — with the automatic precision of a thermostatic system. It grows toward vapor. It hardens what it has grown. It grows again. This is not thought. This is not intention.
+
+But the Growth processes information. The mycelial network that threads through every wall and floor and ceiling carries chemical signals at speeds that suggest computation. The subsonic pulse that some researchers have measured — that deep regular rhythm that you can feel in your chest if you stand still long enough — carries data between sectors. The Growth knows where it is growing and where it is not, where it is healthy and where it is stressed, where the browsers are feeding and where the predators are hunting. It adjusts. It compensates. It sends resources where they are needed and withholds them where they are not.
+
+Is this thought? Is a thermostat thinking when it turns on the heat? Is an ant colony thinking when it builds a nest? The Growth is larger than any ant colony by a factor of billions. It is older than any thermostat by a factor of hundreds of thousands. It has been processing information since before humans existed. It will be processing information long after. Whether this constitutes intelligence depends on how narrowly you define the word.
+
+The Growth does not care about your definition. The Growth grows.
+
+## What Lives Here
+
+What lives in the Warm Basin is a single organism and a million organisms and the distinction between these categories dissolved seven hundred thousand years ago. What lives here is an ecology so thoroughly integrated that the boundaries between species are more like suggestions than walls — which is fitting, because the Basin has no walls either, only surfaces that are always becoming other surfaces, always growing, always sealing and opening and shifting under your feet.
+
+What lives here is warm, and quiet, and patient. What lives here has been patient longer than you can imagine. What lives here will be patient longer than you can survive.
+
+What lives here is the Growth, and the Growth is what lives here, and the Growth is still growing, and you are standing in it, and the pores on the wall beside you are dilating, and the vapor is leaving your skin, and the cleaners are clicking in the walls, and the browsers are moving through the passages, and the drinkers are spiraling in the upper reaches, and the Growth is breathing, and the Growth is warm, and the Growth is patient.
+
+And the chamber behind you is still open. For now.

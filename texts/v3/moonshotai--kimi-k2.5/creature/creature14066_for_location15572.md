@@ -1,0 +1,35 @@
+The inhabitants do not announce themselves with calls or tracks. To find them, you must read the currents and the condensation.
+
+**The Cupric Dwellers**
+
+In the lowest strata, where the root-mats compress into strata denser than concrete, move the **Grommund**—the badger-shaped lithovores. They are blind not from atrophy but from replacement; their skulls have been hollowed out by evolution into resonant chambers that detect the flow of electricity through copper veins rather than the photons above. Their bodies are hydraulic sculptures: no twitching muscle fibers, but chambers of hypertonic gel that expand and contract with osmotic precision. They glide through tunnels they themselves have chewed, jaws operating not with bite but with chemical rasp—specialized enamel that can reduce cadmium to a digestible slurry.
+
+Over centuries, their exoskeletons accrete. Each Grommund wears a cuirass of electroplated metal that grows outward from the skin in tree-ring patterns: rings of copper, then nickel, then strange rare-earth laminates that hum faintly against the root walls. The eldest among them are scarcely recognizable as animals, appearing instead as boulders of crude circuitry, their biological hearts pulsing behind plates of nearly pure conductivity. They communicate not with sound but with galvanic twitching—minute alterations in the electrical potential of their skin that propagate through the wet root-matter to their neighbors. A mating ritual is a slow, days-long exchange of charge between two stationary boulders, their capacitance building until a spark bridges the gap, fusing their metal skins momentarily in a silent blue flash that leaves behind a zygote encased in conductive amber.
+
+**The Static-Swallows**
+
+Above them, in the cathedral hollows of the factory-trees, cling the **Voltari**—the bat-forms whose wings never evolved for sound. Their ear canals sealed millions of years ago, filled instead with electrocytes that map the world as a topography of voltage. To a Voltari, the Highlands are not violet and gray but a blinding storm of neon gradients: the trees burn with the white-gold fire of capacitor-bark, the Grommund below pulse with slow red throb of digestion, and the fog itself appears as swirling auroras of static discharge.
+
+They navigate the permanent cloud cap with impossible precision, slipping between trichome-laden leaves that would ensnare any creature relying on sight. Their fur secretes a non-conductive oil that prevents them from shorting themselves against the living circuitry, yet their wing-tips trail gossamer filaments—harvested from spider-analogs that evolved glass-spinnerets—which brush against the copper xylem and bleed off excess charge. They are the safety valves of the forest, preventing the accumulated lightning from burning the system from within. When they roost, they do so upside-down in clusters, their combined capacitance creating localized calm in the electric storm, soft brown bodies hanging like insulators on a giant’s circuit board.
+
+They reproduce in the silence of the absolute black nights. Mothers lick their pups with tongues that deposit a film of conductive enzymes, ensuring the newborns are grounded against the tree’s heartbeat before they are even born. The young learn to fly not by listening to echoes but by sensing the compression of electric fields around their wings—feeling the forest’s shape as pressure against their own bio-electric aura.
+
+**The Pressure Weasels**
+
+Between the root-mat and the canopy hunts the **Hydraul**—the mustelid predators whose bodies are biological accumulators. They are low-slung, heavy with fluid, their fur grown into a matrix of keratin and silicate that acts as a Faraday cage, rendering them invisible to the electric sense of their prey. They hunt by anomaly: they sense the absence of field, the quiet spots where a Grommund’s copper shell creates a galvanic shadow.
+
+The kill is mechanical. The Hydraul does not sprint; it releases. Muscular sphincters open, dumping centuries of accumulated hydraulic pressure into specialized tendon-sacs. They strike at speeds that make no wind, their jaws closing with the wet, rubbery snap of a seal on a pressure vessel. The prey dies not of trauma but of sudden decompression, its hydraulic systems rupturing internally while the Hydraul’s insulating fur prevents any electrical alarm from traveling. They are the maintenance crew of the biomass, culling the old Grommund whose mineral accretions have grown too thick for their bodies to support, recycling the metal back into the soil before it becomes geological.
+
+They mark their territories not with scent but with charge. They rub against resin-heavy bark, depositing faint negative biases that other Hydrauls can read as territory borders—visible only as a taste of copper on the tongue of the electro-sensitive.
+
+**The Silica Monks (The Unnamed Fourth)**
+
+There is a fourth presence, rarely seen, which inhabits the waste channels. If the Grommund are miners and the Voltari are electricians, these are the **smelters**. They are slow-moving molluscan creatures, vaguely slug-like, that process the silica sand excreted by the vegetation. They possess radulae of pure diamond hardness that grind the glass dust into finer powder, which they secrete as lubricant for their own passage, leaving behind tunnels lined with vitreous enamel—smooth, white, and dry.
+
+They are the archivists. The Hydraul may cull, and the Grommund may mine, but these creatures *remember*. Their nervous systems are distributed across crystalline matrices grown within their own bodies. They store information in the lattice defects of their silicon structures—memories of lightning strikes from ten thousand years ago, chemical compositions of ancient bedrock. They communicate with the forest by altering the pH of the waste channels, sending slow chemical letters downstream. They are the closest thing the Highlands have to historians, and they are immortal as long as the terraces remain, dividing and re-dividing like cells when they grow too heavy with data.
+
+**The Civilization**
+
+Together, they form a guild without words. The Grommund keep the deep veins clear of mineral blockages. The Voltari regulate the charge. The Hydraul regulate the Grommund. The Silica Monks regulate the chemistry. There is no council, no plan, only the steady-state of three million years—a silent consortium where digestion is industry, and breathing is electrochemistry. 
+
+They do not fear the cold (4-8 degrees), for they generate their own warmth through electrochemical resistance, their bodies warm to the touch even as the fog freezes on their hides. They do not thirst, for they drink the atmospheric condensation through permeable skin, absorbing the cloud directly. They do not sleep, not truly; they enter states of low current, dimming like a bulb turned down, hanging in the violet twilight with eyes reflecting bioluminescent blue—the only hard lights in the soft dark, indicator bulbs showing that the continental machine is still, always, humming.

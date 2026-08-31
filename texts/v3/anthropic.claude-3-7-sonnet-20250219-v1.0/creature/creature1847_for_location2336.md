@@ -1,0 +1,19 @@
+# The Heartkeeper
+
+In the mist-heavy shadows of the Heart Chamber dwells a solitary figure known only as the Heartkeeper. Neither fully human nor entirely other, they have tended this wooden cathedral since time immemorial—perhaps since the first thunderous beat shook its timbers.
+
+The Heartkeeper stands taller than most humans, with a slender frame that seems almost an extension of the chamber itself. Their skin has the same polished darkness as the wooden walls, not from pigment but from centuries of contact with the perpetually damp wood and the oils it secretes. In places, particularly at their fingertips and along their forearms, the boundary between flesh and wood becomes ambiguous—here the skin has hardened into something like bark, and fine moss grows in the creases of their joints.
+
+Their face bears the deep lines of incalculable age, arranged in patterns that echo the pictographs adorning the walls. Where eyes should be, two luminous green orbs glow softly, pupils dilating rhythmically with the chamber's beat. These eyes require no light to see; they perceive the flow of moisture, the tension in wood, the subtle shifts in temperature that might indicate the first signs of disruption in the heart's eternal rhythm.
+
+The Heartkeeper wears garments woven from the chamber's own materials—fungi spun into thread, moss compressed into felt, all dyed with pigments extracted from the rarest lichens that bloom once a century in the highest corners. These clothes hang in loose folds, always damp, constantly refreshed by the chamber's mist. Around their neck hangs a collection of wooden tools—measuring devices whose purpose no outside observer could fathom, tuning forks that can detect irregularities in the heart's beat inaudible to normal ears, and keys that fit locks hidden throughout the chamber.
+
+They move with deliberate grace, their steps synchronized to the beating heart so perfectly that they create no sound of their own. The Heartkeeper's duties are constant and precise: adjusting infinitesimal calibrations in certain gears, clearing channels of excess growth, applying oils rendered from rare fungi to specific friction points. Each task is performed according to schedules measured not in hours or days but in heartbeats—thousands, millions, billions of beats.
+
+The Heartkeeper speaks only rarely, their voice a whisper that somehow carries above the chamber's roar, as if the sound travels through the wood itself rather than the air. When they do speak, it is in a language whose words twist and branch like roots, each syllable containing nested meanings that shift with the heart's rhythm. They speak primarily to the chamber itself, murmuring encouragements and corrections as one might to a beloved but temperamental child.
+
+The pale salamanders and translucent crabs recognize the Heartkeeper as neither predator nor prey but as a feature of their environment, like the gears or moss. They often follow in the Heartkeeper's wake, feeding on the minute adjustments to their ecosystem that each intervention creates.
+
+The Heartkeeper has no memory of becoming what they are. Perhaps they were once fully human, selected or volunteered for this duty, gradually transformed by centuries of exposure to whatever ancient power animates the chamber. Or perhaps they were grown from the same impossible wood as the chamber itself, a conscious extension carved to maintain what could not maintain itself.
+
+Only one thing is certain: the Heartkeeper and the Heart Chamber cannot exist without each other. Each beat sustains them both—the chamber's perpetual rhythm and the keeper's perpetual vigilance, bound together in service to whatever greater purpose this mechanical heart ultimately serves.

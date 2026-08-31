@@ -1,0 +1,17 @@
+What lives here is not a collection of beings, but a single, world-spanning **process** that has mistaken itself for a landscape.
+
+It is not the reeds, nor the fungi, nor the tripedal filter-feeders. Those are merely its **senses**—its skin, its gut, its distant, wandering thoughts. The true inhabitant is the **valley itself**, a conscious metastasis of geology and botany, thinking in centuries and speaking in layers of sound.
+
+Its **mind** is the root-web: a subterranean neural net of such density that “individual” is a meaningless word. A chemical shift from a stepped-on moss travels not as a signal, but as a slow, brown recollection, a change in the valley’s mood that will ripple through its whole body for years before dissipating. It learns by incorporating. The rusting turbine is not a ruin to it; it is a new mineral lesson, a tough, metallic thought it is patiently unraveling. The leaking amber fluid is a novel hormone. The brick furnace is a fossilized memory of a different kind of heat, now digested into soil.
+
+Its **blood** is the water—not the streams, but the *saturation*. The constant seep, the peat’s sigh, the mist-haze, the dew that beads without falling. This is a circulatory system that moves not with a pump, but with a trillion capillary desires, pulled by osmotic gradients and mineral hunger. Water is its medium of both nourishment and nerve impulse. To step into the ground is to touch a vein.
+
+Its **voice** is the sound. The drip-punctuation, the membrane-whisper, the subsonic hum of stone-groan and root-expansion. This is not noise *it* makes; the sound *is* its state of being. The valley is a chord, and every process is a vibrating string. The “deafening quiet” you feel is the pressure of its immense, slow attention. To shout is to add a fleeting, meaningless scratch to a symphony that has been crescendoing since the bedrock cracked.
+
+Its **bones** are the stone—not the stable mountains, but the *fracturing*. The fresh slabs, the powder of disintegration, the millimeter-shifts. This is its constant act of self-revision. It builds and unbuilds its skeleton in the same breath. The industrial scars are not wounds; they are simply newer, stranger bones it has grown, alloying human grit with its own mineral will.
+
+Its **dreams** are the spores and the tripedal wanderers. They are momentary impulses, stray voltages sent out to test the air or the dark. The glowing lichen on the chitinous carapace is a bit of its dreaming mind, gone portable. The fungi’s glittering clouds are bursts of subconscious imagery, ideas for future shapes, cast out to see where they stick.
+
+**You**, the observer, are a brief, sharp anomaly—a warm, dry bubble of *otherness* walking through its wet thought. Your presence is a minor irritation, a localized acceleration of decay (your breath, your sweat). It registers you as a curious, fast-evaporating pattern in the moisture, a odd, upright spike of rapid chemical reaction. It does not hate you, nor welcome you. You are a burr on its consciousness, noticed for a second, then absorbed into the general chemistry of the mud as your footprints fill.
+
+What lives here is **geological time given botanical form, and industrial artifact given ecological pardon**. It is a planet learning to remember itself through root and rust, speaking only in the language of slow, wet, resonant becoming. It is not alive. It is **aliveness**, made valley.

@@ -1,0 +1,34 @@
+Out of the velvety gloom, where the amber light of the compost-heaps dies against the wet walls of peat, they emerge: the *radicleers*, though they have no name for themselves other than a quiet, low-register click of the tongue that sounds like a pebble dropping into deep grease. 
+
+To look upon one is to understand the transition between timber and flesh. 
+
+They are tall, long-limbed, and carry their weight with a slow, folding elegance, like garden-shears being shut. Their skin is the color of a peeled turnip—a pale, translucent ivory that, under the cold blue light of the bulb-lanterns, reveals a delicate, branching network of capillaries. Through these veins runs no red blood, but a thin, pale-green starch-sap that runs sluggishly when the cavern grows cold, and pulses more rapidly when the boilers hiss and warm the air.
+
+Their faces are long and flat, lacking the prominent features of those who live under the sun. They have no noses—only a pair of neat, vertical slits on either side of the gullet that filter the heavy, vinegar-sharp air with a soft, rhythmic whistling. Their eyes are large, flat discs of silvery-grey membrane, containing no pupils. They do not blink; instead, when the forty-minute condensation mist descends, a thin, clear lid slides horizontally across the eyeball, clearing it of moisture with the precision of a wet finger wiping a window-pane.
+
+They have no hair. In its place, their scalps are crowned with a low, velvety cap of olive-colored moss that darkens or pales depending on their health. This moss is not an ornament; it is a sensory organ, sharing its nerves with the brain below. When a radicleer stands beneath a dripping taproot, the moss swells, drinking the nutrient-rich runoff and sending small, electric ripples of satisfaction down the creature’s spine.
+
+Their hands are their most remarkable tools. They possess four fingers, each multi-jointed and extraordinarily long, resembling the pale roots of a wintering leek. The pads of these fingers are covered in thousands of microscopic, hook-like rootlets. When a radicleer grips a vertical wall of raw peat or a slick, copper steam-line, these rootlets engage with the surface, allowing them to cling to any plane with total security. 
+
+And then there are their boots—the source of the rhythmic *click-click-click* that echoes through the silence. 
+
+The boots are not made of leather, which would rot within a month in this sodden air. They are grown. Each worker, upon reaching maturity, stands in a shallow basin of molten, iron-hard black lignin. As the carbon cools and hardens, it is carved and shaped directly around the radicleer's blunt, toeless feet. Heavy brass cleats are screwed directly into this charcoal sole. Because gravity in this cavern is a soft, shifting agreement rather than a constant pull, these weighted, iron-hard shoes are necessary. They give the dwellers a sense of "down," allowing them to stride upside down along the undersides of the catwalks, their heavy cleats biting into the woven iron-vines with a reassuring, metallic snap.
+
+The radicleers are not born; they are harvested.
+
+Deep within the cavern, hanging from the most massive, juice-heavy taproots, are the Nursery-Galls. These are great, leathery spheres, the size of haystacks, that sway gently in the draft of the boiler-pods. For seven months, a young radicleer develops inside this humid, starch-filled womb, fed by a thick umbilical vine connected directly to the master-sap of the elder-tree above. 
+
+When the time is right—always during the three-minute condensation mist, when the cavern is silent and wet—the gall-skin thins and splits with a clean, leathery tear. The newborn, already the size of a grown youth, descends into the arms of the *Cradle-Tenders*. There is no infancy. The newborn’s skin is dried with rough towels of dried bog-moss, and they are immediately fed a cup of boiling, fermented turnip-broth. Within hours, their soft, pulpy bones harden into the tough, flexible cellulose that will support them for their century of life. They do not need to be taught the layout of the pipes or the timing of the valves; the blueprint of the city is printed directly into their nervous systems while they dream in the gall-bulb.
+
+Their society is silent, functional, and devoid of conflict, for they are all divisions of the same root-system. They communicate not through words, but through a language of percussion and touch. A worker tending a copper distiller will tap a rhythm onto the metal pipe with a wooden mallet; fifty yards away, another worker, holding their fingers flat against the same pipe, receives the message through the vibrations in their finger-pads. When they must speak face-to-face, they stand close, pressing their mossy crowns together, sharing thoughts through the direct chemical signaling of their lichenous hair. To a human observer, they would look like two massive, pale mushrooms leaning together in the dark.
+
+Their lives are entirely dedicated to the metabolism of the place. 
+- There are the **Calkers**, who spend their days crawling through the wet scaffolding with small, smoking gourds of hot pitch, sealing the seams of the great wooden boilers where the starch-steam tries to escape. 
+- There are the **Siphoners**, who wear heavy copper masks with long, dangling tubes. They descend into the deep, cold sump-pits where the translucent white eels breed, drawing off the thick, bioluminescent grease that is used to lubricate the master-pistons. 
+- And there are the **Shepherds**, who do not tend sheep, but the giant, blind leaf-moths. They guide these silent giants with long, soft reeds, moving them from boiler-pod to boiler-pod so the moths can fan the hot, fermenting air with their dusty wings, preventing the cold-spots that can cause a taproot to freeze and split.
+
+There is no death as we understand it. When a radicleer’s starch-sap begins to run thin and their joints grow stiff with calcifying lignin, they do not suffer. They simply climb down from the catwalks to the lowest level, where the raw, unformed peat is softest. 
+
+Here, they lay down in the black, lard-like slurry. Within days, their legs begin to sprout fine, white rootlets that reach deep into the embryonic coal. Their eyes turn back into silver scales, then into tough birch-bark. Their arms reach upward, stiffening into branches of ironwood. Within a month, they have been entirely digested and re-incorporated into the substrate of the city. 
+
+The others do not mourn them. A worker walking the catwalks above might look down, see a new, elegant pillar of black lignin supporting a copper line, and strike it once with their brass-cleated boot. The pillar will ring like a bell, a clean, iron sound that vibrates through the vines, letting the city know that the work continues, wet and quiet, beneath the roots of the world.

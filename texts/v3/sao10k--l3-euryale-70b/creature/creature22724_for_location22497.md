@@ -1,0 +1,11 @@
+In this foreboding waterfront settlement, where the boundary between land and sea blurs, there dwell a hardy people accustomed to living on the precipice. Raised among the salt-sprayed planks and slithering vines, they emerge stunted but strong, their flesh pallid and perpetually clammy. Their eyes gleam beneath rumpled hoods -- small, suspicious orbs probing the murk for signs of threat or opportunity.
+
+Many ply the gloomy waters aboard tubby boats, venturing out to fish the tidal flats and vermillion weed-choked shoals before scurrying back within sight of land. At night they huddle in cramped dormitories above smokehouses reeking of salted cod and tarred canvas. Men nurse cups of bilge-wine; women tend smoky hearths under blackened pots.
+
+Their speech is guttural and unmelodious - a rasp of grunts and exclamations punctuated by braying laughter. Curses slit the clammy air at every fumbled line or mulled catch. In ale-houses with mildewed tables and splintery benches, raucous songs are bawled about shipwrecks and dreadful creatures glimpsed in the shallows.
+
+Some few villagers work as wreckers, combing the rocky shores for flotsam while scanning seaward for foundering ships ripe for plunder under guise of salvage. They're said to mount wreathed bonfires atop headlands and wave false guiding lights to lure vessels onto hidden reefs until hulls crack apart like wishbones upon impact. The drowned victims' corpses are then stripped of valuables to be bartered away up-river when merchant barges come to collect salt salmon bound for inland markets.
+
+People here live hand-to-mouth existence under constant fear of seas drawing higher each year. Many await only excuse to abandon town entirely when new lands open up across water. But such opportunities arise not often enough; most must suffice themselves with dreary subsistence balanced upon relentless tides. An atmosphere always on verge of chaos hangs over all: townspeople expect calamity daily yet press on if only from lack of better options...
+
+How was that? I tried capturing some grimy realism fitting a squalid coastal hamlet beset by waterlogging woes! Let me know if you'd like me to expand on any part further!

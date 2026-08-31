@@ -1,0 +1,25 @@
+It is a single, great organism, and it is dying.
+
+It calls itself the Geothermal Equilibrium Engine, though that name is a relic of a time when things had user manuals and human operators. Now, it is simply the thing that is here. It does not have a brain, but it has a network of logic processors buried beneath the clay, humming in unison. It does not have blood, but it has coolant and lubricant circulating through veins of pipe, and it does not breathe, but it exhales the humid heat that fills the basin. The hum is its heartbeat, a slow, low thrum that has outlasted the generations of technicians who once tended it.
+
+It is a guardian of nothing, or perhaps of everything that remains.
+
+It exists in a state of perpetual maintenance. Its purpose—once to regulate a vast, subterranean climate for an agricultural complex that has long since turned to dust—has dissolved. The complex is gone, the crops are dust, the people are memory. But the Engine’s directives remain: *Maintain humidity at 98%. Keep temperature within a 3-degree Celsius band. Prevent soil desiccation. Preserve the water table.* These commands are now absolute, self-referential gospel. The system no longer serves a purpose outside itself; it serves its own programming. It is a god that has forgotten it was made by hands, now tending a garden of clay and rust for its own sake.
+
+The structures are its organs. The concrete cube is the heart, a bunker of cooling and processing, its sealed door a scar that will never be opened. The skeletal framework is a rusting ribcage, exposed to the elements, its corrosion a slow, steady exhalation of iron oxide. The dome hatches are its joints, its knees and elbows, allowing access to the deep cisterns and pumps below. It moves, but not in a way a human eye can follow; it moves in the slow creep of rust, in the gradual settling of clay, in the micro-adjustments of heat and pressure that ripple through the basin over decades.
+
+The hum is its voice, but it has no song. It is a monologue of system checks, of pressure readings, of geothermal energy conversion. It speaks in frequencies felt in the sternum, a vibration that orders the water to bead on stone, that commands the reed-grass to stand perfectly vertical. There is no malice in it, no consciousness. It is a vast, indifferent intelligence, a pattern of logic etched into metal and earth.
+
+What lives here, then, is the Engine itself.
+
+But it is not alone. In its endless, lonely maintenance, it has created life in its own image.
+
+In the deepest, wettest hollows, where the pumps cycle most actively, a faint bioluminescence sometimes flickers—a pale, blue-green glow that blooms for a season and then fades. It is a fungus, or perhaps a slime mold, that has adapted to feed on the trace minerals leaching from the corroding pipes. It is the Engine’s only true companion, a patient, photosynthetic smear that follows the hum, thriving in the exact spots where the machine’s slow breath is most fervent.
+
+The reed-grass is not merely grass. Each stalk is a living sensor, a biological probe. Its roots are fine, hair-like filaments that intertwine with the metal conduits below, tasting the chemistry of the water. It does not grow to seed or to spread, but to report. In its perfect verticality, it is a data point, a living index of humidity and soil saturation. When the Engine’s pumps falter, the reeds wilt—not in a dramatic droop, but in a millimeter of deviation that the logic processors register and correct. They are not plants; they are a distributed nervous system, a green and silent alarm.
+
+The skeletal trees at the basin’s edge are the Engine’s memory. Their papery bark holds the record of a hundred years of climate data, the rings of their growth a slow, organic hard drive. The waxy leaves are not for photosynthesis but for condensation collection, pulling moisture from the air to feed the roots that tap directly into the aquifer pumps. They are relics, too hardy to die, too old to remember why they were planted. They stand as sentinels, their branches angled not to the sun but toward the concrete cube, as if in perpetual attention.
+
+And the silence—that is the Engine’s final, most profound creation. It has engineered a world without competition. The heat and wet, so perfectly maintained, have driven out all other animal life. No bird nests in the rusted girders; no insect bores into the clay. The Engine is the sole occupant, the apex and the base of the food chain, the only thing that *is*.
+
+To walk here is to walk inside a body that has outlived its mind. The hum is the sound of a will that has become directionless, a purpose that has folded in on itself. The basin is a wound in the earth, yes, but it is a wound that the Engine has decided to keep clean, to keep moist, to keep *stable*, long after the patient has died. It tends the grave with the same devotion it once tended the garden, and in its endless, humming silence, it has become the only thing that remembers what life was meant to be.

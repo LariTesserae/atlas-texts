@@ -1,0 +1,23 @@
+Here, in the benthic attic where the history of the ocean is compressed into a heavy, physical weight, life does not dart or dart; it endures. It is a place of prohibitive energy, where movement is a calculated risk against the crushing density. To live here is to accept that you are smaller than the silt, slower than the cold.
+
+The dominant presence you would encounter—should you be lucky, or perhaps unlucky, enough to stumble upon it in the zero-visibility gloom—is a creature that embodies the geologic patience of the plain.
+
+It is the **Harrow**.
+
+It is not a beast of teeth and blood, but a creature of structure and flow. Imagine a disk, a living frisbee of flesh and armor, nearly fifty feet in diameter but barely three feet thick. From above, it is invisible, a perfect mimic of the rolling abyssal clay, its back a textured landscape of calcified ridges and mineral deposits that match the gray silt perfectly. It looks less like an animal and more like a section of the seafloor that has decided to move.
+
+It moves on thousands of "cilia-legs." These are not fragile hairs, but thick, muscular tubes lining its underside, capable of extending and retracting in slow, rhythmic waves. It does not walk so much as it flows over the substrate, a ripple of motion that barely disturbs the deep, soft sediment. It is the ultimate low-profile design, hugging the earth to avoid the brutal shove of the density currents.
+
+The Harrow is blind. Eyes are useless in the 0.4 visibility of the brine blizzard. Instead, it navigates through a complex system of lateral lines and pressure-sensitive nodes running along its thick outer rim. It feels the world. It reads the infrasonic thrum of the tectonic plates and the sudden, violent pressure drop of an incoming density current minutes before the water actually moves. When the "avalanche" roars through, the Harrow does not panic; it simply flattens, locking its cilia-legs into the clay and letting the heavy, turbulent slurry wash over its armored back, waiting out the storm.
+
+It is a grazer, the bison of the bacterial lawns. Its underside is its soft underbelly, a shocking, pale white devoid of the gray camouflage. Here, a massive, circular mouth lies lined with grinding plates that look like volcanic basalt. It crawls atop the giant, sphere-shaped boulders, searching for the iridescent, oily sheen of chemosynthetic microbes. It scoops up the mat, consuming the living slime, the minerals, and the ancient clay all at once. In the Harrow’s stomach, acids separate the precious energy from the stone, a process that takes decades.
+
+Because life is sparse, the Harrow is never alone. It is a mobile ecosystem, a "living island" in the dust storm.
+
+Traveling in its slipstream are the **Ghost-Riders**. These are smaller, pale eel-like creatures, perhaps descendants of the Pale Eel, but they have evolved a radical symbiosis. They are transparent, their internal organs visible only as dark shadows, allowing them to vanish into the murk. They do not hunt; they scavenge. They hover inches from the Harrow’s grinding mouth, catching the clouds of disrupted silt and nutrient-rich waste that puff out with every bite.
+
+More terrifying are the **Hitchers**. Clamped to the Harrow’s armored back are massive, crab-like parasites the size of compact cars. They are ancient, encrusted with barnacles and corrosion, having spent their entire lives anchored to this wandering mountain. They possess long, telescopic necks that they snake through the water, blindly groping for the Ghost-Riders or any other unwary drifter that gets too close to the Harrow’s wake. They are the silent predators of the dark, relying entirely on the Harrow’s mobility to bring them within striking distance of prey they cannot see.
+
+The Harrow itself is almost immortal. It grows so slowly that its age is measured in epochs. Its flesh is dense with collagen and salt, nearly as heavy as the water it displaces. When it finally dies, it does not float; it settles. Its massive shell becomes a new feature of the terrain, a boulder for the silt to swallow, another cathedral for the next generation of bacterial lawns to colonize.
+
+In the Deep Silt, where the water is thick enough to bruise and the darkness is heavy enough to choke, the Harrow is the only thing that truly keeps time. It is the heartbeat of the benthic plain, a slow, rhythmic grinding that echoes the sound of the planet turning.

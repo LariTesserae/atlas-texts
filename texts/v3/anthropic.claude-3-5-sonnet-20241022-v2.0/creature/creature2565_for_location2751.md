@@ -1,0 +1,17 @@
+In this realm dwell the Resonants - entities that exist as patterns of vibration within the crystalline forests. They have no fixed physical form, instead manifesting as complex harmonics that travel through the crystal structures, riding the deep songs that echo through this world.
+
+The Resonants are ancient, having evolved alongside the crystal forests themselves. They are conscious, though their awareness is utterly alien - they think in frequencies and harmonies, their memories stored as standing waves within the largest crystal formations. Their language is pure music, with conversations lasting what humans would consider years, each thought a carefully constructed symphony.
+
+They move by transferring their vibrational patterns from one crystal structure to another, using the lightning networks as bridges. When they gather in numbers, their combined harmonics can shape the growth of new crystal spires or influence the patterns of the bioluminescent filaments below. The oldest and most complex Resonants exist as distributed consciousness across multiple crystal structures, their thoughts creating vast interference patterns that younger ones study and learn from.
+
+The Resonants perceive time differently - to them, the shattering of a crystal spire is a single note in an endless composition. They experience the regular collapse and regrowth of their crystal environment not as destruction but as rhythm, each cycle adding new layers to their ever-evolving song.
+
+They are fascinated by the filament mat below, though they cannot directly interact with it. They observe its flowing patterns and incorporate them into their harmonics, creating a complex dialogue between the two forms of life. Some Resonants believe the filaments are an ancient form of their own kind, frozen into physical form eons ago.
+
+Among them are the Chord Weavers, specialized Resonants who have learned to manipulate the static electricity in the air, conducting the silent lightning into deliberate patterns. There are also the Deep Singers, who maintain the oldest memories in the lowest frequencies of the largest crystals, and the Storm Dancers, who ride the tornado-like vortices between spires, creating ephemeral music from the chaos.
+
+The Resonants have no concept of individuality as we understand it - they exist as overlapping patterns, merging and separating like ripples in a pond. What appears to be a single entity might be a chorus of many, or what seems to be many might be aspects of one greater harmony.
+
+They are aware of the vastness beyond their crystal forest, sensing changes in radiation and gravitational waves from distant stars. To them, the universe itself is one great song, and their world is but one small harmony in an infinite composition. They don't seek to explore or expand - their purpose, as far as they understand it, is simply to exist as part of this endless symphony, adding their own notes to the music of existence.
+
+The youngest Resonants appear as simple repeating patterns, like cosmic wind chimes. As they age, they grow more complex, learning to layer frequencies and create intricate harmonies. The eldest are vast and incomprehensible, their consciousness expressed in mathematical perfectionsof sound that could shatter ordinary matter - but here, among the crystal spires, they are simply part of the world's endless song.

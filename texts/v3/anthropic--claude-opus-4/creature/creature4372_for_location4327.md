@@ -1,0 +1,19 @@
+In this breathing pocket of warmth, something has made a nest of salvaged insulation foam and strips of heat-resistant fabric torn from maintenance suits. The dwelling resembles a chrysalis more than a shelter—layers wrapped and rewrapped, creating chambers within chambers, each one slightly warmer than the last.
+
+The occupant moves like mercury through the humid space, their form difficult to track in the bioluminescent dimness. They've adapted to the alcove's rhythms—sleeping when the condensation falls heaviest, waking when the pipes cycle their warmth. Their skin has taken on a peculiar quality, somewhere between the moss's phosphorescence and the drain beetles' iridescent sheen. Whether this is adaptation or application remains unclear.
+
+They tend small gardens in repurposed coolant containers—not of moss, which grows wild, but of the strange fungi, cultivating specific strains. Some varieties they harvest and dry, creating fibrous sheets that serve purposes both practical and obscure. Others they feed with careful drops of their own saliva, watching the chemical reactions cascade through the fungal networks like thoughts through a brain.
+
+The occupant's fingers have grown long and sensitive, able to read the temperature variations in the pipes like braille, predicting the system's cycles hours in advance. They've mapped every thermal gradient in their sanctuary, know which spots will bloom with condensation at which times, where to place containers to catch the purest water, where the mineral content runs bitter or sweet.
+
+Tools hang from the walls—modified thermocouples, hand-carved implements of ice that never melt in the precise temperatures they're stored at, collections of drain beetle shells sorted by size and chemical composition. The occupant uses these shells as tiny vessels, brewing concoctions from fungal spores and condensation minerals that serve as food, medicine, or something altogether different.
+
+They speak to the beetles in clicks and taps, a percussion language that echoes off the wet walls. The beetles respond, or seem to—clustering in patterns that might be communication or mere instinct. The occupant records these patterns in the soft fungal sheets, building a library of observations that may be science or may be madness.
+
+At night (though day and night mean little here), they press their ear to the warmest pipe and listen to the city's mechanical heartbeat, counting the strikes of distant hammers, timing the conveyor rhythms. They know every voice in the industrial choir, can tell when a bearing begins to fail three sectors away by the slight change in harmonic frequency.
+
+Their breath mingles with the alcove's exhalations, adding human moisture to the geological and mechanical. They've become part of the water cycle here, their sweat and breath eventually returning as condensation, as if the alcove has incorporated them into its body. They sustain themselves on fungal harvests, beetle protein, and the occasional treasure that washes down through the drainage systems—nutrient bars from some long-abandoned cafeteria, their packaging intact despite decades of neglect.
+
+Sometimes they venture out through the service hatches, moving through the frozen city's veins like a ghost of maintenance past. They know which systems still respond to manual override, which forgotten stockrooms might yield supplies. But they always return to the alcove, to its wet warmth and strange companionship of moss and beetle and fungi.
+
+They're building something in the deepest corner of their nest—an intricate construction of beetle shells and fungal fibers, threaded with stolen wire and sealed with their own cultivated adhesives. It resembles simultaneously an antenna, an altar, and an egg. They feed it drops of various solutions, speak to it in their clicking language, sleep curled around it as if protecting or incubating something that hasn't yet decided what it wants to become.

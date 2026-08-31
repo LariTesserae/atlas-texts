@@ -1,0 +1,55 @@
+Begin with the builders, because the town is theirs, though they would not understand the claim. Ownership requires the idea that a thing could belong to someone else, and nothing on the spire has ever had a rival.
+
+---
+
+**The builders**
+
+Up close, a builder is less insect-like than the word *many-legged* suggests. The body is soft and segmented, the color of the host stone — that dark conchoidal grey — but with a waxy bloom over it, as though it had been handled. Twelve or fourteen limbs, the front two pairs ending in spatulate pads rather than claws. No visible eyes; instead, a band of glossy tissue runs the length of each flank, sensitive to warmth, vibration, and the faint glow-gradients of the resin. A builder does not see the town. It *feels* the town as a continuous field of temperature and tremor, and reads it the way a hand reads braille — which is to say fluently, with attention, and without ever needing light.
+
+The most important thing about a builder is the warmth it carries in its throat. There is no fire on the spire and there never will be, but each builder maintains a small chemical heat in a chamber behind its mouthparts — a slow exothermic gut-flame, body-deep, never exposed to air. This is how resin is worked: chewed warm, held warm, laid up warm, smoothed with the pads while it still gives. The town's only flame is internal, distributed, and roughly blood-temperature. A wall is built out of a thousand small acts of bodily heat, and a freshly laid course, touched, is warm the way another animal is warm. It cools over a day. Old walls are cold. You can date the town's construction with your palm.
+
+A builder has no name in the called sense — nothing here is called anything — but each one is *legible*. The flanks accumulate a residue-history: traces of every resin batch it has chewed, every doorway it has marked, every other builder it has greeted. When two meet in a lane and lay forelimbs along each other, what passes between them is something like a résumé and something like a face. Identity here is not asserted; it is accreted. You are where you have worked. An old builder is dense with itself, almost illegibly layered, and the young ones linger over reading it.
+
+The touch-language has grammar. This takes long watching to believe, but the contact-trembles are combinatorial: a vocabulary of pressures and intervals, modified by where on the body they are laid. There are statements about resin (its temperature, its readiness, where it is pooling), statements about the rock (the wind-tone has shifted; a crack is extending in the third chimney; the new edge is sharp), and a smaller, slower set of statements that seem to be about nothing operational at all and that two builders will sometimes exchange at length, motionless in a lane, while traffic flows around them. Whether these are gossip, philosophy, or something with no human analog, no observation settles. But they happen most often in the dim hours, when the walls hold their honeyed afterglow and the work has stopped, and they have the unmistakable shape of conversation kept up for its own sake.
+
+Disagreements are conducted in architecture. When two work-shifts differ about where a wall should run, there is no contest and no arbitration — both walls get built. The town simply carries the contradiction, two courses diverging from a common foundation, for a generation or more, until use wears one path smooth and the pale things below quietly eat the other. An argument here can take forty years to resolve and is resolved by patience rather than victory. Some of the town's strangest junctions — doubled lanes, chambers with two entrances a hand-span apart — are old quarrels nobody finished, fossilized into the map.
+
+They are born from eggs like seed-pearls, pressed into niches in the warmest walls — always the walls that incorporate a living lampwood trunk, where the architecture itself has a pulse of vegetable heat. The hatchlings spend their first season inside the wall cavities, eating soft resin, learning the field of warmth and tremor before they ever enter a lane. Their first journey out is also their first introduction: at the natal doorway, an adult reads them, and smears beside the door a small addition to the chemical script — the only record of arrival the town keeps.
+
+And they die into the walls. This is the thing that reorganizes everything else you have seen. A builder grown stiff and slow climbs, in its last season, to a niche of its own choosing — usually high, usually sunward — folds its limbs, and waits. The others lay warm courses over it. It becomes an inclusion: a stone-grey figure suspended in amber, perfectly preserved, visible in strong light as a shadow in the translucent wall. The town's walls are full of them. Every street is faced with ancestors. The shadows you see moving behind the frosted amber walk past the shadows that no longer move, and there is no sign that the living find this anything but ordinary — though it is noticeable that the oldest, most inclusion-dense walls are never abandoned to the recyclers, are patched and re-faced and carried forward, course upon course, while newer walls a tenth their age are let go.
+
+---
+
+**The gleaners**
+
+If the builders are the town's hands, the gleaners are its weather — present, overhead, consulted but not engaged.
+
+They are the only quick thing on the spire. Everything else moves at the pace of resin; a gleaner crosses the entire summit in eleven seconds of stiff-flapped silence. Their bodies are mostly eye and membrane: the dark eyes are adapted not for darkness but for *gradient* — they read the glow of trunks and walls the way the builders read warmth, navigating by luminance contours that no other vision would register. To a gleaner, the dim hours are the legible hours, when the whole town is a topographic map of fading light.
+
+Their throat-flash language is fast, bright, and apparently mostly about position — *here, mine, yours, falling, found* — but it has one elaborated register, used in courtship, where two gleaners on facing fronds will flash in alternation, each modifying the other's pattern, for the better part of a night, building something jointly that neither flashes alone. The pattern, once settled, is the pair's. They use it for the rest of their lives, a private word in a public language.
+
+They are born in cup-nests of chewed frond high in the lampwood crowns, and most never deliberately touch the ground. The lanes are not dangerous to them; they are simply *below* — the wrong medium, the way deep water is the wrong medium for a gull that nonetheless can swim. A gleaner that falls and cannot reclimb will be found, sooner or later, by builders, and here occurs one of the spire's few visible interspecies transactions: the builders do not feed it or tend it, but they will clear a path, and one will walk before it, at gleaner pace, to the base of a ramp. It is not kindness exactly. It reads more like the maintenance of a known arrangement, old enough that neither party remembers negotiating it.
+
+The gleaners' dead do not stay. This is the strangest thing about them and the most certain: a gleaner at the end of its life grooms its flaps, climbs to the summit's highest frond, and glides out — past the edge, past the last rock, out over the haze, descending in a long shallow line until it cannot be seen. Nothing else ever leaves the spire. The builders are sealed into the walls; the lampwoods stand where they fell; the resin never finishes its descent. Only the gleaners exit, once each, deliberately, on open wings. Whether anything lives in the haze to receive them, the spire does not know and the gleaners do not flash about it.
+
+---
+
+**The pale ones**
+
+There may be only four of them.
+
+That is the conclusion long watching forces: the wax-pale, eyeless things in the deep galleries are not a population but a handful of individuals, each longer than a builder's lane is wide, each older than any standing wall. They have eaten the town several times over. Every wall now standing is made, in part, of every wall that ever stood, passed through them.
+
+This has a consequence nobody up in the light could deduce: the resin they return to the common pools is not neutral. It carries traces — faint chemical signatures of the old walls it once was, the doorway-scripts it absorbed, the inclusions it dissolved around (the bodies themselves they do not eat; those they leave, and the builders find them in the spoil and re-seal them, which is why some ancestors have been entombed three and four times, each time higher in the town). Builders working with recycled resin follow, without knowing it, the ghost of old preferences: a curve recurs where a curve once was, a doorway lands where a doorway stood two centuries ago. The town repeats itself like a melody half-remembered. Its newest quarter rhymes with its oldest, and the pale ones are the rhyme's carriers — a memory that works by digestion.
+
+The builders do not greet them. When a pale one surfaces — rarely, in the dim hours, blind head emerging from a floor seam to take soft resin from a common pool — the lane simply empties, without hurry, and refills after. It is not fear. It has the quality, rather, of the way one does not interrupt.
+
+---
+
+**The lesser tenants, and the question**
+
+Below all of this, the small life: bead-shelled grazers circling the cushion-plants on geological schedules; thread-climbers that ascend a trunk over a week; and the animate droplets, which may not be animals at all but escaped tissue of the lampwoods themselves — motile resin, half-alive, flowing slowly downhill toward the pools. The builders herd them there with the patience of people sweeping. Whether this is husbandry, tidiness, or the plants and the builders sharing a single metabolism with the seam barely showing, the spire declines to say.
+
+And then there is the question the place finally puts to you, after enough watching, and it is this: the builders die in decades, the gleaners faster, even the pale ones presumably end — but the conversation does not. The touch-grammar, the doorway-scripts, the wall-taps, the slow architectural arguments, the courtesies between species, the rhymes carried in digested stone — all of it persists across every individual life in it, repaired and re-smeared and taught forward, the way the town itself persists across every wall. It is hamlet-sized. It glows at night. It has been talking to itself, without one audible word, since before the oldest inclusion folded its limbs.
+
+It may be that the truest answer to *what lives here* is not the builders or the gleaners or the pale ones at all, but the thing they are all inside of — the conversation, warm as a freshly laid course, conducted at a season per inch, on a stone too young to know that anywhere else exists.

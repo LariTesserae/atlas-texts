@@ -1,0 +1,33 @@
+# The People of the Wax City
+
+The citizens of the Wax City call themselves the Cerumen, a name derived from their ancient word for the malleability that defines their existence. They are not merely inhabitants of this amber metropolis—they are extensions of it, their lives and bodies adapted to its peculiar properties over countless generations.
+
+The Cerumen are slender and tall, with limbs that seem slightly elongated compared to other desert peoples. Their skin ranges from pale honey to deep amber, often bearing a subtle luster that catches light like the city itself. Most striking are their eyes—large, liquid-dark, and reflective, adapted for seeing in the diffuse light that filters through translucent wax walls.
+
+Their hair grows thick and often wavy, worn in elaborate braids and coils that mimic the architectural patterns of their city. Many Cerumen incorporate small amounts of wax into these styles, creating semi-permanent sculptures that they might maintain for months or years. The most skilled hair-shapers can tell a person's family history or profession through the intricate patterns they weave.
+
+Cerumen hands are their most distinctive feature—fingers slightly longer than one might expect, with extraordinarily sensitive fingertips. From childhood, they develop a tactile intelligence that allows them to read the subtle tension patterns in wax, to feel where it might yield or strengthen. The oldest Shapers develop calluses that themselves resemble amber deposits, their hands becoming living tools shaped by decades of communion with their medium.
+
+They speak in soft, melodic tones that carry surprisingly well through the sound-dampening city. Their language, Ceromin, contains over forty terms for different wax consistencies and behaviors. When discussing their craft, Shapers often communicate through a combination of words and hand gestures that demonstrate the forces they describe—pressure, flow, resistance, yield.
+
+The Cerumen organize themselves not by traditional family units but by craft-kinship. Children are raised communally within their hexagonal neighborhoods in the Comb, gradually apprenticing to those whose skills they show aptitude for. Leadership falls to a council called the Melange, composed of seven master artisans from different crafts who serve for seven years before returning to their work.
+
+Their diet is primarily vegetarian—cultivated desert plants, grains traded from distant regions, and a variety of fermented foods stored in sealed wax containers. Their most prized culinary creation is honey, not from bees but from the sap of rare desert flowers that they process through complex distillation methods. This honey is both food and medicine, fortifying the body against the dry climate.
+
+Spiritually, the Cerumen practice what outsiders might call flow-worship. They believe that all matter—including themselves—exists in various states of flow, from the seemingly solid to the obviously liquid. Their temples are circular chambers where wax walls have been coaxed into rippling patterns that seem frozen in mid-motion. Here, they meditate on the nature of permanence and change, seeking to understand their place in the eternal flow.
+
+The Shapecalling ceremony marks a Cerumen's transition to adulthood. After years of apprenticeship, the young artisan spends seven days in solitude, creating a small wax sculpture that represents their understanding of themselves. This shape is then presented to the community and placed in a special alcove in their dwelling, to be slowly reshaped over their lifetime as their self-understanding evolves.
+
+Cerumen technology is subtle and sophisticated despite its apparent simplicity. They have developed methods to alter wax composition for different purposes—more rigid for structural elements, more translucent for windows, more absorbent for water management. Their most guarded secret is the formula for what they call "eternal wax," which resists melting even under direct flame and forms the foundation of their most important structures.
+
+Their medicine combines herbal knowledge with wax therapy. Healers create specialized wax compounds that are applied to the body to draw out impurities, reduce inflammation, or deliver healing agents through the skin. Small wax plugs infused with medicinal herbs are sometimes worn in the ears or nostrils to treat respiratory conditions common in the dry environment.
+
+The Listeners are a specialized group who press their ears to the foundations of the city, monitoring the subtle creaks and shifts of the massive wax structures. They can predict where maintenance will be needed months or years before problems become visible, allowing Shapers to intervene preemptively. The most talented Listeners can determine the composition of wax mixtures simply by the sounds they make when stressed.
+
+Outsiders are rare in the City of Wax, but not unwelcome. Traders come seasonally, bringing metals, textiles, and news from beyond the basin. They are housed in special chambers near the city's edge, designed to be more familiar to those accustomed to rigid architecture. The Cerumen are curious about the outside world but few choose to leave permanently—their deep physical and spiritual connection to the wax city makes extended absence uncomfortable.
+
+Death in Cerumen society is seen not as an ending but as a transformation of form. When a person dies, their body is wrapped in wax-soaked linen and placed in a specially prepared chamber within the foundations of the city. Over time, their remains become part of the city itself—literally incorporated into the ongoing flow of life. Families sometimes visit the general area where ancestors were placed, pressing their hands to walls that may now contain traces of those who came before.
+
+The oldest Cerumen, those who have lived a century or more, undergo a gradual physical change that they call "the returning." Their skin develops a translucent quality, their movements slow, and they speak less frequently but with greater weight. These elders often choose to spend their final years in contemplation chambers deep within the Comb, where they serve as living archives of knowledge and memory, visited by those seeking wisdom or historical insight.
+
+In the waxen city that flows through time like honey down the side of a jar—neither truly solid nor truly liquid—the Cerumen have found harmony between persistence and change, crafting lives as carefully molded and beautifully impermanent as their amber home.

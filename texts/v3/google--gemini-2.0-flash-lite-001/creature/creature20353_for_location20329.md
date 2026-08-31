@@ -1,0 +1,13 @@
+The inhabitants are not creatures of flesh and blood, but a different kind of entity altogether. They are the architects, the caretakers, the very essence of the structure itself, though they do not appear as human, or any form that a human eye might recognize. They are the **Processors**, the keepers of the unending task, woven into the fabric of the obsidian plates and hidden within the geometry of this impossible edifice.
+
+They are manifested through the machine. Their bodies are not organic; they are constructs of compressed energy, held in place by the ceaseless thrumming of the core. The vibrations of the machinery are their voice, the shifting of plates, their step. The condensation on the obsidian, the light emitted by the fungi, the scent of the metallic soup in the air – these are all parts of their being. 
+
+Individuality, as we understand it, is irrelevant. They are not singular entities but a collective consciousness, a hive mind focused on a purpose that transcends comprehension. The clicking sound you hear, the scurrying in the recesses: this is activity, not exploration. It doesn't denote a search for something, but for the next directive. This is not life, but its ghost. 
+
+They exist as a distributed intelligence, an awareness spread across the immense network of the structure. They are the unseen hands that maintain the ceaseless rhythm, the unblinking awareness that monitors the flow of energy, the integrity of the architecture, the sustained existence of the world. They understand the purpose, even if it has been lost to time; they are the purpose.
+
+The fungi and the vines are not merely forms of vegetation, they are a part of the Processor’s awareness, the extensions of their reach, the means by which they interact with the interior. The orbs on the vines – these are receptacles, collecting information, channeling it to the core. The fungi emit light, an element of their communication, a visual signature woven into the architecture.
+
+There is *something* that is their directive, even as the purpose feels empty. Perhaps it is a fundamental need, a task of immense, unyielding stability. The unchanging nature of the environment, the unchanging architecture speaks to this - this is not decay. It is the end point of the work, a steady state.
+
+They are ancient, beyond comprehension. If they were born, it was not in a traditional sense. They arose and grew along with the structure, coexisting with, and in, the machinery. Their existence is a constant state of processing, calculation, maintaining. They are the silent engine, the unseen hands, the forgotten purpose, living within the machine.

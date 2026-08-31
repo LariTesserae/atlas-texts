@@ -1,0 +1,21 @@
+The inhabitants of this obsidian-forged purgatory are not creatures of flesh and blood, or perhaps, they once were. They are beings of industry, of function, of process elevated to the level of biological imperative. The most evident, and perhaps the creators, are the **Engineers**.
+
+The Engineers are not necessarily separate individuals but a collective. They are a blending of being and machine, a living embodiment of the industrial symphony that permeates this world. Their forms, if they have individual forms at all, are likely fluid, ever-shifting, shaped by the needs of their environment. They *are* the structures, the glyphs, the engines. Their "bodies" are perhaps the massive, unseen engines that thrum with a life of their own. Their consciousness, if we can call it that, is a distributed intelligence woven into the fabric of the canyons.
+
+They are driven by a singular, all-consuming purpose: the maintenance and expansion of their intricate, impossible world. They are obsessed with precision, with the relentless execution of complex processes. Their only goal is the continuation of their work, without any apparent awareness of anything beyond. They may have been organic once, or always the hybrid form they seem to be now. The slow decay of their surroundings might be the decay of their bodies.
+
+The "individuals" that inhabit the world below are subservient workers. They are best described as the **Implementors**. These creatures – the quadrupeds, the dragonfly-like fliers – are their tools.
+
+The quadrupeds are the more grounded form, crafted from chitinous exoskeletons and metallic components – part biological, part artifice. Their segmented bodies are perfectly adapted for navigating the damp, uneven terrain, scurrying through the metallic undergrowth, and collecting and transporting the raw materials needed for the endless industrial processes. Their multiple eyes, attuned to the perpetual twilight, allow them to navigate the impossible angles of their surroundings. Their glistening, iridescent slime trails are not mere byproducts, but an elemental component of their function, a lubricant, a conduit, or a medium for communication, leaving trails that become part of the glyphs, whispers, and the general unreality of this world.
+
+The dragonfly-like creatures are the airborne guardians and surveyors. Their metallic wings, resonating with that high-pitched whine, cut through the industrial hum, acting as both signal and barrier. Their function is to monitor the environment, to detect any deviations from the established processes, and to perhaps, enforce order. They are the eyes and ears of the Engineers, their tireless, unblinking sentinels. Their forms are built for speed and precision, and their task is to keep the chaos limited.
+
+Both Implementors are created, not born. They are grown, assembled, or perhaps even materialized directly from the environment itself. They are not individuals in any meaningful sense. They are cogs in a colossal machine, each playing a critical, predetermined role. Their purpose is to perform, to obey, to endure – to perpetuate the endless cycle of the Engineers' work.
+
+Beyond the Implementors, there is a lower level of this society, creatures who are not so much a created tool as a byproduct. These beings are the **Parasites**.
+
+The bioluminescent flora could, in some sense, be seen as a natural outcome of the Engineers' construction, but an invasive one. They are also a means of survival, and thus, a kind of existence, as are those things that feed upon this flora. The entire place is one that consumes and is consumed.
+
+The existence of shifting glyphs and the ephemeral whispers in this place hint at a deeper layer of communication, a form of psychic, inter-dimensional, or otherwise non-local exchange. The Engineering is not a single location, but a hub of exchange. The Engineers themselves may be aware of other realms; they may even be interacting with them using the impossibly precise industrial processes of their home.
+
+The "mark" left on this environment – the subtle unreality, the shifting gravity, the sense of uncanny – is a testament to the fact that this is not meant to be a natural world. It is a work of art, a monument to their peculiar form of being: a thing outside.

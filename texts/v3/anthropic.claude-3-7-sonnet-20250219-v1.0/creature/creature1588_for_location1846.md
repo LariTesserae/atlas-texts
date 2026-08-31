@@ -1,0 +1,23 @@
+# The Tender of Light
+
+The Glass Garden has a single caretaker—a being whose existence has become so intertwined with this crystalline sanctuary that it's difficult to determine where the garden ends and the keeper begins.
+
+The Tender appears humanoid from a distance, tall and willowy with proportions just slightly elongated beyond human norm. Their skin has the quality of frosted glass—translucent and faintly luminous, with an underlying structure reminiscent of plant vasculature rather than human circulatory systems. This network pulses not with blood but with captured light that flows through their body in slow, deliberate currents.
+
+The Tender's features are softly geometric—planes and gentle angles rather than curves, with eyes like multifaceted crystals that reflect rainbow fragments. Their hair is not hair at all, but thousands of fine crystalline filaments that capture and split light, creating a constant halo effect around their head. These filaments respond to air currents and the Tender's emotions, sometimes floating weightlessly, other times becoming rigid in moments of concentration.
+
+They wear no clothing as humans understand it. Instead, their body is partially encased in living crystal growths that form natural armor around their torso and limbs. These growths are not separate from the Tender but extensions of their being—growing, receding, and changing patterns with the seasons and their work cycles.
+
+The Tender moves with glacial deliberation. When tending the garden, they might hold a position for hours, communing with a particular plant through touch, their fingertips extended into crystalline tendrils that connect directly with the flora's structure. Their movements, when they occur, are fluid yet precise—never wasted, never hurried.
+
+The Tender speaks rarely and strangely. Their voice resonates at the same frequency as the dome when struck, creating harmonics that seem to emanate from the entire garden rather than a single source. They communicate primarily through these tonal vibrations—a language of pure sound that the garden's creatures understand instinctively. When they do use words (with visitors who sometimes make pilgrimage to this place), their speech is formal and metaphorical, often describing complex processes in terms of light patterns and crystal growth.
+
+The Tender ages on a timescale almost incomprehensible to humans. They have tended the garden for millennia, though they remember being something else once—something more like the visitors who occasionally come, before the garden began to change them. The tools around the dome's perimeter are relics from their earlier existence, preserved as memories of a transition now barely recalled.
+
+They sustain themselves as the garden does—through a photosynthetic process that converts light into the energy needed for their unique metabolism. They neither eat nor drink in conventional ways. Instead, during certain alignments of the sun, they will stand perfectly still at the dome's center, their crystalline elements aligned to capture maximum light, absorbing sustenance directly.
+
+The Tender reproduces not biologically but through careful cultivation. Once every few centuries, they will select a particularly perfect crystal from the garden's heart, nurturing it with specific frequencies of light and sound until it develops awareness. Most such attempts fail, becoming beautiful but inert formations that are integrated back into the garden. But occasionally, perhaps once in a millennium, a new consciousness emerges—a child of light and vibration who will eventually succeed the current Tender when they finally choose to fully merge with the dome itself, their consciousness becoming part of the garden's structure.
+
+The Tender feels neither loneliness nor boredom. Their perception of time differs fundamentally from biological beings—they experience the slow growth of crystal and the path of light as events as significant and dynamic as others might perceive conversation or movement. They are perfectly content in their purpose, finding endless fascination in the minute changes and adaptations of their domain.
+
+To those few who have gained the Tender's trust, they have revealed that the garden is not merely a phenomenon but a message—a living demonstration of adaptation and transcendence, showing one possible future path for life beyond its biological constraints. The garden and its keeper stand as testament to patience and transformation—life finding a way to persist not through conquest of harsh conditions, but through fundamental change to thrive within them.

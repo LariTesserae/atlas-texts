@@ -1,0 +1,21 @@
+**The Drift Dwellers**  
+
+The Floating Canopy is not just a place—it’s a living entity, a shifting, breathing world that exists in harmony with the endless ocean beneath it. It is home to a unique people, the **Drift Dwellers**, who have adapted to the rhythms of this floating world. They are not merely inhabitants; they are part of the ecosystem, woven into the fabric of the canopy as surely as the vines and roots that hold it together.  
+
+The Drift Dwellers are a lean, wiry people, their skin weathered by salt and wind to a dusky amber. Their hair, often bleached by the sun, is braided or tied back with cords made from plant fibers, keeping it out of their faces as they work. Their hands are calloused, strong from years of gripping ropes and nets, and their bare feet are tough, able to navigate the uneven, spongy surface of the canopy without hesitation.  
+
+They dress in garments made from the materials around them: woven plant fibers, layered with patches of salvaged cloth when they can find it. Their clothes are loose and practical, designed for ease of movement and protection from the elements. Around their necks, many wear pendants carved from driftwood or polished shells—symbols of their connection to the sea and the canopy.  
+
+The Drift Dwellers are a quiet people, their words measured and sparse. They communicate as much through gesture and expression as through speech, their language shaped by the need to conserve energy and focus on survival. When they do speak, their voices are soft, blending seamlessly with the sounds of the wind and waves.  
+
+Their lives are governed by the cycles of the canopy and the sea. Daily tasks include gathering food—fishing from the woven nets they cast into the water, harvesting edible plants from the canopy, or collecting eggs from the seabirds that nest in the higher branches. They are skilled craftspeople, shaping tools and weapons from the materials they find: bone hooks for fishing, blades made from sharpened shell, and ropes from the fibrous strands of plants.  
+
+The Drift Dwellers live in small, semi-permanent settlements anchored to the edges of the canopy. Their homes are low, rounded structures built from lashed-together plant fibers and salvaged driftwood, designed to withstand the occasional storm that sweeps across the water. Inside, the air is damp but cozy, the walls lined with woven mats and the floors softened by layers of dried seaweed.  
+
+Though they live in small, isolated communities, the Drift Dwellers are not entirely solitary. They maintain loose connections with other settlements, exchanging news and resources through travelers who move between them. These travelers are revered figures, known as **Wayfarers**, who navigate the currents and guide their small, plant-fiber boats across the open water. They carry stories, goods, and sometimes new members for the settlements, keeping the Drift Dwellers connected to the wider floating world.  
+
+The Drift Dwellers have a deep spiritual connection to the canopy and the sea. They believe the floating mass is a living being, a protector that sustains them and shelters them from the vastness of the ocean. Rituals are performed to honor this entity—offerings of fish, shells, or woven mats are left at the edges of the canopy, accompanied by soft chants or songs.  
+
+When a Drift Dweller dies, their body is returned to the sea. Wrapped in woven mats and adorned with shells or feathers, they are placed gently into the water, a final gift to the world that sustained them. The Drift Dwellers believe that their spirits join the currents, becoming part of the endless cycle of the ocean.  
+
+The Drift Dwellers are survivors, resilient and resourceful, but they are also dreamers. On calm nights, when the canopy drifts silently and the stars reflect on the black water, they gather to share stories of the world beyond the horizon—tales of distant lands, mythical creatures, and the mysteries that lie beneath the waves. These stories are their connection to the unknown, a reminder that even in their isolated world, there is more to discover.

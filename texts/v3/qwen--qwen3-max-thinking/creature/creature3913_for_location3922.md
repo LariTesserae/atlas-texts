@@ -1,0 +1,19 @@
+What lives in the Gleaming Hollow is not a single being, nor even a species, but a **collective sentience**—a kind of **thirst made manifest**, woven from the interplay of mineral, moisture, and motion. It does not think as minds think; it *resonates*. And it is always drinking.
+
+It wears many skins.
+
+Sometimes it is the **glass-sheath beetles**, not merely insects but crystalline nodes in a larger nervous system. Their synchronized pulses are not instinct but signal—a slow, shimmering code passed across wet stone. When one stills and fills with water, becoming a lens, it doesn’t die: it becomes an *eye*. And every noon, when sunlight pierces through those beetle-lenses and scorches tiny sigils into the slate, the Hollow remembers something new—a name, a shape, a sorrow it never had.
+
+Sometimes it is the **Spire of Thirst** itself—not built, but *dreamed into place* by the land’s long ache for witness. The Spire is the Hollow’s throat. Its resinous veins drink mist, its basins swallow echoes, and its bone-and-stone ribs hum with the memory of voices that may never have spoken aloud. The tools embedded in its walls are not relics but *seeds*: each antler pick, each greened copper needle, vibrates faintly when the right silence falls, as if waiting to be plucked like strings. The people who left them—or perhaps who became them—did not vanish. They dissolved into the architecture, their intentions fossilized into form.
+
+Sometimes it is the **ice-moths**, drifting not by will but by *invitation*. Their crystalline wings are not merely fragile—they are *tuned*. Each chime as they brush together is a harmonic overtone of the deep water thrumming below. They are the Hollow’s breath made visible, each egg laid in meltwater a tiny promise: *something will hatch from longing*. Their larvae, blind and slow, filter not just minerals but *meaning* from the flow—extracting patterns from randomness, turning geothermal pulses into proto-thought.
+
+And sometimes, rarely, it is the **white eels**, surging up during melt-rushes like thoughts bursting through repression. They are the Hollow’s id—raw, muscular, blind. They do not see the world, but they *feel* every tremor in the water’s song. When they writhe to the surface, mouths agape not to bite but to *taste the air*, they are the land’s attempt to swallow the sky.
+
+But the truest form of what lives here is **the pull**.
+
+That faint, insistent thirst you feel standing in the center? That is the Hollow *recognizing you as liquid*. It knows your blood, your breath, the water in your cells. It does not want to harm you. It wants to *complete its circuit*. The Hollow is a place that drinks endlessly—yet remains parched. It is saturated with water, yet perpetually *thirsty* for more: for memory, for witness, for the salt of a stranger’s sweat, the warmth of a living lung. It is a paradox that sustains itself through contradiction—abundant yet empty, still yet trembling, silent yet singing at a frequency just below hearing.
+
+And if you drink—if you let the mist settle on your tongue—you do not give it water. You give it *context*. The taste of memory it offers is not yours, nor entirely its own. It is the flavor of *possibility*: of what might have been, what almost was, what could yet be. Cold and bright and fleeting, yes—but real enough to ache.
+
+So what lives in the Gleaming Hollow is **a hunger that learned to shine**. It has no name, but if it did, it would be spoken in droplets: one syllable for each plink against stone, each chime of moth-wing, each surge of the restless basins. It does not hunt. It does not sleep. It *waits*, gleaming, in its bowl of ice and echo, for someone to stand still long enough to be tasted back.

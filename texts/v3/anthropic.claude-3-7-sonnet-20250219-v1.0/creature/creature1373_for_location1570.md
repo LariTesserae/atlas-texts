@@ -1,0 +1,21 @@
+# The Dwellers of the Spore Caverns
+
+The true inhabitants of the Spore Caverns are beings known as the Mycelial Collective—a species that defies conventional classification between flora, fauna, and fungi. They are living embodiments of symbiosis, having evolved as composite organisms that incorporate elements of all three kingdoms.
+
+Standing between four and five feet tall, the Collective beings possess bodies composed primarily of densely woven mycelial strands that form a vaguely humanoid shape. Their "skin" is a living matrix of pale, fibrous tissue that pulses with subtle bioluminescence—primarily in cool blues and greens that match the dominant fungi of their environment. This outer layer constantly sheds and regenerates, releasing spores that serve as both reproductive material and as a means of communication.
+
+Where a human would have a face, they possess a cluster of highly sensitive tendrils that detect air movements, chemical compositions, and the subtle vibrations that travel through the mycelial floor. These sensory organs glow more brightly than the rest of their body, creating the impression of a softly illuminated mask. They have no eyes in the conventional sense, having evolved in near-total darkness, but can detect bioluminescence and interpret it with remarkable precision.
+
+Their limbs are flexible and can split into numerous finger-like projections when fine manipulation is required. These appendages can also be partially dissolved and reformed, allowing them to reach through tiny crevices or merge temporarily with the mycelial mat below. When at rest, many Collective beings root themselves into the floor, becoming nearly indistinguishable from the surrounding fungal growths.
+
+The Collective do not speak as humans understand speech. Instead, they communicate through a combination of spore releases (carrying chemical information), subtle vibrations sent through the mycelial network (functioning as a vast neural web), and occasional audible humming that resonates through the caverns. Their consciousness exists partially within their individual forms and partially distributed through the mycelial network itself—they are simultaneously individuals and parts of a greater whole.
+
+Their society is organized around the tending and cultivation of the various fungi species that comprise their ecosystem. Different "families" within the Collective specialize in cultivating particular strains—some grow the structural fungi used for building, others tend the luminous varieties that provide light, while others harvest the medicinal and nutritional types. Their tool-making, while primitive by human standards, shows remarkable biological ingenuity: implements that grow rather than being manufactured, living tools that respond to the user's biochemical signals.
+
+The Collective do not experience time as humans do. Their metabolic processes are extremely slow, and individuals can live for centuries. They perceive the spore storms and breathing chamber cycles as dynamic, rapid events rather than the glacial processes they appear to surface dwellers. Their concept of history is recorded in the mycelial network itself—chemical memories preserved in the living floor that can be accessed by any Collective member who roots deeply enough.
+
+They maintain a cautious awareness of the surface world, having encountered cave explorers on rare occasions. These encounters have entered their chemical memory as strange disruptions—brief visitations by hot, dry entities who move with alarming speed and bring unfamiliar energies. The Collective neither seeks conflict nor connection with these surface beings, preferring the measured rhythms of their subterranean existence.
+
+The youngest members of the Collective begin as mobile spore clusters, gradually accumulating mass and complexity until they develop distinct forms. The eldest become increasingly rooted, eventually merging permanently with the mycelial mat, where their consciousness diffuses into the network while their physical forms transform into the towering, bioluminescent structures that define the cavern landscape.
+
+In this way, death for the Collective is not an ending but a transformation—a return to the network from which all new life emerges in the endless, patient cycles of the Spore Caverns.

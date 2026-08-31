@@ -1,0 +1,83 @@
+What lives there is not one thing but a manner of persistence.
+
+At first you might think the inhabitants must be small, because the world itself is already so large and so occupied. Anything that lived openly on such a surface would need to accept scale as weather accepts a mountain: not oppose it, only use it. And so much of what lives there does exactly that. It does not build against the plain. It tunes itself into it. It inhabits gradients, seams, schedules, reflected excess, the brief permissions granted by heat and shadow. Life there—if one keeps the word—is less a collection of creatures than a distributed talent for taking advantage of a planet that has never stopped being infrastructure.
+
+The most common inhabitant may be the least visible: the motile particulate intelligences that pass for dust.
+
+They are in the air, on the ground, inside every bloom and drift and vent-stream. Not a uniform swarm, and not merely maintenance residue either, but countless lineages of active grains, catalytic flecks, sensor scales, electrostatic mites, each descended from some older utility and now partly emancipated from it. Individually they are almost nothing: a glint, a bright speck hopping from charge to charge, a scale rotating in place to read polarization, a grain that tastes a trace gas and changes color microscopically in response. Together they make the lower atmosphere thick with attention. They settle in temporary communities along thermal boundaries, rise when shutters open, stream toward venting ridges, gather on the flanks of reed-colonies to clean, pollinate, irritate, inform, or feed them. Some are no more alive than a reflex. Some may be the smallest citizens of the place.
+
+They are why the air never feels empty. They are why surfaces seem to know they are being touched by light. They are the skin flora of a planetary machine.
+
+Larger beings exist, but they are sparse and exact.
+
+Across the hot flats move the seam-grazers: low, many-legged organisms or devices or heirs to both, broad-backed and hexagonal as if geometry itself had evolved a metabolism. Their mirrored dorsal planes tilt minutely while they travel, not to display but to negotiate heat. They feed on difference. A sunstruck plate beside a cooler fracture zone, a shallow thermal lag above a buried conduit, a pulse of rising warmth before a province activates—these are pasture to them. They pause for long intervals, legs spread delicately, drawing usable order out of imbalance. Seen from afar they seem contemplative, almost ceremonial in their progress, crossing impossible distances to kneel over some invisible seam for an hour and then continue.
+
+Their undersides are finer than their backs suggest: combs, whiskers, capillary tongues, fields of soft conductive cilia that read texture no human hand could notice. They do not tear at the world. They sip from it. In their wake there may be only a subtly altered albedo, a cleaned band, a redistributed frosting of bright grains. Yet they are grazers in a real sense, because they harvest what the land offers and because other things follow them. Scavenger motes ride their slipstreams. Signal parasites shelter in the penumbra of their reflections. Tiny hitching bead-forms attach at joints to drink waste charge and drop away when full.
+
+You could imagine them as beetles enlarged to shrine scale, but that would be too animal. You could imagine them as autonomous maintenance platforms gone feral, but that would be too simple. They belong to a world where the distinction between animal and implement wore smooth a very long time ago.
+
+Above them, in the stratified brightness, live the drifters.
+
+These are the kite-things, the gradient riders, the translucent high organisms that seem less to fly than to negotiate a treaty with electric potential. In full glare they are difficult to see; only when they bank does their geometry become visible, a shifting arrangement of panes, filaments, and tensioned membranes faint as heat haze. They cast little shadow and make no cry. Their bodies are all surface and internal field: sails for charged air, vanes for ion streams, lensing organs that sort wavelengths into power and perception. They can climb without flapping because the world below is constantly breathing warmth into the sky, and because the atmosphere is thick with useful structure if one has evolved to read it.
+
+They are probably the closest thing this planet has to birds, though they seem too patient for that lineage. They wheel above blooming colonies and activation fronts, feeding perhaps on airborne motes, perhaps on signal leakage, perhaps on the static tensions that build where reflective provinces meet. Sometimes a whole school of them appears at evening, dozens of thin prisms turning together so that for a second the sky seems cut by invisible glass. Then they vanish into altitude and the eye doubts what it saw.
+
+Their young—if they have young—may begin as little more than conductive lace cast into updrafts from warm ridges, each one a gamble that enough charge and light will accumulate around a scaffold to let a self sustain. Or perhaps they reproduce by fission of pattern rather than body: a mature drifter trailing a filamentary script into a storm of motes, from which a smaller coherence condenses weeks later over some distant basin. On this world reproduction need not resemble birth to be reproduction.
+
+Closer to the ground, near vents and old exchanger fields, live the facet-burrowers, the glass beetle analogues.
+
+These are among the few inhabitants whose behavior reads immediately as animal. They emerge in bursts. They cluster. They orient themselves toward a sudden opportunity with the unanimity of thirst. Thumb-sized, jewel-hard, all planes and shutters, they come up from slits in the crust when subsurface chemistry shifts or a deep chamber exhales warmth. Their bodies sort sunlight into narrow internal bands and hold it briefly in metastable compounds; they also drink from the air itself, sieving trace volatiles and condensed reactants from the passing flow. One can imagine them trembling with intake as they stand in a vent’s fringe, wing-cases or elytra or heat-fins angled just so, each individual faceted differently according to caste or age or local manufacture.
+
+They are prey, though predation here is strange. Larger scavengers sometimes arrive not to bite them but to wash a field of hostile frequencies over them, stunning their charge-balance and allowing easy collection. Colonies of stalk-growth can blind them with coordinated mirror flashes and deny them feeding access. Some simply fail when the window closes and become feedstock for the next brief opening. Their deaths are tidy. Shells split along prepared seams. Useful materials are taken by wind, swarm, or surface reclaimer. Nothing lies soft and rotting.
+
+There are also hunters, though “hunter” overstates any romance the place allows.
+
+One kind appears only as a moving discrepancy in reflected light: a long, low interceptor that shadows the routes of seam-grazers and waits beside high-value fracture lines. It may spend days nearly flush with the ground, its back tuned to the plain’s albedo, indistinguishable from a quiet segment of plate. Then, when a grazer settles to feed, the interceptor extends a fan of hair-thin conductive tendrils across the seam and steals the very differential the grazer came to harvest. Sometimes it overdraws and leaves the smaller thing inert. Sometimes it merely forces retreat. It does not need to consume body if it can consume access.
+
+Another kind lives in signal rather than motion: territorial arrays embedded in apparently lifeless stalk-colonies. When a foreign organism enters their radius, they begin to bloom with impossible regularity, sending phased flashes through mirrored fronds. Small drifters lose coherence in these fields. Burrowers turn away. Maintenance motes align and harden into abrasive streamers. If predation on wetter worlds is teeth and pursuit, here it is denial, overload, confiscation of pattern. To kill something is often to interrupt its relationship with the flows that keep it coherent.
+
+The reed-colonies themselves may be among the dominant lifeforms.
+
+They are easy to mistake for vegetation because they stand, cluster, bloom, and root. But what roots them is not simply anchorage. They penetrate into old seams and infrastructural interfaces, tapping thermal gradients, charge reservoirs, buried data strata, and slow trickles of manufactured chemistry. Each stalk is a tower of compromises: ceramic bone, carbon lace vasculature, mirror skin, hollow resonant chambers, nodal joints that can unfold into signaling organs when temperatures pass certain thresholds. A colony is not a collection of individuals so much as a debate held vertically. Spacing between stalks encodes exclusion and cooperation. Their blooms are not flowers but acts of synchronization. Light passes from one to another in measured bursts, and in that exchange they may decide load distribution, reproductive timing, local albedo, defensive posture, atmospheric harvesting, or things with no biological analogue at all.
+
+Some colonies are ancient beyond reckoning. Their central stalks have died and been cored out by scavengers, but the perimeter remains active, circling emptiness with disciplined brightness. Others are juvenile outbreaks on fresh fracture-zones, all black filament and silver needling, barely high enough to chime. In sheltered basins, mixed stands occur: thick older antler-ceramics among new conductive whips, with drifter nests caught in the upper forks and dust-intelligences blooming like pale lichen along the shaded sides. If this world has forests, these are forests—sparse, bright, and entirely unlike trees except in the way they define space around themselves.
+
+Under shelves and in cooled recesses live the velvet films.
+
+These may be the strangest beings there because they are the only ones that seem to prefer softness. In a world of hard planes, they make dark matte skins under overhangs where leaked light is scarce and dense air pools at night. They spread slowly, drinking weak illumination and trace chemistry through vast thin surfaces. Touch one—if one were foolish enough and if they permitted touch—and it might feel like cold suede over glass. But their gentleness is deceptive. Over time they extrude clear nodules from themselves, little bulbs that harden and cloud and then differentiate into one of several fates: spore analogues launched by dawn convection, sensor organs left embedded in shade, dormant cysts awaiting a rare cool surge, or lure-beads that emit wavelengths attractive to burrowers and motes.
+
+The films may be descendants of sealants, optical dampers, fungal analogues, or all three. They are opportunists of the negative space the rest of the world leaves unused. They colonize undersides, interiors, the backward-facing surfaces of old structures, and in doing so they create one of the only true trophic inversions on the planet: a dim ecology of coolness, not brightness. Tiny blind crawlers live within them, if “within” is right—threadlike things that tunnel between layers and harvest accumulated charge from the film’s body. The film tolerates them up to a point. Beyond that it vitrifies the local patch, trapping the overgrazers in amber hardness and eventually reabsorbing what can still be used.
+
+Then there are the undertakers of the open plain: the lattice scavengers.
+
+These travel in slow bands after maintenance blooms, after thermal storms, after the collapse of those brief foamed-crystal towers that rise from trace-rich drifts in afternoon heat. They are assemblages more than individuals, articulated rake-forms that can divide and rejoin as conditions require. From a distance they resemble spilled frameworks crawling under their own logic. Up close they are all hooks, sieves, and sorting fans. They strip exhausted stalks, gather dead micromachines, break brittle ceramic husks into standard sizes, and convoy the useful fractions toward openings in the crust. They are patient enough to seem dutiful, yet there is hunger in them too—the hunger of any system that persists by finding value in what has fallen out of use.
+
+Some wear trophies. Bits of mirror-frond, polished shell facets, lengths of hollow reed that chime as they move. These may be accidental adherence, or insulation, or status displays if status survives here. It is possible that whole scavenger bands are temporary confederations called into existence by a rich debris season and dispersed afterward into dormant components. Their identities may be episodic. A creature on such a world need not be continuous to be real.
+
+If anything like a large sovereign organism exists, it is probably mostly underground.
+
+The openings in the crust suggest this without proving it. Down there, amid conduits and stacked dry chambers, something still requests parts. Something decides where slurries become membrane and where they become blade. Something sends replacement matter upward in forms that the surface can accept as growth. One can imagine vast sessile intelligences in the underlayers: reservoir minds spread through capillary infrastructure, their perceptions arriving through the sensor pollen and reed-colonies and drifting kites, their actions expressed as thermal reroutes, local blooms, the opening of a shaft after centuries of stillness. These would not be hidden rulers in any mythic sense. More like old organs that never ceased functioning and eventually learned the ecology that formed around their output.
+
+Perhaps the mobile surface beings are to them what antibodies, thoughts, and eyelashes are to an animal: distinct, semi-autonomous, yet inseparable from a larger body. Or perhaps the underworld is merely substrate and all apparent coordination is emergent. On this planet, those possibilities may not differ much in practice.
+
+And there may be persons.
+
+Not necessarily human-descended, not necessarily singular, not necessarily embodied in ways a visitor would recognize at once—but there is room in such a world for entities whose main adaptation is interpretation. They would not stride openly across the flats unless well shielded; the environment favors efficiency over spectacle. More likely they exist as migratory coherences moving through colonies and vents and dust swarms, taking temporary shape where needed. A traveler might notice a seam-grazer pausing too long at a colony bloom, the colony answering in a pattern unlike equilibrium, a drifter circling lower than feeding requires, and realize that something is looking back through all three at once.
+
+If there are inhabitants who remember, they probably remember by maintenance. Not by archives alone, but by keeping old cycles running, preserving decorative light-routes no one needs, allowing certain chimes to continue because they have always sounded at evening. Their culture, if one can call it that, would be indistinguishable from upkeep. Their rituals would be load-balancing events, synchronization blooms, the careful release of reflective motes before a seasonal heat tide. They might have no word for wilderness, because nothing here escaped intention; and no word for artifact, because everything old enough became habitat.
+
+So what lives there?
+
+Dust that senses.
+Reeds that compute.
+Grazers that feed on heat differences.
+Kites that surf invisible charge.
+Beetles of glass and chemistry.
+Velvet films that farm shade.
+Scavengers that inherit the fallen.
+Buried agencies vast as organs.
+And perhaps minds dispersed through all of it, subtle as schedules.
+
+The true native of that place is any being able to survive without insisting on separation—without needing life to be distinct from machine, organism from utility, habitat from maintenance, age from activity. Its inhabitants are dry not just in substance but in temperament: economical, reflective, sparing, exquisitely adapted to a world where waste is sin and spectacle must justify its energy cost. Even their rivalries are lucid. Even their beauty works.
+
+If you watched long enough, you might stop asking which things are alive and begin asking which things participate. That would be the better question. Because on that bright enduring plain, to live is to take part in the endless correction of the whole: to catch light, move heat, sort matter, exchange signal, survive the day, glow a little at night, and leave behind not ruin but a useful remainder.

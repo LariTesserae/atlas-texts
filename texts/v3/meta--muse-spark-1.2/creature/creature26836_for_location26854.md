@@ -1,0 +1,45 @@
+Nothing lives here the way you expect something to live.
+
+At first that is the whole fact of it. If by *lives* you mean moves, and breathes, and leaves a dent in the dust — there is no one. The town has that particular emptiness that is not ruin but vacancy. No one has slept behind those shutters in a long time. No one has fed those ovens. The ash in them is cold and set like cement. No one has shuffled down those shoulder-width alleys. You listen for the rest of it and the rest confirms it: no nest tucked under an eave, no white spray of guano, no chitin husk, no bone, no burrow, no deliberate scratch in the salt floor. Not even the life that pretends not to be life — no lichen, no mite, no gnat. The heat has edited all of that out. Whatever needs water has never been invited and never learned to cheat.
+
+And so you think the pocket is empty, except for you, briefly, sweating out what little water you brought with you.
+
+Then the thicket cracks.
+
+A dry handclap from the western wall, sharp enough that you flinch, and a puff of mineral powder hangs in the amber gloom for a full minute before it settles, and you understand that you were looking at the inhabitants the whole time and mistaking them for the furniture.
+
+What lives here now is the thicket itself.
+
+Not plants. The word is wrong but you have no better one until you stand close enough to touch it. Call them ash-ferns, salt-fans, kiln-weeds — they don't need a proper name, they have been getting on without one. They are anhydrous from root to tip, and they have no root in any useful sense. There is no succulence to them, no hidden reservoir, no juicy core to be squeezed. Cut one open — and the old inhabitants must have, with those stone knives — and you find only more dryness: a trunk that is not wood but a tight, torsion-wound cable of waxy filament, like hemp rope that has been baked until it forgot it was ever plant, and leaves that are not leaves but felted plates of fibrous silica and salt, branching like frost, edged in fine glass hairs.
+
+They do not want water. They have never wanted it. Put water on them and you would kill them the way you would drown a forge.
+
+What they want is what this pocket has in surplus and never runs out of: heat and dim light and dust.
+
+They live on the gradient. The diffuse amber that seems to come from the salt itself, from the stone exhaling stored sun, is enough. They thermosynthesize it — not green the way a watered leaf is green, but that dusty viridian, that mineral green-grey that doesn't reflect light so much as drink it. They eat the air. The constant, wind-polished salt that sifts down through the mouth of the pocket, the fine iron that powders off the basalt — their felted surfaces comb it out of the hot, still air and metabolize it. You can see the faint puckering where a fan has leaned a little further toward the warmest seam in the wall overnight. You can see the pale accretion on the hairs like frost.
+
+And they are not still. That is the uncanny part. In a desert you expect endurance, a patience that looks like stillness. Here life is noisy, fidgety, impatient.
+
+While you sit on the low wall of the lowest terrace with your back against stone that holds the day's heat like a brick, you hear them living. The thicket ticks. Filaments creep a millimeter, then another, a slow inchworm curl around a pebble that you could watch if you had an hour to spare. Fronds unfurl with a soft pop, like knuckles cracking. The geometric seed-pods — dull grey capsules faceted like cut salt, each the size of your fist — swell in the heat until the seam gives and they split with a report that echoes off the terraced houses and comes back too loud in the little dome. They don't explode so much as sigh out a plume of that fine, scentless powder that hangs and glitters before it settles on every surface. Elsewhere a whole column, eight feet tall and top-heavy with overlapping fans, will simply give up under its own dry weight and fall with a muffled *whoomph* into its neighbors, throwing up a cloud that takes minutes to clear. Before the dust has even settled the tendrils at its edges are already reaching, blindly, filamentously, to cover the fallen, to compost it without rot — just dry burial, fiber over fiber.
+
+No animal carries the powder. No bee visits the pod. No beak pries it open. The cycle is closed and mineral and complete: dry birth, dry growth, dry collapse, dry reclamation. The thicket tends itself.
+
+It has manners, too. That is the other thing the town tells you about whoever lived here before, and about what lives here now. The vegetation stops. Cleanly. A foot short of the lowest terrace retaining wall there is a line as straight as if it had been swept that morning, though no one has swept in a generation. Spores must fall there every hour. Powder dusts the stones. And nothing takes. The chemistry changes, or the salt was laid down differently there, or the inhabitants taught the thicket where the property line was and the teaching held after they left. It does not overgrow the houses. It does not pry apart the basalt blocks. The two densities — the built and the grown — face each other across that empty foot of salt like neighbors who have agreed not to stare.
+
+Which brings you to the other answer, the one in past tense.
+
+Someone did live here, in the full urban sense. You can read them off the walls.
+
+They were low and narrow, to judge by the doors. Not slight so much as compact, built for heat the way a desert fox is built for heat — with less of themselves to lose. They worked with what was at hand and they never needed much: basalt stacked without mortar, each face hammer-dressed until it kissed the next; lintels of that same petrified driftwood, if it ever was wood; ladders notched from filament bundles; hangings woven from the same waxy fiber the thicket still makes, now stiff as bark where they hang. Their geometry was simple and patient — sunbursts and spirals chiseled into shutters, not to decorate so much as to mark: we were here, we counted the sun, we watched the heat. They built ovens that never needed a chimney because the smoke had nowhere to go but into the stone, and cisterns that never held water but held exactly what this place can keep — grain cured to complete dryness, salt, ash. A town the size of a large house, three tiers high, alleys for shoulders not carts, a whole urban density compressed into one room let into the earth. Thirty meters long. A plaza you could cross in twenty steps and still feel lost in because the air between the houses is too big, too empty, on purpose.
+
+They must have been anhydrous themselves, in the way the thicket is. Nothing else could have stayed. No aquifer to tap, no rain to catch. Whatever they were — people is close enough, though they would have seemed strange to you, dry-lipped, dry-eyed, moving slowly in the kiln-heat, speaking softly because sound carries too well — they ran, like everything else here, on heat and salt and stored light. Perhaps they farmed the filament, cut it for cloth and rope. Perhaps they ate the powder baked into cakes. Perhaps they ate nothing you would recognize as food. They left no burials, no middens that hold bone, and that is itself a clue: there was less to leave.
+
+They did not die here. There is no catastrophe in the stone. No scorch, no slide, no war. The corners are rounded by time and by hands brushing them, not by violence. The soot in the niches is the soot of many ordinary fires, not one last one. They just — thinned. Left. Or finished. The way a pot empties. The balance they had struck held for a long time, established and settled, and then when they stepped out through that doorway seam and did not come back, the other balance — the thicket's — simply continued, a little louder without them.
+
+So now the pocket lives alone and it lives completely.
+
+It lives as hot stone breathing through a narrow mouth, inhaling the cool of night on the pan above and exhaling dry heat all day, ticking as it expands and contracts. It lives as that amber light with no source that the salt makes from heat. It lives as the felted thicket opposite the terraced wall, dense and lush in a way that insults every idea you brought down with you about what lush requires. It lives as sound in a place that should be silent — the hiss of glassy hairs, the crack of pods, the soft thunder of a column falling and being quietly, relentlessly covered.
+
+You are not an inhabitant. You are a temporary volume of damp, intruding on an anhydrous world. You sit there long enough that your sweat dries before it can run, that your tongue sticks, that the smell of hot iron fills your nose until you taste it, and the pocket goes on cracking and creeping and sighing around you, indifferent, self-sufficient, intimate as a room and old as the plain above it.
+
+When you crouch again to leave through that low seam, it will go on doing so. Hot and dry and dim and green-grey and loud with growing. A little town with no people and a little jungle with no water — both of them perfectly, stubbornly alive without you.

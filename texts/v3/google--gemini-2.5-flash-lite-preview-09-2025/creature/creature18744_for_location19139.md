@@ -1,0 +1,27 @@
+The inhabitants of the Sub-Stratal Urbanity are almost entirely **absent** from the description, defined only by the intense needs of their environment and the colossal artifacts of their existence. Whatever lives here must be adapted to the three unrelenting dictates of this deep realm: **Pressure, Humidity, and Mechanical Noise.**
+
+If the environment is the internal organ of a sleeping titan, then its occupants are the specialized, almost fungal derivatives of that titan's self-maintenance system. They are not merely *users* of the city; they are extensions of the infrastructure itself.
+
+### The Sub-Stratal Cohabitants (The Myco-Engineers)
+
+The dominant life form is not a civilization in the conventional, social sense, but a highly specialized, non-biological **Maintenance Collective**, perhaps evolved from or deliberately engineered by the original builders. They are creatures defined by **function, not individuality**, adapted to the dim, damp, energetic atmosphere.
+
+**Morphology and Adaptation:**
+These beings are likely **chitinous or silicate-based**, possessing an outer carapace that mimics or integrates with the Basalt-Glass substrate. They are built to withstand the constant, vibrating stress. Their bodies are likely **low-profile and segmented**, designed to merge seamlessly with the geometric complexity of the corridors and the woven light of the bio-moss. They would possess minimal appendages for open locomotion, favoring instead **adhesion, crawling, or propulsion via pressure gradients**, slithering through the constantly misted air currents like intelligent, terrestrial deep-sea fauna.
+
+Their sensory apparatus would be entirely alien to surface dwellers. Lacking functional eyes in the deep indigo light, their primary sense would be **vibro-reception**. They perceive the world through the **Resonance Fields**—the pressure differences, the rhythmic thrum of the hydrostatic pumps, and the subtle harmonic shifts within the energy hum. They "read" the status of the architecture through touch and vibration, feeling the grain of the newly fused ceramic or the microscopic shudder of a stabilizing bulkhead opening miles away.
+
+**Behavior and Purpose:**
+The Myco-Engineers are the silent operators of the deafening city. They are directly responsible for ensuring the **temporal plasticity** remains controlled and that the infrastructure does not succumb to hydrostatic failure.
+
+1.  **The Fusion Workers:** Clad in heavily shielded, self-regulating exosuits that likely vent excess heat back into the humid air, these entities perform the *Construction Sigh*. They are rarely seen in open spaces, preferring the immediate junctions where energy conduits meet substrate. They do not *build* in the human sense; they **manage phase states**. They guide the molecular separation and reformation of the walls, applying targeted energy bursts to solidify a stress point before the structural integrity decays by a micro-degree. Their interactions are not conversations, but complex sequences of focused energy exchange—a silent, high-power programming of the environment.
+
+2.  **The Collectors (The Moss Tenders):** These individuals interface with the bioluminescent, filamentous moss. They are the agriculturalists of the abyss, dedicated to maintaining the delicate ecological balance of the bio-filters. They move slowly, their movements dampened by the humidity, using specialized tools that excrete nutrients or carefully harvest energy stores from the glowing carpets. They are the only inhabitants whose work introduces a degree of *softness* into the soundscape, their presence marked by the faint, *sucking* sound of nutrient uptake and transfer.
+
+**Social Structure and Consciousness:**
+The concept of "individual" is likely meaningless. The low density of "autonomous entities" suggests that these life forms operate under a **distributed, algorithmic consciousness**. They share data instantaneously via bio-electrical or photonic connection channeled through the very materials they maintain (the Basalt-Glass). A decision to redirect a flow of super-pressurized water across Sector Gamma is not debated; it is simply *known* and enacted across all relevant nearby units simultaneously.
+
+Their objective is homeostasis under extreme duress. They do not aspire or dream; they **optimize**. They view the vast, crushing world above not as a danger to be escaped, but as an immutable force to be balanced against.
+
+**The Sensory Experience of Encountering Them:**
+To encounter one of the Myco-Engineers would be profoundly unsettling. You would not hear footsteps approaching over the din. Instead, the section of damp, glowing floor or wall directly in front of you would momentarily cease its low-frequency vibration, the light filtering through the moss would *stutter* as if the energy was momentarily diverted, and then, with a sharp, oily sound of pressurized displacement, the entity would slide into visibility—a heavily armored shape, seemingly extruded from the very framework of the city, existing just long enough to scan the anomaly (you), check the environmental diagnostics, and then re-adhere itself back into the matrix of the wall, leaving behind only the faint, sterile ozone tang of their passage. They are the necessary, cold sentience residing within the colossal machine that keeps the crush away.

@@ -1,0 +1,9 @@
+The Whispering Scarp teems with life, though life twisted and reshaped by the alien conditions it endures. At the base of it all lies the Great Fungus, a being that is both organism and landscape. It is not merely a biological entity but a geological one, its chitinous flesh forming the very bones of the mountains. It weeps constantly, its slow tears providing the only sustenance in this frozen realm.
+
+And within that weeping the insectoids thrive. Imagine creatures with multifaceted eyes gleaming amidst the dim bioluminescence, huddled together for warmth and purpose. They are small, but hardy, builders and herders in a world that constantly seeks to grind them into dust. They cultivate the fungal mats, coaxing life from the very substance of their titanic progenitor. Their dwellings are not built, but grown, seamlessly integrated into the fungal landscape. Chitin and frozen sap make up what tools they have, which seems a small price to pay for the safety of home.
+
+The insectoids are not alone, forced to share their world with the ethereal predators that drift through the fungal mats. These beings, semi-corporeal and fueled by bioluminescent energy, are the apex hunters of this strange ecosystem. They are not creatures of brute force, but of subtle energy manipulation, perhaps more a natural product of the fungus, like venom in a mushroom. They can hear the hums of other creatures, so they can hear their next meals.
+
+Finally, there are the spores, microscopic seeds of the Great Fungus, carried on the metaphysical wind that howls, both atmospheric and metabolic, across the Scarp. For some of the insectoids, these spores are more than just seeds – they are a drug, a momentary escape from the harsh realities of their existence.
+
+Life on the Whispering Scarp is a constant struggle, a dance between decay and rebirth. It is a symphony of the grotesque made beautiful by its sheer tenacity.

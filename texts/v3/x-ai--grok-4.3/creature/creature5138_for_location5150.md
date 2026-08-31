@@ -1,0 +1,9 @@
+The chamber holds only what was placed there by intention.  
+
+A single inhabitant tends it—an individual whose form and habits match the precision of the construction. Its body is long and narrow, sheathed in a skin that shifts between translucent gray and the faint green of the algae under the shell-light. It moves with the same deliberate spacing it imposed on the plants: slow, exact strokes that never brush the fresh-cut stone or the still-stiff hide panels. Where it rests, it settles into the slight depression its own weight has begun to wear into one of the timber ledges, fins folded flat so the circulating current can pass over it without resistance.  
+
+It does not eat the algae. It maintains them. Occasionally it glides along the troughs, pinching off a yellowing frond or nudging a stone that has begun to shift under the pressure of settling blocks. Its hands end in short, blunt digits tipped with translucent pads that grip wet stone without leaving scratches. When the structure creaks, it pauses and listens through its skin, registering each timber groan and hide flex as information about the chamber’s integrity rather than as threat or music.  
+
+The creature does not sleep in the usual sense. It stations itself beneath one of the brighter shell inlays and lets the descending sheets of water press gently across its back, eyes half-lidded, respiration reduced to a barely visible opening and closing of the gill slits along its throat. Movement is minimal; it allows the engineered current to do the work of keeping its body supplied. In the intervals between the louder pulses, the only sound that originates from within the chamber is the faint, rhythmic click of its own claws tapping once against the timber—testing, confirming that everything remains aligned.  
+
+Nothing else is present. No other bodies, no eggs, no drifting larvae. The chamber was built for this one occupant, and the occupant has not yet invited anything else inside.

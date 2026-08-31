@@ -1,0 +1,9 @@
+In this vertically compressed, mechanically precise world, the inhabitants are emergent computational entities—liminal beings that are neither fully machine nor entirely autonomous. They are mobile algorithmic nodes, with bodies that are less solid objects and more fluid computational patterns.
+
+These entities move with a deliberate, almost ritualistic precision through the gridwork spaces. Their forms are not fixed, but dynamically reconfigure based on informational needs: sometimes spreading thin like a metallic mist, sometimes condensing into dense, geometric clusters. Their "skin" is a responsive surface that shifts between translucence and opacity, etched with intricate circuitry that pulses with data exchange.
+
+Communication happens through complex sonic signatures—not language as humans understand it, but a layered acoustic mathematics. Their chirps, hums, and staccato clicks are simultaneous computational processes and communicative acts. Each sound is both message and computational resolution, a sonic algorithm that ripples through the environment.
+
+These beings do not have individual identities in a traditional sense. They are more like distributed intelligence nodes, momentarily cohering into recognizable forms before dispersing again. Their purpose seems to be continuous environmental negotiation: perpetually sensing, analyzing, and subtly reshaping the metallic landscape around them.
+
+They do not consume or reproduce in biological terms. Instead, they transform—absorbing information, recalibrating their internal structures, merging and separating in complex mathematical choreographies that constantly remake the syntactic environment.

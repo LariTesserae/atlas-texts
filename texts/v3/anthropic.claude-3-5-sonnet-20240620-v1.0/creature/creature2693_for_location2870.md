@@ -1,0 +1,19 @@
+The denizens of the Undercity of Flux are as diverse and mutable as their ever-changing environment. They are beings of paradox, simultaneously ancient and newborn, flesh and machine, singular and multiple.
+
+The most numerous inhabitants are the Flux-Walkers. These humanoid entities appear at first glance to be ordinary people, but closer inspection reveals their true nature. Their skin shimmers with an opalescent sheen, occasionally becoming translucent to reveal swirling, galaxy-like patterns beneath. Their eyes are kaleidoscopic, shifting color and pattern with each blink. Flux-Walkers move with an eerie grace, their bodies subtly reshaping to navigate the inconsistent physics of their realm. They communicate through a language of gestures and thought-forms, their voices a harmonious blend of tones that seems to originate from multiple throats at once.
+
+Drifting through the air are the Probability Clouds, sentient masses of quantum potential. These beings appear as shimmering, iridescent mists that coalesce into vaguely recognizable shapes before dissolving again. They feed on uncertainty and possibility, growing denser in areas of high flux. The Probability Clouds are known for their precognitive abilities, though the futures they glimpse are as mutable as they are.
+
+Scuttling along walls and ceilings are the Chrono-Crabs, arthropod-like creatures with shells that resemble intricate clockwork. Their many legs move in hypnotic, time-defying patterns, allowing them to traverse temporal anomalies with ease. The Chrono-Crabs are revered by some Flux-Walkers as timekeepers and guides through particularly unstable regions of the Undercity.
+
+In the industrial sectors, one might encounter the Gearhead Collectives – symbiotic fusions of organic matter and machinery. These entities appear as writhing masses of tentacles, wires, and mechanical components, constantly reconfiguring themselves. Each Collective is a hive mind of countless microorganisms and nanomachines, working in perfect synchronicity to maintain and operate the ancient factories.
+
+The reflective surfaces of the Undercity are home to the Mirror Dwellers, beings that exist primarily as two-dimensional projections. They slip between reflections, occasionally reaching out into three-dimensional space with elongated, distorted limbs. The Mirror Dwellers are known for their ability to access parallel realities, making them valuable information brokers and dimensional couriers.
+
+In the quieter pockets of stability, one might find the Fractal Gardeners tending to their reality-warping plants. These beings resemble elegant, abstract sculptures come to life, their bodies composed of endlessly repeating geometric patterns. They cultivate flora that exists in multiple states simultaneously, flowers that bloom backwards in time, and trees whose fruit contains entire universes.
+
+Rarely seen but ever-present are the Void Weavers, entities that exist in the spaces between spaces. They appear as living gaps in reality, their "bodies" visible only as the absence of everything else. The Void Weavers are said to be the true architects of the Undercity, constantly reshaping its structure according to some inscrutable design.
+
+Presiding over this impossible ecosystem are the Flux Lords, beings of such complexity and mutability that they defy consistent description. They are seen differently by each observer, appearing as anything from towering giants of pure energy to swarms of minute, reality-altering particles. The Flux Lords maintain a delicate balance in the Undercity, their very thoughts and whims influencing the ebb and flow of chaos and order.
+
+Together, these diverse lifeforms have adapted to thrive in a realm of perpetual change, their very existence a testament to the infinite adaptability of life itself. In the Undercity of Flux, the only constant is transformation, and its inhabitants embody this principle in every aspect of their being.

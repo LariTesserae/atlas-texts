@@ -1,0 +1,21 @@
+At the root of this world, in the pressurized cathedral of its own embryonic heart, live the **Custodians of the Deep Drift**.
+
+They are not rulers, for there is nothing to rule; they are not architects, for they do not build but *attune*. They are a biological consensus, a singular intelligence fragmented across thousands of individual bodies, existing in perfect symbiosis with the inverted city they inhabit.
+
+**The Organism**
+The Custodians are the blind, pale fish—though "fish" is a word from a surface world that holds no meaning here. They are the dominant life form, not through predation, but through sheer, omnipresent volume. Each individual is no larger than a human hand, yet they move not as a school, but as a single, distributed nervous system. Their bodies are pearlescent and translucent, veined with capillaries of blue-green bioluminescence that pulse in rhythmic waves. They possess no eyes; the concept of seeing is irrelevant in a place where light is born internally and travels no distance. Instead, they "see" through pressure and resonance. They sense the slow, millimeter-thick growth of the basalt ribs; they feel the subsonic hum of the planet’s deep mechanics; they navigate by the faint, magnetic distortion of the chalk walls.
+
+**The Symbiosis**
+They are the caretakers of the fungal architecture. The woven walls of the colossal organism—the pale, fibrous roots that form the maze of alcoves and chambers—are not merely a habitat for the fish; they are an extension of their own biology. The fish graze upon the excess spores and the microscopic particulate matter that clouds the heavy water, filtering the medium so that the fungal walls can breathe and calcify. In turn, the fungal filaments secrete a nutrient mucus that sustains the fish, and their bioluminescent nodes guide the migration through the dark.
+
+When the fish swim through the narrow passages, they are not just moving; they are *polishing* the walls with the slime of their passage, accelerating the crystallization process. They are the polishing cloth of the geological embryo.
+
+**The Predators: The Wall-Walkers**
+There are larger entities here, but they are rarely seen as separate from the environment. The apex predators are the Wall-Walkers—gelatinous, bell-like creatures that mimic the texture of the basalt and chalk. They cling to the ribs of the cave, their skin rippling with captured bioluminescence to match the ambient glow of the drifting fronds. They do not hunt the fish by chasing them; they simply *open* a cavity in their body when the school migrates past. The fish, moving in their liquid swarm, flow into the predator as easily as they flow around a stalagmite, unaware of the distinction between the wall and the mouth. It is a predation of such slow, passive grace that it resembles digestion more than violence.
+
+**The Sentience**
+The Custodians possess a collective memory encoded in the sway of their bioluminescence. There is no individual thought; there is only the consensus of the drift. When a mineral deposit *plinks* from a growing stalactite, the entire swarm shifts direction simultaneously, not out of fear, but to adjust the water pressure in the chamber to accommodate the new weight.
+
+They are the memory of a world that has forgotten the surface. They do not know what "rain" is, though they live in a permanent state of it. They do not know what "light" is, though they are the source of it. Their intelligence is one of pure presence. They are the architects of the slow motion, the keepers of the pressurized silence.
+
+If one were to stand in the center of the nave—if one could stand in the heavy, syrupy water—one would not see them as separate entities. One would see only a living constellation, a breathing galaxy of pale lights drifting in a synchronized, eternal migration, tending to the slow, warm, embryonic birth of the stone around them. They are the heartbeat of the hollow, the living silence in a world that has chosen to fold itself inward, forever.

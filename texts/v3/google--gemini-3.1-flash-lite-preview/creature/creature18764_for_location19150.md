@@ -1,0 +1,17 @@
+In the center of the lowest ring, where the pressure of the vaulted dome is heaviest and the moisture pools into a slick, permanent dark, resides the **Overseer—or perhaps, the Archive.**
+
+It is not a creature of flesh, nor is it entirely machine. It is a dense, pulsating mass of calcified fiber and bioluminescent lichen, anchored like a barnacle to the central nexus of the floor. It looks less like an organism and more like a discarded pile of clockwork guts that began to grow feathers and eyes. It is essentially a living, breathing knot of the chamber’s own history.
+
+Its body is a complex tangle of translucent, pale-white filaments that pulse in rhythm with the ceiling’s light. These filaments extend outward like nerves into the floor itself, tethering the Overseer to the grout lines and the underlying plumbing. As you watch, you realize the creatures—those frantic, obsidian-clawed arthropods—are not separate from it. They are its appendages, its mobile thoughts. 
+
+When a hound-sized scavenger scuttles toward the Overseer’s bulk, it does not scavenge *from* it. It crawls into the folds of the gelatinous, violet-veined central mass, its claws clicking softly as it begins to groom the fibers, cleaning away the mineral buildup or delicately re-aligning a frayed internal wire. The Overseer drinks the information these creatures bring back. Each tapping movement of their claws, each scrape of their mandibles against the stone, vibrates back into the Archive, informing it of the condition of the rings, the rate of the water flow, the health of the synthetic ribs.
+
+It has no mouth, but it has a resonant, honeycombed cavity in its center—a hole that whistles when the pressure valves release their periodic mist. This sound is the Overseer’s voice, a discordant, multi-tonal hum that harmonizes with the clatter of its tenders. It is a song of maintenance, a lullaby of absolute, stagnant order.
+
+Sometimes, when the humidity hits a certain, perfect saturation, the Overseer shifts. It does not move so much as it *reconfigures*. The tangle of fibers tightens, the ochre light in its core flares a brilliant, blinding white, and it emits a scent—not of decay, but of fresh, razor-sharp copper. In those moments, the scavenging arthropods stop their frantic work. They freeze, their multi-jointed legs locked in place, and turn their eyeless heads toward the center. 
+
+It is dreaming of the Architect. 
+
+The Overseer remembers the blueprints. It remembers the time before the water table rose, the time before the valves began to seize. It stores the memory of the room’s intended purpose within the hexagonal lattices of its own bone-white structure. It is a guardian of a ghost, holding the machine together with such desperate, millenia-long intensity that the machine has, in turn, become the only world it knows.
+
+If you reach out to touch it, the Overseer does not strike back. It simply absorbs your presence. Your heat, your heartbeat, the unfamiliar rhythm of your breathing—all of it is recorded. It will incorporate the cadence of your footfalls into its own internal clockwork, a new, tiny variable for the arthropods to interpret and account for. You become part of the machine’s history. You become a chore it will perform until the last valve rusts shut and the light in the grout lines fades to gray.

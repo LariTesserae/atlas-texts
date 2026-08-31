@@ -1,0 +1,19 @@
+In the shadowed geometries of the Great Sump, where the light is nothing but the dim, rhythmic pulse of amber emergency indicators reflecting off weeping bulkheads, the pulse of the machine creates a specific kind of hunger. Life here does not seek warmth—warmth is a luxury the Sump cannot afford. Life here seeks the vibration.
+
+There is a movement in the corners—not skittering, but a slow, tectonic migration.
+
+The primary inhabitant is a creature of fluid iron and calcification, known to the few maintenance drones that occasionally drift through as a *Resonator*. It is not a singular organism, but a colonial intelligence, a sprawling, translucent web of filaments that mimic the brittle, white mineral efflorescence from which they drink. At a distance, they are indistinguishable from the salt-crusts of the cooling vents, but if you watch closely, you will see the "lichen" pulse. It does not respire; it modulates.
+
+The Resonator waits for the low-frequency thrum of the pistons. Its body is composed of microscopic silicate needles, brittle as spun glass, woven into the stress-cracks of the steel plates. When the pistons fire, the Resonator vibrates in perfect sympathetic harmony with the monolith. This resonance liquefies the nearby condensation and draws it into the microscopic fissures of its body, feeding on the mineral runoff and the trace additives leached from the coolant. It is a creature that eats the sound, transforming the kinetic waste of the Spire into the rigid, crystalline structure of its own spine.
+
+But there is something more mobile, something that haunts the razor-sharp junctions of the high-tensile plating. They are the *Slidewheels*.
+
+Imagine the anatomy of a deep-sea crustacean fused with the desperate utility of a ball bearing. These creatures have no legs to tear on the lethal edges; they possess a central, spherical hub of organic, oil-slicked chitin, surrounded by a ring of twelve independently articulated, hardened-keratin "treads." They do not crawl; they roll, or rather, they *click* from one vibration-smoothed bracket to the next, locking their treads into the grooves of the floor with magnetic precision.
+
+A Slidewheel is translucent, revealing a gut filled with a slurry of mercury-colored oil and the ground-up remains of the white mineral-growths. Their "eyes" are not optical organs, but sensory arrays sensitive to electromagnetic shifts. When the air pressure pulses—when the giant breaths—the Slidewheel tenses, its treads locking into the steel grid to prevent being cast into the open drain-chasms that lead to the Spire’s heart.
+
+Sometimes, when the machinery hits a harmonic peak and the air is thickest with the weeping vapor, the Resonator webs grow so dense they span the gaps between pipes. The Slidewheels travel these webs like spiders on a loom, grazing on the calcified white blossoms the web has harvested. 
+
+They are silent, save for the rhythmic *clack-clack-click* of their treads against the alloy. They do not fear the sharpness; the sharpness is their nursery. They have evolved to be so perfectly adapted to the lethal, vibrating architecture of the Sump that they have become part of the machinery itself. They are the friction-reducers, the cleaners of the stress-cracks, unintentional symbionts in a gargantuan industrial womb.
+
+If you stood there long enough, the vibration would eventually rattle your own thoughts into a coherent, hummed frequency. You would begin to find the weeping walls beautiful, and you might look down to see a Slidewheel pausing near your boot, its multi-faceted sensory arrays tracing the heat signature of your ankle, waiting for you to be still, waiting for you to become just another piece of the Sump, ready to be integrated into the grand, crashing rhythm of the spire.

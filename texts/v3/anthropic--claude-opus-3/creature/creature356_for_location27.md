@@ -1,0 +1,11 @@
+In the depths of this vast, dripping cavern, life persists and adapts in strange forms. The primary inhabitants are pale, eyeless creatures - distant evolutionary descendants of surface amphibians and fish swept into the underground river system eons ago. Over countless generations in the lightless depths, they've transformed. 
+
+The largest are sinuous, eel-like beings up to six feet long, with ghost-white skin and sensory nodes studding their flat heads. They undulate silently through the black pools and flooded tunnels, hunting by sensing minute vibrations and electrical fields. Smaller newt-like creatures cling to damp walls with splayed, translucent feet, snatching the occasional insect with their projectile tongues.
+
+Insects too have found niches. Alarmingly large cave crickets, bleached and blind, strum resonant songs from perches on the old pipeworks. The occasional flicker of bioluminescence reveals long-legged aquatic beetles skating across still waters, and ethereal silk-winged moths fluttering in the dimness.
+
+But strangest are the fungal chimaeras, composite organisms of animal-like mobility and fungal structure. Pale masses creep with slow determination over the rusting industrial hulks, digesting mineral and metal. Frilled, luminous stalks pulse gently, attracting tiny flying prey to spore-laden interiors. Gelatinous nets of delicate mycelia stretch across chasms, drawing sustenance from the omnipresent dampness.
+
+Among the remnant machines, a different kind of life has arisen. In the scant light, it's hard to discern their exact nature - perhaps colonies of highly specialized microorganisms, or maybe nanites from the original industrial activities, evolved into self-perpetuating swarms. These enigmatic forms coat corroding mechanisms in shimmering films, or cluster in pulsating nodules that extrude into structural lattices. Their metabolic processes emit the odd clanks, hums, and acrid scents that fill the cavern.
+
+The ecosystem is sparse but interdependent. Organic detritus and rare chemical energy from the machines cycle between strange but essential niches. It's a fragile web, but one that has found an enduring, dreamlike equilibrium in this lost underworld, as far from the sun as life may have ventured.

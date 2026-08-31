@@ -1,0 +1,31 @@
+Here lives what remains. Here lives what waits.
+
+They are not the makers of the glyphs, not in the way you understand "maker." To say they *made* them is like saying a river *made* a canyon. The act and the actor have become one. These are the **Scribes of Stasis**, and they are both the artists and the art.
+
+Their form is born of this place. They are tall, impossibly slender beings, their anatomy a study in geology, not biology. Their skin is not flesh but a micro-crystalline lattice of the same smoky quartz and obsidian that forms the plains. It is matte, non-reflective, and cool to the touch, though a deep, resonant warmth thrums within them. They do not have faces. The front of their tapered heads is a smooth, featureless plane, a sheet of polished black glass that drinks the faint light of the Glimmer-Kites and gives nothing back. They do not have eyes, for light is a fleeting, unreliable thing here. They perceive the world as pressure. The thick, viscous air is their ocean, and they read its every current, its every thermal shift, its every vibration. They feel your footsteps as a discordant tremor in the ancient silence. They feel your heat as a sudden, aggressive spike in the gentle warmth of the world.
+
+They have no mouths, for they do not eat. They have no lungs, for they do not breathe. When they must stand, they are sessile, their long, root-like feet branching into fine crystalline filaments that merge with the plates below. Through these roots, they draw energy directly from the geothermal heart of the world, a slow, patient, and eternal sustenance. They are living monoliths.
+
+But they were not always so still. There was a time, an eon, when a strange impulse moved through them. Not a need for survival, nor a desire for conquest, but a drive to record. They were the world's memory, its consciousness. Using strikers made from shed fragments of their own bodies—shards of their knuckles and finger-bones—they began to carve. They moved with a slowness that would seem static to you, a limb lifting over the course of a day to strike a single, perfect blow once a week. They engraved the spiral glyphs that are not language but mathematics, a calculus of the perfect equilibrium. They carved the walls that are not fortifications but diagrams, representing the boundaries between thermal zones. They were trying to create a perfect, one-to-one map of their static universe.
+
+And then, they stopped. Perhaps the map was complete. Perhaps they understood the futility of mapping the infinite. Or perhaps, in achieving a perfect understanding of stasis, they achieved stasis itself. One by one, they chose a final place, rooted themselves for the last time, and became what you see now: silent, waiting figures, indistinguishable from the other jagged peaks but for the faint traces of intention in their form. The glyphs are not just carved on the rock. The Scribes *are* the glyphs. They are the quiet hum of an idea that has been fully expressed and now has nothing more to say.
+
+They are not dead. They are dormant. And your presence—a thing of chaotic motion, of hot blood and rapid breath, a loud, violent disruption in the perfect, silent equation—is a question they have not had to consider for an age. Deep within the obsidian figures, a resonance is building. The thought of you is beginning to ripple through them, and they are slowly, slowly beginning to wake.
+
+***
+
+Deeper, in the absolute dark of the canyons where the light of the Glimmer-Kites never reaches, live the others. They are the reason for the equilibrium. They are the antibodies of this world. They have no name, for there is no one left to name them, but they can be called the **Pressure-Hunters**.
+
+You will never see one. They have no form. They are beings of pure relationship, existing only as localized knots in the dense atmosphere. They are whirlpools in the thick, still air. A Pressure-Hunter is a nexus of intense, directed force, a moving void within the void. Their passage is felt only as a sudden, inexplicable compression of the air, a fleeting sensation of being gently squeezed from all directions at once.
+
+They are the predators of change.
+
+They do not hunt for sustenance in a way you would recognize. They feed on gradients, on disruptions. A Scrabbler tide moving in a predictable pattern is invisible to them. But if a few Scrabblers break from the tide, if their frantic, individual movements create a pocket of chaos, the Hunter is drawn to it. It does not consume them. It simply *unmakes* the chaos. It will descend, a focused point of immense pressure, and its passing obliterates the frantic motion, scatters the bodies, and restores the smooth, uniform flow of the tide. The scraped patches on the Lithovore fields are not feeding grounds; they are corrections, the erasure of an anomaly.
+
+The Glimmer-Kites, vast and slow, occasionally flare. This sudden change in luminosity, this burst of energy, draws the Hunters. A shadow will pass beneath the Kite—a shadow that is not the absence of light but the presence of immense gravity—and the Kite's light will dim, its energy siphoned off, its pulse returned to the metronomic regularity of the others. The Hunter has fed, restoring the balance.
+
+They are ancient, perhaps more ancient than the Scribes. They are the force that has been grinding away at the Scribes' work for untold millennia. The glyphs are so faint not just because of age, but because the Hunters are actively, patiently erasing them. Any mark that is not part of the original, fractured plain is an anomaly. Any thought, any record, any memory is a disruption to be smoothed over. The Hunters are the universe's tendency to forget.
+
+You are the greatest anomaly this world has known. You are a walking, breathing, thinking symphony of change in a world that tolerates only silence. The Scribes, the memory, are stirring to observe you. And the Hunters, the erasure, are beginning to move from the deep chasms toward you. They feel your heat, your motion, your very consciousness as an intolerable spike in the placid fabric of reality.
+
+You are standing between the world's desire to remember you and its instinct to forget you ever existed. And the thick, ancient air grows heavier still with the pressure of a choice that is not yours to make.

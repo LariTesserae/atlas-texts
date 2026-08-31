@@ -1,0 +1,7 @@
+The basin does not have inhabitants in the ordinary sense. It has tenants of surfaces, tenants of droplets, tenants of intervals. Nothing large lives there. No animal makes a den in the broken rock. No person keeps a lamp lit from within the control cabin. No mammal crosses the moss without leaving some wound in it, and yet there are no tracks, no bones, no signs of a warm body sleeping among the pipes. If one asks, “Who lives here?” the first honest answer is: almost no one, in the way the low world understands someone.
+
+But that answer is too small.
+
+The true population begins as a film. On every wet face of rock, on every warm pipe, on every leaf that stays still long enough, there is a living varnish. Green where the light reaches it. Blackish in the hotter cracks. Orange along the seams where rust bleeds. This is the basin’s first and most numerous life: algae, cyanobacteria, diatoms, iron-loving microbes, and the faint threads of fungi working beneath them. They make the surfaces slick and fertile. They hold dust. They feed the smaller mouths. They are the pasture upon which the rest of the basin depends. A fresh scar of rock needs only dampness and a little warmth, and this skin arrives.
+
+Within that skin, and within every bead of standing water, there is a hidden crowd. The shallow pools are not empty. They are crowded with lives too small to see plainly: ciliates turning in the mineral water, flagellates gathering at the edges of warmth, rotifers opening and closing their tiny crowns, nemat

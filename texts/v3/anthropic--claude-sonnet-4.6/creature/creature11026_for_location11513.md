@@ -1,0 +1,117 @@
+## What Lives in the Caldera City
+
+---
+
+Begin with what the heat has made.
+
+Not what was brought here, or what chose to come — though there is that too, eventually — but what the conditions themselves have authored, over the long patient time that geological processes use instead of intention. The caldera city is inhabited the way a tide pool is inhabited: by what the particular chemistry selects for, by what can withstand what others cannot, by what has organized itself around abundance that looks, from outside, like hostility.
+
+---
+
+### The Mat
+
+The oldest resident has no name that satisfies, and this is appropriate.
+
+It predates the city. It predates, almost certainly, any consideration of whether this place could hold a city. When the first surveyors came — and there were surveyors, once, people with instruments and notebooks and the particular squinting certainty of those who measure things — the mat was already in the cracks, already doing what it does, which is metabolize and persist and spread its orange-red chemistry into any surface where water moves with enough consistency to be called a relationship. The surveyors noted it. Their notes described it in the language of their era and discipline, which is to say: functionally, with mild distaste, and incorrectly. They called it algae, or growth, or residue. None of these words were right. The mat is not residue. Residue is what is left when something else is finished. The mat is the thing that hasn't finished yet.
+
+It lives at the boundary between biology and chemistry, which is a boundary we have drawn and the mat ignores. It metabolizes sulfur compounds and iron and the particular mineral cocktail of the caldera's water. It produces, as byproduct or waste or perhaps as something it means to do — the mat does not clarify its intentions — a thin iridescent film that rides the water surfaces, that gives the pooled water in the channels its slightly-wrong quality. It produces heat, in the way that all metabolism produces heat, though here the ambient heat already is so assertive that the mat's contribution is unmeasurable, is a whisper in a furnace. Still: it adds its increment. It has always added its increment.
+
+The mat is orange-red because of the iron it processes, or because of the bacteria (if they are bacteria, which they approximately are) that constitute it, or because of something deeper than either explanation reaches. It is the color of old metal and of the rock walls when the light comes from a certain angle. The city has, over its life, been built to look like the mat, without intending to. This is what happens when you build with materials from the same geological formation that hosts the mat, when you process and smelt and re-smelt those materials in the same geothermal heat the mat has always used. The city and the mat rhyme. The mat does not care about this. The mat cares, to the extent the word applies, about the next millimeter of crack, about the next thin sheet of mineral-laden water, about whether the current will bring enough sulfur and whether the temperature remains in the band it finds workable, which is a broad band, which is why the mat is still here.
+
+When you look at the mat carefully — crouching near a channel, in the dim lamplit haze, the heat coming up through your knees from the paving stones — you see that it is not uniform. It has structure at a scale too small for the unaided eye but present enough to sense. Texture. A slight topography of its own making. It is organized, though by no process that resembles any planning we recognize. It organized itself over time, by the accumulated logic of which variations survived and which did not, which is a very old logic and perhaps the oldest one, and the mat has been practicing it since before the rock of this caldera cooled.
+
+The mat does not know that the city is empty. The mat does not know what the city is. The mat knows: this surface, this chemistry, this thin consistent film of appropriate water, this temperature. Everything else is not its concern, and this is not a limitation. This is a completeness of a particular kind.
+
+---
+
+### The Pump Organisms
+
+This requires explanation, and the explanation is strange, and you should let it be strange.
+
+In the sub-street chambers — the ones you can access through the iron grates in the plaza paving, the ones the pressure management infrastructure uses for its deeper runs — there are organisms that have structured their lives around the mechanical pulse of the condensation pumps. They did not design this. The pumps did not design this. But the pumps cycle at intervals, and the intervals move water, and the movement of water is an event in the darkness of the sub-chambers, and organisms that timed their activity to that event did better than organisms that did not. Over enough time, over the kind of time that a caldera has available, the timing became innate. Became structural. Became them.
+
+They are small. Not microscopic — you can see them without assistance, if the light is right and you know to look, which almost no one does anymore. They have bodies that are elongated, flattened, adapted for the crevices between pipe sections and the underside of the iron covers. They are pale. Not white exactly — pale in the manner of things that developed in consistent dim, which is a warm darkness, more amber than black, lit from above by the faint glow of the street lamps through grating and from below by the thermal rock itself, which has its own dull radiance in these chambers if you stay long enough for your eyes to adjust, which no one has, recently. The pale is almost translucent at the edges, the body's periphery too thin to hide what's inside, which is the visible branching of circulatory structure, fine as cracked glaze, dark against the lighter body.
+
+They feed on the mat, primarily. On what washes down through the grating, on what grows in the chamber walls where the mat has established its quiet bridgeheads. They eat the mat without diminishing it — the mat responds to being eaten the way fire responds to wind, by spreading. The relationship is old. It may be why the mat developed the iridescence, or the iridescence may be incidental and the pump organisms found it useful, found that the iridescent film on the water's surface told them something about the water's chemistry and thus its edibility. The iridescence is not a signal, strictly speaking. But it has been read as one long enough that the reading and the signal have become entangled.
+
+When the pump cycles — the bass note resolving into its rhythmic event, pressure differential moving through the pipes, water pushed forward in its regular interval — the pump organisms respond. They move. This is when they feed. The movement of the water carries nutrients, carries oxygen, carries particulate matter from other parts of the sub-street network, and the organisms have learned (not learned; became) to treat the pump's cycle as their meal-time, their activity period, their day. Between cycles, they are still. Between cycles, they are in a state that is not quite rest and not quite suspended animation but falls between both words, something the words don't cover because we've only needed words for the cases we'd already seen.
+
+They communicate by contact. When two of them meet in the dark — which happens at the pump cycle, when movement brings them into proximity — they exchange information through the contact of their outer surfaces. What information? The question assumes a content that may not be quite right. What they exchange is: state. They exchange their current chemical state, their history of recent feeding, their readiness, their particular version of the present moment. This exchange changes both of them. Both of them move differently afterward. This may be something like conversation. It may be something much simpler that we are overcomplicating. It is certainly something.
+
+They have no word for the city above them. They have no word for anything. They have the pump cycle, and the mat's chemistry, and the warm dark, and the contact-exchanges that compose their social world, which is dense and continuous and below the floor of almost everything that has ever happened up here.
+
+---
+
+### The People
+
+There are four of them. Possibly five.
+
+The uncertainty is real. It's not false mystery. It is the genuine epistemological situation of a space so large that the people within it can maintain, through ordinary movement and ordinary privacy, a condition in which they are known to each other but not fully enumerable to any one observer.
+
+They don't hide from each other. They are, in their way, a society. A society of four, possibly five, in a city built for several thousand, running at the margin of their collective capacity to maintain it. They maintain it, mostly, through understanding — each of them understands the infrastructure the way you understand a language spoken from childhood: without needing to explain the grammar, without being fully conscious of all the rules, with the deep fluency that comes from having no other option, from having grown up (some of them) inside the city's operations, inside the sound of the pressure and the light of the lamp flame and the particular weight of the haze at different times of day.
+
+They are each old, in different ways. Old with different textures.
+
+---
+
+The one who manages the southern pressure manifolds is the oldest in calendar years, and doesn't think about this, because thinking about it would require thinking about what it means that there is no one younger taking on these responsibilities, and that line of thought leads somewhere not useful, so it doesn't go there. This is not denial; it is a kind of practical focus that has become a philosophy. She moves through the southern district every day or nearly every day — the route doesn't vary much, because the manifolds don't vary much, because the whole point of the manifold system is that it shouldn't vary, that variation is an event requiring response — and she adjusts pressures and clears scale from fittings and, occasionally, replaces a casting with one from the city's still-considerable inventory of stored parts. The stored parts are in a warehouse in the eastern district, behind three sets of heavy iron doors that she is the only one who opens. She knows where everything is. She knows this the way she knows the route: not by remembering, but by being. The warehouse is a part of her spatial mind in the way that your house is a part of yours, the way you navigate it in the dark.
+
+She has opinions about the mat. Positive opinions. She has watched it long enough that she sees its cycles — not the chemical cycles, which happen below her observational timescale, but the seasonal shifts, the way it responds to the annual temperature variations that are slight but real, the way it extends into new cracks in spring and holds its position through the hottest months. She doesn't study this formally. She just notices it, has noticed it for long enough that she has learned things, has a knowledge the mat did not intend to confer and she did not intend to acquire. Sometime in middle age she started leaving things in certain crack-locations — a tool, a piece of equipment she needed to remember — because she noticed the mat was always there, always findable, a reliable landmark in a city where the other landmarks were too large to use for triangulation. The mat doesn't know this. She is using it as a reference point without its participation. This seems fine. The mat does not seem harmed.
+
+---
+
+The one who manages the northern lamp district was not born here. He came from outside the caldera wall — how he got in is a story he tells differently each time, not lying exactly but revising, each telling shaped by what he's decided to emphasize today, which changes with mood and with who's asking and with which version of his own history he's been living in recently. The constant across all versions: he arrived in winter, when the caldera rim was impassable by the normal routes, and he came through by a way that was not the normal route, and he arrived knowing no one. The city was already in this condition when he arrived: functional but sparse. He was not the cause of the sparseness; he found it.
+
+He has been here long enough now that he cannot cleanly remember arriving. The arrival has become a category of memory rather than a specific one — it sits in the same folder as other formative events, things that made him who he is here, and those memories have been touched often enough by recollection that they've smoothed, that their edges are gone. He is a person who has fully become this place the way a person can become any place if they stay long enough and the place is specific enough to push back, to require adjustment, to make demands.
+
+His relationship to the lamps is the most intimate relationship of his life, and he doesn't romanticize this; it is simply true. He knows each lamp as a particular object, knows which ones need their wicks trimmed weekly and which can go months, knows which feed lines run slightly hot and which run slightly cold and how this affects the quality of the flame. The lamps that run hot burn blue-white, sharp, reliable, efficient. The lamps that run cool burn with more yellow in them, more movement, a flame that gathers itself and releases, gathers and releases, like breathing. He has preferences among the effects. The cool-burning lamps give him something the hot-burning ones don't. He couldn't say precisely what. He walks his route in the haze and tends each one and the tending is not romantic and not tedious and not quite either of the words we'd usually use; it is just what he does, which is to say it is what he is, which is to say it is fine, it is enough, it is the particular enough that has come to be his life.
+
+---
+
+There is one who maintains the cisterns, and this person is the quietest of them in a way that isn't personal temperament but is instead a consequence of what the cistern work involves, which is a great deal of time in the sub-street chambers, in the warm dark, near the pump organisms, and proximity to the pump organisms over long time has done something. Not transformation exactly. Not communication in any meaningful sense. But an attunement. A permeability to the rhythms of that environment, an absorption of its timescales and its logic, which is so different from the city-as-designed timescale, which is so different from the above-street haze-and-lamplight world, that moving between them — as the cistern keeper does, several times each day, descending and ascending, the iron grate swinging aside, the warmth below different from the warmth above — has produced a person with two ways of being, neither of which is quite comfortable in the other's context.
+
+Above ground, the cistern keeper is slightly too still. In a face that has learned to be still, in the sub-chambers, so that the pump organisms don't register it as a disturbance and alter their behavior, there is a stillness that reads, at street level, as absence or distance or gravity. It is none of these. It is the muscle memory of not-disturbing. It takes time to ease out of it, each time. Sometimes the cistern keeper still hasn't eased by the time it's time to descend again.
+
+Below ground, the cistern keeper is — this is hard to describe precisely — more three-dimensional. As though the constraints of the surface world, the implicit requirements of navigating space as a person among other persons, have been lifted, and something fuller fills the volume. There is a quality of attention below ground that is not replicable above it. The pump organisms are sensed rather than seen, located by the slight temperature differential of their bodies and the faint change in air movement when they shift positions. The water in the cisterns is understood by sound — each cistern has a particular resonance, changes in mineral content and temperature audible as changes in the way the water moves against the stone, subtle, exactly subtle enough that noticing them requires the kind of attention that crowds out everything else. The cistern keeper is the best listener in the city. This is a statement about the cisterns and also not only about the cisterns.
+
+---
+
+The fourth person is young. Or: younger. The youngest. The youngest by an amount that creates a silence no one speaks around, a silence about why, about what the youngest person being this age means for the long future of this maintenance, this continuation of the city's slow logic.
+
+The youngest came to this work the way all of them came, eventually: there was the work, and the work needed doing, and they had the capability, and the capability needed using, and these facts organized themselves into a life without requiring a single decisive moment of choice. It is possible the youngest chose. It is also possible that the word choice names something more deliberate than what actually happened, which was more like finding a shaped space that matched a shape they hadn't known they had until they found it.
+
+The youngest maintains the mechanical systems — the flywheel, whatever it is, turning with no particular load but maintained in its turning because stopping it would require someone to go stop it, and now that the youngest tends it, the question of stopping it has been answered by default: no. The turbine rooms, where the pressure differential between geothermal steam and the cooler upper air can be used to turn mechanisms that once powered the city's industrial processes and now power very little, but still turn. Mechanisms that have been simplified over time, stripped down to what can be maintained by one person who is not a specialist in each component but has become a generalist in all of them, has read what texts exist in the city's archive rooms (one room, really, a carefully climate-managed room where the elevated humidity has been managed well enough that the records are legible) and extrapolated and improvised and on three separate occasions over the past years has repaired something that couldn't, by any analysis, have been repaired, and it worked, or worked well enough, and the flywheel turned, and the turbines turned, and the city continued.
+
+The youngest is also the one most likely to be in the plazas. In the open spaces, standing in the volume of hot damp air, looking up at the rough-circle sky above the caldera rim. Not searching for anything visible. Looking at the space, the quality of the haze, the particular color of the light at whatever time this is. In these moments, the youngest is not maintaining anything and not planning anything and not worried about anything in particular. Is just standing in the city and being in the city and the city not noticing and the city not needing to notice for this to be a sufficient activity.
+
+---
+
+The thing in the air.
+
+It is the fifth resident, and possibly the fifth person referred to above is a miscount and there are only four people, and this is the fifth: unlikely, but. The city generates persistent uncertainty about enumeration.
+
+What it is: large enough to move air when it passes close to a roofline, which has happened, which has been noted by the lamp tender who saw the nearest lamp flame deflect in the wrong direction for wind. Warm-blooded or something adjacent, meaning it doesn't descend to the streets, meaning the cold-by-comparison streets would draw heat from it at a rate it can't sustain, meaning it stays in the upper registers of the city's thermal column, where the haze rises and the warmth is. Leathery suggests a wing surface, or has suggested this, to the one person who has heard it clearly, once, in the eastern district, near the tallest of the factory buildings, at a height of perhaps thirty meters up: a sound consistent with leathery membrane and inconsistent with feathers or insects or the other obvious categories.
+
+What it wants from the city: the thermal. The city, by heating the air above it, creates a column of rising warmth inside the caldera, and whatever has wings and stays aloft in this place uses that column the way a hawk uses a thermal above a field: not gratefully (that word again, assigning something that probably isn't there), but efficiently, functionally, in the way that bodies use what is available, the way a life organizes itself around a resource and forgets, over time, that any other arrangement was possible.
+
+It has been here, presumably, as long as the city has been here, or it has come from a lineage that was here before the city and adapted to the city's thermal as the city added that resource to the caldera's existing thermics, which were always present and useful long before any human construction amplified them. It does not interact with the people in any way that can be detected. It doesn't come low enough. The people look up sometimes, toward the sound or toward the movement at the edge of perception, above the roofline. They see nothing or they see something that might be and might not be. The city is full of motions that might be and might not be: the haze moving, the steam rising from a vent, the lamp flame's slight constant agitation. Adding one more uncertain motion to this field has not, over time, created alarm. The thing in the air is just: a thing in the air. Above. Warm-blooded or adjacent. Managing.
+
+---
+
+### What They All Share
+
+Begin again with heat.
+
+The heat is not a condition they share because they're all here; they're all here, partly, because of the heat. The mat was selected by it, over time so long that selection is the wrong word's scale. The pump organisms built their entire temporal experience around the heat's consequences — the steam, the condensation, the pressure differential that drives the pump. The people came, or stayed, because the heat is what the city offers, what the city is, what makes the city legible and liveable to someone who has become the city's person. The thing in the air depends on the heat's atmospheric effects for its locomotion, its entire mode of being above the ground.
+
+The heat is what they have in common. The heat and the particular version of patience it requires — not the patience of waiting for something different, but the patience of continuing in what is, of finding the grain of what is and working with it, of doing the specific next thing the specific situation calls for and trusting, without quite articulating the trust, that this constitutes enough.
+
+The mat metabolizes. The pump organisms cycle and exchange. The people maintain. The thing in the air rises.
+
+The city runs on its own momentum, the flywheel spinning, the gas burning, the water finding its level, the lamps lit in the dim haze.
+
+And all of them — the ones with words and the ones without, the ones with faces and the ones without, the oldest resident and the youngest person, the sub-street people and the above-roofline life — all of them are doing the same essential thing, which is: continuing. Continuing in the specific way the specific conditions of this specific heated iridescent sulfur-tinged lamp-lit geologically-pulsing place have shaped them to continue.
+
+They are the caldera's answer to itself.
+
+And the caldera doesn't notice, and this is fine.

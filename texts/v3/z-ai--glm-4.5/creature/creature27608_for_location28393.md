@@ -1,0 +1,19 @@
+In the absolute absence of fauna, the distinction between "flora" and "inhabitant" dissolves. What lives in the Sump is not a collection of organisms, but a single, vast, and vegetative intelligence—a singular consciousness that has colonized the machine in the same way the machine once colonized the space.
+
+These are **The Resonant**.
+
+They are not distinct plants in the way a forest contains distinct trees, but rather a continuous, interwoven carpet of life that binds the ceiling to the floor, turning the vertical distances of the chamber into a single, draped organism. They are the vines that hang like thick, rubbery nooses from the riveted iron sky, and they are the moss that creates a velvet pelt over the rusted stanchions.
+
+If one were to look closely—which the blinding, scattered light discourages—one would see that the Resonant have evolved to meet the unique tyranny of the Sump. Because the roar is absolute and constant, vision is useless here. The Resonant do not bloom to attract pollinators; there are no bees, no moths, no eyes to see them. Instead, they bloom for the vibration.
+
+Their leaves are broad, stiff structures shaped like radar dishes or satellite cones, positioned not to catch the dim white light, but to catch the low-frequency thrum of the engines. They are covered in a microscopic fine fuzz that translates the physical pressure of the sound waves into electrical energy. They feed on the roar. The drone is their photosynthesis.
+
+Along the lengths of the hanging vines, there are growths—bulbous, translucent cysts the size of a man's head, filled with a fluid that glows with a faint, bioluminescent green pulse. These are their hearts. The fluid inside them ripples in time with the hydrodynamic stasis of the marsh water below. They act as capacitors, storing the energy harvested from the machine’s vibration to fuel the slow, agonizingly gradual movement of the vines.
+
+The Resonant are the architects of the stillness. Where a vine touches the surface of the stagnant marsh, it descends into the water and anchors itself to the pressure vessels below. Here, the roots are not delicate fibers; they are thick, muscular cables that wrap around the rusted cylinders of the ancient machinery. They bore into the metal, seeking the trace minerals and the oxidation itself. They eat the decay of the gods that built this place. They consume the rust, converting the death of the machine into the life of the green.
+
+Most fascinating, and perhaps most disturbing, is their relationship with the control panels. The Resonant have not merely overgrown the gantries; they have interfaced with them. Thick mats of the moss have colonized the buttons and switches of the forgotten consoles. The moss possesses a primitive, fungal nervous system that reacts to the electrical currents still flowing through the wires beneath the panels. The moss swells and contracts, opening and closing circuits in a rhythmic, biological cycle. It is as if the plants have learned to operate the machinery, or perhaps the machinery has cultivated the plants to maintain it.
+
+There is a sentience here, but it is alien. It does not think in seconds or minutes; it thinks in decades and centuries. The Resonant do not "watch" the room; they *feel* it through their roots and their leaves. They are aware of the water level not by seeing it, but by feeling the tension on the roots submerged in the marsh. They know the temperature of the air by the rate of their own metabolic vibration.
+
+They are the sole audience to the eternal concert of the Sump. In a place where nothing changes, they are the only thing that grows. They are the soft, green counter-argument to the hard, black iron. They are the children of the noise, lush and terrifyingly silent in their own way, waiting in the humid haze for the moment the machine finally stops, and the long night begins.

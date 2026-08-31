@@ -1,0 +1,15 @@
+In this crystalline, mineral-forged realm, life takes on forms and existences utterly alien to our terrestrial experiences. The symbiotic vegetation consists of exquisite, geometric life-forms - living lattices and fractal fronds intertwined with the very geology. Their metabolic processes have evolved to harness the energy and compounds of the rich mineral environment.
+
+The dominant life forms, however, are entities born of the crucible of this world's intense geology itself. They are beings of living crystal, their bodies and essences forged from the molecules and lattices of exotic mineral compounds. Their shapes, symmetries, and very structures echo the angular geometries and intricate patterns found throughout the crust.
+
+Some of these crystalline life forms exist in humanoid-like individuality, their faceted bodies refracting a kaleidoscope of colors as they stride across the mineral expanses. Others take more distributed, colonial forms - vast interlinked networks akin to crystalline fungi or mineral mycelia that spread across miles of territory. 
+
+All are tied to the cycles and energies of the planet's intense geology through strange mineral-based metabolisms. They feed on chemical gradients, volcanic efflux, radiant energy, material stresses - the primordial fonts of this youngworld's creative forces. Their shapes and compositions shift and metamorphose in consonance with the environments that birth them.
+
+Most extraordinary are the mineral citadels and metropolises erected by the most advanced of the crystalline species. Here, mineral beings have mastered esoteric geodic engineering to cultivate, encourage, and intricately shape the very geology around their settlements into soaring crystalline towers, fractal urban plans, and structural spines composed of exotic hyper-latticed materials.  
+
+Their lithic geometries of habitat and architecture integrate seamlessly into the surrounding crystal towers and outcrops of the wilderness. It is as if the cities grew naturally from the mineral extrusions, only being subtly coaxed by unseen forces. Inside dwell the cerebral, highly-evolved crystal oligarchies, entities of pure light and coherent lattice whose intellects ripple across mineral data-waves. 
+
+The echoes of their thoughts and mineral calculations resonate outwards in ethereal harmonic resonances that interact with the very materials around them. Cathedrals of crystal focus these potent mineral energies into monumental workings of high geological alchemy - encouraging dynamic mineral genesis, articulating tectonic stresses, meta-crafting new forms of hyper-lattic life.
+
+This entire world is a thrilling continuum of active, evolving mineral incarnation - where life, geology, physics and energy entwine in a grand, ineffable crystalline symbiosis. New forms of mineral sentience uncurl into existence with each volcanic event or mineral condensation. The latent thoughts and stresses encoded in the rocks themselves slowly awaken and find purpose in new avenues of crystalline life and consciousness. In this realm, the planet quite literally dreams itself into ever more wondrous forms of rocky awakening.

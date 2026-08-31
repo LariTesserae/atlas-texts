@@ -1,0 +1,15 @@
+To inhabit this place is not to live, but to reside within a frequency.
+
+The residents are not biological in the way a visitor expects—they are the *stewards of the hum*. They are entities comprised of the same light-absorbing foam that constitutes the navigation spires, though their forms are far more fluid. Imagine a creature that exists as a geometry of matte-black shadows, perpetually shifting their volume to match the density of the air. They do not walk; they interpolate. 
+
+They are the "Maintainers," or perhaps the final, lingering sub-routines of the intelligence that once sculpted this valley.
+
+When they move, they do not disturb the silt. They move in the gaps between the vibration of the filaments. To look at them is to experience a minor optical glitch: your eyes try to focus on them, but your brain slides off their edges, unable to find the familiar silhouettes of limbs or faces. They are hollowed-out shapes that seem to contain nothing but the thin, dry air itself, held together by the same magnetic tension that keeps the mist-wells shimmering.
+
+They have no hunger. They do not eat the reptilians, nor do they drink from the pools. Instead, they are the regulators. You will see them cluster around the nodes when the sun hangs at its zenith. They press themselves against the glassy rock until they seem to merge into the landscape, and in that synchronization, they exert a gentle, insistent pressure on the valley’s localized physics. They are ensuring the "tilt" is maintained—that the gravity here remains just slightly detached from the world below, allowing the valley to hang among the stars.
+
+They are indifferent to the intruder. To them, you are merely a noisy, humid anomaly—a chaotic collection of soft tissues and rattling breath. You are a low-frequency disturbance that will eventually pass. They do not fear you, nor do they hate you; they simply adjust their opacity to avoid you, drifting behind the shimmering haze as if you were rain falling through a light they are trying to keep focused.
+
+If you were to stay long enough, if you were to quiet your own biological rhythm to match the tectonic heartbeat of the ground, you might see them gather at the edge of a mist-well after the water has evaporated. They do not speak. They share information through the faint, rapid discharge of static electricity, a visual language of blue-white flickers that dance across their matte surfaces. They are debating the efficiency of the valley’s arc. They are calculating the decay of the metallic filaments woven into the stone. 
+
+They are lonely, not in a human sense, but in the way a star is lonely. They are the architects of a silence that will last for eras after the sun has turned cold. They are the memory of the ground, preserved in a liquid-light, waiting for the day when the last mechanical gear finally grinds to a halt—the day when they, too, will finally be permitted to stop vibrating and sink into the shadowless, orange dust.

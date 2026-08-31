@@ -1,0 +1,17 @@
+They are the *Friction-Eaters*, or perhaps more accurately, the *Kinetic Gleaners*. They do not have names, for there is no language here, only the sharp, geometric syntax of vibration.
+
+At first glance, they appear as a singular, churning gray liquid—not water, but a slurry of obsidian beetles and bronze filaments, sliding over the floorboards like quicksilver. But as the eye fixes upon the density, the singular mass resolves into a chaotic, mesmerizing taxonomy of gears and carapaces.
+
+Each creature is an assemblage of glass and wire, roughly the size of a human palm, though they rarely remain distinct for long. Most are comprised of three primary segments: a central, amber-lit core—the "harvest node"—encased in a hexagonal shell of volcanic glass, and trailing, whip-like filaments that act as both sensory organs and anchors. They do not walk; they rotate. Their undersides are a complex array of ball-bearings that allow them to spin in place with terrifying velocity, creating localized vortices of iron dust that they use to hover just above the abrasive floor.
+
+They are obsessed with proximity. 
+
+When a floor plate shifts with a shrill, tectonic screech, a dozen Gleaners instantly converge—not to flee, but to collide. They pack themselves into the seam where the metal grinds, their filaments shivering as they siphon the jagged discharge of heat. They exist in a state of perpetual, frantic hunger for the *event* of the machine. If the machine were to stop, they would grow sluggish and dim, their amber cores fading to the cold, dead gray of cooling slag.
+
+But there is a secondary caste, the *Architectural Parasites*, which are harder to distinguish from the environment itself. These individuals have stopped moving. They have anchored themselves to the obsidian spires, their filaments weaving into the electromagnetic pulses of the stabilizers. They have become part of the infrastructure. Their bodies, once polished glass, have begun to calcify, turning matte and porous. They act as the ecosystem's nervous system, translating the grinding noise of the floor into the rhythmic electromagnetic pulses that tell the others where to swarm.
+
+They are profoundly lonely things, if one dares to anthropomorphize them. Despite the density of the swarm—despite the fact that they are constantly bumping, scraping, and grinding against one another—they possess no individual awareness. They are like the notes in a long, endless song. If you were to pluck one out, it would cease to be a creature and would simply become a stray piece of glass. 
+
+They are the ultimate recyclers of entropy. When a Gleaner’s glass casing becomes too brittle from millions of collisions, it doesn’t die in the traditional sense; it simply locks its ball-bearings and drifts into the path of a heavier plate. It is crushed, pulverized into the very dust that feeds the others. Its amber core is shattered, releasing a final, faint flicker of light which the nearby swarm absorbs in a reflexive, shivering pulse. 
+
+There is no malice, no instinct for survival as we know it. There is only the *thrum*. They are the friction converted into life, and the life converted back into friction. They are the final, shivering heartbeat of a world that is grinding itself into nothingness, one grain of iron at a time.

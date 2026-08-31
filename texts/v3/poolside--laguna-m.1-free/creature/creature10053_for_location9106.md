@@ -1,0 +1,31 @@
+**The Keepers of the Veiled Hollows**  
+
+In the Veil Hollows, the inhabitants are not merely survivors of the land’s peculiar stagnation—they are its symbiotes, its custodians, and its prisoners. The people of the Hollows are known as the **Vaelith**, a name whispered in the local dialects as *"those who wear the moss."* They are humanoid but subtly other, their bodies shaped by centuries of dwelling in the damp, dim luminescence of their world.  
+
+### **Physical Adaptation**  
+The Vaelith are taller than average humans, with elongated limbs and joints that bend with a fluid, almost boneless grace—a trait that allows them to navigate the dense undergrowth and slip through the narrow gaps between stones. Their skin is pale, almost translucent in the bright, fractured light, and is marked with intricate patterns of brown and green that resemble lichen. These markings are not tattoos but a symbiotic relationship with the bioluminescent lichen of the north-facing rocks; the organisms colonize their bodies, glowing faintly in response to their emotions or during communal rituals. Their hair is long, matted with moss and frost, and often woven with the dried stalks of reeds or the hollow bones of small birds.  
+
+Their eyes are large and dark, adapted to the perpetual twilight beneath the conifer canopy. They see in a spectrum that includes the ultraviolet shimmer of the moss and the phosphorescent trails of fungi, which they use to navigate the labyrinthine root systems. Their breath is slow and deliberate, a trait that minimizes heat loss in the biting cold, and their blood carries a unique antifreeze protein that prevents freezing even in the deepest pools.  
+
+### **Society and Culture**  
+The Vaelith live in small, kin-based clusters centered around the ancient domed huts and the central spring. Their society is structured around the concept of **"root-memory,"** the belief that the land itself stores the memories of the past, and that the trees, pools, and stones are the keepers of ancestral knowledge. Each family tends a section of the Hollows, maintaining the balance of the ecosystem through rituals that involve pruning the undergrowth, redirecting seepage to prevent stagnation, and tending to the bioluminescent lichen that clings to their dwellings.  
+
+The Vaelith do not speak, or at least not in the conventional sense. Instead, they communicate through a combination of gestures, subtle shifts in body posture, and the manipulation of light and shadow using polished stones and reflective surfaces. The central spring’s concentric stone circles are not merely ceremonial; they are part of a complex system of signals. By dripping water onto specific etched symbols or arranging pebbles in certain patterns, the Vaelith convey messages across the Hollows—warnings of approaching visitors (a rare occurrence), changes in the equilibrium of the pools, or the arrival of seasonal "wanderers" (the occasional migratory creature that stumbles into the valley).  
+
+### **Relationship with the Environment**  
+The Vaelith have no concept of waste or decay. They consume the slow-growing vegetation of the Hollows—mosses, fungi, and the occasional pine seed—but do so with meticulous care, never taking more than the land can spare. Their tools, mostly crafted from antler, bone, and the strange, tarnish-resistant metal found in the ruins, are designed for precision rather than force. They shape the land with a sculptor’s patience, guiding roots to reinforce crumbling walls or coaxing bioluminescent lichen to grow in patterns that serve as wayfinding markers.  
+
+The pools are sacred to them, and their cycles dictate the Vaelith’s rituals. They believe the pools are the "eyes of the earth," and their fixed levels are a sign that the land is "breathing evenly." When the water levels fluctuate—even slightly—the Vaelith enter a state of collective vigilance, tending to the roots and stones to restore balance.  
+
+### **The Unseen Threat**  
+Beneath their static existence, the Vaelith harbor a deep, unspoken fear: the possibility of entropy’s return. They speak (in their silent way) of the "Great Thaw," a mythic event where the equilibrium of the Hollows might collapse, leading to decay and chaos. This fear drives their obsessive maintenance of the land, and some among them believe that their very presence is a bulwark against the outside world’s corrupting influence.  
+
+### **Behavior and Daily Life**  
+The Vaelith are crepuscular, most active during the "bright hush" when sunlight filters through the canopy in its fractured shards. They move with a gliding, almost floating gait, their bare feet pressing into the soft earth and moss without disturbing it. They rarely gather in groups larger than a dozen, and their interactions are marked by a profound stillness. Conflicts are resolved through prolonged periods of silent observation, with the aggrieved party slowly withdrawing into the root-tangles until the tension dissipates.  
+
+Children are rare, as the Vaelith reproduce slowly, and each birth is accompanied by elaborate rituals to ensure the child’s bond with the land. Infants are swaddled in moss and left overnight in the vicinity of the central spring, where the lichen’s glow is said to imprint the child’s skin with its first markings.  
+
+### **The Ruins and the Past**  
+The Vaelith do not build anew. They repair and repurpose the ancient stone walls and domed huts, believing that the old structures hold the memories of the "First Builders"—the vanished civilization whose symbols still gleam faintly on the stones. They occasionally discover new tools or artifacts in the soil, which they treat with reverence, incorporating them into their rituals or displaying them in small shrines of stacked stones.  
+
+The Vaelith are the last of their kind, and perhaps the last of any kind. They exist in a state of perpetual vigil, guardians of a place where time itself has learned to pause. To encounter them is to step into a world where life is not about growth or progress, but about enduring, preserving, and becoming one with the quiet eternity of the Hollows.

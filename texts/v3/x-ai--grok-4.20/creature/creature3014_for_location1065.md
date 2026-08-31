@@ -1,0 +1,25 @@
+**They are called the Veyr.**
+
+Not by any name they gave themselves — they have no language, no self-concept that could be spoken — but by the pulse that moves through them. The Veyr are the living density of the cavity. Where the crystal thickets grow so close they appear to be a single jeweled organ, the Veyr move inside that organ like blood cells inside a heart made of garnet and hematite.
+
+They are not individuals in the way a beetle or a crab is individual. Each is a fist-sized knot of black chitin and metallic oxide, yes, but the boundaries between them are negotiable. When two Veyr meet, their shells can interlock, plates sliding into grooves, until they become a single larger organism for minutes, hours, or centuries. Then they separate again without ceremony. The swarm is therefore both one creature and many thousands, a slow superorganism whose body is the entire chamber.
+
+Their shells are not smooth. Every carapace is encrusted with its own miniature crystal garden: vanadinite blossoms no larger than rice grains, needles of hematite that catch the thermoluminescent glow and turn it into dull internal fire. These growths are not decoration. They are sense organs. The Veyr “see” heat the way you see light; they “hear” stress fractures in the stone the way you hear distant conversation. When a fresh crystal bursts from the wall with its wet pop and hiss, every Veyr in the chamber pauses for a fraction of a second, legs lifted, mandibles frozen, tasting the new geometry.
+
+Their work has no foreman and no blueprint. Some chew through older crystal with grinding mouthparts that rotate like diamond-tipped drills. Others extrude new lattices from glands beneath their abdomens — perfect geometric lattices of realgar and black tourmaline that harden almost instantly in the scorching air. A third caste — flatter, broader, almost shield-like — acts as living scaffolding. They press themselves against the walls and let new growth crystallize directly onto their backs, then crawl free when the structure is stable, leaving perfect negative spaces behind them.
+
+They are slowest at the center of the chamber. There the pulse is strongest. Every forty-three seconds the subsonic throb rolls through the stone and every Veyr lowers its body until its belly plates kiss the floor, as though in obeisance to something that dreams beneath. In that moment their bioluminescent ridges flare in perfect synchrony — a slow, sullen wave of ember-light that travels across the entire swarm like a single thought. Then they rise again and resume their geological industry.
+
+If you were to stand among them (and you could not for long), you would notice that certain Veyr are larger, older, their shells thickened by so many generations of crystal accretion that they resemble small boulders covered in jeweled tumors. These are the anchors. The swarm flows around them the way magma flows around xenoliths. Occasionally one of these anchors will split open along pre-existing fault lines in its own body. What emerges is not young Veyr, but a different form altogether: a translucent, almost larval thing the color of molten salt. It crawls across the backs of the swarm for a few hours, drinking excess heat through feathery gill structures, before it hardens, darkens, and is incorporated into the greater body of the swarm once more.
+
+There is no reproduction here that you would recognize. There is only incorporation and exfoliation. The chamber itself is the womb, the grave, and the only ecosystem. The Veyr do not evolve toward anything. They are the equilibrium state this particular hell has found.
+
+Yet there is something else.
+
+In the highest part of the bubble, where the convective cell curves in on itself and the pressure is fractionally less, the crystals grow differently. They are taller, more delicate, almost antler-like. And among them move a smaller number of Veyr that do not grind or extrude. These ones simply wait. Their bodies are riddled with hollows; inside the hollows sit perfect spheres of something that is neither crystal nor metal nor flesh. The spheres beat — once every forty-three seconds — in perfect time with the vast sleeper beyond the walls.
+
+These waiting Veyr are the only ones that ever look directly at the center of the chamber. Their eyeless faces (if faces they can be called) are turned inward, toward the place where a lone human might stand if one were foolish enough to be here. Their bioluminescence is colder, almost white at the edges, like the ghost of phosphorus.
+
+They are listening for the moment the sleeper wakes.
+
+Until then the work continues. The chamber is eaten, rebuilt, eaten again. The roar of ten thousand grinding mandibles never ceases. The slow red light breathes in and out. And the Veyr — indivisible, patient, older than names — continue their endless, deliberate labor of turning one form of hell into another, perfectly suited to itself, forever.

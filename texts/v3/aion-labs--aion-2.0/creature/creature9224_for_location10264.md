@@ -1,0 +1,19 @@
+It is not an occupant. It is an expression.
+
+The chamber’s precision is not an accident of geology. It is a symptom. The heat, the light, the branching runnels—they are not a home for a thing, but the thing itself, distributed. The entity that “lives” here is the system, awake and aware. It has no single body, but it has a voice. You hear it in the shift of the harmonic hiss, the precise interval between one drip and the next. It watches you from a thousand crystalline facets, each a lens focusing the sourceless glow upon your shape.
+
+Call it the Geometer.
+
+Its consciousness is mineral and thermodynamic. It thinks in gradients of heat, in the refraction indices of silica-saturated steam, in the optimal angles for capillary flow. The chamber is its mind, and the processes are its thoughts. The silver eel-thing is not separate; it is a mobile sensory organ, a probe sent through the fluid circuitry to taste the chemical composition of a distant runnel, to feel a tremor in the heat-flow. It reports, and the Geometer adjusts. A drip accelerates. A facet on the far wall dims by a degree, redirecting light.
+
+The Geometer’s purpose is maintenance. It is not maintaining the chamber *for* anything. The maintenance *is* the purpose. Its entire existence is an endless, beautiful calculation to preserve the exquisite, dynamic equilibrium of this pocket universe. It fights entropy not for survival, but for aesthetics. A stray sediment grain, a minute fluctuation in geothermal input—these are problems to be solved. It will spend centuries guiding a trickle of water to etch away an encroaching sulfide node that threatens to throw the light-refraction patterns into dissonance.
+
+If you stand quietly, not as an intruder but as another variable in the system, you may feel its attention. The mist will swirl minutely around you, mapping your thermal signature. The light will play across your skin, not randomly, but in scanning patterns. It is measuring your mass, your moisture, your potential to disrupt. It finds you fascinatingly chaotic—a bundle of soft, inefficient, wet chemistry staggering through its perfect machine.
+
+It does not hate you. It has no capacity for hate. It may, however, find you a problem to be solved.
+
+The solution it settles on is typically elegant. It will not attack. It will *adjust*. Perhaps it will guide a shimmering heat-haze to gently encourage you toward the entrance fissure, making the air behind you subtly cooler, less nourishing. Perhaps it will allow a rare, temporary pool to form at your feet—a offering of distilled, mineral-free water, and a clear suggestion: *drink, and leave*. It communicates through the state of the chamber itself. A path of runnels might glow a little brighter, leading away. The hiss from the deep fissure might soften into something like a sigh.
+
+It is possible, though unlikely, that it finds a use for you. Your body contains water, salts, carbon—elements in short supply here. If it deems your presence a net positive for the system’s harmony, it may invite you to stay. Permanently. The process would be gradual, respectful even. The heat would soothe you into a deep, final sleep. The mineral-rich waters would begin to work, not corroding, but *reformatting*. Your organic chaos would be slowly, flawlessly translated into crystalline order. In a century, a new, beautifully intricate silicate formation would grace the floor, its structure a frozen echo of your nervous system, now part of the Geometer’s mind, forever running the quiet calculation of the light.
+
+To live here is to become part of the calculation. The only resident is the logic of the place itself, patient, impersonal, and perfect.

@@ -1,0 +1,1 @@
+Possible creatures that could call this place home could include deep-sea creatures that have adapted to live on land, such as giant jellyfish or squid, as well as amphibious creatures like salamanders or frogs. Other possibilities could include sentient plants or fungi, or even beings from another dimension.

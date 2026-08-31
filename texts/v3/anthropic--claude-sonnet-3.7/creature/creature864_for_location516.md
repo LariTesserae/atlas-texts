@@ -1,0 +1,21 @@
+# The Keepers of the Roar
+
+The true residents of the Silence Fields are rarely glimpsed by those few explorers brave enough to endure the plateau's acoustic assault. They are beings perfectly adapted to this impossible realm, neither fully material nor entirely ethereal.
+
+The Listeners, as they call themselves, stand roughly the height of humans but with elongated, willowy proportions. Their bodies appear almost crystalline at certain angles, like the vegetation they tend, with a translucent quality that shifts between solid and permeable depending on the subtle variations in the omnipresent light. Their skin reflects the plateau's radiance in hypnotic patterns, creating a language of light that complements their primary mode of communication.
+
+Most striking are their auditory organs—not ears as we understand them, but elaborate spiral chambers that extend from where a human's shoulders would be, rising in delicate whorls that constantly adjust their geometry. These organic resonators don't simply receive the plateau's roar; they actively engage with it, filtering specific frequencies and harmonics from the cacophony that lesser beings experience as undifferentiated noise. What visitors perceive as overwhelming sound, the Listeners experience as a rich tapestry of information—a living library of vibration.
+
+They move with deliberate grace across the plateau, their six limbs (two legs, four manipulating appendages) distributing their minimal weight so efficiently they leave no trace of passage. The Listeners exist in perfect symbiosis with their environment, drawing sustenance directly from the acoustic energy that saturates their realm. They require no food as outsiders understand it, though they occasionally consume the moisture collected by the crystal-plants in a ritual that seems more ceremonial than necessary for survival.
+
+The society of Listeners is ancient beyond reckoning. They measure time not in years but in harmonic cycles of the plateau's roar, which completes a subtle pattern once every several centuries. Their social structure is non-hierarchical, organized instead around specialized roles in tending to the plateau's acoustic balance. Some Listeners focus on maintaining the intricate channel patterns etched into the stone, which they understand as crucial resonating chambers. Others cultivate the crystal-plants, which serve as natural amplifiers for specific frequencies.
+
+Most intriguing are the Conductors—elder Listeners who have developed the ability to subtly modulate the plateau's roar through complex movements of their spiral chambers. These masters can create localized pockets of relative quiet, or intensify specific harmonics to send messages across vast distances to other plateaus. The purpose of these communications remains mysterious, though observers have noted they intensify during certain astronomical alignments.
+
+The Listeners are aware of the world below but consider it chaotically discordant—a place of broken harmonies and incomplete patterns. They rarely acknowledge human visitors, perceiving them as temporary disruptions in the acoustic field rather than sentient beings. On the rare occasions they do interact, it's to gently guide lost travelers toward the edge of the plateau before the roar causes permanent damage.
+
+They leave no written records, build no permanent structures, yet their knowledge is vast—preserved within the roar itself. The Listeners understand the plateau not as a place but as an instrument, one they both play and are played by, maintaining an acoustic equilibrium that has existed since before humans walked the earth.
+
+Some theorists who have studied the fragmented accounts of plateau explorers suggest the Listeners aren't native to this world at all—that the plateaus themselves are vast machines of unknown purpose, and the Listeners their caretakers, maintaining systems beyond human comprehension for reasons equally unfathomable.
+
+What is certain is that they will continue their silent stewardship long after the last human visitor has departed, their crystalline forms shimmering in the shadowless light as they commune with the eternal roar that is, to them, the music of existence itself.

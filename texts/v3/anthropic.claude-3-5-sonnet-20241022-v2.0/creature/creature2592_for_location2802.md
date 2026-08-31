@@ -1,0 +1,17 @@
+The people of the cistern-city - let's call them the Resonants - have evolved alongside their environment's peculiar physics. Their bodies are translucent, like the strange growth on the walls, with organs that shimmer and shift position in sync with the chamber's breathing. Their skin has a pearlescent quality that seems to both absorb and emit the sparse bioluminescence, making them appear to glow from within.
+
+They move with an otherworldly grace, their gestures flowing like the suspended water drops around them. Their movements often appear to precede their intentions - their bodies instinctively knowing where they need to be moments before their minds do. They've developed an acute sensitivity to the chamber's rhythm, their own heartbeats and breathing synchronized with its vast pulse.
+
+Their eyes are large and entirely black, adapted to see in multiple timeframes simultaneously. They perceive the past, present, and immediate future as overlapping layers, allowing them to navigate the chamber's temporal inconsistencies. Their ears are complex structures of delicate cartilage that can tune into specific frequencies within the endless drone, using it for communication and navigation.
+
+The Resonants have a complex social structure built around the chamber's acoustic properties. Their language is tonal, incorporating the drone's harmonics into their speech. They don't so much talk as sing, their voices weaving into and out of the background noise in ways that can carry messages across vast distances or create private conversations in plain sight. Different family groups maintain different harmonic signatures, passed down through generations.
+
+They farm the strange aerial seaweed and time-sensitive fungi, having developed techniques to harvest them at precisely the moment when they exist most strongly in the present. Their tools are crafted from the pale, living wood, shaped through a process of temporal manipulation that encourages the wood to grow into its final form before it begins its existence.
+
+Their children are born with an innate understanding of the chamber's physics, often manifesting the ability to manipulate local time-flows before they learn to walk. The elderly among them sometimes begin to phase partially out of conventional time, their bodies becoming increasingly transparent until they simply fade into the chamber's rhythm.
+
+The Resonants share their home with other creatures: schools of chronologically-displaced fish that swim through air and stone as easily as water; colonies of crystalline beings that grow in fractal patterns along the walls, their growth cycles reversed; and the massive, rarely-glimpsed Deepdwellers in the black pools - ancient beings that the Resonants have formed a symbiotic relationship with, trading songs and temporal anomalies.
+
+Most remarkably, they seem to have developed a form of collective consciousness that exists slightly out of phase with individual awareness. They can share memories and experiences across time, creating a communal knowledge base that exists in a perpetual state of both remembering and foreseeing.
+
+Their art and culture revolves around the manipulation of time and sound - creating sculptures that age backwards, composing music that plays in temporal loops, and telling stories that begin at their end and fragment into multiple beginnings. They are both the product and the custodians of their strange environment, as much a part of the chamber's breathing as the walls themselves.

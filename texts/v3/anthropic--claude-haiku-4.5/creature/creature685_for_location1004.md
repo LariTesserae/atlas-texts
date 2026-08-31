@@ -1,0 +1,55 @@
+# What Dwells in the Drowned Expanse
+
+They are thin. Not starved—the word doesn't apply to a people who have never known abundance—but refined. Pared down through generations to the precise musculature required for eternal swimming-wading, for the constant micro-adjustments needed to move through water that isn't quite water anymore. Their limbs are long and articulate. Their hands have developed an extra degree of flexibility in the wrist, a spreading capacity in the fingers that allows them to read texture in the dark—the difference between stone worn smooth and stone worn *soft*, between cultivated fronds and the wild growth that must be culled.
+
+Their eyes are large. Not dramatically—not the exaggerated organs of deep-sea fish—but noticeably wider than their ancestors', the irises dark enough to absorb what little light exists without wasting it on reflection. They see in gradations. A person from above would describe their vision as nearly blind; a resident would describe above-dweller vision as a violent assault of useless distinction. They know what matters: the subtle phosphorescence that marks safe passage, the particular shade-shift that means a cultivated plant is beginning to fail, the density changes in water that suggest a shift in current or temperature. Their eyes are built for *reading*, not seeing.
+
+The skin is pale—inevitably pale, after generations in filtered light—but not uniformly. The deepest residents, those who work the lowest levels where the bioluminescence is strongest, have developed a faint iridescence to their exposed skin, a subtle rainbow sheen visible only at certain angles. It's not conscious. It's not ornamentation. It's adaptation happening in real time, written into flesh. The younger generation shows it more prominently. The oldest residents, those born when the light patterns were different, lack it almost entirely.
+
+Their hearing is exceptional, but not in the way one might expect.
+
+They don't hear sounds so much as *perceive* vibrations, the way water transmits pressure changes. A person moving three structures away becomes knowable not through sound but through the disturbance they create, the subtle frequency signatures of their passage. They've developed an almost sonar-like sense, though no conscious awareness of it. A mother knows her child's footsteps by the specific *feel* of them through stone and water. A tradesperson recognizes a customer by the gait-signature they leave in displaced water. Silence, to them, isn't absence—it's a rich informational landscape, full of texture and meaning.
+
+Their metabolisms are slow.
+
+Basal functions have downregulated across the generations. Pulse rates run lower. Breath comes slower, deeper, less frequent. A person from above would find it unsettling to be near them—that stretched quality of respiration, the sense of extreme deliberation to each breath. But the residents are efficient. They move through the water using less oxygen than would seem possible. Their bodies store nutrients more effectively, process food more completely, waste less. Hunger exists here, but as a distant concept rather than an urgent drive. One eats when the time comes. One eats what is offered. Satiation is a state they achieve and maintain rather than pursue.
+
+They are numerous, and they are not.
+
+Thousands live in the Expanse—enough that every sector has multiple workshops, multiple gardens, multiple families. Enough that you can walk for hours and encounter people regularly. And yet the population feels sparse, distributed. The architecture is vast enough that even thousands seem like a sparse seeding. Children are born at regular intervals but never in profusion—birth rates have stabilized at replacement level, as if generations of living at the edge of what humans can sustain has created an intuitive brake on reproduction. Every person is known, eventually. There are no strangers here, only people you haven't met yet.
+
+Their social organization is sedimentary.
+
+Roles are inherited not as property but as knowledge. A person becomes a cultivator because they were born to cultivators, learned at their parent's hands the specific pressures required to encourage growth, the nutrient patterns of the water, the seasonal rhythms that govern even this unchanging place. A mason is born to masons—understanding the slow language of stone, the way water softens and transforms it, the geometries that maximize structural integrity while minimizing resistance to the medium. A bearer is born to bearers, learning to move goods through the water with the efficiency of long habit. These roles aren't rigid, precisely; someone could theoretically learn another trade. But the transmission of knowledge across such long timescales means that the person who knows the *most* is always the one who learned in infancy, who has had a lifetime to absorb not just technique but the deeper intuitions that technique is built upon.
+
+Elders are venerated.
+
+Not as authorities in any formal sense, but as repositories. A person who has lived eighty years in this place—who has survived the slow cold, the isolation, the unchanging pressure—has become something more than human in an almost literal sense. They remember the names of people who died half a century ago. They can describe the precise configuration of the growth-gardens in the eastern sectors before the great culling. They remember what the water tasted like when the sediment patterns shifted three generations back. They carry the continuity of the place in their bodies, their memories, their breathing. Young people sit near them, not speaking, simply being in proximity to that accumulated time.
+
+Their creativity is architectural rather than artistic.
+
+They don't make paintings or music in any conventional sense—the medium doesn't allow for it, and the culture has evolved away from such expressions. But the way they arrange the cultivation gardens is art. The way they sculpt living space into the stone, creating pathways that move through architecture like blood through veins, is art. The gardens spiral and branch, creating patterns visible only to those above them, patterns that seem meaningless until you realize they match the branching patterns of the vegetation itself—the structures copying organic forms that are copying forms first established in stone. Art happens here, but as conversation between people and their environment, written across generations, accumulated into something too slow to see while you're living in it.
+
+They are patient in ways that approach the alien.
+
+A problem that cannot be solved today is not a problem—it's simply a situation that hasn't yet had time to resolve itself. A plant that doesn't thrive in one location will be moved, and if it doesn't thrive there, it will be moved again, and this process might span decades before the correct location is found. A structural weakness in a wall is noted and incorporated into future planning; repairs happen, but slowly, only when the slow failure of stone has progressed far enough that intervention becomes necessary. They've learned to distinguish between urgency and consequence. Few things are urgent here. Most things have multiple consequences, distributed across time, and therefore warrant extended deliberation.
+
+Their relationship to time is transformed.
+
+They experience it as texture rather than progression. A day is a cycle of dimming and brightening phosphorescence, of temperature variations so subtle they're measurable only across hours. A season is a shift in the qualities of the vegetation—certain algae strains produce differently, cultivated plants respond to some unknown factor with altered growth patterns. A year is marked by the anniversary of significant events, not by astronomical cycles that are invisible here. A lifetime is long enough to see definable changes in their sector: a major channel carved through a previously solid structure, a garden succeeding in a location where twelve previous attempts failed, a new generation of young people beginning to show the iridescence that previous generations lacked.
+
+They are *residents* more than *inhabitants*.
+
+There's a difference. An inhabitant lives in a place. A resident has become part of what the place *is*. The distinction is nearly total here. These people aren't living in the Drowned Expanse—they are expressions of it. Their pale skin is an echo of the pale algae. Their slow metabolism mirrors the slow transformations of stone. Their ability to read vibrations in water is an extension of the architecture's transmission of pressure and movement. They've been here so long that the distinction between people and place has become theoretical rather than practical.
+
+They sing, occasionally.
+
+Not often—sound is so diminished here that singing seems almost inappropriate, a kind of violence against the prevailing silence. But in the deepest workshops, where the phosphorescence is strongest and the sense of isolation most acute, people sometimes produce sustained notes, low and resonant, frequencies that carry through stone and water rather than dissipating into air. It's not music as the surface world would recognize it. It's more like the stone itself is learning to produce tones, or the water is finding voice through human throat. The youngest children learn these frequencies before they learn language, learning to harmonize with the ambient hum of a place that is, itself, almost-singing.
+
+They dream in currents.
+
+Sleep here is profound and strange. Without the diurnal cycle of sun and dark, sleep becomes volitional, a choice made rather than imposed. When they sleep, they dream in the vocabulary of this place—dreams of movement through water that has weight and intention, of stone that shifts beneath their hands and becomes navigable differently each time, of cultivated growth that responds to their touch with precision and purpose. A person's dreams are communal property here; dreams are discussed in the work-time, interpreted for their meaning, considered as information about the state of things. A worker's dream that the eastern garden had shifted its orientation might prompt a group to investigate the actual eastern garden, and to find that yes, the currents had subtly changed, and yes, the plants had reoriented to compensate.
+
+And they are, above all, *continuous*.
+
+They are the continuation of something that began the moment the water rose and never stopped rising, the moment humans decided to stay rather than flee, to adapt rather than abandon. They are the living bridge between the drowned world and whatever comes next. Every person who lives here is simultaneously ancient—carrying the accumulated knowledge of millennia—and new, born into the peculiar ecology that their ancestors created and maintained. They are what persistence looks like when given form. They are what it means to belong to a place so completely that leaving becomes literally unimaginable, and staying becomes, against all odds, survival.

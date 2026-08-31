@@ -1,0 +1,25 @@
+# What Moves Beneath the Drip-Line
+
+You will not see it arrive. This is the first thing to understand about the thing that owns this plateau — not the birds, not the shaggy herd-beasts, not even the moss, though the moss has been here longer. It announces itself the way the fog does: not as an event but as a gradual change in the quality of attention around you. The birds go quiet first. Then the small rustling things in the leaf litter stop their rustling. Then you notice that you have stopped breathing quite so loudly yourself, as if your body worked it out before your mind did.
+
+It is called, by the very few who have spoken of it at all, the **Drinker of Edges** — a folk-name earned from where it hunts, always at the terrace lips, always where stone gives way to the long fogged drop, always at the boundary between one stepped level of the world and the next.
+
+## Build
+
+Imagine something that began, evolutionarily, as one of the hoofed grey-brown herd animals, and then spent an unreasonable number of generations learning to be still instead of fast. The Drinker is built low and long, its spine articulated in a way that lets it fold nearly flat against the terraced rock — not crouching so much as *becoming terrain*. Its hide has the color and faintly granular texture of wet basalt, mottled with patches of true living moss that have rooted directly into specialized follicles along its back and flanks. This is not camouflage in the sense of mimicry; it is camouflage in the sense of partnership. The moss feeds on the oils its skin secretes. The Drinker, in turn, becomes indistinguishable from the very ground it lies upon, four inches of jade-green pile rising and falling so slowly with its breath that even a careful eye reads it as a particularly thick hummock, nothing more.
+
+It has no great teeth, no obvious horn or claw. What it has instead is patience measured in hours, and a neck that extends — when finally it moves — with a smoothness that seems to violate the speed limits of muscle. The kill, when it happens, takes perhaps two seconds, and is over and folded back into stillness before the rest of the herd has located the sound's direction.
+
+## The Calling
+
+The long-drawn cry you hear from the misty middle distance — answered sometimes by silence, sometimes by a scattering herd — is not, in fact, a hunting call. It is the opposite. It is the Drinker announcing a kill already made, already finished, to others of its kind who hold loosely overlapping territories along the terrace edges. This courtesy call, if that's what it is, prevents the wasteful contesting of carcasses between animals that otherwise never see one another, communicating instead in these long intervals across acres of fog. Some seasons go by with the call heard only twice. The herds graze on regardless, having long since calculated that the Drinker takes perhaps one animal in four hundred, an acceptable tax on otherwise undisturbed grass.
+
+## What It Does With Stillness
+
+In the hours between hunting it does not rest exactly — it *continues*, the way the plateau continues, persisting in its borrowed shape of moss and stone. Young are born rarely, perhaps once every several years per breeding pair, and the young are carried not in any den but laid directly into a chosen hollow of moss-thickened rock, where they remain motionless and indistinguishable from the ground for the first months of life, fed at long intervals, learning stillness before they learn to walk. A Drinker that survives to adulthood may occupy the same quarter-mile stretch of terrace edge for forty years, accruing moss, accruing lichen, accruing the slow sediment of its own patience, until the animals around it — the herds, the birds, even the small armored insects in the leaf litter — have built unconscious habit around its presence the way water builds habit around a stone it has stopped trying to move.
+
+## The Iron Question
+
+No one who studies the Drinker has connected it, conclusively, to the smell that arrives from the northeast two or three times a season — the hot metal, the oil, the ozone tang that no structure on the plateau can account for. But those who have spent the most seasons here note, carefully, without quite committing to the claim, that the smell arrives most often in the weeks preceding a Drinker's molt — the slow, ugly process by which an old skin-and-moss coat is shed in patches over several days, the bare hide beneath dark and faintly metallic-smelling itself, oxidizing in the wet air the way old blood does, the way certain stones do when newly cracked open.
+
+It is not enough evidence to call it an answer. The smell is too large, too far-traveled on the wind, to be explained by the molting of a single low, quiet, moss-backed animal lying still at a terrace's edge. But it is enough to make you look, the next time the iron smell comes through and the birds go silent and the herd lifts its heads as one — to look, just once, at the nearest unremarkable hummock of jade-green moss, and wonder whether it has, in fact, just breathed.

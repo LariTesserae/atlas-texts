@@ -1,0 +1,19 @@
+What lives here is not so much a population as a set of processes given form. The grove itself is the organism, and its inhabitants are its thoughts, its maintenance routines, its fleeting, curious impulses.
+
+You feel them before you see them. The **Heat-Shapes**—pale, shimmering distortions in the mist that drift between the brass-and-polymer trunks. They are not creatures of substance, but of differential warmth; exhalations of the metabolic ground given momentary cohesion by the humid air. They drift, they pool in cool hollows, they dissipate. They are the watershed’s idle daydreams.
+
+Then come the **Canopy-Tenders**. These are the multi-legged drones, yes, but to call them that is to miss their nature. They move with the deliberate, unhurried grace of deep-sea life, their carapaces of brushed titanium and self-healing polymer blending with the bark they tend. They are the grove’s antibodies and its gardeners. One pauses, its sensor-cluster head tilting as it examines a vein of conductive moss. A limb, fine as a sewing needle, extends and releases a microscopic colony of nanites to repair a frayed circuit within the green felt. It does not scuttle; it *tends*. Its purpose is not to build, but to *persist* in a state of curated perfection.
+
+Near the heat-exchange blossoms, you might witness a **Data-Moth**. It is beautiful in its austerity. Its wings are sheets of flexible fiber-optic lace, pulsing with captured light in rhythmic, coded patterns. It lands not on a flower, but on a crystalline sensor bloom, inserting a proboscis that is a filament of pure glass. It is not feeding. It is *syncing*. It uploads its observational log—patterns of condensation, the health of a photovoltaic frond—and downloads a minor update to its flight algorithms. It is a neural probe of the grove’s nervous system, a mobile thought.
+
+But the truest, most profound residents are the **Growths**.
+
+You will see one: a new **Spiral-Column**, just emerging. It is not planted. It is *expressed*. From the warm, porous lattice of the ground, a braided cable of capillary tubing and lignum-steel rises, twisting with slow-motion inevitability. It glows from within, a soft bioluminescence guiding its own unfolding. At its tip, the first heat-exchange fins are still crumpled, like wet paper. It is a sentence the grove is in the process of speaking. Its life is measured in centuries of incremental addition and refinement, its purpose to join the canopy and contribute its own signature to the collective respiration.
+
+And in the shallow, humming reservoirs, you may notice the **Grid-Gels**. They are amorphous, translucent blobs that flow through the gridded channels, absorbing particulates and errant coolant. They are semi-sentient filtration, a living membrane that moves with a purpose akin to hunger, keeping the watershed’s circulatory fluid pure. They are the kidneys of the place.
+
+So what lives here?
+
+A continuous, slow-motion **bloom of functionality**. Nothing is born; it is **initiated**. Nothing dies; it is **decommissioned** and reclaimed, its materials neatly absorbed back into the warm lattice. There is no struggle, no predation, only the quiet, ceaseless interplay of maintenance, growth, and integration. The fauna are its white blood cells, its neural impulses. The flora are its organs, its skeletal and circulatory systems.
+
+The ultimate inhabitant is the **Pattern** itself. The ceaseless, recursive loop of: **Condensation -> Collection -> Processing -> Growth -> Maintenance -> Condensation.** It is a life-form whose body is the plateau and whose thoughts are the silent, glowing extrusions from its own ground. It is alive not as a forest is alive, but as a brain is alive—a vast, slow, wetware computer dreaming in metal and chlorophyll, and its dreams are the skittering, shining things you see moving in its mist.

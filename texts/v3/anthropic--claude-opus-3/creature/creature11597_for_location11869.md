@@ -1,0 +1,13 @@
+From the eerie tranquility of the cathedral's twisting heart, a figure emerges, born from the strange portal's shimmering threshold. At first glance, it appears humanoid in shape, but as it steps into the wan light filtering through the canopy, its true nature becomes apparent. 
+
+The entity is a fusion of plant and fungal life, a symbiotic hybrid that moves with a hypnotic, undulating grace. Its body is composed of intertwined vines and roots, pulsing with an inner bioluminescence that shifts through shades of ghostly blue and green. Where a face would be, there is instead a knotted whorl of mushroom caps, pitted and speckled like lunar rock. From their center, two points of light burn like distant stars, ancient and utterly alien.
+
+As the entity glides forward, the cathedral seems to shiver and sigh in recognition, leaves rustling without wind. The being trails a cloak of shimmering spores, leaving a galaxy of motes swirling in its wake. It raises an appendage that unfurls like a fern frond, and the cathedral responds—vines slither aside to reveal glimpses of deeper secrets, and a path of softly glowing moss winds invitingly into the depths.
+
+You realize with a start that this entity is the cathedral's avatar, the embodied will of this eerie sentient ecosystem. It is at once guardian and guide, tending to the balance of this place while luring visitors ever-deeper into its verdant mysteries.
+
+The avatar pauses and regards you with those fathomless star-bright eyes. Its intentions are unclear. Is it merely curious, or does it recognize you as a foreign body to be engulfed and subsumed into the cathedral's gestalt consciousness? The silence stretches, broken only by the soughing of leaves and the distant alien murmur of the portal.
+
+Then, just as you're certain the entity will flow forward to engulf you, it withdraws. With a gesture somewhere between invitation and warning, it melts back into the tangle of vines, vanishing as suddenly as it appeared. The shimmering path remains, and beyond it the portal pulses and beckons. 
+
+The sense of unease is stronger than ever. Part of you wants to flee this uncanny place, but a deeper instinct pulls you onward into the unknown. With a steadying breath, you step forward onto the glowing trail, feeling the gaze of a thousand unseen eyes upon your back. The heartbeat of the cathedral pounds in your ears as you descend into the green abyss, towards the dark catalyst at its core, never guessing what unreal secrets are yet to be revealed in this most alien of sanctums...

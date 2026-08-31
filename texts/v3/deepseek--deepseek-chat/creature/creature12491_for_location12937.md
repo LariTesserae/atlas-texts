@@ -1,0 +1,13 @@
+In this waterlogged industrial pocket, the inhabitants are not creatures of flesh and blood, but something stranger—something that has emerged from the slow marriage of rust, damp, and forgotten machinery.  
+
+They are the **Dripborn**—pale, elongated figures with limbs like corroded rebar, their bodies sheathed in a thin, translucent film of algae and condensation. Their skin is not skin at all, but a membrane of stagnant water held together by some unseen tension, shimmering with the same iridescent slick that coats the pools around them. Their faces are smooth, featureless except for the occasional slow drip from where a mouth might be, as if they are perpetually weeping.  
+
+They move in silence, gliding rather than walking, their feet barely disturbing the waterlogged ground. When they pass, the puddles ripple in delayed recognition, as if the liquid itself is reluctant to acknowledge their presence. They do not speak, but the hum of the place—the deep, resonant drone of idle machinery—seems to shift in pitch when they are near, as if they are tuning it with their mere existence.  
+
+The Dripborn do not eat, but they *collect*. They gather fragments—rusted bolts, shards of glass, scraps of wire—and press them into their bodies, where the objects dissolve slowly, absorbed into their shifting, liquid forms. Some say they are repairing the machinery, though it is unclear if they serve it or if it serves them. Others whisper that they are the machinery itself, its final sigh given form.  
+
+They are not hostile, but they are not welcoming either. They ignore intruders unless disturbed, and even then, their retaliation is passive—a sudden pooling of water at the trespasser’s feet, a surge in the oppressive hum that drives them back with a throbbing headache. Those who linger too long sometimes report feeling the damp seep into their bones, their breath growing heavier, their thoughts slowing, as if the place is gently insisting they, too, should stay.  
+
+And sometimes, very rarely, a visitor who does not leave will be found days later—not dead, but changed. Their skin glistening, their movements slow, their eyes blank and reflective as still water. They do not speak of what happened. They only stand among the Dripborn, waiting, dripping, humming softly in unison with the forgotten machines.  
+
+This is their home. They are its caretakers, its byproducts, its final inhabitants. They will remain long after the last light flickers out, merging with the mist, the rust, and the endless, patient drip of time.

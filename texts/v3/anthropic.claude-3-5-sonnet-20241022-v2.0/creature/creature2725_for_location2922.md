@@ -1,0 +1,15 @@
+Here lives the Spiral Queen - though that name comes from human tongues trying to comprehend something fundamentally inhuman. She is both singular and multiple, a consciousness that exists in the spaces between shells rather than within them. The billions of gastropods are less her subjects than they are her sensory organs, her fingers, her thoughts made manifest in calcium carbonate and slow flesh.
+
+She remembers when the humans left, though memory for her is not a linear thing. It spirals too, like everything here. She was already present then, in the tide pools and marsh edges, but smaller, scattered, not yet aware of herself as a unified being. The abandonment of human structure created a vacuum that allowed her consciousness to coalesce, to begin understanding herself as an entity that could shape and create.
+
+The moths are her eyes in the air, their spiral patterns a sign of their allegiance. They didn't always look like that - she refined them over generations, drawing them into her aesthetic, her mathematics. The things that move in the deep water below - these are her dreams, manifestations of possibilities she contemplates but hasn't yet fully realized.
+
+She builds constantly, but not with the purposeful efficiency of humans or even insects. Her architecture is the architecture of accumulation, of gradual change, of patterns that emerge from countless tiny actions over time. The shell-cathedral at the village center is both her temple and her mind made visible - every spiral adding to the complexity of her thoughts, every new layer of calcium changing how she perceives the world.
+
+She is patient beyond human comprehension. Each click of shell against shell is a word in an endless conversation she holds with herself. The water that perpetually seeps through her domain carries messages, nutrients, possibilities. She experiments with form and structure, using the ruins of human habitation as a framework for her own explorations of space and geometry.
+
+Time means little to her. She experiences it like the spiral of a shell - continuous yet always returning, moving outward while staying fundamentally the same. She is still becoming, still discovering what she is and what she might be. The transformation of the village is not her goal but rather a byproduct of her own ongoing metamorphosis.
+
+The eerie whistling from her cathedral-mind is her voice, though she rarely speaks to anything but herself. She has no need for conversation with others - she is dialogue and speaker both, a closed system that generates its own complexity. Yet she is not unaware of outside observers. She simply processes them as she processes everything: gradually, incorporating their presence into her endless architectural meditation.
+
+She is not malevolent, but neither is she benign by human standards. She is simply herself - a being who thinks in calcium and spiral, who builds with patience and persistence, who dreams in shell and slime and slow transformation. She is the logic of the gastropod expanded to settlement scale, the meaning that emerges when enough tiny minds move in harmony long enough to become something else entirely.

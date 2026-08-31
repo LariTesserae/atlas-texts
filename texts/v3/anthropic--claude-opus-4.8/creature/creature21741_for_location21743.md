@@ -1,0 +1,35 @@
+## The Tenders
+
+They are not animals, exactly, though they move. Call them the closest thing this place has made to a witness — and even that overstates it, because to witness implies a separation between the one who watches and the world watched, and the Tenders have not yet learned to hold themselves apart.
+
+Begin with what they are made of. They are plant, mostly — or plant's near cousin, the same flexible woody-soft tissue as the kelp-trees, the same trapped-gas buoyancy as the lantern-weed. A Tender is, at first glance, simply a denser tangle of the forest: a knot of fronds and filaments and slow-twisting stems gathered into something roughly the size of a child curled in sleep. You could float past one and never know. Many have. The forest is full of false Tenders, ordinary tangles that the eye wants to read as a body and that are nothing but the green crowding into a shape.
+
+But the true ones are anchored differently. Where a kelp-tree roots to the valley floor and gives itself entirely to rising, a Tender keeps a single long tether — a root-thread, pale and translucent, running down into the column-moss below — and on that tether it *floats free*, neither rising nor settling, hanging in the warm middle water at the depth where the light is best. It can shorten the tether or pay it out. This is the whole of its locomotion: it can rise toward the silver, descend toward the dim, and turn, slowly, on the axis of its own anchor. It cannot leave. It has never needed to leave. There is nowhere a Tender could go that would be more itself than where it already hangs.
+
+## How It Lives
+
+It photosynthesizes, of course — the broad outermost fronds doing the patient sugar-work, drinking the slow green light. But this is only its idleness, its baseline, the way it persists when nothing else is happening. The interesting thing, the thing that makes it almost an animal, is what it does with the spore-fall.
+
+Everything drifts down here: pollen, spores, the shed leaves, the slow descending detritus of the whole submerged congregation. Most of it settles unremarked into the column-mosses, food for the slow-fish and the substrate of the future floor. But the Tender, hanging in the middle water, *combs* it. Its inner filaments — finer than the outer fronds, almost hairlike, and faintly motile — reach out into the descending fall and gather it. Not to eat. To sort.
+
+This is the strange behavior, the one no observer would predict from the geology or the chemistry. The Tender takes the spores it gathers and it *holds* them. It sorts them by some criterion that runs deeper than hunger — sequestering certain kinds in inner pockets, releasing others, keeping the rare ones, the slow ones, the spores of plants that have not yet learned to thrive in this young water. It is doing something with inheritance. It is keeping a library it does not know it keeps.
+
+And when conditions in its little column of water shift — when the light dims because the canopy above has thickened, when the dissolved minerals change as the rock below groans and settles and weeps new chemistry into the liquid — the Tender opens the right pocket and releases the right spores, the ones suited to the new condition, into the water around it. It is gardening. It is gardening without intent, the way a glacier carves without intent, but the result is the same: where Tenders hang, the forest is *richer*, more various, better matched to itself than the blind crowding plants could ever manage alone. They are the reason the drowned valleys are not a monoculture. They are the slow editors of the green.
+
+## What It Knows
+
+Here is where I have to be careful, because it would be easy and wrong to give them more than they have.
+
+A Tender does not think. It has no center, no node you could point to and call a mind. But it *responds*, and its responses are slow and integrated and strangely apt, and across the long durations of this place — the centuries in which a single valley fills with growth — the pattern of a Tender's responses looks, from outside, almost exactly like care.
+
+It turns toward dimming light before the dimming is severe. It pays out its tether toward water that is about to become hospitable, as though it could taste the future in the descending fall. It releases the right spores at the right moment with a precision that no chemistry textbook would grant a tangle of woody filament. And when another Tender's tether brushes its own — for they do drift near one another, in loose unhurried congregations, the way the kelp-trees do — something passes between them. Spores, perhaps. Signal, perhaps. Some slow chemical conversation conducted over hours, the two of them turning gently on their anchors, exchanging the contents of their libraries.
+
+They are, I think, the first attempt this world is making at *memory*. Not the memory of an individual — a Tender has no past it could be said to recall — but the memory of the place itself, distributed across these hanging knots of held inheritance, each one keeping a fragment of what the forest has been and might become. When a Tender dies — its tether parting, its body settling at last into the column-moss to become substrate, to become future floor — its library opens all at once into the water, a final release, a last full breath of everything it gathered. And the spores drift, and some take root, and the forest remembers a little of what that Tender knew.
+
+## What They Are Becoming
+
+Nothing hurries here. The Tenders least of all. They have no eyes, and yet they orient. They have no fear, and so they will let you drift among them and brush their tethers and never flinch — there has not been enough predation, enough history, for them to learn that being touched can mean being taken. They will simply turn their slow turn and continue their slow combing of the descending light, indifferent and unguarded as everything else in this early, unfinished water.
+
+But they are doing the one thing nothing else in the drowned highland does. They are *keeping track*. In a world that has not yet decided what it will be, that holds its long green breath and waits, the Tenders are the only things that hold anything at all — that gather, and sort, and remember, and release. Give them time. Give them the centuries this place dispenses so freely. The criterion by which they sort their libraries will grow more refined; the conversation across the brushing tethers will grow more dense; the thing that looks, from outside, like care may someday curl inward and discover that it is care, that there is someone inside it doing the caring.
+
+They are the place's first guess at a soul, hung patiently in the best of the light, two miles above the ordinary sea, sorting the slow fall of everything that drifts down, keeping what is rare, and waiting — without knowing they are waiting — to become whoever it is this world will turn out to need.

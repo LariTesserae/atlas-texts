@@ -1,0 +1,45 @@
+They are not native to the surge. That is the first thing to understand about them, and the last thing they would ever tell you, because they have made themselves so thoroughly into its tenders that the distinction has stopped mattering to anyone but a stranger.
+
+They came to the pumping. Whatever they were before — and I think they were small, scavenging, soft-eyed things, the kind that eats leavings and hides in fog — they came to the warm channels the way cold things come to any warmth, and they stayed, and over a very long time the staying became a vocation and the vocation became their bodies.
+
+You will not see them at first. This is deliberate on the slope's part and on theirs. The fog is their ally and their architecture; they have arranged their lives at exactly the visibility the place allows, which is to say almost none. But put your ear to the tower, the way you did to hear the surge, and hold it there past the point of patience, and you will begin to feel them through the mineral — small adjustments inside the stroke, a hesitation here, a quickening there, the working sound being *worked*. The pump does not run itself. It runs because they run it, and they run it because it runs them, and the loop has been closed so long that neither end remembers being the start.
+
+**What they are.**
+
+I will call them the tenders, because that is what they do, and I distrust every other word that comes to me. They are not the gate-animals in the channels — those are something simpler, hardened into valves, more wall than will, and the tenders treat them roughly the way you treat your own heart muscle, which is to say not at all, with total dependence and no acknowledgment. The tenders are larger, slower, and they move along the *outside* of the formations, along the cooling fins and the laid mineral terraces, in the warm wet that suits their thin wet skins.
+
+They are soft. That surprises you when you finally see one, because everything around them is becoming stone — the travertine, the gate-animals, the towers — and you expect the keepers of stone to be armored. They are the opposite. They have stayed soft on purpose, because softness is how you read pressure. A hard creature feels the surge as a blow; a soft one feels it as a *pulse*, takes its measurement, knows from the give against its own body whether the stroke is strong or failing. They are pressure-readers first. Everything else they are is built on that.
+
+Their eyes are large and damp and almost useless, suited to the dimness but not relied upon — they are decorative survivors of whatever the tenders used to be, kept the way we keep an appendix. The real seeing is done by the skin. The whole flank of a tender is a listening surface, laid flat against the warm mineral, and through it they take the slope's reading the way you take a sick friend's temperature with the back of your hand: not measuring, *knowing*.
+
+They are not large. The biggest I sensed — I never properly saw it — was perhaps the size of a sleeping dog draped along a fin, breathing in time with the surge it lay against. The smallest are barely more than the gate-animals they are descended-alongside, threading the smaller channels, doing the fine work in the narrow places.
+
+**What they do.**
+
+They keep the pumping alive, and this is harder than the slope's easy continuance makes it look. The mineral is always trying to choke the channels it built. The water it carries is always laying down more of itself, and the towers that are the engine are also, every hour, the engine's slow death — every surge thickens the walls that will eventually seal the stroke shut. Left alone the whole hillside would calcify into a silent monument to its own circulation, a fossil of a working thing.
+
+The tenders do not let it.
+
+They eat the choke. This is the center of their lives, the thing all the rest organizes around: they scour the laid mineral back, gnaw the narrowing channels open, swallow the slope's relentless deposition and pass it back out where it does no harm. They are the slope's negative — it lays down, they take away — and between the laying and the taking the channels stay exactly, precariously, open. A tended terrace and an abandoned one look identical to a stranger. Only the surge tells the difference. The tended one is still surging.
+
+And they steer it. This is the part that took me longest to credit. A soft creature lying along a fin, reading pressure through its flank, can *raise* that pressure by thickening a wall — not building, but encouraging, eating less here so the mineral closes a passage and forces the water elsewhere, opening more there so it floods through. They cannot do this fast. Nothing here is fast. But over a season a tender can reroute a stretch of the engine the way you'd reroute a river with patience and a spoon, and the whole slow circulation answers them, and the surge moves where they have decided it should go.
+
+Why they move it, I am less sure of. Toward heat, I think — toward the warmest exhalations, the richest mineral water, the parts of the engine that feed them best. They are farming the pump as much as keeping it. A well-tended terrace is a well-fed tender. The two cannot be separated, and I have stopped trying.
+
+**How they live with each other.**
+
+There is no center to them. I looked for one — a queen, a hub, a chief tender on the highest tower — and there is none, because the slope itself is the only thing that coordinates them, and it coordinates them through the water. A tender that thickens a wall changes the pressure downstream, and the downstream tender feels that change through its flank and adjusts, and its adjustment is felt further down, and so on across the whole humming hillside. They speak in pressure. They have no other language and need none. A decision made at the top of a terrace propagates to the bottom not as a message but as a *condition*, a new fact in the water that every tender reads and answers in its own place. The hillside thinks the way a body thinks while sleeping — distributed, slow, without a dreamer.
+
+When they meet — and they do, at the junctions, where channels braid — they read each other the way they read the stone, flank to flank, taking the other's pressure. I do not think they fight. There would be no point; the water settles every argument before it can become one. Two tenders disputing a junction simply tend it both at once, and the channel finds the compromise their bodies make, and the surge goes through, and that *is* the resolution. They cooperate the way two hands cooperate, which is to say without ever agreeing to.
+
+**What becomes of them.**
+
+They harden at the end. This is the thing the fog kept withdrawing from me and finally, on the third reading, gave up.
+
+A tender that grows old grows slow, and a tender that grows slow eats less choke, and the mineral it no longer eats begins to lay down on it, in it, *as* it — the soft listening flank stiffening, the channels of its own body filling with the same stone it spent its life refusing. It does not flee this. I think — I cannot be certain, but I think — it chooses its place. An old tender drags itself to a narrowing it knows, a passage that needs a wall, and it lies down across the flow and lets the mineral take it, and it becomes the wall. It becomes a gate-animal. It hardens into the valve it spent its whole soft life adjusting from outside, and the surge it tended now passes *through* it, and it is at last a permanent part of the stroke it served.
+
+The gate-animals, then — those simple hardened things in the channels that I called more wall than will — are not a separate creature at all. They are the tenders' dead. The engine is built of its own keepers, course on course, surge on surge, the soft ones tending and the hard ones gating and every hard one having once been soft, until the whole humming hillside is a single structure made of the bodies of everything that ever loved it enough to keep it alive.
+
+That is the working sound. That is the surge you hear with your ear against the tower — not water alone, but water passing through the calcified dead, pushed by the labor of the soft living, the entire slow circulation of the slope running on the one transaction these creatures have ever made: tend it while you can, and when you can no longer tend it, *become* it.
+
+Stop. Hold still. The surge again — and now you know whose patience it is. Each stroke is somebody, hardened into place, doing in death the only thing they ever did. And along the warm wet fins above them, just out of the fog, the soft ones are reading the pressure through their flanks, eating the choke, keeping the channels open one more season, moving toward the heat, alive in the impossible warmth — and aiming, every one of them, without grief and without choice, at the wall they will someday be.

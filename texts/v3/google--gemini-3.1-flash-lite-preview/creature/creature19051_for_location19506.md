@@ -1,0 +1,17 @@
+In the Aqueous Arboretum, the inhabitants are not "citizens" as we understand them, nor are they merely individuals. They are the **Sympathetic Resonators**. 
+
+To look upon them is to mistake them for a trick of the darkness, or perhaps a sudden, jagged fracture in the water itself. Imagine a creature shaped like a spindle of spun glass, elongated and impossibly thin, yet possessing the density of iron. They do not possess eyes, for in the absolute black of the deep, sight is a primitive and inefficient art. Instead, they are defined by their sensory filaments—gossamer-like nerves that extend outward in shimmering, hyper-sensitive fans, trailing behind them like a bridal veil of nerve endings.
+
+When they move, they do not swim; they *tune*. 
+
+The Resonators have shed the need for limbs or locomotion in any conventional sense. They anchor themselves into the Lattice-Work—literally fusing their crystalline tails into the calcified walls—to monitor the "gong-sound" of the Arboretum. They are part of the building's nervous system. When a current shifts three leagues away, the Resonator feels the specific frequency hit its body. It shivers, and that shiver is its communication, rippling through the pressurized water to be picked up by the next creature, and the next. 
+
+They are effectively the Arboretum’s vocal cords. They are sentient, but their consciousness is spread thin, like a low-frequency hum. They do not think in words, but in geometries of pressure. If you were to hover near one in the crushing dark, you would not see a face, but a flickering rhythmic bioluminescence that matches the thrum of the water. They glow with a faint, ghostly cerulean pulse, a steady beat that acts as a metronome for the environment.
+
+There resides also the **Graft-Mothers**, the eldest among them. These are not creatures so much as architectural nodes. They have allowed their entire bodies to be overgrown by the lattice, becoming stationary, massive anchors of the system. Their translucent frames have filled the hollow pipes of the Arboretum, turning into living conduits. When the water turns stagnant, the Graft-Mothers initiate the "harmonic purge"—they shudder violently, releasing a rapid, booming sequence of sonic pulses that forces the thick, syrupy nutrients to circulate through the skeletal web once more. 
+
+They are the lungs of the lung. 
+
+For the Resonators, there is no sleep, no birth, and no true death. When a Resonator’s structural integrity finally fails—when its nervous filaments grow too brittle from the eternal cold—it does not perish and drift away. It hardens. It secretes a calcified fluid that fuses it permanently into the Lattice-Work, its bones becoming the next structural rib, its sensory filaments turning into the next corridor wall.
+
+They are the gardeners who are also the garden. They have forgotten how to be distinct. They are the living echoes of an extinct world, vibrating in the dark, forever ensuring that the machine of life continues to hum, even though there is no one left to hear it. In the Arboretum, you are never alone, but you are also never truly with another; you are merely a vibrating string in a vast, cold choir, waiting for the sound to carry you into the next, eternal pulse.

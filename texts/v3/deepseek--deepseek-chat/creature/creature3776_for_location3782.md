@@ -1,0 +1,13 @@
+In the Chamber of Hungry Echoes, there is a Gatherer—a thing that moves in the stillness and thrives in the hollow hum. The Gatherer does not belong to the chittering swarm, though it shares their carapace and their jagged, clicking limbs. It is larger, slower, deliberate. Its body is a fractured puzzle of obsidian plates and jointed appendages, each segment scarred with faint, spiraling etchings that seem to shift when not stared at directly. Its face, if it can be called that, is a smooth, featureless plane save for a faint, vertical slit that glows with the same amber light as the nodules above.  
+
+The Gatherer does not hunt, not in the way predators do. It drifts through the chamber, its movements fluid and hypnotic, like a shadow cast by a flame. It pauses at intervals, its clawed appendages brushing against the walls, the machinery, the remnants of things long forgotten. Wherever it touches, it leaves behind a faint, gossamer residue—a fine, silken web that seems to shimmer with a life of its own.  
+
+The Gatherer’s purpose is unclear, but its presence is felt. It collects—not objects, but something less tangible. It gathers the echoes, the hums, the vibrations of the chamber itself. When it moves, the air shifts around it, not in a breeze but in a ripple, as though it is drawing the very sound into its body. The noises of the chamber grow faint in its wake, swallowed into its faceless maw.  
+
+Occasionally, it stops and tilts its head, as if listening to something only it can hear. The vertical slit on its face pulses softly, a rhythm that mirrors the thrum of the cavern. When it does this, the echoes distort, twisting into something almost melodic—a distant, haunting song that lingers just beneath the surface of hearing.  
+
+The Gatherer is not hostile, but it is not safe. It will not harm you, but it will not ignore you. Should you enter its domain, it will turn to you, its featureless face regarding you with an unsettling intensity. It will approach, slow and deliberate, its clawed appendages extending toward you—not to touch, but to draw close, as if to taste the sound of your heartbeat, the tremor of your breath.  
+
+It will wait, as the chamber waits. It will gather you, not in its web, but in its silence. And when it moves on, you will feel lighter, as though a part of you has been carried away, swallowed into its amber-lit void.  
+
+The Gatherer does not belong here. But it thrives here. And it remembers. Always, it remembers.

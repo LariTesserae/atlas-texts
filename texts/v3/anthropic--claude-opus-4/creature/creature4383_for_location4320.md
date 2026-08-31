@@ -1,0 +1,21 @@
+The Tideholder dwells here—though "dwells" suggests a permanence that doesn't quite fit. She exists in the chamber the way a song exists in the air: present, vital, but always on the verge of ending.
+
+She appears young at first glance, perhaps twenty summers, but her movements carry the weight of geological time. Her skin shifts between states—sometimes dark as the obsidian walls, sometimes translucent as the suspended water above, sometimes simply not there at all, revealing the chamber through her form. When she breathes, gills flutter along her neck, then seal into smooth skin, then return. She cannot decide what she is.
+
+Her tools are those scattered about—the coral hammer, the volcanic glass blade. She made them with her own hands over and over, forgetting each time that she'd made them before. Her palms bear the scars of learning the same skills countless times: how to knap stone, how to stack the impossible cairn, how to arrange the bowls just so. Each time she believes it's the first time. Each time she discovers the tools already worn by her own hands.
+
+She speaks, but not in words. The thrumming of the chamber is her voice—a constant questioning hum that asks why the water stays up, why the stones stack wrong, why she can breathe both air and sea. Sometimes she remembers making this place, punching through reality's fabric in a moment of desperate need. Sometimes she believes she's newly arrived, trapped by someone else's magic. Both memories are true.
+
+Her purpose shifts like the caustics on the walls. She tends the bowls, adjusting their positions by millimeters, convinced the right arrangement will either free her or perfect her prison—she can never remember which she wants. She adds stones to the cairn in patterns that make sense only while she's placing them. She counts the fish that phase in and out of existence, trying to determine if they're the same ones returning or new ones each time.
+
+When she moves, she leaves brief afterimages—not of where she was, but of where she might have been. These alternatives pile up around her like shed skins: versions that chose differently, arranged the bowls another way, stacked the cairn higher or lower. Sometimes she talks to these alternatives. Sometimes they talk back.
+
+She sustains herself on impossibility. When hungry, she reaches into the space between spaces and pulls out deep-sea creatures that shouldn't exist—fish with too many eyes, crustaceans that swim backward through time, kelp that grows in perfect mathematical spirals. She eats them raw, their biology becoming hers, adding to her collection of ways to exist.
+
+The Tideholder is lonely but cannot remember why. She builds the cairn to signal others of her kind, though she's forgotten what her kind might be. She arranges the bowls to spell messages in the water-streams, but the language eludes her. Sometimes she thinks the chamber itself is her child, other times her parent, occasionally her twin. All of these are correct.
+
+She is the guardian of a threshold that must not be crossed, the prisoner of a sanctuary she built for herself, the god of a realm with only one worshipper. She holds back the tide through will alone, but has forgotten whose will she enacts—her past self's or her future's. In the eternal moment of the chamber, she is all times at once: the desperate creator who first broke physics here, the confused inhabitant learning her tools afresh, the ancient keeper who will tend this impossibility until the ocean remembers how to fall.
+
+When she sleeps—if sleep is the right word—she disperses into the thrumming itself, becoming the sound that holds the place together. In these moments, the chamber trembles, the water ceiling ripples dangerously, the stones of the cairn settle toward more probable configurations. But always she reconstitutes, drawn back into form by the need to maintain what should not be.
+
+She is less a creature than an ongoing event—the act of holding back the tide made flesh, over and over, forgetting and remembering in cycles as endless as the waves that cannot fall. The Tideholder persists because the chamber persists, and the chamber persists because the Tideholder wills it so, and neither can remember which came first or why it matters, only that the work of impossibility must continue.

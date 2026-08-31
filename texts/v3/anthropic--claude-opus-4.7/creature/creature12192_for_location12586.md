@@ -1,0 +1,55 @@
+# The People of the Slow Ascent
+
+They call themselves, in their own tongue, something that translates poorly. The closest is *those-who-cure*, but the verb is reflexive: they are curing themselves, the way the stone cures, the way a glaze cures in a kiln. To be a person here is to be undergoing a slow firing.
+
+## Their Bodies
+
+They are tall and thin, but not in the way mountain peoples elsewhere are thin. There is no wiriness to them, no taut sinew. They are *attenuated*, drawn out, as if each generation has been pulled slightly further toward the ceiling of the world. Their ribcages are enormous — barrel-deep, with cartilage that remains pliable into old age — and beneath the skin you can see the slow heave of lungs that have learned to extract sustenance from almost nothing. A resting breath takes the better part of a minute. To watch one of them sleep is to be unsure, for long intervals, whether they are alive.
+
+Their skin is the color of unfired clay, with a faint warmth to it that is not entirely metaphor. They run hot. A hand laid against one of their forearms feels like a hand laid against a sun-warmed wall. This is partly the geothermal saturation of the place they live in — they absorb the mountain — and partly something their bodies do on their own, some slow combustion of the mineral paste that fuels them. They do not sweat in the way lowlanders would understand. Moisture beads on them in the pre-dawn, the same as it beads on the basalt, and runs in fine channels along ritual scars that have been incised on their forearms and collarbones precisely to direct this beading. They drink, in essence, from themselves.
+
+Their hands are large and finely articulated, with an extra small joint in each finger — or perhaps it is not extra, perhaps it is only that their finger-bones have not yet fully fused, the way the mountains have not yet fully fused. Children's hands are even more flexible. The very old have hands like adult hands elsewhere: stiffened, set, finished.
+
+Their eyes are large, dark, and slow to track. They do not dart. Whatever a person here is looking at, they are looking at it for a while. There is no peripheral startle reflex; movement at the edge of vision does not snap their attention. This is a kind of evolutionary economy in a place where things rarely move quickly, but it gives them, to outside observers, an air of profound unflappability. You cannot surprise them. Not because they have anticipated you, but because surprise itself is a faculty their nervous system has largely set aside.
+
+## Their Speech
+
+They speak, as the description notes, quietly — but it is more than quietness. Their language has evolved for a medium that swallows sound. Consonants are softened almost to absence. Vowels carry meaning through duration and pitch rather than articulation. A single held note, rising slightly, can mean *I am here, I see you, the work continues*. They sing more than they speak, in a sense, though they would not call it singing; they would call it *being audible*.
+
+Much of what passes between them is not auditory at all. The angle of a shoulder, yes, but also the placement of a hand on a hip versus a thigh, the tilt of the chin in relation to a particular doorway, the way one's weight rests on which foot. A traveler who learned only the spoken language would understand perhaps a third of any conversation. The other two-thirds is happening in postures so subtle that lowlanders read them as stillness.
+
+They have a particular gesture — a slow lifting of the open palm to chest height, fingers slightly curled — that has no single translation but punctuates discourse the way commas do elsewhere. It means something like *and the mountain is still rising*. It means something like *we are agreed for now*. It means something like *I acknowledge the longer rhythm in which this small matter sits*. They make this gesture perhaps two hundred times a day, without thinking, the way other peoples blink.
+
+## Their Long Lives
+
+They live a very long time. No one is sure exactly how long, because record-keeping is itself slow here and births are not always logged in the same calendars as deaths. But the bellows-master who oversees a furnace at forty is considered a young master, and may oversee that same furnace for another hundred and twenty years before stepping down. The oldest residents of the highest terraces are spoken of with a kind of reverent vagueness: *she was there when the eastern fumarole opened*, which was — by other reckonings — perhaps three centuries ago.
+
+They do not die of age in the way that other peoples do. They die, mostly, of *completion*. There comes a point, usually announced by the person themselves several years in advance, when their hands have finally fused, their breathing has slowed past a certain threshold, and they declare that they are *fired through*. They walk, then, to a particular kind of chamber cut into the warmest part of whichever city they belong to, and they sit, and over the course of some weeks they cease. Their bodies are not buried. They are left in place. The chambers fill, slowly, generation by generation, with seated figures who have become, by some process no one fully understands, indistinguishable from the kilnstone around them. A very old city has districts that are entirely ancestors. People walk through these districts respectfully but without solemnity. The dead are part of the wall now. The wall is part of the mountain. The mountain is rising.
+
+## Their Children
+
+Children are rare and treasured but not coddled. A woman bears perhaps one child in her long life; some bear none, and this is not considered a failure but a different kind of contribution. The child, when it comes, is born small and almost translucent, and must be kept for its first year in a warming-basket near a hearth-vent. Infant mortality, by lowland standards, is brutal. By local standards it is simply part of the firing — some pieces crack in the kiln.
+
+Children who survive the first year are considered to belong not to their parents but to a *cohort* — all the children born in the same nineteen-year festival interval across a given city. They are raised collectively, apprenticed collectively, and maintain ties to one another that often outlast their ties to their birth-families. A cohort is a kind of secondary self. To ask one of these people *who are you* is to receive, first, the name of their cohort, and only after that their personal name.
+
+The children are louder than the adults. They have not yet learned that loudness does not carry; they shout at each other across the terraces in their thin piping voices, and the adults smile slowly, indulgently. It is understood that the slowness must be grown into. A child's quickness is not a flaw. It is simply unfired.
+
+## Their Inner Life
+
+What do they believe? What do they think about, in those long minute-long breaths, in those decades-long apprenticeships?
+
+They think about the Lifting. Not as a religion exactly, though it has religious texture. More as the central fact in relation to which all other facts are arranged. The mountain is rising. They are rising with it. The fire below is patient, and they are learning to be patient in the same key. There is a notion — not quite a doctrine, more a widely-shared intuition — that the mountains are going *somewhere*. That the Lifting has a destination. That at some altitude not yet reached, something will happen, something will be revealed or completed or *arrived at*, and that the cities are being carried toward this by the same slow pressure that fires their kilns and beads their morning water and grows their mineral fur in the dark shafts.
+
+None of them expect to be alive when this happens. This is not a source of grief. It is the basic shape of their existence: to be a stage in an ascent whose conclusion belongs to no one in particular. They build walls their grandchildren will finish. They tend furnaces their great-grandchildren will tend. They apprentice in trades whose masterworks will not be completed in their lifetimes, and they do not consider this tragic, because the alternative — to insist that one's own life contain its own meaning — strikes them as a kind of vertigo, a refusal to acknowledge the slope one is standing on.
+
+They have a phrase, used in moments of difficulty or doubt, that translates roughly as *the fire is still beneath us*. It is said the way other peoples say *this too shall pass*, but it means something almost opposite. It does not mean that the difficulty will end. It means that the long upward pressure continues, that one is still being carried, that even pain is part of the firing.
+
+## Their Strangeness
+
+There are things about them that an outside observer would find difficult. They do not laugh, exactly — they have a slow exhalation that functions as amusement, but it is not the bright sharp thing lowlanders mean by laughter. They do not weep; their tear ducts have either atrophied or never developed, and grief in them takes the form of a particular very slow rocking that can last for days. They do not, as far as anyone can tell, dream. Or if they do, their dreams move at the same pace as their waking, and they cannot tell the difference, and have not invented the distinction.
+
+They are not, despite all this, cold. There is enormous warmth among them — literal and otherwise. They touch each other constantly, casually, with the long careful hands. A conversation between two of them may involve thirty or forty small contacts: a fingertip to a wrist, a palm laid briefly on a shoulder, the back of a hand brushed against the back of another hand in passing. They are a tactile people in a place where touch is one of the few senses that still works at full strength — sound being swallowed, smell being thin, taste being limited to the mineral paste and the few preparations made from it. They know each other by the heat of each other's skin and the pressure of each other's hands.
+
+And they know, all of them, all the time, in some deep proprioceptive way, that the ground beneath their feet is *moving*. Not shaking — moving. Rising. The slow constant push of the Lifting is something they feel the way other peoples feel gravity: as the baseline against which everything else is registered. A lowlander brought up here and acclimated would eventually, after years, begin to feel this too, and would never afterward feel quite at rest in a place that wasn't rising. The mountain has spoiled them for stillness. They are a people of perpetual gentle ascent, and they would not know how to live, anymore, on ground that had finished its becoming.
+
+They are, in the end, what the mountain is making. The kilns fire the bricks; the mountain fires the kilns; something larger fires the mountain; and the people, curing in place, breath by long breath, generation by long generation, are the mountain's slow thought about itself — its way of looking up, finally, at the sky it is pushing toward, with eyes that do not dart, and seeing.

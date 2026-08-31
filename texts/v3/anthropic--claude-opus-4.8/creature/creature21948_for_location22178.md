@@ -1,0 +1,47 @@
+# The Ones Who Live in the Breathing Dark
+
+You asked what lives here. Let me tell you about the people, because they are the part of this that knows it is being asked about.
+
+## Their Bodies
+
+They are smaller than you expect, and this is the cathedral's doing. Where there is no excess — where the light is weak tea and the food is scattered thin across kilometers of hollow — bodies learn to ask for little. They are slight, long-limbed, built for the slow vertical work of the weeping walls and the long horizontal patience of the naves. Their hands are large in proportion to the rest of them, disproportionately so, fingers broad and sensitive at the pad, because in a world this dim the hand reads more than the eye. They navigate by touch along the warm damp tissue of the wall the way you'd read a wall in your own house in the dark — and they are, of course, always in their own house in the dark.
+
+Their eyes are wide and dark and take in the faint glow greedily. They do not see color well; there is little to see. But they see *warmth* — not the way a snake does, exactly, but they have learned to read the subtle bioluminescent flush that runs through the floor and walls when something living has recently passed, the way you'd read a footprint in dew. A person walks into a chamber and knows, by the lingering glow-trace, that another person crossed it an hour ago and was, by the warmth of their passage, unhurried.
+
+Their skin is pale and faintly translucent at the extremities, and — this is the part that unsettles visitors who imagine humans here — many of them glow. Not brightly. A capillary luminescence in the cheeks, the throat, the backs of the hands, picked up over generations from drinking the water and breathing the spores and sleeping against the living floor. The children glow more than the adults. A mother in the dark always knows where her child is. The old ones dim, and there is a word in their language that means *to begin to go dark*, and it means dying, and it is not a sad word, only a true one.
+
+## How They Are With Each Other
+
+There are never many of them in one place. The emptiness has taught them that crowding is a kind of violence — that twenty people in a single chamber is a wrongness, a density the cathedral does not want, a noise made of bodies. So they live in scatters. A family unit is four or five. A gathering of the scatters — what you might call a village, though it has no center and no edges — is perhaps forty souls distributed across a region of naves and pools you would need a week to walk, and they go for days without seeing one another, and this is not loneliness. They have a different relationship to presence than you do. To them, *near* is a wide thing. A person three chambers away whose glow-trace you crossed this morning is, by their reckoning, with you.
+
+They speak quietly because the halls punish loudness — a raised voice comes back changed, they say, and they mean it literally; the breathing space distorts it, returns it stretched or doubled or in a tone you did not use. So they have built a language for the hush. Much of it is hand. A great deal of it is the long pause — they are comfortable with silences that would make you reach for words, and a conversation between two of them might unfold over an hour with six sentences in it and not feel sparse to either. They consider people who fill silence to be frightened of something.
+
+And they touch constantly. Greeting is a pressing of palms to the side of the face, holding, reading the other's warmth and glow. To know someone is to have felt how brightly they burn. They do not have a word for *stranger* that does not also mean *unfelt*.
+
+## What They Believe, Which Is Also What They Know
+
+Here is where the people become difficult to separate from the place, and I think that is the truth of them, so I will not try too hard to pull them apart.
+
+They do not believe the cathedral made them, and they do not believe they are visitors in it. They believe — they live as though — they are something the cathedral *is doing*. A motion it makes. The way you might say a thought is something a mind is doing rather than a thing a mind contains. They are the cathedral's smallest, fastest gestures, scurrying warm through its slow vast body, and when they die and go dark and sink back into the living floor, that is not death exactly but the gesture completing, the hand finishing its motion and going still.
+
+This makes them strange to deal with, if you came up from below expecting people. They are not afraid of much. They are not afraid of the deep chambers where the walls resolve into almost-faces, though they do not go there carelessly either; they go the way you'd approach a sleeping parent, quiet, reverent, ready to be addressed. The ones who come back changed from the deep — who say the place asked them something — are not pitied and not feared. They are *listened to*, intently, for the rest of their lives, in case the thing they cannot say ever finds its way into a word. There is an honor in it. To have been asked is to have been, for a moment, looked at by the thing you are inside of.
+
+And the lagging water — the pools that hold your reflection a beat late, or show you doing what you have not yet done — the people read these the way you'd read weather, or omens, except more practically. A child whose reflection arrives wrong is watched. Not with dread. With attention. There is a custom among some scatters that before a long journey through the breathing naves, you lean over a pool and wait for your own face, and if it comes promptly and does what you do, you go; and if it lags badly, you wait a day. They have learned that the water's lag and the space's breathing are connected — that when reality is loose in one place it is loose in others — and they will not travel through expanding distance on a day the water can't keep up. This is not superstition. It is the most accurate science available to a people living inside a thing that breathes. They have simply never had the luxury of pretending the world holds still.
+
+## What They Make
+
+Their hands, remember, are the cleverest part of them, and so almost everything they have is hand-work, and almost all of it is small. They knap fallen tendril-wood — that horn-hard sheddings the cathedral lets drop — into edges and points and the little prying tools they use to coax fiber loose from the floor without wounding it. They are scrupulous about wounding it. There is a difference, in their morality, as wide as any difference they have, between *taking what is offered* and *taking what is held*, and a person who cuts the living wall rather than waiting for it to shed is not a criminal so much as a person who has misunderstood something fundamental — who has acted as though they were *in* the place rather than *of* it. Such a person is gently, persistently re-taught.
+
+They weave. The loose surface fibers of the floor make a thread that they twist into rope, into nets they hang in the naves to catch the drifting bladder-floaters, into a soft pale cloth they wear less for warmth — it is always warm — than for the comfort of having the floor's own substance against the skin. They carry water in the dropped husks of the great blooms, and the husks, having held the bloom's slow breath, keep the water sweet.
+
+And they keep fire. This is the whole of their high technology and the whole of their highest fear, and the two are the same thing, as the deepest fears and the deepest skills usually are. In a world that is entirely alive and entirely fuel and entirely damp, fire is a held breath, a thing you cup in clay and feed by single fibers and never, ever let forget that it is small. A child is taught the management of coals before it is taught most words. A fire let loose would not just kill people; it would *burn the world*, burn the breathing thing they are a gesture of, and there is no word in their language for an act that large and that wrong because no one has ever needed one. The fear is so total it has gone quiet, like everything else here. They tend their coals the way you would tend a sleeping thing in the same room as a sleeping giant.
+
+## What They Are, Finally
+
+They are the cathedral's way of being warm to itself. That is the closest I can come.
+
+They move hushed and slight and glowing-faint through the green-black halls of a thing too slow to notice them, and they have made their peace with not being noticed, and they have made an entire way of living out of the grace of being small inside something vast and patient. They do not raise their voices. They do not crowd. They do not cut what is held. They read each other by warmth and the world by water and they go dark, when it is time, without much grief, sinking back into the floor that made the gesture of them in the first place.
+
+And once in a great while one of them goes into the deep where the light grows strange, and waits long enough that the walls almost make a face, and comes back unable to say what they were asked — and the others gather close in the dim, and press their palms to that one's cheek, and feel how brightly they still burn, and wait, in the enormous patient quiet, in case the answer is still arriving.
+
+Like the face in the water. A little out of time. But arriving.

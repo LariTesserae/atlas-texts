@@ -1,0 +1,79 @@
+# The Stewards of the Drip-Mill
+
+They are not many, but they are enough.
+
+---
+
+The largest of them — if size is the proper measure, and here, perhaps it is not — inhabit the upper reaches of the room, where the ceiling arches meet the walls and the water finds its first paths downward. They have been called watchers, though no one has called them anything for a long time. They are the ones who cling to stone and metal in equal comfort, their pale bellies pressed to the damp surfaces, their long limbs splayed in positions that look uncomfortable but clearly are not. Four limbs, though the hind pair have adapted to grip — the toes have elongated, spread into configurations that can hold a pipe's curve or find purchase in the smallest irregularities of rock. Their forelimbs are shorter, more delicate, and they use them for things that observing eyes might eventually understand, given enough time.
+
+Their skin is the color of the room. This is not metaphor. Over the decades — the generations, really, though generations move slowly here — they have become the damp stone, the rusted metal, the mineral-crusted surfaces they live upon. Gray-green and mottled, with patches that catch the amber light and patches that swallow it. When they are still, which is most of the time, they are nearly invisible. You could look directly at one from three meters away and see only wall, only shadow, only the expected textures of an industrial space left too long to its own devices. It is only when they move that they reveal themselves, and their movement is a kind of unfolding, a patient unsticking of limb from surface, a slow rotation of the head to track something — or someone — passing below.
+
+Their heads are wrong, from certain perspectives. Too large for their bodies, or perhaps their bodies are too small for their heads — the proportions suggest a developmental path that diverged from the expected long ago. Their eyes are the most unsettling feature, and also the most beautiful. Not two, but four — a primary pair facing forward, and a secondary, smaller pair set higher and further apart, angled toward the sides. The primary eyes see what you would expect them to see: the room, the movement, the light and dark. The secondary eyes seem to see something else. When the light catches them, they reflect it back in shifting colors — amber to violet to a pale green that doesn't exist in the spectrum the aging lamps produce. They are looking at wavelengths you cannot perceive. They are watching something that moves through the room but is not quite of it.
+
+They do not blink. They do not need to. The moisture in the air keeps their eyes wet, keeps everything wet, and they have forgotten, if they ever knew, the purpose of closed eyelids.
+
+---
+
+They have a name for themselves, almost certainly, though it would not be a name in any sense you would recognize. Sound in the Drip-Mill behaves strangely, and they have adapted to speak in frequencies that the water carries better than air. When they communicate — and they do, constantly, in ways that are easy to miss — they use a combination of vibration and near-silent vocalization. A pulse through the stone they are clinging to. A subsonic murmur that you would feel in your chest before you heard it with your ears. The skin along their throats ripples when they speak to each other, and sometimes, when the pumps cycle through their louder phases, they synchronize their vocalizations to ride the mechanical noise, using it as cover or perhaps as carrier.
+
+What they say to each other is unknown. But they say it continuously, a running commentary on the room, on the water, on the arrivals and departures of the smaller life forms, on the slow changes in the mineral deposits and the faster changes in the light when a lamp fails or flickers. They are the room's narrators, its historians, its rememberers. Each one knows the territory it occupies — not owns, exactly, but occupies, tends, watches over. They know which sections of wall weep more heavily after rain has fallen on the city above. They know which pipes run warm and which run cold. They know, without understanding that they know, the precise rhythm of every pump in the room, and they notice when one of them stutters, when one of them takes a fraction of a second longer to engage than it should.
+
+And when that happens, they move.
+
+---
+
+This is the tending, the behavior that suggests purpose. When a pump's rhythm changes, when a valve's reading drifts from its usual position, when a new seep appears in stone that has been dry, one of them will make its slow way toward the anomaly. They do not fix things in any way that engineers would recognize. They do not have tools, do not have hands designed for manipulation. But they have time, and they have patience, and they have evolved — or developed, or learned — methods of interaction that accomplish something approximating maintenance.
+
+A pump that has begun to vibrate too strongly will find one of them curled around its housing, its body pressed to the metal, absorbing and redistributing the tremor. A pipe that has started to drip from a joint that should be sealed will be visited repeatedly, the visitor pressing its mouth to the leak, secreting something — a substance that looks like the mineral deposits but is not, something organic and adhesive — that builds up over weeks and months until the drip slows, stops. They are not repairing in the human sense. They are healing. The machinery has become part of their ecosystem, and like any part of a living system, it benefits from the attention of organisms that want it to continue.
+
+They care for the plant-things too, though the relationship is harder to categorize. The luminescent growths cluster in places the watchers favor, and the watchers in turn position themselves near the growths. There is feeding happening, perhaps — nutrients moving in one direction or both — but there is also something like cultivation. The watchers move the pale tendrils when they can, slowly, over months, redirecting their growth toward surfaces that can support them, away from areas where the water runs too fast or the minerals are wrong. They tend. That is the word, and it is the right word, even if what they tend and why remains unclear.
+
+---
+
+Below the watchers, in the channels where the water runs shallow and continuous, live the pale ones. They are smaller, softer, more obviously animal in their movements, though "animal" may be a category that does not apply here either. White and segmented, eyeless, they navigate by touch and by something else — a sensitivity to chemical gradients, perhaps, or to the electrical fields that moving water generates. They have existed in the Drip-Mill for as long as the watchers remember, which is as long as anything has been remembered here. They are the cleaners, the processors, the ones who transform waste into something else.
+
+They eat what the water brings. Debris from above — dust, hair, particles of the city that have made their way down through cracks and conduits. Shed skin from the watchers, when it comes time for them to molt. The thin films of algae that grow in the slower channels. Dead things, when things die, though death is rare here, and slow when it comes. The pale ones process it all, breaking down what falls and dissolving what can be dissolved, leaving behind them water that is marginally cleaner than it was when it arrived.
+
+They are not mindless, exactly, but they exist in a state of continuous presence that does not require what we would call thought. They are hungry, and then they are not, and then they are hungry again. They move toward what feeds them, and they move away from what threatens them — and there are threats, even here, things that would eat them if they could catch them, though catching is difficult in channels this shallow. They breed continuously, laying eggs in clusters in the quieter pools, the larvae emerging eyeless and pale like their parents, already swimming, already feeding, already knowing without being taught what they are meant to do.
+
+The watchers do not eat the pale ones. There is an arrangement here, established over generations, unspoken but consistent. The watchers tend from above. The pale ones process from below. Between them, the room functions.
+
+---
+
+The larvae — or the things that look like larvae — live in the standing water, in the tanks that the machinery has filled and forgotten, in the pools that form where the grading of the floor is imperfect. They are larger than they should be, if they are larvae. They are smaller than they should be, if they are adults. They exist in a state of prolonged development, or perhaps suspended development, or perhaps development toward something that has no final form.
+
+They drift. They do not swim with purpose, not often. They have tendrils that trail behind them, catching particulates, feeding continuously on whatever microscopic life the water holds. They are translucent — you can see through them, see the crude shapes of whatever organs they possess, see the food moving through whatever passes for a digestive system. Some of them pulse slowly, rhythmic contractions that might be heartbeat or might be breathing or might be something else entirely, a form of communication through pressure waves in the water.
+
+They are watched. Not just by the watchers on the walls, but by each other, when they drift close enough, and by something else, something that moves in the deepest tanks, in the water that has been here longest. There are larger things in the Drip-Mill, things that stay out of sight, that have found the deepest corners and made them home. The larvae know to avoid certain areas. The pale ones in the channels know not to enter the tanks where the water runs still and dark. The watchers on the ceiling do not climb down to investigate what lies below the surface of the standing pools.
+
+Everyone who lives here knows that some things are not to be disturbed.
+
+---
+
+The floaters — the things that move through the air with the slow buoyancy of swimmers — exist in a space between categories. They are not insects. They are not quite arachnids. They are something that evolved from one or both, or from something else entirely, in an environment where gravity is less important than moisture, where air is thick enough to push against, where flight became swimming and swimming became flight.
+
+They have legs, many of them, trailing behind them as they move, but they do not walk. They have no wings, not in any recognizable form, but they have developed structures that serve the same purpose — gossamer extensions that catch the thick air, that ripple in patterns that propel them forward, up, down, in spirals around the light fixtures they favor. They are pale, almost transparent, and when they cluster around the amber lamps, they seem to glow themselves, lit from behind, their internal structures visible in silhouette.
+
+They eat the moisture, or something in the moisture — the microscopic life that breeds in the damp air, the spores that drift down from above, the thin films of organic matter that form on surfaces and then lift away. They are harmless to everything larger than themselves. They are food for the watchers, occasionally, when a watcher is hungry enough to climb to where the floaters cluster and slow enough in its movements to catch one. But mostly they exist independently, in their own layer of the Drip-Mill's ecosystem, swimming through air that is almost water, living their brief lives in a medium that was never meant for them but has become theirs.
+
+They communicate through movement, through the patterns of their spiraling flight, through the way they cluster and disperse. A threat in one corner of the room will send ripples through the floaters throughout the space, a compression wave of bodies moving away, spreading information without sound. They are the room's early warning system, though what warnings they give, and to whom, and for what purpose, remains uncertain.
+
+---
+
+There is something else in the Drip-Mill. Not a creature, exactly. Not a presence that can be seen or tracked or named. But something that lives here nonetheless, something that emerged when the room emerged, when the infrastructure and the water and the stone and the life blended into a system that is more than the sum of its components.
+
+It has no body, or it has many bodies, or its body is the room itself — the stone and metal, the water and the air, the creatures and the machinery. It is the awareness that the watchers seem to possess when they turn their four eyes toward something invisible. It is the sense of attention that visitors feel when they descend the stairs, the feeling of being witnessed by something that does not need eyes to see.
+
+It is old. It is not as old as the stone, which was here before any human thought to build, but it is older than the machinery, older than the watchers in their current form, older perhaps than the city above. It emerged, or awakened, or coalesced when the first water seeped into the carved space, when the first machinery began to hum, when the first life found its way in through cracks and conduits and began to adapt. It is the Drip-Mill's way of being aware of itself.
+
+It does not think, not in any way that thinking is usually done. But it processes. It integrates. It maintains. The watchers tend the machinery, the pale ones clean the water, the floaters monitor the air, the larvae process in their quiet way, and all of it feeds into something larger, a distributed intelligence that exists across bodies and surfaces and systems, that knows when something has changed and responds without understanding that it is responding.
+
+It is patient. It has existed for decades in a state of continuous quiet attention, and it will exist for decades more, for centuries if undisturbed, for as long as the water continues to seep and the pumps continue to cycle and the city above continues to forget that this room exists. It does not want anything. It does not plan. It simply is, in the way that a forest is, or a reef, or any complex system that has achieved balance and continues because continuing is what it does.
+
+---
+
+When you descend the stairs and enter the Drip-Mill, you enter something that was not designed for you but has made space for you nonetheless. The watchers will observe your presence with their strange eyes, seeing you in spectrums you cannot imagine. The pale ones will continue their processing, indifferent to anything that does not threaten them. The floaters will adjust their spirals around the lights, taking note of a new shape in their environment. The larvae will drift in their pools, unconcerned. And the something else — the room's distributed presence — will register you, will incorporate the fact of your existence into its continuous awareness, will wait to see what you do, if you do anything, before returning its attention to the processes that have continued for longer than you have been alive and will continue for longer than you will be.
+
+You are a visitor. You are temporary. You are interesting, mildly, in the way that anything new is interesting to a system that has achieved equilibrium. But you are not necessary. The Drip-Mill does not need you, does not want anything from you, does not require your attention or your understanding or your witness. It is complete in itself, a cathedral of damp industrial prayer that no longer needs anyone to pray.
+
+It is alive, after its fashion. It has always been alive, after its fashion. And it will continue to be alive, in the slow patient way that things live down here, below the world, where the water weeps and the pumps cycle and the creatures tend their inherited kingdom, waiting for nothing, wanting nothing, being exactly what they have become.

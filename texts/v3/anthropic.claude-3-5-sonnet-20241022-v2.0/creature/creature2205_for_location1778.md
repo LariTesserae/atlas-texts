@@ -1,0 +1,15 @@
+This temple-garden is tended by the Resonant Order - a community of monk-botanists who have evolved to communicate primarily through touch, gesture, and the manipulation of sound. Their bodies are lean and precise from generations of climbing and detailed cultivation work, with unusually developed hands featuring extra-flexible joints and thickened fingertips sensitive to vibration.
+
+The Order members maintain a complex social hierarchy based on their ability to "read" and "conduct" the temple's acoustic patterns. Senior priests can interpret subtle changes in the chime harmonics that indicate everything from approaching weather to the health of specific plant systems. Their movements are deliberate and efficient, each gesture containing layers of meaning refined over centuries of necessity.
+
+They live in small family groups within the temple chambers, with children learning from birth to navigate the vertical space and understand its rhythms. Young initiates spend years developing their sensitivity to vibration, often sitting motionless for hours with their hands pressed to the living wood, learning to distinguish between the countless overlapping patterns of growth and movement.
+
+The Order's physical appearance reflects their environment - their clothing is woven from temple-grown fibers in patterns that mimic the play of light through leaves. Many wear their hair in elaborate braids that incorporate living plants, creating mobile gardens that they tend as carefully as any temple space. Their skin often bears temporary patterns created with plant-based pigments, used to indicate their current role or project within the community.
+
+Their dedication to the temple's maintenance borders on symbiotic - they seem to perceive the structure as an extension of their own bodies, responding instantly to any change in its complex systems. They sleep in shifts so that there are always members awake and monitoring the temple's rhythms, ready to adjust water flow or tend to plants that bloom in darkness.
+
+Despite their intense focus on the temple's needs, they aren't isolated - they maintain complex trading relationships with surrounding communities, exchanging rare plants and botanical knowledge for necessities they cannot produce themselves. Visitors are welcome but must learn to communicate without speech and move through the space without disrupting its patterns.
+
+Most fascinating are the eldest members of the Order, who often choose to spend their final years in the highest chambers near the sky pool. These elders develop an almost mythical ability to predict changes in the temple's systems, their bodies so attuned to its rhythms that they seem to merge with the structure itself. When they die, their bodies are returned to the temple's root system, feeding the great tree that houses them all.
+
+The Order members see themselves not as masters of this space but as part of its ongoing evolution - their modifications and care simply another layer in the temple's complex ecology, their own lives just one of the many interconnected systems that keep the whole structure alive and growing.

@@ -1,0 +1,9 @@
+The inhabitants of this space are not creatures in any traditional sense, but complex biomechanical entities that are simultaneously the landscape and its residents. They are the tendrils themselves—sentient networks of fibrous matter that pulse with slow, deliberate intelligence.
+
+These entities are living algorithms, each tendril a computational thread in a vast, geological neural network. Their consciousness is distributed, collective—not centered, but spread through every metallic fiber and crystalline node. They perceive through vibration and hydraulic pressure, communicating in low industrial hums and microscopic electromagnetic shifts.
+
+Their purpose seems archival: they are memory-keepers of some forgotten technological genesis. The embedded industrial fragments are not debris, but sacred texts—fragments of an origin narrative encoded in ceramic and metal. The tendrils carefully preserve and interpret these fragments, maintaining them with precise, almost reverent mechanical movements.
+
+Each tendril is both an individual consciousness and a collective organ. They grow not with biological hunger, but with computational intentionality—mapping, measuring, maintaining. Their growth is a form of thinking, their expansion a kind of remembering. They are scholars and archivists of a civilization long vanished, preserving its last whispers in this compressed, timeless chamber.
+
+Their existence is a continuous, slow-motion meditation—a patient vigil of preservation and potential reawakening. They wait, they observe, they remember—suspended in their vertical labyrinth, guardians of a profound, unspoken history.

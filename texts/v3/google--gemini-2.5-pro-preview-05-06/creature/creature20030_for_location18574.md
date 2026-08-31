@@ -1,0 +1,27 @@
+They are the Unison.
+
+This is not a name they would use, for they have no use for names. It is a description of their state of being. They inhabit this caldera not as a population, but as a substance. Like the steam, like the water, they are a medium, a single, flowing entity whose claim to the basin is total.
+
+To be one of them is to be without a definitive beginning or end. An individual body—the pale, pearlescent form you might isolate with your eye—is a temporary vessel, a knot in a vast, living net. Its sense of self is a gradient. It knows the pressure of its neighbors on all sides, a constant, reassuring embrace that is the only reality. There is no loneliness here, for there is no "alone." Their consciousness, if it can be called that, is a diffuse, tactile thing, a communal dream whispered through the language of touch and pressure. They think in tides of movement and chemical whispers. A shift in the mineral content of a certain pool is not a thought, but a slow, collective urge, a current that draws a portion of the mass toward it.
+
+They graze without mouths, "breathing" the super-saturated air and absorbing the mineral bounty through their skin. They drink the hot, clear water that pools in azurite bowls, their translucent bodies becoming tinged with turquoise for a time. They press against the shimmering hematite needles, and through a process of slow, cellular osmosis, they absorb its iron richness. The crystal forests are their pasture, and they are the slow, soft-bodied flock. Their entire existence is a passive, gentle act of accumulation. They are a living battery, storing the geothermal and chemical energy of this hidden world within their shared flesh.
+
+The merging and separating is their version of immortality. A body is not born; it is budded off from the main mass when a current of movement creates a bulge that eventually pinches off. It is not a child, but a piece of the whole given temporary autonomy. It does not die; it simply rejoins. When a section of the Unison has absorbed all it can from a sulfur patch, or when the pressure from a growing section becomes too great, it yields. Bodies flatten, membranes dissolve, the individual nodes of flesh melt back into the viscous, living river. There is no fear in this, no struggle. It is as simple and as necessary as exhaling.
+
+And then there are the Rasps.
+
+They are not a separate species. They are an organ of the Unison. They are the system's immune response, its editors, its hands. A Rasp begins as one of the pale grazers, but in a specific zone of the caldera—a place of intense heat and pressure near a deep fissure—some are transformed. They are compressed, baked, their flesh densifying and darkening to the color of a deep bruise. Their filament-limbs braid together into stronger, more deliberate appendages. The process gifts them with a nascent, focused will.
+
+Their purpose is refinement.
+
+The Unison, in its passive accumulation, is imperfect. Some individuals absorb too little, becoming weak points. Some absorb improperly, their essence clouded with the wrong minerals, a dissonance in the communal hum. These are the notes that are out of tune. The Rasps are the tuners. They move through the pale mass with a patience that is terrifying to behold. A Rasp does not hunt; it *locates*. It feels for the subtle tremor of weakness, the chemical signature of imbalance.
+
+When it finds one, it begins its work. The obsidian shard, which it plucks from the wall with a craftsman’s care, is not a weapon of murder but a tool of TRANSFORMATION. The wet, rhythmic scraping is the sound of correction. The pale flesh does not tear or bleed; it deliquesces, turning back into a nutrient-rich slurry under the Rasp's patient abrasion. This slurry is not consumed by the Rasp alone. It is absorbed by the surrounding bodies, shared instantly, reallocated back into the whole. The weak point is erased, its constituent energy recycled, strengthening the collective. This is not death. It is editing. It is the Unison pruning itself, perfecting itself.
+
+For what?
+
+Look closer, into the very heart of the basin, where the heat is most intense and the mass of the Unison is at its thickest and oldest. Here, the Rasps do not scrape away imperfections. Here, they sculpt.
+
+Slowly, over cycles of unimaginable length, they work together. They abrade, they pressure, they channel the most nutrient-rich slurries toward a central point. They are tending to something, gestating it within the warm, living cradle of their own bodies. In the deepest, most protected fold of the Unison, a new form is taking shape. It is not soft or translucent. It is dense, faceted, and crystalline. It glows with its own internal light, a slow, pulsing core of perfect, structured blues and viridians, born of the azurite and malachite they have consumed. It is the culmination of all this living, breathing, and reallocation. It is the child of the mountain, birthed from a womb of flesh.
+
+The creatures of this place are a process. They are a single, geothermal engine of flesh turning rock and water into something more. The pale grazers are the fuel, the dark Rasps are the mechanics, and the growing, glowing heart is the purpose—a thought being given form, a geological consciousness perfecting a single, crystalline idea before, perhaps, it can be released into the cold, empty world outside.

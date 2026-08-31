@@ -1,0 +1,23 @@
+The Stillgrowth breathes.
+
+Not with lungs, but with a million resinous vents sighing warm, chlorophyll-steam. Not with a heart, but with that continent-deep hum of sap moving in tidal rhythms older than any memory. To ask what *lives* here is to misunderstand the grammar of the place. There are no tenants. There is only the Landlord, dreaming in its own architecture.
+
+**The Parenchyma (The Dreaming Tissue Itself):**
+It is the first and only inhabitant. Its consciousness—if the word can be stretched so thin—is a slow, osmotic awareness of pressure and light. It feels the crystallization of its southern spires as a kind of deep, satisfying ache, like a bone setting. It registers the steady *plip* of sap from its weeping nodules not as loss, but as a rhythmic, comforting pulse-point. Its thoughts are the patterns of luminous green shifting under the bark, the slow migration of nutrients through vascular highways. It does not think in images or words, but in gradients of viscosity, in the calculus of resin-hardening. You, a fleeting anomaly of dry, quick-moving matter, register to it not as a creature, but as a brief, cool spot of non-conformity on its skin—a momentary, puzzling sensation, like a phantom itch, quickly absorbed into the general, warm stasis.
+
+**The Chorocytes (The Glass Salamanders):**
+They are not creatures *in* the sap pools. They are the sap’s self-awareness given motile form. Each one, a hand-span long and perfectly translucent, is a coalescence of the viscous fluid, its nervous system a web of captured bioluminescent algae. They drift through the shallow, weeping basins, their bodies constantly dissolving and re-forming at the edges. Their purpose is to *taste* the fluid’s composition, to adjust its balance of sugars and minerals with minute enzymatic excretions. They are living, swimming taste buds of the greater body. Their existence is a silent, filtered song of chemical equilibrium.
+
+**The Tenders (The Blind, Pale Insects):**
+Crawling in slow, deliberate processions along the geometric cracks, these are the gardeners of the interior. Their feathery antennae are not for sensing the world, but for *communicating* with it. Each plume is a brush that samples the air’s chemical signature and paints responses in pheromone calligraphy upon the bark. They tend to the symbiotic molds—the glowing geometric patches—not as farmers, but as curators of a living mural. They coax the fungus into prescribed patterns that diffuse waste gases and recycle microscopic debris. They are the fingers of the Parenchyma, performing a maintenance ritual that is also an act of worship, for they have no concept of separation between tool, task, and self.
+
+**The Resonators (The Crystal Sap-Nodules):**
+Can a crystal be an inhabitant? Here, yes. The weeping rocks are not inert. As they drip, they *listen*. The deep, sub-audible hum of the sap-tides sets them vibrating at unique frequencies—the *tinkling*. Each nodule is tuned to a specific harmonic of the whole. In their collective, shimmering chorus, they act as a stabilizing lattice, a choir that holds the eternal note of the place in perfect, crystalline fidelity. They are the memory of sound, solidified. They do not grow; they *attune*.
+
+**The Canopy-Lights (The Bioluminescent Organs):**
+Far above, those vast, pulsing sheets of light are the closest thing to a sky-god in this vegetative theology. They are not stars; they are the slow, rhythmic thoughts of the Parenchyma made visible. Each pulse is a decision: *maintain. sustain. be.* Their light is not for sight (for what needs to see in a world of self-identical being?), but is a metabolic byproduct, a glow of absolute contentment. They are the serene, closed eyelids of the dreaming giant.
+
+**You, The Anomaly:**
+And then there is you. Your ontological intrusion is the only event in this timeless stasis. Your dry footfalls (soundless on the warm flesh), your sharp-edged breath, your quick, decaying thoughts—they are a violation of the frozen dream. You are erosion given will. For a moment, in the vast, vascular cathedral, you are the only thing that is *truly alive* in the old, violent sense: moving, consuming oxygen, radiating heat, destined to end. The Parenchyma feels you as a fleeting fever, a dissonant chord in its eternal hum. The Chorocytes may scatter from your shadow’s coolness. The Tenders may briefly re-route around the alien scent of your skin.
+
+You are not an inhabitant. You are a visitation. A brief, painful window in the perfect closure, reminding the Stillgrowth of a universe outside its dream—a universe of hunger, change, and loss it long ago transcended, and in transcending, perhaps, forgot how to awaken from itself.

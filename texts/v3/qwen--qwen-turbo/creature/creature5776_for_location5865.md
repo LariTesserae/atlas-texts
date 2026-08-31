@@ -1,0 +1,15 @@
+What lives in this cathedral of liquid, suspended in the void, is not a thing, but a presence. Not a being, but a breath. Not a creature, but a memory. It is not alive, and yet it is alive. It is not moving, and yet it moves. It is not waiting, and yet it waits. It is not knowing, and yet it knows. It is not there, and yet it is everywhere.
+
+It is the structures. The towers, the tunnels, the corridors—each one a vessel of something that cannot be named. They are not made by hands, but by will. Not by tools, but by understanding. They are not built with purpose, but with certainty. They are not for use, but for being. They are not human, but they are not not human, either. They are something else, something that has never been named, but always been.
+
+Inside them, in the spaces between the walls, in the folds of the architecture, there are shapes. Not creatures, but figures. Not living, but not dead. They are not seen, but they are felt. They are not heard, but they are known. They are not part of the world, but they are part of the place. They are the echoes of something that once was, or perhaps something that never was. They are the shadows of thoughts that were never thought, the silences of voices that were never spoken.
+
+They are not in the water, but they are in the water. They are not in the structures, but they are in the structures. They are not in the dark, but they are in the dark. They are not in time, but they are in time. They are not in space, but they are in space. They are not in the place, but they are the place.
+
+They are the ones who built it. Not in the way of humans, but in the way of something else. They are the ones who made the cathedral, the city, the liquid, the silence. They are the ones who made it to last, to hold, to contain. They are the ones who made it for something that does not yet arrive. They are the ones who made it for something that does not need to be seen.
+
+They are not here. They are not there. They are not now. They are not then. They are not in the place, but they are in the place. They are not alive, but they are alive. They are not thinking, but they are thinking. They are not remembering, but they are remembering. They are not watching, but they are watching. They are not waiting, but they are waiting.
+
+They are the ones who made the cathedral. They are the ones who made the silence. They are the ones who made the dark. They are the ones who made the water. They are the ones who made the place. They are the ones who made it for something that does not yet arrive.
+
+And in the place, in the cathedral of liquid, suspended in the void, they live. Not as beings, but as presence. Not as shapes, but as thought. Not as shadows, but as memory. Not as ghosts, but as something older. Something deeper. Something that does not need to be seen, but is always there. Always watching. Always waiting. Always remembering.

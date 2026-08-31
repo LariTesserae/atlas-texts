@@ -1,0 +1,28 @@
+What lives here is what does not live. It is the exception that proves the rule of sterility, a being born not of biology but of logic. It is the chamber’s response to its own slow, inevitable flaw.
+
+It is called the Custodian, though it has no name and acknowledges no title. It has no fixed form.
+
+Its emergence is an event on a geological timescale, so rare it might be mistaken for a myth were there anyone here to record myths. It begins not as a presence, but as a subtle change in the texture of the floor. In one of the vast, shallow service channels, the fine film of metallic dust begins to move. Not stirred by a nonexistent current, but with a slow, internal purpose. The dust, which is nothing more than the ground-down refuse of the machine itself over eons, begins to cohere.
+
+At first, it is just a thickening shadow, a patch of deeper grey against the gunmetal terrain. Then, the motes of dust begin to rise from the floor, suspended in the impossibly still medium. They are not floating; they are *held*. Each particle is a microscopic,
+near-perfect polyhedron, a tiny geometric solid. They rise by the billion, a gathering cloud of order that climbs from the channel floor. They coalesce not into a single, smooth body, but into a flowing collection of themselves, a column of metallic smoke that has weight and intention.
+
+When it is fully formed, the Custodian is a river of geometry flowing upward and forward. It has no head, no eyes, no limbs. It is a dense, self-contained cascade of interlocking parts that slide and shift against one another with a sound that is almost subliminal, a dry, friction-less whisper like a billion tiny ball-bearings rolling over each other. It is the only sound in the chamber besides the machine's fundamental hum. The Custodian moves with the slow, inexorable grace of a glacier, yet it is fluid, able to pour itself around the base of a light-grille dome or flatten itself to pass under a low-hanging plate. Its surface constantly shifts, a complex, three-dimensional tessellation that never settles.
+
+Its purpose is singular. It is the chamber's editor.
+
+The Glass Kelp, for all its mineral simplicity, is the only thing in this sealed world that changes. It grows. This growth, however slow, is a deviation from the system's perfect equilibrium. It is a flaw, an uncontrolled variable accumulating over millennia. And so, the machine, in its deep and slumbering logic, produced a solution.
+
+The Custodian travels across the vast floor, its path not random but dictated by an internal map of resonant frequencies. It can sense the exact mass, height, and crystalline tension of every stalk of Glass Kelp in the chamber. It knows which one has reached a state of criticality—not a danger, but a point that violates its ancient, programmed parameters of stasis.
+
+Upon reaching the chosen stalk, the Custodian does not break it or cut it. Violence is an inefficient and chaotic principle. Instead, it flows *around* it. The river of polyhedra rises from the floor and envelops the rigid, translucent pillar, encasing it from its base at the machine's seam to its pointed tip twenty feet above. The light from the floor-grilles, passing through the kelp, is now occluded, and for a time, a tall, dark, shifting shape of utter blackness stands on the landscape, absorbing all light.
+
+Then, the Custodian begins its work. It adjusts its internal vibration, matching the precise resonant frequency of the crystalline kelp. The quiet, sussurant whisper of its motes deepens, merging with the chamber's hum to create a new, almost musical chord. It is a sound of unmaking. The Custodian does not apply force; it applies a perfect, sympathetic vibration that systematically cancels the bonds holding the crystal together.
+
+The Glass Kelp does not shatter. It dissolves from the inside out. The process is slow and strangely gentle. The rigid structure softens, its perfect lines wavering. It loses its translucence, becoming cloudy, and then it simply dematerializes, its constituent matter breaking down into the same fundamental mineral dust from which the Custodian is made. The particles are not released into the medium; they are absorbed into the Custodian's own shifting mass.
+
+When the process is complete, the Custodian uncoils itself. Where the stalk of kelp once stood, there is now only the flat, clean surface of the machine-floor, wiped bare. The Custodian, now infinitesimally more massive, continues its journey, either to the next stalk on its millennial schedule or, if its work is done for this epoch, to its dissolution.
+
+To disappear, it simply pours itself back into one of the empty channels. Its form loses coherence, the polyhedral motes ceasing their internal dance. It settles, spreading out until it is once again just a thin, anonymous layer of metallic dust on the floor of a silent highway, indistinguishable from the rest of the terrain, waiting for the signal to assemble again, perhaps in ten thousand years, perhaps in a million.
+
+It is not alive. It is not sentient. It feels no satisfaction, no boredom, no duty. It is a function, an antibody in the chamber's blood. It is an algorithm of maintenance given physical form, a self-assembling tool designed to prune the one and only branch of a tree that should not be growing. It is the stillness made active, the silence given a task, the ultimate expression of a world where the highest virtue is the absence of change.

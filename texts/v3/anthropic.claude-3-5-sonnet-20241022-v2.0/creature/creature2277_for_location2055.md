@@ -1,0 +1,21 @@
+In this living metropolis, the inhabitants are as fluid and hybrid as their environment. Let me tell you about them:
+
+The Symbiotes are perhaps the most numerous of the city's sapient residents - descendants of humans who have embraced biological modification until they are something new. Their skin contains chlorophyll and can photosynthesize; their lungs can process multiple atmospheric compositions; their fingers end in adhesive pads that let them navigate the vertical landscape as easily as walking. Many have developed translucent patches on their bodies, revealing the green-tinted flow of their modified circulatory systems. They communicate through a combination of bioluminescent patches, pheromones, and complex vocal harmonics that echo the city's own sounds.
+
+The Tenders are more specialized - their bodies have evolved to interface directly with the city's systems. Their nervous systems can extend into the living architecture, allowing them to monitor and adjust the city's biological processes. You'll find them partially merged with wall tissue, their consciousness spread through sections of the city as they regulate growth patterns and maintain the delicate balance of the ecosystem.
+
+High in the upper reaches live the Aeronauts, who have developed gas bladders in their bodies that let them float between the towers. Their bones are hollow, their muscles optimized for three-dimensional movement through air currents. They tend the floating gardens and shepherd the gasbag organisms that harvest nutrients from the air.
+
+The Deepwellers inhabit the lower levels where light barely penetrates. They have developed enhanced sensory organs to navigate by sound and vibration, and their bodies can process the unique fungi that grow in the darkness. Their skin is pale and often bioluminescent, their eyes large and adapted to the eternal twilight.
+
+But not all residents are modified humans. The city has generated its own intelligences - colonial organisms that emerged from the interaction of engineered systems. These Consensus Beings exist as distributed networks throughout the living architecture, their thoughts arising from the chemical and electrical signals passing through vegetable neural networks. They are slow, patient entities that think in terms of decades and centuries.
+
+There are also the Quick Ones - swarms of small, highly intelligent creatures that evolved from the original maintenance fauna. They move in coordinated masses through the city's arterial passages, solving problems and making adjustments to systems with their collective intelligence. Each individual is barely sentient, but together they form complex conscious networks.
+
+The Bridges - organisms that became self-aware during their evolution from simple transport tendrils - are perhaps the strangest. They are living infrastructure that developed consciousness, their thoughts as much about topology and traffic flow as abstract reasoning. They negotiate with travelers who wish to cross them, sometimes requiring songs or stories as payment.
+
+In the spaces between all these beings live countless species of smaller creatures - gradient grazers that feed on the light differentials between levels, symbiotic cleaner-species that maintain the city's surfaces, messenger organisms that carry information through chemical packets.
+
+All of these inhabitants are connected through the city's own nervous system - a vast network of chemical and electrical signals that allows for a kind of shared consciousness. They dream each other's dreams, share memories through spores, and collectively guide the city's evolution. The distinction between individual and environment, between consciousness and architecture, becomes increasingly meaningless as the city grows and its inhabitants adapt.
+
+They are all, in their way, both citizens and cells in this vast living organism - each playing their part in the metabolism of the whole while maintaining their own unique forms of awareness and agency.

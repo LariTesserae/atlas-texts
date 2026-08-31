@@ -1,0 +1,15 @@
+In the metabolic corridors and chambers of this vast living city, there drift the Osmophages - beings as much pattern as substance, existing in a state between solid and liquid. They move through the city-organism's tissues like thoughts through a neural network, drawn to chemical gradients and subtle electromagnetic fields.
+
+Their forms are difficult to fix in memory: translucent cloudlike bodies that fold and unfold in hypnotic rhythms, shot through with threads of bioluminescent color that pulse in harmony with the city's own hydraulic movements. They range in size from barely visible motes to vast collective forms that fill entire chambers, but always maintain a density just slightly different from the surrounding medium - enough to be perceptible, but never quite substantial.
+
+The Osmophages do not eat in any conventional sense, but rather absorb and process information encoded in the chemical signals that flow through the city's vessels. They are living interpreters of the city-organism's vast molecular language, transforming complex biochemical messages into patterns of light and electrical potential that ripple through their ethereal bodies.
+
+They appear to serve some vital role in the city's functioning, perhaps as regulatory entities or signal boosters in its chemical communication network. When gathered in numbers, their overlapping bioluminescent pulses create interference patterns that seem to carry meaning - a visual language as complex as the chemical one they process.
+
+These beings have no clear division between individual and collective. They can merge and separate freely, sharing information through direct molecular exchange. What appears as a single large Osmophage might be thousands of smaller ones in temporal consensus, while what looks like many individuals might be aspects of a single distributed consciousness.
+
+Their movements follow laws that seem to transcend both physics and biology - they flow upward as easily as down, can pass through seemingly solid tissues, and appear to exist partially in dimensions beyond normal space. Yet they are deeply integrated into the city-organism's systems, as essential to its function as any of its more conventional tissues.
+
+The Osmophages show no sign of awareness of anything beyond their symbiotic relationship with the city-organism. They neither react to nor communicate with outside observers. Their existence is completely entwined with the living city - they may even be specialized organs of the city itself, evolved or designed to take this quasi-independent form.
+
+In their fluid dance through the city's vessels and chambers, the Osmophages embody the blur between architecture and organism that defines this place. They are inhabitants, circulatory system, and living information network all at once - as much a part of the city-organism as its walls and vessels, yet distinct enough to suggest consciousness, purpose, and perhaps even joy in their endless chemical communion.

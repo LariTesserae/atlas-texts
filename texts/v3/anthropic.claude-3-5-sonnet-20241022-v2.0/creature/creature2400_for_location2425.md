@@ -1,0 +1,17 @@
+Deep in these luminous halls dwell the Lattice Weavers - beings that exist as much as patterns of light and geometry as physical entities. Their bodies are crystalline frameworks filled with threads of living energy, each one a unique arrangement of translucent planes and angles that catch and redirect the ambient glow of their habitat.
+
+The Weavers range from hand-sized to roughly human scale. They move by redistributing their mass through their geometric structure, flowing from one crystalline configuration to another in a mesmerizing dance. Their movements produce subtle chiming sounds as their facets briefly touch, adding to the cave system's slow music.
+
+They are highly social creatures, gathering in "choruses" around the ancient nodes. During these gatherings, they synchronize their internal luminescence in complex patterns that seem part communication, part artistic expression, and part communion with the vast crystal structures. The younger ones pulse with quick, bright rhythms, while the elders maintain deeper, slower frequencies that resonate with the very bedrock.
+
+The Weavers tend the crystal forest with deliberate care. They carefully trim dying sections and guide new growth using their ability to manipulate geometric patterns through some combination of touch and light. They're particularly attentive to maintaining paths through the dense crystal canopy - not for themselves (they move easily through any gap), but seemingly out of respect for some memory of larger beings that once walked upright.
+
+Their intelligence is alien but undeniable. They solve problems by reconfiguring themselves into new patterns, literally thinking through different shapes. They appear to have a deep understanding of crystal growth and geological processes, though they work at a pace that makes their intentions hard to discern. They may spend decades cultivating a single crystal formation.
+
+The artifacts scattered through their realm suggest they either descended from or coexisted with the ancient toolmakers. Perhaps they were once more solid beings who gradually adapted to merge with their crystalline environment. Or perhaps they represent an entirely different evolutionary approach, one that achieved consciousness through geometric complexity rather than biochemistry.
+
+The Weavers reproduce by carefully growing new geometric frameworks and seeding them with sparks of their inner light. These "children" start small and simple, gradually developing more complex patterns as they absorb knowledge from the harmonic vibrations of their elders and the ancient nodes.
+
+They seem to serve as both gardeners and archivists of their realm, maintaining the crystal forest while preserving something of its history in their intricate light-patterns. When geological activity threatens part of their habitat, they work together to reinforce crystal structures or guide new growth in more stable directions, showing a patience born of thinking in geological time.
+
+Most haunting are their occasional moments of complete stillness, when an entire chorus will stop moving and dimm their inner light until they're barely visible. In these moments they seem to become pure geometry, as if temporarily stepping halfway into some parallel mathematical dimension that interpenetrates our own.

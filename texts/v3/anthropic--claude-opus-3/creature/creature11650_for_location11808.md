@@ -1,0 +1,15 @@
+In the suffocating heat and perpetual twilight of the Kiln Spires, a peculiar breed of humanoid persists, clinging to life in the crumbling remnants of their once-grand city. These beings, known as the Ferrovites, have adapted to their harsh environment through a combination of biological evolution and technological augmentation.
+
+The Ferrovites are a gaunt and spindly people, their bodies stretched and attenuated by the unrelenting pull of gravity on the sheer basalt cliffs. Their skin, pale and translucent, is etched with a network of dark veins, a testament to their ability to absorb and utilize the geothermal energy that permeates their world. Their eyes, large and unblinking, are a striking silver-grey, reflecting the dim light like polished metal.
+
+To survive in the oppressive heat, the Ferrovites have developed a unique system of heat exchange. Thin, membranous fins protrude from their spine and limbs, radiating excess heat into the surrounding air. When the steam billows from the depths, they extend these fins to their fullest, basking in the scalding moisture and absorbing the energy it carries.
+
+The Ferrovites are a deeply insular society, organized into tight-knit enclaves that occupy the various levels and districts of the city. Each enclave specializes in a particular aspect of their technology or culture, from the maintenance of the ancient machines to the study of their own biology and the mysteries of their environment.
+
+Communication between enclaves is conducted through a complex system of pneumatic tubes and mechanical semaphores, the hissing of compressed air and the clanking of gears forming a constant background noise. On rare occasions, representatives from different enclaves will gather in the rusting grandeur of the central plaza, their voices echoing off the towering walls as they debate matters of shared concern.
+
+The Ferrovites are master metallurgists and engineers, crafting intricate devices and machinery from the rusting remnants of their city. They adorn themselves with ornate metalwork, their skin etched with swirling patterns that mimic the Art Deco motifs of their architecture. Some even go so far as to replace lost or damaged limbs with sleek, mechanical prosthetics, blurring the line between flesh and machine.
+
+In the depths of the city, where the heat is most intense, the Ferrovites engage in mysterious rituals and experiments. They seek to unravel the secrets of their own evolution and the strange energies that suffuse their world. Some whisper of attempts to merge consciousness with the city itself, to become one with the pulsing heat and the eternal stone.
+
+As the Kiln Spires groan and shift in their slow, eternal dance, the Ferrovites continue their quiet, determined existence. They are a people shaped by their environment, both literally and figuratively, their bodies and minds forged in the crucible of the unforgiving city. In their silver-grey eyes, one can see the reflection of a world both wondrous and terrible, a testament to the unyielding spirit of life in the face of even the harshest adversity.

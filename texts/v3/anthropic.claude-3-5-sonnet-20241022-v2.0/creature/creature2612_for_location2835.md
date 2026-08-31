@@ -1,0 +1,13 @@
+Here lives the Tending Witch, though "witch" may not be quite the right word. They are long-limbed and impossibly thin, able to fold themselves through spaces that should be too narrow for passage. Their skin has grown pale and slightly translucent like the cave amphibians they share space with, showing shadows of organs and a tracery of dark vessels beneath.
+
+They wear layers of scavenged materials - moisture-wicking maintenance coveralls gone soft with age, lengths of insulation wrapped like shawls, strands of copper wire woven through their hair which has grown pale as mycelium. Their tools are hybrid things: industrial implements half-consumed by cultivated fungi, pressure gauges sprouting delicate sensory hyphae, manual valves wrapped in living biofilms that respond to touch.
+
+The Tending Witch has been here so long they've become part of the ecosystem's balance. They harvest fungi with careful precision, encouraging growth in some areas while pruning it back where it threatens crucial systems. They know each colony of amphibians, each processional of luminous millipedes. Their movements are slow and deliberate, synchronized with the breathing rhythm of the machinery.
+
+Their voice, when they use it, harmonizes with the subsonic thrum of the engines. But they prefer to communicate through small gestures - the adjustment of a valve, the strategic placement of moisture-gathering mesh, the cultivation of particular fungi in specific places. They speak the language of systems and cycles, of pressure and flow.
+
+They remember being something else once, someone who walked in daylight and moved through wider spaces. But they've grown into this role gradually, becoming more suited to these narrow ways with each passing season. Their body has adapted - joints more flexible, bones slightly less solid, eyes larger and more light-sensitive. They are neither fully human nor fully part of the machine-ecosystem, but something that mediates between these worlds.
+
+The Tending Witch makes their home in a slightly wider section of shaft, in a space that might once have been an access junction. They've lined it with bioluminescent fungi that provide a gentle, constant light. Their few possessions are stored in natural niches between pipes - worn manuals, collection jars, tools both standard and modified. They sleep in short cycles, attuned to the rhythms of maintenance and growth.
+
+They are both caretaker and catalyst, their presence helping to maintain the delicate balance between mechanical and organic systems. Through their careful tending, this improbable ecosystem continues to evolve and adapt, finding new ways to exist in the margins of the manufactured world.

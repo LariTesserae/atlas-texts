@@ -1,0 +1,27 @@
+The three-story dwellings of corrugated steel and red brick are not empty. 
+
+Inside these stacked boxes, there are no beds, no tables, and no kitchens. Instead, the small, low-ceilinged rooms are filled with shelves of heavy zinc trays, stone jars of tallow, and coils of soft lead wire. On the narrow, chain-suspended balconies, there sit the tenants of the rift—heavy, jointed figures that possess the mass of small steam boilers and the slow, deliberate carriage of deep-sea divers. 
+
+These are the Solder-Seamed. They are not animal; they have no teeth, no lungs, and no blood. They are things of iron, graphite, and vulcanized rubber, born from the very materials of the canyon and held together by the pressure of its constant, baking breath.
+
+A typical inhabitant is broad-shouldered and squat, built to endure the crushing gravity of the deep earth. Its torso is a cylinder of riveted sheet-iron, dark with a permanent film of grease that smells of boiled lard and paraffin. It has no head in the biological sense; where a neck should meet the shoulders, there sits a flat, circular brass plate, perforated like the drain of a bath-house. Through these tiny holes, the creature’s warm, internal exhaust escapes in thin, rhythmic puffs, sighing into the damp air of the gorge.
+
+Behind this brass grille, deep within the iron chest, a small, weighted governor spins. It is the rhythmic, mechanical heartbeat of the creature, a steady *whir-click, whir-click* that regulates its flow of pressure. When the creature is still, the governor spins slow and wide; when it is active, the brass weights pull inward, spinning in a blur of warm grease.
+
+Its limbs are assemblies of telescoping copper tubes, wrapped tightly in oil-soaked canvas to keep the hot steam within. Its hands are three-pronged tongs, heavy and blunt, which it uses with unexpected gentleness. There is no haste in these movements. Because the Solder-Seamed are powered by the expansion and contraction of their own internal steam chambers, they are subject to the temperature of the gorge. When a cool draft leaks from some unknown crevice above, their joints stiffen; they must wait on the catwalks, frozen in mid-stride like iron statues, until the warm draft from the geothermal throat returns to soften their grease and expand their copper pistons.
+
+They do not speak. They have no voices to compete with the wet *thock-thock* of the pumps or the high whistlings of the valves. Instead, they communicate through the very infrastructure of the hamlet. 
+
+When one of the Solder-Seamed wishes to signal another, it steps to one of the thick copper conduits that run along the catwalks. It presses its iron chest plate directly against the metal pipe and taps. The vibration travels through the entire network of the gorge. To another inhabitant blocks away, the message is felt as a series of rhythmic, cooling pulses in the handrail it is holding—a language of pure pressure and metal-borne resonance.
+
+In the dampest corners of the dwellings, the pale, waxy vines of the white-weed have found a modern purpose. They do not merely feed on the electrical current of the junction boxes; they are cultivated by the Solder-Seamed. The creatures draw the long, hair-thin tendrils of the vine through the joints of their fingers, using the living, waxen threads as insulated bindings to mend their own worn electrical cords. In return, the vines find a warm, vibrating home on the creatures’ limbs, slowly creeping up their brass forearms, feeding on the faint, leaking current that runs through their external wiring.
+
+The rubbery, soot-colored moss is equally vital. It is the skin-graft of this place. When an inhabitant develops a leak in its torso—when a hiss of high-pressure steam begins to escape from a rusted rivet—the creature does not use a welding torch. Instead, it scoops up a handful of the wet, rubbery moss from a nearby steam pipe and presses it hard into the leak. The heat of the escaping steam cooks the moss instantly, melting its fibers into a tough, black, vulcanized plug that seals the wound and stops the hiss.
+
+The Solder-Seamed do not die, nor do they reproduce as the living do. They are subject only to the slow, relentless wear of friction and oxidation. When an inhabitant’s joint becomes too pitted with rust to move, or when its internal governor finally loses its balance and shears from its spindle, it does not decompose. It simply stops on the catwalk, its pilot light dying down to a cold cinder.
+
+Its neighbors do not mourn. With slow, cooperative movements, they carry the silent iron shell down to the lowest level of the gorge, beneath the floorboards, where the hot oil collects in the rock basins. There, in the humid, sulfurous dark, they dismantle the old body. The copper pipes are salvaged; the brass bolts are cleaned in hot oil; the iron plates are laid out in the sizzling water to be pounded straight on basalt anvils.
+
+And there, in the lime-crusted cradle of the rift, they begin to assemble the next one. They lay down the new copper nerves, pack the joints with fresh moss and grease, and connect the main steam line to the infant chest. 
+
+When the valve is opened and the first breath of geothermal heat rushes into the cold iron lungs, the new inhabitant shivers. Its governor begins to spin—*whir-click, whir-click*—and it rises, stepping out onto the wet, vibrating catwalks to join the endless, silent work of the engine.

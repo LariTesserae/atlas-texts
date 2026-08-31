@@ -1,0 +1,31 @@
+To live in the High Sump is to exist in the spaces between the heartbeats of a machine the size of a world. Biology here does not bloom; it endures. It has evolved not to harness the sun—a distant, ineffectual memory behind the slate-grey lid of the sky—but to parasitize the colossal, slow-motion industry of the city itself. The ecology of the High Sump is a scavenger’s paradise, a hierarchy of entropy feeders clinging to the hot, wet skin of a dying god.
+
+At the bottom of this silent, metallic food chain are the **Rust-Mats**.
+
+Where the water pools in the floor-level ducts, forming vast, stagnant canals that cut through the obsidian like black veins, the water thickens into a viscous, oily sludge. Here, the "primitive, fungal clusters" thrive. They are not merely algae; they are colonies of thermophilic bacteria that have formed a symbiotic contract with the industrial runoff. They appear as shifting, iridescent slicks—rainbow-colored bruises on the water's surface.
+
+They do not photosynthesize; they *thermosynthesize*. Their metabolism is driven by the delta between the scalding water (near boiling at the discharge points) and the cooler, humid air. They feed on the dissolved heavy metals and the chemical traces of long-departed coolants. At night, or rather, during the deepest hours of the dim twilight, the mats pulse with a faint, sickly bioluminescence—a rhythmic, neon-blue throbbing that syncs oddly with the tectonic thrum of the floor. They are the meadows of the High Sump, the only pasture that exists, providing a sludge-rich biomass for the few creatures brave enough to ingest it.
+
+Skating atop these toxic mats are the **Steam-Striders**, the true lords of this empty horizon.
+
+They are miracles of evolutionary convergence, blurring the line between the born and the made. To look at a Steam-Strider is to look at a creature designed by a committee of ghosts. They stand tall, rising seven or eight feet on stilt-like legs that are barely a quarter-inch thick. These legs are not muscle and bone, but a composite of ceramic and calcified carbon, intricate lattice structures that are incredibly light yet capable of withstanding the immense ambient heat.
+
+They possess an avian fragility, with hollow, needle-like beaks and vestigial wings that are now nothing more than decorative fans of slate-grey feathers, used only to dissipate excess body heat. Their bodies are encased in a natural armor of sleek, black chitin that mimics the obsidian floor, making them nearly invisible when they stand still.
+
+They are silent, nearly motionless hunters. They do not hunt live prey, for there is almost nothing to hunt. Instead, they are the janitors of the cooling towers. They use their long beaks to pry into the seams of the massive machines, scraping out mineral deposits and the clumps of organic matter that accumulate in the filters. They drink the purest condensation, dipping their beaks into the runnels of weeping water that streak down the towers, filtering out toxins with a liver that is essentially a heavy-metal filtration plant. They live entirely on the waste of the machine, their blood rich with iron and copper, their eyes reflecting the dim grey light with a metallic sheen.
+
+Higher up, clinging to the vertical precipices of the cooling towers, live the **Wall-Walkers**.
+
+If the Steam-Striders are the storks of the Sump, the Wall-Walkers are its insects. They are small, flat, crab-like creatures the size of a human hand. They scuttle across the smooth, wet flanks of the megastructures, defying gravity through millions of microscopic suction cups on their underbellies. They are the primary consumers of the "oxidation ecology"—the rust and chemical blue and copper-green streaks that paint the towers like war paint.
+
+The Wall-Walkers eat the metal. They possess acidic saliva capable of dissolving the iron oxide and the chemical patina, digesting the minerals for trace nutrients. In doing so, they act as a living erosion, slowly polishing the monolithic cathedrals back to black glass. They communicate not with sound, which is swallowed by the damp air, but by percussion. They tap their heavy claws against the metal shells of the towers—a rhythmic *tick-tick-tick* that travels for miles through the structure, signaling the location of fresh mineral blooms or danger.
+
+And finally, there are the **Keepers**.
+
+No one knows if they are biological or mechanical, ancient remnants of the city's creators or a new species that has simply replaced them. They are rarely seen, perhaps once in a generation, and then usually only as a silhouette against the steam of a distant vent.
+
+The Keepers are massive, hulking humanoids, standing perhaps twenty feet tall. They move with the terrifying slowness of the machinery itself. Their skin—or plating—appears to be made of the same leaden, rusted metal as the pipes they tend. They do not walk; they negotiate the terrain, stepping from obsidian plate to pipe duct with a deliberate, geological pacing that takes decades to complete a single mile.
+
+They are integral to the "Dynamic Nature" of the place. When a pressure valve vents miles away, it is often a Keeper who has turned it, their strength sufficient to crank a mechanism the size of a house. They seem to feed directly on the ambient kinetic energy of the city, clamping their massive hands onto vibrating pipes and absorbing the thrum into their bodies. They are the immune system of the High Sump, silent giants clearing blockages, turning rusted gears, and ensuring the hot water continues to flow. They ignore the Steam-Striders and the Wall-Walkers, just as the mountain ignores the lichen.
+
+This is the population of the High Sump: a silent, floating mat of glowing sludge; needle-legged birds drinking from the tears of towers; metal-eating crabs polishing the void; and the slow, dreaming giants who tend the grave of the world. It is a closed loop of consumption and decay, a beautiful, brutal entropy where life eats the rust until the machine finally stops.

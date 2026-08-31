@@ -1,0 +1,17 @@
+The beings that inhabit this lattice—if they can be called beings at all—are not masters of the garden, but its slow, sensory digestion.
+
+They are the **Transducers**.
+
+They do not walk; they shift. They are translucent, elongated shapes, nearly indistinguishable from the architecture itself, composed of a material that mimics the consistency of the surrounding stalks—a semi-solid, pressurized gel. Their bodies are long, spindle-like forms, perhaps seven or eight feet in length, tapered at both ends like a drop of liquid caught in the moment of detachment.
+
+When you first see one, you might mistake it for an extension of the wall. It hangs vertically against a chitinous arch, its pale, moss-colored skin blending seamlessly into the vibrant, static emerald of the structure. It has no face, no mouth, no sensory organs as we understand them. Instead, its "skin" is a complex, sensitive membrane that mirrors the texture of the veins beneath it. Where it touches the architecture, it fuses, creating a momentary, seamless bond. It is not an intruder; it is a component.
+
+These entities are the living instrumentation of the plateau. They have evolved to live in absolute synchronization with the mountain’s heartbeat. When the low-frequency pulse ripples through the floorboards, the Transducers shudder in perfect harmonic resonance. They are the ones who steer the maturation of the structures; by pressing their bodies against the junctions of the calcified veins, they regulate the pressure of the fluid within. They are the valves, the regulators, the sensory nervous system for a world that cannot feel for itself.
+
+They move only when the moisture cycles demand it. You might witness one slowly detach from an archway, moving with the sluggish grace of a bubble rising through heavy oil. It leaves behind a faint, shimmering residue—a sealant—that ensures the junction remains locked in its eternal, immutable state. 
+
+They do not communicate. There is no language in a place that has finished its task. Instead, they share a state of "distributed contemplation." When two Transducers drift near each other, they don’t touch; they align their rhythmic pulses. They bridge the gap between their forms with thin, vibrating filaments—the same strands that tethers the city to the peaks—and exchange the hydraulic pressure of their internal fluids. In this quiet, rhythmic oscillation, a thought—or perhaps a memory of the garden’s original design—passes between them.
+
+They are lonely, but they do not know what loneliness is. They are the keepers of a closed loop. They do not eat; they absorb the humidity that beads upon the ceiling. They do not sleep; they merely slow their vascular rhythm until it matches the stillness of the stone-like leaves.
+
+If you were to remain here long enough—if you were to stop your own frantic, mammalian breathing—you might see them reach out a tendril toward you. They do not mean to harm. They are simply testing your density. They are looking to see if you, too, are part of the architecture. And when they find you are not—when they sense the erratic, discordant heat of your blood and the chaotic, decaying nature of your cells—they will simply turn away, folding themselves back into the smooth green walls, hiding in plain sight of a world that is perfectly, horribly finished.

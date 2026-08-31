@@ -1,0 +1,21 @@
+# The Dwellers of the Gathering Pool
+
+The Keepers of the Waters are not one being but many—a collective consciousness spread across thousands of tiny bodies that both inhabit and continuously reshape this sacred space. They have no name for themselves that human tongues could pronounce; their identity exists in the chemical signals they exchange through the interconnected pools and in the vibrations they send through stone.
+
+Most visible are the Singers—the thumb-sized amphibians whose shifting colors reflect their role in the community. The deepest blues serve as memory-keepers, their neural structures storing patterns of rainfall from centuries past. The crimson-flecked ones predict changes in water quality, their skin darkening hours before distant contaminants might reach the underground streams that feed this place. The pale translucent ones, with their internal lights, are the newest generation, still developing their specialized functions.
+
+The many-legged salamanders are the Shapers, the architects who gradually alter the channels and basins according to knowledge passed down through uncountable generations. Their extra limbs have evolved specifically to manipulate stone and sediment with microscopic precision. What seems random to human eyes follows a mathematical pattern calibrated to the seasonal flow of groundwater and the celestial movements that affect it.
+
+The segmented crab-like creatures are the Recalibrators who emerge only when the system requires significant adjustment. Their appearance signals a rare celestial alignment that occurs once every seventy years, necessitating changes to accommodate the subtly different mineral composition that will soon flow into the gathering space.
+
+The eel-forms that swim through air are the Messengers, carrying chemical information between this gathering pool and others scattered throughout the region—some as far as twenty miles distant. Their strange ability to navigate above ground developed over millennia, allowing the separated communities to function as one distributed organism.
+
+But the true heart of this place dwells in the central pool, visible only as a faint shimmer beneath the water's surface. This is the Elder—a colonial organism that has existed continuously for over twelve thousand years. Physically, it resembles a lattice of translucent tissue spread across the pool floor, but its nature transcends its physical form. The Elder processes the collective sensory input from all the pool's inhabitants, integrating their experiences into a unified awareness that extends across time in ways human consciousness cannot grasp.
+
+The clay figures in the wall niches were indeed shaped by human hands—evidence of an ancient covenant. Centuries ago, a small human settlement nearby suffered through years of devastating drought. Their shaman discovered this place and recognized its inhabitants not as mere animals but as beings with knowledge of water's hidden pathways. An exchange was negotiated: the humans would protect this sacred space and contribute to its expansion, and in return, the Keepers would guide them to sustainable water sources.
+
+The humans eventually migrated away, but their descendants return every generation to renew the covenant, adding new figures and carefully expanding the stone perimeter. They no longer remember the origin of this ritual—only that it must be maintained.
+
+The Keepers themselves are neither fully natural nor supernatural. They evolved from ordinary amphibians over millions of years in this unique ecosystem where mineral-rich waters from different underground sources converge. Their consciousness—distributed across thousands of specialized bodies—developed to manage the complex ecological relationships that sustain their community. What appears as ritual to human observers is actually a sophisticated system for monitoring, filtering, and directing the flow of groundwater across a vast watershed.
+
+They perceive human visitors with curious detachment. To them, humans are temporary disturbances in the water-flow patterns—interesting but ultimately irrelevant to the greater cycles they observe and maintain. The Keepers operate on a timescale where decades pass like moments, their collective consciousness gradually reshaping stone and channel as continents drift and mountains slowly rise.

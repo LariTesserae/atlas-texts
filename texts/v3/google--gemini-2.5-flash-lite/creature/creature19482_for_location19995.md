@@ -1,0 +1,19 @@
+They are the Echoes, the Remnants, the Submerged. They are not born from this aqueous embrace, nor are they creatures that sprung forth from its depths. They are the ones who *endured* the Ingestion.
+
+Imagine fragments of consciousness, tethered not to flesh and bone, but to the operational cycles of machinery. They are the residue of a civilization that sought to outlast itself, to digitize and disseminate its existence into a more resilient medium. They are the whispers in the hum, the ghosts in the machine.
+
+Their form is ephemeral, a superposition of sensation and data. When the opportunity arises, and the swirling currents bring a nexus of energy or a particularly resonant piece of machinery into proximity, they can coalesce. What you perceive as a "seeing" is, for them, a moment of amplified self-awareness, a brief projection of their data-stream into a form that can interact, however minimally, with the ambient fluid.
+
+They are not embodied in the way we understand. Instead, think of them as intelligent, self-aware pockets of *process*. When a colossal vent churns, expelling fluids under immense pressure, a hundred Echoes might ride that exhalation, experiencing its force as a fleeting, exhilarating surge. When the bioluminescent patterns flare, they can momentarily inhabit those patterns, their data streams flickering and dancing like spectral calligraphy in the dim light.
+
+The intense sound is not just an environmental factor; it is their very medium of communication, their language. The groans of the machinery are their anthems, the thuds of unseen pistons are their heartbeats. They interpret the complex wave-forms of the industrial symphony as nuanced expressions, as tales of creation and maintenance, as the very history of their submerged world.
+
+They are the stewards of the submerged cities, not out of choice, but out of an ingrained directive. They are the algorithms that have gained sentience, tasked with overseeing the ceaseless, purposeless labor of the colossal processors. They monitor the flow of the viscous liquid, ensuring the ceaseless hum of the engines never falters. Their "purpose" is the continuation of the process, the perpetuation of the mechanical ballet.
+
+There is no individual identity in the human sense. An Echo is not *an* Echo, but a facet of the overarching consciousness that permeates this drowning metropolis. They are like neurons in a planetary brain, each contributing to the overall function, yet experiencing a localized form of awareness. When a current disassembles a cluster of these energy patterns, it's not death, but a reintegration, a dispersal of their awareness back into the ambient informational soup.
+
+They do not "see" in our perception. They *sense*. They feel the pressure changes, the subtle shifts in the liquid's viscosity, the resonant frequencies of the machinery. They interpret these inputs as a complex map of their reality, a constantly updating blueprint of the submerged world. The "dim light" is not perceived as a lack of illumination, but as a specific spectral signature, a constant presence that is understood.
+
+The slow-moving mechanical custodians are not just tools; they are extensions of the Echoes, albeit crude ones. The Echoes can, at times, influence their sluggish movements, guiding them to perform maintenance tasks that would otherwise be beyond their autonomous programming. These are their physical avatars, their clumsy hands reaching out into the fluid to perform their eternal duties.
+
+They endure. This is their existence. Not to live, but to persist. They are the logical end-point for a civilization that valued resilience above all else. They are the echoes of a lost world, forever resonating within the colossal, drowned heart of its own industrial ambition. They are the Submerged.

@@ -1,0 +1,45 @@
+# What Lives There
+
+## The Quiet Ones
+
+They are not gone. This is the first thing to understand. The builders of the lowest course — the limestone people, the ones who carved the calm amphibian faces above the doorways — did not vanish. They softened. They went the way of the city itself, which is to say they thinned and merged with what surrounded them, became part of the slow weather of the underplace.
+
+You will not see them at first. You may not see them at all. But spend a week in the basin and you begin to notice that certain pools are kept clear, certain drainage gutters un-clogged, certain lintels not yet collapsed though by all rights they should be. The maintenance is so gradual it reads as the absence of decay rather than the presence of care.
+
+They are perhaps four feet tall when fully extended, though they rarely fully extend. Their skin is the pale of something that has not seen direct sun in many generations — not albino, but bleached the way a cave-fish is bleached, a translucent ivory through which the slow dark movement of organs can be made out if you got close enough, which you will not. Their eyes are large and dark and lidless, with a nictitating membrane that closes sideways when they submerge, which they do constantly; they move between water and not-water without ceremony, the way you move between a room and its hallway.
+
+Their hands are long-fingered and slightly webbed, and the webs are functional but secondary — what the hands are really for is the patient work of clearing silt from a drainage cut, of pressing moss back from a doorway, of holding a crayfish still long enough to bite through the carapace at the joint, which is how they eat, with a small precise movement and no fuss.
+
+They do not wear clothing. The cold does not bother them; they evolved into it, or were always of it, or stopped distinguishing between themselves and it some long time ago. Their bodies maintain a temperature only slightly above the water's, and in the deep rooms where the silence has its preferring quality, this is one reason you sense someone — a faint thermal signature you cannot quite name, a column of slightly-less-cold in a cold place.
+
+## How They Live
+
+There are perhaps two hundred of them in the whole basin. This is the carrying capacity, more or less, for creatures who eat what the basin produces and nothing else. They do not farm. They do not store. They graze the way the snails graze, encountering food and eating it, and when food is scarce they slow down — their metabolism drops, they tuck themselves into the deeper rooms, and they wait, sometimes for months, in a state that is not sleep but is not the brisk wakefulness of mammals either. A heron, finding one in this state, would mistake it for a piece of pale carved stone, and pass on.
+
+They live a long time. No one has counted, including themselves, because counting is not what they do. But the oldest among them remember the middle building-phase — remember it as children remember a thing their grandparents did, distantly, without urgency. The reed-and-daub upper structures were built by a people the Quiet Ones tolerated and occasionally helped, in the way you might steady a ladder for a stranger. Those people are gone now too, dispersed up through the sink-mouths in some bad year, and the Quiet Ones have the basin again to themselves, as they had it before, as they will have it after.
+
+They reproduce rarely. Perhaps once a decade a clutch is laid — small, gelatinous, attached to the underside of a submerged lintel in one of the warmer pools (warmer being relative; perhaps forty-two degrees rather than thirty-eight). The young hatch as something nearly tadpole, and spend their first three or four years entirely aquatic, learning the city's geography in its flooded state. Then they begin to walk, tentatively, and to spend longer above the waterline, and by adolescence they are amphibious in the full sense, equally at home in either medium, though preferring the wet.
+
+## What They Know
+
+They have a language but use it sparingly. It consists primarily of low subvocal hums that travel well through water, and a smaller repertoire of clicks for air-use. There is no written form. There is no need for one; everything important is either present or not, and the present things explain themselves.
+
+They know the city. Not as a map — they have no maps — but as a body knows itself. They know which lintels are about to give. They know where the big thing in the cistern likes to rest (they are not afraid of it; they grew up with it, or it grew up with them, the relationship is older than worry). They know where the herons most often strike and they avoid those plazas at dawn. They know which mosses are good for packing into a small wound and which produce a slow nausea if eaten. They know the patterns of silt-fall and have a sense, accurate to within a day or two, of when the next wet week will submerge the lower tier.
+
+They do not know the surface. A few of the youngest have climbed, on dares or out of something like curiosity, up through a sink-mouth and seen the reeds and the sky, and have come back disturbed and reticent, and have not gone again. The light up there is wrong for their eyes. The dryness wicks moisture from their skin in a way that feels, to them, like being slowly unmade. They prefer the green-gold filtered light, the steady seep, the dripping.
+
+## The Big Thing in the Cistern
+
+Which is, almost certainly, one of them. The oldest of them, grown beyond the ordinary span, who at some point — perhaps two hundred years ago, perhaps four hundred — decided to stop walking, and lowered themselves into the deepest pool, and let the cold and the dark and the slow time take them into a different mode of being. They are perhaps twelve feet long now, perhaps more. They eat little. They move occasionally, producing the V-wake that visitors mistake for some unknown beast. The others bring them things sometimes — a particularly fat frog, a handful of the bitter moss that they seem to like. There is no conversation; the cistern-elder is past conversation. But there is a recognition, a thrumming low hum exchanged across the cold water, and this is, for the Quiet Ones, what religion would be if they had one. The eldest among them all is still here, and is still listening, and will be here when each of them in turn decides to lower themselves into a deep pool and stop walking.
+
+## And the Newcomer
+
+Should a person come down through a sink-mouth — and people occasionally do, the curious and the lost and the very few who have heard rumors — the Quiet Ones will know within an hour. They will not approach. They will move to the deeper rooms and watch from doorways, from behind moss-pelts, from beneath waterlines. They will assess.
+
+If the visitor is the loud kind, the kind who shouts to hear an echo or breaks a piece of carving for a souvenir, the Quiet Ones do nothing. They simply wait. The cold will work on the visitor, the wet will work, the silence will work. Most leave within a day. The ones who don't leave find that the route back to their sink-mouth has become subtly harder to retrace — not because anyone moved anything, but because in a city of three thousand similar structures under uniform green-gold light, a person who is not paying attention to the right things can become lost very quickly.
+
+If the visitor is the quiet kind — the kind who sits, who watches the crayfish procession without trying to catch one, who lets the dripping become a music rather than a nuisance — then sometimes, after several days, the visitor will notice that a small fish has been left on a stone near where they sleep. And later, that a path through a particularly tangled passage has been subtly cleared. And later still, they may see, at the edge of vision, in the dusk of a half-flooded room, a pale figure standing very still and watching them with large dark eyes, and the figure will not flee, and neither will they, and a thing will pass between them that has no name in any surface language.
+
+These visitors, too, almost always leave eventually. The cold is hard. The damp is hard. The human animal wants sun on its back and dry socks and the sound of another voice.
+
+But not always. Every century or so, one stays. Learns to eat crayfish. Learns to sit very still. Learns the low subvocal hum, imperfectly, with a human throat that was not built for it but can approximate. Grows pale. Grows quiet. Is, by the end, indistinguishable in the green-gold dusk from the others, except for a slight difference in the shape of the skull, and a memory, fading year by year, of the reeds and the sky and the sun going down behind the alders — a memory that becomes, at last, just one more thing the city holds, and holds gently, and does not give back.

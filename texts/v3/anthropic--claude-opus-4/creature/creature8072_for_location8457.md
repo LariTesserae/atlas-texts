@@ -1,0 +1,29 @@
+In the Shard Shelf, they are called the Tensile Folk.
+
+Their bodies have lengthened over generations, drawn out like wire. The permanent residents stand seven, eight, sometimes nine feet tall, but impossibly thin—their bones hollow like birds', their muscles reorganized into cable-strong bands that run the length of their limbs. Their fingers and toes have multiplied and grown prehensile, each digit capable of supporting their full weight. When they move through their vertical city, they flow—reaching, grasping, swinging, never quite walking. Their spines flex in ways that would snap an ordinary human in half.
+
+The eldest among them have begun to fray at the edges. Their skin develops a fibrous quality, especially at the joints, as if they're slowly becoming rope. Some say this is evolution. Others whisper it's the city claiming them, transforming them into living infrastructure.
+
+They dress in layers of industrial fabric that never quite settles—coats and scarves and wrapped bindings that constantly adjust to the wind, to the gravity fluctuations, to the sudden spatial folds. The fabric is alive with symbiotic machinery: tiny brass beetles that repair tears, thread-worms that reinforce stress points, microscopic turbines that generate warmth from the constant gale. Their clothes tell stories—patches and repairs marking where they've been, what dimensions they've accidentally stepped through, which reality hiccups they've survived.
+
+The Tensile Folk organize themselves by altitude and profession, but these categories blur and blend like everything else here. There are:
+
+**The Pipe Shepherds**: They tend the vast networks of tubing that define the city, following their flocks of ambulatory copper conduits as they migrate between districts, seeking new connections. The shepherds' eyes have adapted to see flow—not just water or oil, but information, heat, probability. They wear crowns of valve-handles and speak in pressure differentials.
+
+**The Span Weavers**: Masters of the bridge networks, they string new connections across the void, some physical, others more conceptual. A master weaver can build a bridge out of synchronized heartbeats, or braid shadows into a walkway that only exists at noon. Their apartments hang from their own bridges, swaying in the wind, never quite in the same place twice.
+
+**The Vertical Farmers**: In the meat gardens and copper fern groves, they coax sustenance from the impossible. They've developed additional organs—external stomachs that can digest petroleum products, auxiliary lungs that filter nutrition from the steam. Their children are born with built-in symbionts, internal ecosystems that can survive on rust and condensation alone.
+
+**The Time Mechanics**: These half-mad engineers maintain the gravity engines and reality anchors that keep the city from folding completely into itself. They age backwards during their shifts, speak in future tense about the past, and leave notes for themselves in places they haven't been yet. Their workshops exist in several moments simultaneously.
+
+**The Remnants**: In the deepest crevices, where humanity has become optional, these beings tend their fungal cathedrals. They've incorporated the living architecture so thoroughly that it's impossible to tell where they end and their gardens begin. They communicate through spore releases, dream collective dreams, and sometimes bud off pieces of themselves that become new districts overnight.
+
+The children of the Shard Shelf are born with translucent skin, through which their reorganized organs can be seen working. They learn to climb before they can properly speak, and their first words are often warnings—"shift coming," "bridge fading," "fold ahead." They play games that would terrify flatlanders: racing through dimensional stutters, seeing who can stretch their body the furthest between handholds, collecting temporal echoes of themselves.
+
+But perhaps most distinctive are the Couriers—those who've adapted to navigate the city's broken physics professionally. Their bodies have become probability clouds, only mostly solid, allowing them to slip through the space-folds without losing themselves entirely. They deliver messages, packages, and sometimes passengers through routes that don't technically exist. The best couriers are only about seventy percent present at any given time, the rest of them spread across potential paths. They wear bells to announce their partial arrival.
+
+All of the Tensile Folk share certain traits: voices that carry harmonics from the city's constant moan, eyes that can focus at impossible angles, hearts that beat in time with the deep wrongness that thrums beneath everything. They've evolved past baseline humanity not through genetics alone but through pure stubborn inhabitation, becoming the only possible people for this impossible place.
+
+When outsiders arrive—if they can find the place, if they can survive the journey—they're shocked not by how alien the Tensile Folk have become, but by how human they remain. They still laugh, still love, still mourn their dead by dropping flowers into the endless vertical drops. They paint murals on the ancient stone, sing work songs that incorporate the wind's howl, tell stories about when the mountains were young.
+
+They are a people of the edge, the vertical, the between. They've made a home in the margin of error, raised their children in the space between what was and what should be. And as their city builds itself ever higher while sinking ever deeper, they stretch and adapt and flow, becoming evermore themselves—the only people who could ever truly live where the world wears thin.

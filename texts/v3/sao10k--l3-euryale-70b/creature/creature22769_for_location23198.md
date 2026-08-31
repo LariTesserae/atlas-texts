@@ -1,0 +1,21 @@
+This is a place of minerals and machinery, of crystals and plasma. Despite the apparent sterility, it teems with an alien life - life born of metals and silicates rather than carbon.
+
+Fungal parasites the size of elephants nest in the crystalline spires, their phosphorescent caps pulsing slowly. These are the source of the glowing spores that rain cyclically. The bodies of the fungi are composed of intertwined fibers of metals and ceramics, natural-grown circuitboards through which crackles a lifeblood of molten caustic compounds. Where they burst their shells on the surface, they act as a nucleus, grains of metal and silicates gathering to them and crystallizing into strange new formations. They trasmutate the stone, leaving veins and nests artificial ore in their wake.
+
+Smaller versions are ubiquitous, fungal caps the size of shields or coins wedged between every gap and crack. Even individual grains roll and attach, sprouting fibers and filaments like a lichen loading every surface with slowly accreting layers of their matter. Only in the barren salt flats are they absent. 
+
+Among the ruins move things like twisted pieces of the machines, their original shapes buried under coral-like growths of crystalline lichen. These are the remnants of vehicles and devices and computers that once traversed this world, hollowed out by the mineral parasites. The metal of their hulls and casings have become reinforcements of the organic structure, while the fungal flesh spreads in fibers and circuitboards folded into the mechanisms.
+
+When enough crumbs of components gather, these creatures recombine their parts. Metal legs and arms extend from the fungal cap, their joints and surfaces slick with the flowing silicate secretions. Sparks crackle from the stump of a sensor array or a plasma cannon. They hunt like slow starved predators from their caverns and ruins, skittering among the prowesses of civilization in search of more organic matter to convert.
+
+Between them roam packs of things like dietritus, like compacted rags of scrap with lights and filaments poking out. Each is a frozen snapshot of a moment of introspection, a working reduced to its barest essentials. They hunt the fungal caped machines even as they are hunted.
+
+Occasionally a much larger fungal cap will slowly fold itself up and slough away the surrounding rock. It will unfold a latticework of tree-like of arms and legs from its great caps to form one of the swaying crystalline formations. The tip splits in a circlet of plague-scarred yurts and unfolding arms ending in forest of molecular jewels or blistered emitters. Each is a transformsing in symbols and lights and molten flows of light to the void.
+
+The skeletal ruins of organic life are everywhere. Gluttonous-eyed scavengers with eyestalks on chemical-laden limbs haunt the happast lies of ancient petrified bones, skittering above or handing upside down in the hollow of a skull. Packs of tiny crystalline pentapedal creatures with simple dynamos for brains rummage through skeletons for uncrystalized scraps.  
+
+Only among the formations near the flickering plasma sutra the light of biotech. Here bubbles of water precipitated from thin air thirsty for ions swirl within the crystalline shells formed where the salt meets the supersaturated water seeping from melted rock. Strange greenish growths float and drift within them, plated with myriad microscopic agatine lenses filtering the feeble radiant energy.
+
+Some structures clamber into the air with peristaltic contractions, trailing optic fibers in their wake. The rim of a pool creases into limbs and upswells into a scowling macroscopic torso made of florets and borers and glittering ichorous ichor. A cyclopean eye blazes with hairline filaments, pinholing the black of the pupil and pouring it with braided sepitions of ferrofluid. 
+
+Beneath the flickering disc, molten tears of star-matter drop somersaulting luminescent between the lightning-liana to the fusion cathedrals cratering the surface. These are the temples of the planet's central mind, burrowing into the planets vitals. Here the answer to which world this is and who's this all belongs to efuses only in the flashes of starfire and acid-plasma explosions.

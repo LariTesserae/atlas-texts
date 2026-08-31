@@ -1,0 +1,9 @@
+In this vast subterranean vault, a peculiar biome thrives in the near-twilight. Towering fungal thrones, covered in thick algae and moss, support a dazzling array of shelf-mushrooms with brilliant caps several meters wide. An eerie bioluminescence casts a dim, shifting light across the cavern floors from smaller fungi and glows.
+
+Trickling rivulets of anoxic water carve through the rotting stone, collecting in bubbling caves. The water churns with breathless microorganisms and fungi adapted to life without oxygen. These strange anaerobes have found a way to survive where no other life could flourish.
+
+The very walls shiver and pulse, coated in a slurry of fungal hyphae fermenting the rock. Whip-like mycelium fork through the mineral substrate, conjuring new living spaces. In places, the rot has progressed to liquid - moldy walls have melted down into fungal reek and sludge.
+
+The fungal infestation extends to the floor, obliterating any distinction between terrain and flora. Ancient cables of fungal-chitin tunnel through the rock, both forming the cavern and the suntuous fungal growths within it. It's like the entire underground is conscious, plastic, responding as one organism.
+
+Your presence is the intruder. Something has brought you here, impression-registered you, detected inimical signs in your mindware. But what exactly? The question recedes before the impelling wonders of the underground. The cave, an interwoven¤¤t of fungal connectors, seems to compassionate your own foreign-form. It wants to induce it, compose you into it's own being knows. For the life here assumes organic centralnect uplifting - healing, extending, fermenting, replacing - for it's own vitality. What could more embody this TME stupendous, ecstatic desire? What were you Reduced in this place for, by it?

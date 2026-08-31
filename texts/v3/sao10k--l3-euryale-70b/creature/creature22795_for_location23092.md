@@ -1,0 +1,13 @@
+Neo Tokyo pulses with an almost organic, living energy - it breathes, grows and evolves before one's eyes. The myriad beings who call this place home come in a dazzling array of forms both familiar and strange.
+
+Amidst the claustrophobic throngs squeezing onto monorails and sidewalks shuffle humans modified by generations of genetic tinkering - skin glows phosphorescent in neon hues, limbs twist at unnatural angles allowing easier navigation of the labyrinthine streets. Chimeric features blend human and animal traits."
+
+Servo-enhanced posthumans stride confidently through the crowds, polished chrome exoskeletons clacking and hissing. Their eyes shine with augmented sensors, feeding them data streams on potential threats or opportunities amidst the urban jungle. Some have abandoned flesh altogether, uploading consciousness into sleek android bodies hewn from gleaming metals never before seen in nature.
+
+Sprinkled amongst these humans and cyborgs flit various species uplifted by human ingenuity - capuchin simians walk upright on two legs to better navigate the narrow pedestrian tunnels lining the roads. Birds with iridescent feathers enhanced by bioluminescent implants act as living advertisements, swooping between skyscrapers leaving trails of light behind them proclaiming brand slogans.
+
+Monstrous shapes lurk in darkened alleyways between buildings - neo-dogs spliced from multiple canine lineages into hulking brutes strong enough to carry riders across the city roofscapes on their backs. Further out towards the irradiated fringes, heavily mutated creatures bred for utility now roam free after being discarded: elephantine turtles armored with keratin plates serve as mobile bomb shelters for clusters of humans riding atop their shells.
+
+High above Neo Tokyo's canyons of steel and stone dart flying V-tols - sentient hovering vehicles grown from permacolored fungal hyphae networks supporting pulsing translucent wingspores. They are steered by insectoid pilots merged bodily with control harnesses, compound eyes flicking over datafeeds projected inside bulbous eyestalks.
+
+From everywhere rise augmented screams of countless indentities competing for resources and attention within a system stretched past capacity; holographic spam bots leaping off building sides trying to latch onto passersby; anti-grav floating billboards trailing intoxicating pheromone ad-scent into the air currents; pulsating social media feeds envenoming drones to chase down citizens rated "Influencers" based on ease of manipulation... It's all any aspiring singularitarian would need to feel right at home.

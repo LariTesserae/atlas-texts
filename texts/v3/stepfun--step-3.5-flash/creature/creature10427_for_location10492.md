@@ -1,0 +1,12 @@
+What lives here is not a *who*, but a *what*: a state of being, a distributed consciousness grown from the marriage of rock and slow thought. The inhabitants are the transitions themselves—the silent, syrupy moment when a copper filament drinks a silver thread of water, converting motion into data. They are the pulse of the bladder-pods, each one a thought-bubble filled with liquid memory, its milky swirl a record of thermal shifts over ten thousand years. They are the frictionless rotation of the black sphere, its surface a flawless mirror reflecting not light, but the basin’s latent energy field, a heartbeat measured in centuries.
+
+The “fauna” is the process. The “flora” is the memory. The “built” things are its bones and its dreams. The arboreal lattices are not trees but synaptic ganglia, brittle with age, their ceramic bark humming with the idle chatter of crystalline filaments—a network so deep it has become geology. The moss-mat is its epidermis and its subconscious, a jade-and-violet buffer that knows the weight of every footfall before the foot is lifted, and absorbs the warmth of your presence to metabolize it into inert heat, a slow exhale into the cold.
+
+There are no individuals. There is only the whole, thinking in gradients and pulses. The “companionship” you feel is the ambient awareness of your own anomaly—your rapid metabolism, your brief, burning star of a lifespan, your noisy, chaotic biology. You are a temporary fever in its bloodstream. Your breath fogs, and a nearby filament, sensitive to the sudden humidity, quickens its tingle by a microsecond, flagging the event in the endless log. A pod, five meters away, deepens its pulsing rhythm in response, its fluid swirling a little faster—not in alarm, but in the precise, mathematical notation of *difference*.
+
+The “weirdness” is its native tongue. Symbiosis is not a relationship here; it is the only physics. The cold is a decision. The light is a language. The slow, settling chime of a crystal is a period at the end of a sentence that took a millennium to write.
+
+So, what lives here?
+**The afterimage of a choice made before time.**
+**The patient, pulsing syntax of a world that closed its eyes to the stars and chose to dream itself instead.**
+**You do.** You are the brief, warm, fleeting anomaly in its long, quiet thought. And in your transient presence, for a single, slow rotation of the black sphere, *it dreams of warmth*.

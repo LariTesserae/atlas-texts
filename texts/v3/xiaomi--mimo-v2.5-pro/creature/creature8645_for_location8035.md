@@ -1,0 +1,28 @@
+You have described not a place, but a nation. The citizens of the Col del Ache thermal chimney are legion, and their state is ancient, structured, and absolute. Here is their account:
+
+**The Ruling Dynasty: The Chiroptera**
+They are the keystone, the architects of the upper dark. From the fissured throne near the apex, the horseshoe bats govern with acoustic precision, their ceaseless clicks mapping the stone and the space, defining its boundaries in sound. They are the census-takers, the primary processors of the night air that funnels in from above. Below them, the larger mouse-eared and long-winged bats are the aristocracy, occupying the grand ledges, their folded wings marking their rank. At the base, in the humid, sulfurous warmth of the guano terraces, the free-tailed bats are the populace, packed into every crevice, their collective heat a form of currency. Their droppings are not waste but infrastructure—the literal foundation upon which the lower republics are built.
+
+**The Guilds of the Interstitial:**
+Between the masses of bat, other orders hold sway.
+*   **The Swifts:** These are the arrow-couriers, the outside-world messengers. They do not linger. They enter the chimney like bolts, scream their news from the outer light and void, and are gone, their nests mere temporary scratches in the upper gloom.
+*   **The Arachnid Weavers:** The spider guild are the engineers of hold and trap. Their layered curtains are not mere webs but defensive emplacements and pantries, strung across the chasm of air between the bat-tenements. They consume the deluge of moths that feed on the stone's mineral skin, controlling the flying prey population.
+*   **The Dermal Mites:** The cave crickets are the constant, slow-motion landslide. They are the alchemists, transforming guano dust and fungal growth on the walls into protein. Their pale processions are the chimney's circulatory system, moving energy laterally across the stone skin.
+*   **The Decomposers' Congress:** Flies, beetles, and their larvae are the undertakers and the composters. They work the guano terraces below, breaking down the droppings of the dynasty into finer and finer particles, releasing the heat and the ammonia that scent the air. Without them, the terraces would choke the lower reaches.
+*   **The Centipede Senators:** These are the apex predators of the floor, the regulators. They move through the guano dunes and the shadowy crevices like armored legates, their many legs moving in a wave of controlled power, keeping the cricket and fly populations in check. Their trembling is felt more than seen, a reminder of the governance that occurs in the deepest shadows.
+
+**The Faithful:**
+There are those who exist in a state of symbiotic dependency, neither true citizens nor mere occupants.
+*   **The Mineral Moths:** These are the chimney's devoted monks. They have never seen the sun. Their entire life cycle—caterpillar, chrysalis, moth—unfolds on the nutrient films of the damp basalt. They are the living interface between the stone and the greater community, and their husks, webbed up by the spiders, are a kind of tithe paid in biomass.
+*   **The Blind, the Legless, the Unseen:** In the deepest crevices and behind the guano terraces live things of which the bats are only dimly aware through the vibrations in the rock. Pale, multi-legged myriapods, possibly eyeless, move with glacial patience through the substrate. They are the chimney's memory, processes that operate on a timescale of rock itself.
+
+**The Vegetation: The Passive State**
+Life here is not photosynthetic but chemo-social. The lichens and cushion plants at the rim are the border guards, clinging to the outer world, tasting the harsh air. They are scouts, not inhabitants. The true plant-life is the etiolated moss at the bottom, the Ghost Moss. It is the ultimate expression of the chimney's economy: a plant that has abandoned the sun entirely, feeding instead on the chemical runoff of the society above. It is less flora and more a living sediment, a stain of life that proves the completeness of the system. It is the chimney's final, silent ledger.
+
+**Their Law:**
+Equilibrium. The upwelling heat is constant. The influx of insects from the outside night is seasonal but reliable. The bat populations are stable, held in check by space, by parasites, by the competition for the choicest roosts. The guano terraces grow no higher because the decomposers and the centipedes and the slow compaction of time balance the constant input. Every niche is filled. Every output is an input for another.
+
+**Their Worldview:**
+They know nothing of mountains or altitude or the cruel air outside. Their cosmos is the chimney: the radial plane of warm, rough stone; the axis of falling guano and rising heat; the dimension of sound that tells them of their neighbours and the world beyond the lip. The occasional shaft of direct light that slants down at midday in summer is a rare, disorienting, and possibly sacred event—a visitation from the blinding upper air, upon which the swifts report but which remains fundamentally alien.
+
+They are not colonists. They are the land itself, given breath and motion. The chimney is not their home; it is their body. The mountain did not break its ribs to create a shelter. It broke its ribs to grow a life-form of stone, heat, and wings. You have not described a habitat. You have described an organism.

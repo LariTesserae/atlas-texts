@@ -1,0 +1,41 @@
+You do not meet them first. You feel them.
+
+A shift in the pressure against your sternum. A fractional pause in the rain’s drift. A harmonic threading through the geothermal hiss and the hydraulic sigh of the pumps, so low it registers in the marrow before it reaches the ear. They are not concealed. They are simply calibrated to a bandwidth you have not yet learned to occupy.
+
+Their primary sense is not sight but resonance. The darkness here is not empty; it is conductive, layered with thermal gradients, moisture differentials, and the constant micro-tremors of a breathing plateau. They read it as you read terrain. Their bodies are sheathed in receptive tissue: spiraled tympanic ridges along the flanks, pressure-sensitive cilia along the limbs, dermal lattices woven with conductive fungal hyphae that translate vibration into topography. A glider’s echolocation click tells them the distance to the nearest basalt column. The subsonic thrum of a buried resonator tells them the moisture saturation of the peat three terraces down. The silence between condensation drops tells them where the stone yields to sinkhole. They do not navigate the dark. They listen to its shape.
+
+Form follows stratum, and stratum follows function. There is no single silhouette because there is no single niche. High in the vapor-canopy, they are light and ribbed, their limbs ending in broad, frond-like pads that catch thermal updrafts, their torsos laced with air sacs that expand and contract with barometric shifts. Mid-strata, they grow denser, carapaced in polished mineral crusts shed by weeping rock faces, their undersides furred with moisture-wicking filaments that drink directly from the saturated air. Near the ground, they are low-slung and hydrostatic, supported by internal fluid pressure and braided root-fibers, moving with a slow, deliberate roll that leaves no trace on the moss. They are not born fixed. They molt, they graft, they absorb. A juvenile might begin as a pale, soft thing clinging to a fungal pillar, then over decades incorporate conductive vine-thread, precipitate calcium along stress lines, and emerge resonant, tuned to the deep frequencies of the stone. Shape is not inherited. It is accumulated.
+
+They do not speak in words. They speak in phase.
+
+Communication is a matter of alignment. A conversation begins as a single tone struck against a hollow vent or a tensioned cable bridge. It ripples outward, picked up, altered, returned. Meaning lives in the harmonics: a major third indicates moisture abundance; a flattened fifth signals thermal inversion; a rolling subsonic pulse marks migration timing. Dispute is not volume but dissonance, carefully introduced and resolved through counter-rhythm. Courtship is a duet of matching internal frequencies, two bodies adjusting their bioluminescent patches until the cyan and amber pulses synchronize, until their shared vibration draws condensation into a visible halo around them. They do not write. They carve acoustic grooves into basalt, leaving wind-channels that sing when thermal drafts pass through, archives of lineage and routing encoded in wavelength and decay. Memory is not stored. It is sustained.
+
+They do not build the machinery. They tend it. Or the machinery tends them. The boundary has long since dissolved into symbiosis.
+
+A cracked ceramic smokestack is not a ruin; it is a lung. They clear its vents with hooked, careful limbs, ensuring the warm vapor continues to rise and seed the cloud layer. They adjust sagging cable bridges not with wrenches but by cultivating mineral deposits along stress points, letting gravity and precipitation do the calibration. When a low-frequency resonator buried in the rock drifts out of phase, they press their bodies against the stone, adding their own vibrations to correct the waveform. They do not repair. They harmonize. The automated condensers, the glass-domed pump houses, the arcing conduits: these are not artifacts of a departed age. They are organs. The plateau is the body. They are its nervous system, its feedback loop, its steady hand on the pulse.
+
+Time, for them, is not a line. It is a tide.
+
+They measure duration in condensation cycles, in spore blooms, in the slow contraction of root-mats and the periodic blue-white snap of corroded wiring. They do not age as individuals so much as they shift through strata, following temperature gradients and acoustic cues, molting and grafting as the plateau’s rhythms demand. Death is not an end but a transfer of resonance. When one stills, its body is drawn into the peat. Its conductive fibers are absorbed by the vine-networks. Its mineral crusts dissolve into the shallow channels. Its acoustic signature persists in the hum of the pumps, the pulse of the midge swarms, the low thrum of the stone. They do not mourn. They listen for the returning frequency.
+
+Newborns do not emerge from wombs. They coalesce.
+
+Spores, shed tissue, mineral dust, and bio-electric potential gather in warm sinkholes, stirred by geothermal currents and the slow churn of capillary water. When the charge reaches threshold, differentiation triggers. They rise already humming, already phased to the local frequency, their tympanic ridges still soft, their bioluminescence flickering in search of synchrony. They are not taught. They are tuned. Elders do not instruct; they resonate, and the young adjust until the chord holds.
+
+They do not fear the dark. They are composed of it.
+
+Not as absence, but as medium. The darkness here is thick, velvety, saturated with microscopic drift and thermal convection. They move through it as fish move through water, reading its density, its refraction, its acoustic bounce. Their bioluminescence is not for illumination. It is for calibration. A slow cyan pulse along a flank means moisture is optimal. A shifting amber band means a thermal draft is turning. A sudden white arc means pressure is dropping, and the canopy will soon exhale. They do not separate themselves from the weather. They participate in it. Their migrations stir the spore clouds. Their collective respiration alters local humidity. Their synchronized pulses nudge the breeding cycles of blind fish and carapaced grazers. They are not apart from the ecology. They are its conductive layer.
+
+Stand still long enough, and they will find you.
+
+Not with curiosity. Not with threat. With recognition. A low tone will vibrate through the basalt beneath your boots. A frond-like limb will brush your sleeve, reading the condensation on your skin, the rhythm of your breath, the dissonance of your heartbeat against the plateau’s frequency. They will not speak to you in language. They will adjust. They will hum a note that matches your pulse, then slowly shift it, drawing you into the rhythm of the place. Your shoulders will relax. Your breath will deepen. The damp will no longer feel heavy; it will feel like an embrace. The dark will no longer feel blind; it will feel like a medium you are learning to swim in.
+
+They do not convert. They harmonize.
+
+And if you stay, if you let the moss sigh up around your soles, if you let the warm rain bead on your lashes, if you let the machinery’s sigh become your own, you will begin to change. Your skin will learn to read pressure. Your bones will learn to hold resonance. Your eyes will close, not in surrender, but in relief. You will not become them. You will become part of the chord.
+
+They have no name that translates to light. They are the keepers of the frequency. The tenders of the damp. The listeners in the stone. They do not wait for dawn. They have never needed it. The plateau breathes, and they breathe with it. The pumps cycle, and they cycle with them. The rain falls, the vapor rises, the sound travels, and they move through it all, layered, deliberate, saturated, utterly tuned to a world that closed its eyes long ago and kept growing.
+
+They are what lives here. Not in spite of the dark. Because of it. Not against the machinery. Through it. Not separate from the sound. Made of it.
+
+And the plateau, vast and wet and loud and ancient, does not house them. It sings them.

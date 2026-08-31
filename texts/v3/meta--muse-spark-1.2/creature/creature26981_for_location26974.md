@@ -1,0 +1,43 @@
+Whatever lives there does not live *on* it. That is the first correction you have to make.
+
+At first you think nothing lives there at all. That is what the plateau wants you to think. The scale and the light and the roar wash everything out. Your eye slides over stone after stone and finds no shape that is animal. Then you learn to look differently, and what lives there begins to detach itself from what it lives on — not by appearing, but by *pausing*.
+
+The low things first.
+
+They are the color of the stone they borrow. Not camouflaged so much as consented to. The pikas and the lean marmots — if you still want to call them that — are not furry in the way lowland animals are furry. Their coat is dense to the point of felting, a wind-proof mat, pale dun and stone-grey with a dark dorsal stripe that soaks sun on one side and sheds it on the other. You will only see them because they decide to be seen: a head up on a whaleback ridge, absolutely still, eyes filmed with a clear inner lid against the glare and the grit. They don't blink. They breathe shallow and fast, chests bellowing in that thinned air.
+
+They have lived by becoming smaller and more economical than any animal should be able to be. They do not drink. They harvest. At night they press their bellies to the cold undersides of stones where condensation beads, and lap. At dawn they move to the black seep-lines and scrape lichen and moss with incisors that never stop growing because they never stop wearing them down on grit. Their urine is a paste. Their droppings are dry pellets that the wind takes before they can smell. They live in the frost-crack staircases, in burrows an inch under ice in the shade and an inch over warm rock in the sun, moving a few inches with the day to thermoregulate. And they line those burrows — this is the part that makes you look twice — with flakes. Bright, sharp flakes of chert and obsidian, not dropped but placed, shingled like scales against damp. A nest that glints.
+
+You think they made them. Then you look up.
+
+The sky-things are the true biomass of the plateau. They own it.
+
+They are not birds the way you know birds. They are almost all lung and eye and hollow bone, because the air here will not carry anything heavy. When one lands near you — and they do land, folding out of those braids and sheets that turn on a single thought — you see how spare they are. Smaller than a chough, darker than soot, with wings too long and too narrow, translucent at the trailing edge where the sun shines through. Their heads are disproportionate, eyes huge and hooded, beaks short and hard as the flakes. They do not have ears. Not externally. The wind would rip any cup of flesh and turn it into a whistle.
+
+They navigate and speak in the roar, which means they do not speak at all in any way that competes with it. Their call is not a call. It is a pressure. They clap their beaks against stone. They drum their feet. They let the wind play them. A flock of ten thousand will all strike a pothole rim at once and the note that comes out — low, organ-deep from the trough between ridges — carries through bone, through the rock into your feet, while the air-roar above remains untouched. They hear with their skeletons. You see them tilt their heads not to listen but to *feel* the vibration better through the jaw.
+
+They drink the air. Literally. They fly with mouths open through the morning when the cold still holds, and the fine dew that never becomes runoff beads on the bristles around their beaks. They breed with obscene abundance and utter carelessness about place. Not seasonally — there is no season to cue them — but opportunistically. Find a hollow where a tarn weeps a little more than elsewhere, where one of those dwarf willows makes a green coin of a garden, and you will find a cliff that looks like it is moving because it is covered wrist-deep in nests, all chittering not with sound but with that same bone-tremor, a thousand young gaping soundlessly. A hundred yards away, nothing. Life here is lavish but it refuses to be evenly spread. It knots.
+
+And then there are the high ones, whose shadows are clocks. Pale raptors, near-white, with primaries frayed by ultraviolet. Ten, twelve feet across. They do not flap if they can help it. The river of wind that pours over the edge of the world is road enough. They wheel for hours without a single beat, eyes so filtered against that terrible light they look blind. They don't hunt by sight alone — they hunt by watching the braids. A ripple in the flock, a tightening, means a beat missed, a wing faltering, and then they tip and fall like paper.
+
+None of that is the strangest thing, because all of that, however refined, is still animal doing what animal does. Adapting. Enduring.
+
+The strangest thing is the one that knaps.
+
+You find a windbreak — a knee-high wall of frost-shattered granite that has stood at exactly that angle forever — and behind it, out of the wind, a shallow, body-shaped depression in the gravel. The gravel in it is warm from sun. In the center, a core of black glass and around it a spray of flakes, some still sharp enough to lift a hair off your arm. A scraper. A point. A blade struck with a single clean bulb of percussion. No hearth. No house. No midden. They do not stay.
+
+If you sit there long enough in that deafening stasis you will see them, or rather you will see that you have been seeing them without recognizing them as work.
+
+They are not tall. They would be small below but here they look correct. Broad through the chest — barrels for that thinned air — narrow everywhere else. Limbs long and spare, skin weathered to the same mustard and rust as lichen, hair if you can call it hair just a close, sun-bleached down. Faces tucked in, noses small and slit, eyes deep and hooded with that same inner lid. They move the way the pikas do: in unhurried, precise increments, never wasting heat, never casting a long shadow.
+
+They don't talk. In that roar, what would be the use of a voice? They tap.
+
+One will pick up a flake and strike it against a humming arch of basalt — those impossible, inch-thick spans that should have fallen — and the arch answers with a clear tone that carries through stone for half a mile. Another, tucked in a different hollow, answers by striking its own arch. They map each other in sound that the wind cannot erase because it *is* the wind's sound, borrowed. When they work stone, the clicking of flake on core is not craft alone; it is sentence.
+
+They do not build because building would be a lie here. The plateau has already found its shape and keeps it. To pile rock higher would be to invite the wind to take it personally. So they make only what can be carried in a hand and left behind. They come to a seep, drink by pressing their mouths to the wet line and sucking, tuck a dwarf willow leaf under the tongue for water, knap a fresh edge if the old one has dulled on bone or lichen-root, and go. Their passage is almost unprovable except for the flakes, which the birds then collect and the pikas then line nests with, so that tool and nest and wing become one slow circulation.
+
+They are not progressing. That is the thing that finally settles. Like the scree at its angle of repose, like the lichen that does not spread, like the tarn that is half warm and half ice with a razor line between — they are in equilibrium. They have been exactly this skilled, exactly this spare, for as long as the wind has hummed those flutes. They do not need more. More would be weight the air cannot carry. More would be noise that cannot be heard over the waterfall chord that is simply the condition of air itself here.
+
+If you stay until your own breath fog vanishes too fast and your teeth ache with the organ note of the troughs, you will realize the emptiness is not theirs. It is yours. They need the mile of nothing between boulders to hear a single tap on stone. They need the terrible, total light to warm one side of a rock while the other holds frost they can lick. They need the loudness to hide in. They are thin the way the air is thin — not lacking, but reduced to exactly what can exist at this height and no more.
+
+And when they leave a hollow, they leave it as they found it: stone, seep, lichen, wind. Only a few bright flakes catching that exacting sun for a little while before the plateau takes them back into its own finished language.

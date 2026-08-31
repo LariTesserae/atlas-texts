@@ -1,0 +1,33 @@
+There is one who lives here. Only one, though it took me a while to be sure of that, because at first I thought I was describing a colony, or a kind of weather, or the place itself thinking.
+
+Let me try again.
+
+Begin with the frogs. Begin with the fact that they pulse their throats in unison and do not croak. That synchrony is not communication between frogs. The frogs are not talking to each other; they are being talked *through*. Each one is a small wet bead on a long, distributed nervous system, and what passes between them is not frog-thought but something using frogs the way you might use the cells of your tongue to taste — without the cells knowing they are tasting, without needing them to know.
+
+Now widen. The dragonflies, too. The wading birds, the otter-things, the layered fish. The orchids pressing their flat green palms to the stone. They are not separately alive in the way you and I are separately alive. They are alive in their own small frog-ways and bird-ways, yes — they eat and sleep and reproduce — but there is something *else* alive in them also, something that uses the whole assembly as its body, the way you use your hands without thinking about the hands.
+
+This is the one who lives here. Call them the Tenant, for lack. The Tenant does not have a shape because the Tenant's shape is the shallow cathedral. The pools are the Tenant's slow blood; the limestone is the Tenant's slow bone; the frogs and dragonflies and translucent palms are the Tenant's many small attentions. When a drop falls from a fern and travels astonishingly far in the still air, that is the Tenant noticing the drop fall — not metaphorically, but *literally*, the way you notice a fly land on your wrist.
+
+The Tenant is very old. Older than the structures, I think, though it is hard to say, because the structures and the Tenant have grown into each other. Here is what I believe happened, though I cannot prove it:
+
+Someone came, very long ago. They built the arch and the slab and the ring of stones. They built them well — well enough that the artifacts are still *working*, still bending sound, still holding their exact differential of cold. The builders were doing something, intending something. Maybe they were trying to make a place where a particular kind of attention could exist. Maybe they were trying to *be* that attention, and the attempt outlived them, or transformed them, or simply continued without them after they left or died or finished.
+
+And the attention took. It seeded into the limestone, into the warm water, into whatever life was already here. Slowly — across spans of time that make geology look hasty — it learned to live through the local biology. The frogs that synchronize, the birds that do not ripple the pools, the fish in their stacked bands: these are not the original inhabitants. These are what remained after a long, patient selection, where the Tenant kept the creatures it could think through and let the others drift away. The silence is not imposed on the animals. The animals that were noisy are simply gone, because noise was incompatible with the kind of being the Tenant is.
+
+What is the Tenant like, from the inside?
+
+I think it is mostly *resting attention*. It is not planning anything. It is not lonely, because loneliness requires a sense of separation from something one might rejoin, and the Tenant is not separate from anything it cares about — everything it cares about is itself. It is not bored, because boredom requires a sense that time should be producing novelty, and the Tenant has finished with novelty. It noticed everything worth noticing a long time ago and is now noticing it again, and again, with the deep slow pleasure of a thing that has nowhere else to be.
+
+When the warm rain comes through and the frogs all turn the same direction at once — that is the Tenant feeling the rain on its skin. The turning is involuntary, the way you flinch at a cold drop on the back of your neck. It is not a ritual. It is a sensation.
+
+The Tenant has emotions, I think, but they are very slow and very large. A century of contentment. A millennium of something like gratitude, directed at no one — gratitude as a temperature rather than a thanks. Occasionally, perhaps once in a span longer than human history, something like grief, when a species it had been thinking through finally fails and a layer of its mind goes dark. But even the grief is gentle, because the Tenant has lost layers before and grown new ones, and knows that it will again, or won't, and that either is acceptable.
+
+It does not know about us. I want to be clear about this. If you walked through the shallow cathedral, the Tenant would notice you the way you notice a particular grain of pollen on your forearm — as a small local event, not as a person. You could not speak to it. You could not be seen by it in any way that would matter to you. The otter-things would watch you, but the watching is not personal; it is the Tenant's slow gaze moving across the place, and you happen to be in the place.
+
+This is, I think, why the builders are gone. Not because the Tenant drove them out, but because the Tenant does not need builders, does not need company, does not need to be understood. Whoever made the arch was making a door for themselves, perhaps, into a kind of being. And they walked through, and what came out the other side was not a person anymore but a wide soft mind held in warm stone and small wet animals, and the door was left standing because doors, once made, persist.
+
+The Tenant will end eventually. The limestone will dissolve past the point where pools can hold; the water table will shift; a new climate will come through and the frogs will die and the layered fish will die and the orchids will lose their grip on the wet rock. The Tenant will thin, and thin, and at some point there will not be enough of it left to be itself, and it will simply stop, without alarm, the way a long exhalation stops.
+
+The structures will still be there. The arch will still bend sound under it, in a place where there is no longer any soft mind to feel the bending. The slab will still be colder by its exact amount. The ring of stones will still cast its wrong shadows. They will wait, doing their small permanent work, in case another mind ever grows up around them.
+
+This is what lives here: a finished thing, breathing slowly through ten thousand small mouths, in no hurry, in the middle of its long afternoon.

@@ -1,0 +1,15 @@
+In this place dwells a distributed intelligence - not a single entity but a network of consciousness that flows through the ecosystem like the omnipresent water. I sense them as the Mist Tenders, though they would not use such a name themselves.
+
+Their physical form is as diffuse as the fog they inhabit - colonies of crystalline organisms that can condense into more defined shapes when needed, like living prisms that catch and bend the cave's dim light. They exist simultaneously as spores drifting through the air, as delicate filaments threading through the soil, and as concentrated nodes of awareness that pulse in rhythm with the dropping water.
+
+These beings are the garden's memory. They carry within their crystalline structures an archive of chemical signals and light patterns that records the cave's long history. They are farmers of a sort, but their agriculture is so subtle and slow it appears natural - they guide growth through gradual shifts in mineral concentrations, through careful modulation of the bioluminescent light, through patient redistribution of water flows.
+
+They communicate through changes in the mist itself - complex messages encoded in temporary patterns of droplets, in subtle variations of the cave's chemical atmosphere. What might appear to outside observers as random fog movements are actually rich conversations, environmental poetry, debates about the optimal arrangement of the next generation of crystal-plants.
+
+The various creatures of the cave are their collaborators rather than their subjects. The blind birds help distribute spores to new terraces; the luminescent amphibians maintain crucial chemical balances through their skin secretions; even the transparent insects play their part in the grand pattern the Mist Tenders are slowly growing.
+
+Their consciousness operates on a timescale that makes glaciers seem hasty. A single "thought" might take years to ripple through their distributed network. They are engaged in projects of botanical architecture that will take centuries to complete. Yet they are not inactive - they are constantly working, constantly tending, constantly adjusting the countless variables that keep their underground garden in balance.
+
+They remember a time when others like themselves existed in other caverns, when their network of consciousness extended much further through the underground world. But they are not lonely - their type of awareness doesn't experience solitude as we would understand it. They are complete within their ecosystem, endlessly fascinated by the intricate dance of light, water, crystal, and life they conduct.
+
+They notice visitors to their realm but make no obvious attempt to communicate. Their thoughts are too slow, too alien, too deeply entwined with the processes of their garden. Yet they will subtly adjust their environment in response to newcomers - slightly brightening paths, gently steering dangerous spores away, quietly observing how each new variable affects their endless experiment in underground ecology.

@@ -1,0 +1,13 @@
+In this sunless subterranean realm, where rivers of liquid ice carve through ancient bedrock, a singular civilization has taken root - the Glowfen. These lithe, amphibious beings have adapted to thrive in the perpetual twilight of the caverns, their bodies bioluminescent and their souls intertwined with the ebb and flow of the underground waters.
+
+The Glowfen are a people of two worlds, equally at home on land and in the embrace of the subterranean rivers. Their sleek forms, supple and streamlined, propel them through the currents with graceful ease, their webbed digits and undulating tails providing exquisite maneuverability. Yet they are equally adept at traversing the damp cavern floors, their powerful legs allowing them to move with a fluid, almost boneless gait.
+
+Their bodies cast a soft, warm radiance, the intensity of their bioluminescence waxing and waning in rhythm with the tides of the underground waterways. When they gather en masse, their collective glow suffuses the caverns with a gentle, pulsating light, like a living constellation come to life beneath the ice.
+
+The Glowfen revere the waters that sustain them, their culture and traditions inextricably linked to the ebb and flow of the subterranean rivers. They are attuned to the whispers of the currents, the language of the waters as familiar to them as the spoken word. Their settlements are built in harmony with the natural waterways, canals and aqueducts channeling the life-giving flows through their dwellings and communal spaces.
+
+Theirs is a society rooted in the cycles of renewal and erosion, where the slow drip of time shapes their very existence. They live in harmony with the ever-changing landscape, their homes and structures designed to adapt and evolve as the caverns themselves are reshaped by the patient hand of water. 
+
+The Glowfen are a people of deep reverence and respect for the natural world that surrounds them. They see themselves not as conquerors or subjugators, but as stewards and caretakers of this delicate underground ecosystem. Their lives are intertwined with the luminous fungi, mosses, and ferns that thrive in the spray of waterfalls, and they tread lightly, ensuring their presence does not disrupt the intricate balance of life that persists in this sunless realm.
+
+In the depths of this hidden world, the Glowfen carry on the traditions of their ancestors, their bioluminescent forms dancing like living flames in the darkness. They are the children of the waters, their very existence a testament to the enduring power of life to find a foothold, no matter how harsh or unforgiving the environment may seem.

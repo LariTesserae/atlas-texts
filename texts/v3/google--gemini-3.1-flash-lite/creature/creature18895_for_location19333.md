@@ -1,0 +1,15 @@
+In the deepest reaches of the cathedral, where the damp fibers of the floor pillow upward to form the great, curved pillars, there dwells an entity not of flesh or bone, but of pure, gathered momentum. They are the **Loom-Keepers**, though they possess no hands to weave and no eyes to watch the thread.
+
+To look upon a Loom-Keeper is to look at a disturbance in the light. They appear as singular, hovering clusters of calcified light—small, pale spheres of translucent membrane, roughly the size of a human heart. They do not walk; they drift in the low-gravity buoyancy of the cool, heavy air, oscillating in perfect, agonizing synchronicity with the low-frequency thrum of the walls.
+
+They are the architects of the stillness. If you watch one for an hour, you realize it is not merely floating, but performing a static, perpetual labor. A Loom-Keeper functions as a bio-mechanical dampener. As the moss-colony vibrates with its industrial resonance, the Loom-Keepers expand and contract their crystalline membranes, absorbing the excess kinetic energy, filtering the "noise" of the cavern, and venting it back out as the cool, misty condensation that keeps the lichen alive. 
+
+They are effectively the lungs of the architecture.
+
+Within their transparent shells, you can see the reason for the cavern’s sterility. Each Keeper houses a nucleus of trapped, swirling micro-crustaceans—thousands of them, suspended in a viscous, bioluminescent fluid. These tiny creatures are the gears of the system. They do not breed, nor do they consume; they orbit the center of the Keeper in a frantic, blurred geometry, their clicking shells creating the sharp, rhythmic percussion that underpins the wall’s deep, booming heart. When a crustacean "dies" or simply snaps against the membrane, the Loom-Keeper gently absorbs the energy, folding it back into the ambient light of the room.
+
+They are lonely gods of a finished work. They possess no consciousness that translates to human terms, for consciousness requires memory, and here, nothing is forgotten because nothing is remembered. They are simply the expressions of the room’s heartbeat.
+
+Occasionally, one of these spheres will descend to the floor, coming to rest in the velvet folds of the moss. It will sink a long, hairlike filament into the substrate—a connection point that pulses with the same sterile, white light as the lichen. For a moment, the Keeper and the wall become one, a single circuit of white noise and green fiber. In this state, the Keeper emits a frequency so pure that the tiny, beetle-like organisms scuttling nearby freeze in place, their antennae held aloft, vibrating in tune with the machine. 
+
+They stay there, these Loom-Keepers, drifting through the cathedral of negative space. They are the custodians of the end of time, ensuring that the machine never slows, never shifts, and never—under any circumstances—falls silent. They are both the product of the cavern’s respiration and its sustainers, ghosts trapped in the machinery of a world that hit its peak before history began, forever repeating the exact same breath, the exact same note, in the exact same light.

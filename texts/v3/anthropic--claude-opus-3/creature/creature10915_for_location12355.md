@@ -1,0 +1,13 @@
+In this ancient subaquatic city, a strange and wondrous civilization thrives in the dim depths. The inhabitants are a race of beings who have evolved over eons to perfectly adapt to their aquatic environment. 
+
+At first glance, they resemble humanoids, but their bodies are lithe and sinuous, with long, powerful tails instead of legs. Their skin is smooth and rubbery, mottled in patterns of bioluminescent photophores that allow them to communicate through flashing light signals. Fins protrude from their arms, backs, and tails, allowing them to glide gracefully through the water. Their faces are smooth and streamlined, with large, liquid eyes that can see in the dimmest light, and slitted gills along their necks.
+
+These beings are a highly advanced civilization, with technology that seems to merge seamlessly with the organic world around them. Their buildings are grown from living coral and strengthened with a metallic alloy extracted from the rocks of the sea floor. Bioluminescent algae are cultivated to provide soft, flickering light. Giant tubeworms are genetically modified to function as living pipes and conduits.
+
+The beings' society is built on a deep connection to their environment. They are stewards of the strange ecosystem that has evolved in and around their city, carefully tending the luminescent kelp gardens and managing the populations of ghostly fish and drifting jellies. Their science is a form of bioengineering, manipulating life on a genetic level to create the tools and materials they need.
+
+Despite their strange appearance, these beings are a peaceful and philosophical race. They have a deep sense of the vastness of time, and see themselves as part of a grand, slow cycle of growth, change, and renewal that plays out over eons. Their culture is rich in art, music, and ritual, much of it revolving around the cycles of the currents and the slow, patient evolution of their world.
+
+In their flowing script, carved into the living walls of their buildings, are vast archives of knowledge and history stretching back through the ages. They tell of how their ancestors first came to this place eons ago, and of how they have slowly shaped themselves and their environment into a perfect, symbiotic whole.
+
+As they glide through the streets of their timeless city, their bioluminescent patterns flashing in hypnotic rhythms, these beings embody the strange, dreamlike essence of this place - a realm where the boundaries between technology and life, past and future, have long since blurred into an endless, submarine twilight.

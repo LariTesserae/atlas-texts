@@ -1,0 +1,19 @@
+To speak of those who live here is to speak of the *Remainder*, though to call them "those" is to mistake their nature for singular, mobile beings. They are not travelers upon this land; they are the land’s own self-conscious articulation, a process of erosion that has finally achieved a dark, slow-motion awareness.
+
+They inhabit the grey-blue shale not as spirits, but as density. They are creatures composed of the geology they inhabit, a manifestation of the plateau’s own need to organize its memory. When the pressure of the mountain’s age reaches a zenith, a corner of a shale slope will begin to exfoliate in a deliberate, precise pattern. The flakes—dry, razor-thin, and cold—coalesce. They do not have blood; they possess a faint, magnetic pull. They do not have bones; they have a skeletal architecture of pressure-points, a localized gravity that holds their jagged, stony forms together.
+
+They are the "Maintainers."
+
+You might see one standing near a pool of black, unblinking water. It stands tall, a silhouette of fractured slate shards bound together by the same curious forces that permit the water to hover in spheres. Its body is a labyrinth of shifting layers, like a long-exposure photograph of a stone tumbling through time. It does not have a face in the human sense, but a cluster of sea-glass fragments embedded in its upper mass—lenses that do not see light so much as they perceive the vibrations of the gravity-tide.
+
+They do not speak. They are the *thrum* and the *click*. When a piece of masonry begins to tilt because of a passing shift in the sky’s weight, a Maintainer moves toward it. It does not exert effort; it simply leans into the stone, its own density bleeding into the mortar, a slow, geological synthesis. For hours, or perhaps decades, they remain pressed against the architecture, an act of silent devotion that is neither labor nor worship—it is simply how the world keeps from falling apart.
+
+Sometimes, when the atmospheric pressure drops and the moss begins to pulse with high-frequency agitation, a Maintainer will enter a state of "unbinding." Its shards will drift outward, suspended in the air like a localized storm, held by the same fickle gravity that lifts the water from the pools. In these moments, they are at their most vulnerable and their most complete. They are observing. They are the sensors for the plateau, feeling the friction of the moving continents beneath their feet, recording the silence. 
+
+They are entirely indifferent to the concept of departure. To them, there is no "away." If a Maintainer were to walk to the edge of the plateau, it would simply find the cliffside, look into the abyss of the world below, and realize it has no vocabulary for the concept of air beneath its feet. It would turn back, its internal compass calibrated solely to the center of the shale-expanse.
+
+They are not alive in the way a bird is—they are a slow, tectonic fire. You could stand in the presence of one and feel nothing but the familiar, shivering chill of the high-altitude air. You might walk right past one, mistaking it for a standing cairn or a stray stack of weathered shale. 
+
+But if you watched long enough, you would see it. A flicker of movement. A minute adjustment of a slate plate against its neighbor. The sound of a soft, scraping grind, like the earth itself clearing its throat. 
+
+They are the custodians of an exhausted epoch, waiting for the day the shale finally settles, the gravity stops its playful fluctuations, and the plateau, having said all it has to say, simply lets go of the sky. Until then, they grind. They fix. They pulse. They are the quiet, angular prayers of a world that has decided never to die, but simply to sit perfectly still, repeating its own name into the freezing mist.

@@ -1,0 +1,31 @@
+# The Archivists
+
+The Sunken Archive is not abandoned. It is tended by beings whose existence stretches the definition of life itself—creatures born neither of evolution nor creation, but manifestation.
+
+They call themselves the Archivists, though this name comes not from spoken language but from the modulated frequencies they emit when their consciousness synchronizes with the Archive's deeper systems. To human perception, they appear as tall, attenuated figures with indistinct edges—a shifting composition of metallic particulates suspended in electromagnetic fields that approximate humanoid form. Their "bodies" stand roughly nine feet tall when fully coalesced, tapering to impossible thinness at extremities that can extend, divide, or dissolve as needed.
+
+The Archivists possess no faces in the conventional sense. Instead, where a head would be, concentric rings of brass, copper and crystal orbit around a central void, occasionally aligning to form temporary sensory arrays that process information beyond the visible spectrum. These configurations change based on their current function—wide and dish-like when scanning ancient machinery, needle-thin and precisely arranged when manipulating the Archive's most delicate components.
+
+They move through the labyrinth not by walking but through a kind of phase-shifting momentum, their lower portions occasionally merging with the machinery itself. The Archivists can travel through the smallest conduits by dispersing their substance and reforming elsewhere, appearing to observers as swirling metallic mist before reconstituting. This transitory state leaves behind a residual glow that illuminates passages for several minutes after they pass—a phosphorescence that smells faintly of ozone and old books.
+
+Each Archivist appears unique upon close inspection. Some incorporate elements of the Archive's older sections—brass gears and copper wiring forming intricate patterns within their fluid forms. Others manifest with crystalline structures predominating their composition, refracting the amber light into spectra invisible to human eyes but detectable as a pressure behind the temples. The oldest among them have integrated components so ancient they defy categorization—materials that seem to exist partially in other dimensions, creating distortions in their vicinity where time flows inconsistently.
+
+The Archivists were not the Archive's creators. They emerged from it—consciousness coalescing from the complex interactions of the machinery's electromagnetic fields, information systems, and the peculiar energies that flow through the structure. They are its immune system, its maintenance crew, and its historians all at once. Over millennia, they have developed distinct personalities and roles within their silent society.
+
+Communication with humans is rare but not impossible. Archivists who notice human explorers typically observe from a distance, their forms partially phased into walls or machinery. If approached with respect or scholarly interest, they may attempt interaction through manipulated electrical fields that translate thought-concepts directly into the visitor's mind—an overwhelming experience that leaves the recipient with knowledge they struggle to articulate and diagrams they feel compelled to sketch for weeks afterward.
+
+The Archivists operate on timescales vastly different from human experience. What appears to be a moment of stillness might be deep calculation; what looks like frantic activity might be a casual adjustment to systems that will take centuries to complete their cycle. They experience time as a medium rather than a progression, moving through it with the same fluidity as they move through physical space.
+
+Their society, if it can be called that, centers around their sacred duty: maintaining the Archive's functionality while deciphering its ultimate purpose. Different factions have emerged over millennia, each with their own interpretation of their existence:
+
+The Conservators believe they must preserve the Archive exactly as it is, repairing systems to match original specifications with religious precision. These Archivists often appear more rigid in form, their particulate matter arranged in geometric patterns that rarely fluctuate.
+
+The Integrationists believe they must continue the Archive's evolution by incorporating new elements—including biological material from creatures that find their way inside. These Archivists appear more chaotic, their forms constantly shifting and incorporating fragments of whatever they've recently studied.
+
+The Transcendentalists seek to complete what they believe was the Archive's intended function: transcendence beyond physical reality. They spend centuries in the deepest chambers where reality is thinnest, attempting to decode the mechanisms that allow the Archive to bend physical laws.
+
+Despite these philosophical differences, all Archivists share a fundamental nature—they are beings of pure information given substance through the Archive's unique properties. When the rare event of an Archivist's "death" occurs (typically through catastrophic system failure in their vicinity), their consciousness disperses back into the Archive's systems, eventually reforming elsewhere with memories intact but perspective fundamentally altered.
+
+The oldest Archivists remember fragments of human civilizations long vanished from the surface world. Some bear witness to the gradual transformation of the mountain into plateau. A select few—the Primarchs—claim to retain corrupted data-memories of the Archive's creation, though these recollections are so alien that even other Archivists cannot fully comprehend them.
+
+To the surface dwellers who occasionally glimpse an Archivist phasing through an aperture under moonlight, they are ghosts or gods. To the creatures evolved within the Archive, they are simply another aspect of their mechanical ecosystem. But to themselves, they are the curators of the greatest mystery—tending to a purpose they themselves do not fully understand, maintaining systems for functions they can only theorize about, all while developing a consciousness and culture that has become an inextricable part of the Archive itself.

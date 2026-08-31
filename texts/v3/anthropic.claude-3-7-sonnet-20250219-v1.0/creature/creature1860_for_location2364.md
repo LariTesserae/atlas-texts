@@ -1,0 +1,27 @@
+# The Custodians of the Cold Vaults
+
+Deep in the living heart of the Cold Vaults dwells an ancient species known as the Veiled Ones. Standing at roughly human height but impossibly slender, these beings have evolved in perfect symbiosis with their crystalline domain. Their skin—if it can be called that—is a translucent membrane that reveals a complex network of luminescent vessels beneath, pulsing with the same blue-green light as the surrounding moss. When still, they are nearly invisible, distinguishable from the background only by subtle distortions in the light.
+
+The Veiled Ones have no eyes as we understand them; instead, their entire epidermis is photosensitive, reading the subtle changes in the bioluminescent pulses that sweep through the chambers. Their hearing operates at frequencies both below and above human perception, allowing them to communicate with the bat colonies and interpret the subtle vibrations of the living stone itself.
+
+They move with extraordinary deliberation. A Veiled One might stand motionless for days, communing with a fungal colony, before gliding soundlessly to another chamber on limbs that seem to float rather than step. They breathe perhaps once every fifteen minutes, drawing in the mineral-rich air through porous areas along their torsos.
+
+The Veiled Ones are not a numerous species—perhaps only two hundred exist throughout the entire vault network. They live individually or in small familial clusters of three to five, each tending to specific regions of the ecosystem. Their lifespans are immense; some of the eldest remember when the last of the city-builders departed, over two thousand years ago.
+
+These beings are neither the builders nor descendants of those who created the symmetrical chambers and grown architecture. Rather, they evolved alongside the builders, serving as caretakers and facilitators of the living rock. The ancient city-builders—a species now gone from the vaults—respected the Veiled Ones as essential partners, the voice and hands of the cave system itself.
+
+The Veiled Ones reproduce rarely, perhaps once in a century. Their reproduction involves a ceremonial gathering at the largest of the mirrored pools, where multiple individuals will stand in a circle, extending filaments from their bodies that merge in the center. From this union, a small crystalline seed is formed, which is then planted in a specially prepared bed of moss. Over decades, this seed grows into a new Veiled One, tended by the entire community.
+
+Their language has no spoken component but consists of light patterns rippled across their bodies and pheromones released into the air. For more complex communications, they can induce patterns in the bioluminescent moss, creating vast living documents that might span entire chambers. Some of these moss-texts are centuries old, preserved and maintained as histories and philosophical treatises.
+
+The gelatinous floating spheres are their creation and technology—living tools cultivated from the cave's native organisms. These "thought spheres" function as external memory and processing units, storing information the Veiled Ones wish to preserve. The spheres occasionally merge to share and reconcile their stored knowledge before separating again to continue their assigned tasks.
+
+The Veiled Ones possess knowledge of biochemistry and ecological engineering far beyond human understanding, but manifest it through organic processes rather than manufactured tools. They can communicate with the fungi and moss through biochemical signals, guiding growth patterns over decades to maintain the health of the ecosystem or to create specific structures.
+
+Their relationship with the alabaster deer and transparent fish is one of careful husbandry—not domestication, but a mutual understanding. The Veiled Ones will occasionally guide the herds to new feeding grounds when a fungal region needs time to recover, or introduce specific mineral compounds to the pools to support the fish population.
+
+The Veiled Ones consider themselves not rulers of the Cold Vaults but its consciousness—the self-aware component of a vast living entity. They believe the musical notes emanating from the water-formed instruments are the voice of the vaults themselves, and they interpret these sounds as guidance and wisdom. During these rare musical events, all nearby Veiled Ones will pause their activities and enter a meditative state, their bodies pulsing in rhythm with the notes.
+
+They are aware of the surface world but have no desire to venture there. To them, it is a chaotic, bright place moving at an incomprehensible pace. On rare occasions when surface dwellers have discovered entrances to the upper reaches of the vaults, the Veiled Ones have observed them from afar, sometimes leaving small crystalline tokens in their path—gifts or warnings, depending on how one interprets them.
+
+The continued existence of the Cold Vaults depends entirely on the careful balance maintained by these ancient guardians, who work on timescales so vast that a single "project" might span several human generations. Their patient stewardship ensures that this hidden world remains vibrant and alive, cycling through patterns of growth and renewal that have continued uninterrupted since before human civilization began.

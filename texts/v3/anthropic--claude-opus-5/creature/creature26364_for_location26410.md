@@ -1,0 +1,63 @@
+## The Forty-One
+
+They are small people, and they are yellow.
+
+Not jaundiced — dusted. The sulfur that sifts out of the reedwood joints gets into the pores of the skin and the lime of the plaster and the weave of everything, and after a lifetime it is no longer a coating but a colour. Their palms are the colour of old ivory, the creases packed with lemon. Their hair is stiffened with it and holds whatever shape it was last pressed into. Their eyes are permanently pink at the rims and weep a little in the sour wind, and the whites have a faint grey haze in anyone over thirty, which is the hydrogen sulfide slowly frosting the cornea. They are lean the way a rope is lean. Their ribs are deep and their chests are barrelled from a life of breathing air that is one part in twenty wrong, and they can hold that breath for a long time, which is a working skill and not a game: the bakers hold it, the surveyors hold it when they go low, everyone holds it crossing the floor.
+
+None of them can smell anything. The olfactory nerve is dead in every citizen by the age of six or seven, permanently, and this is so universal that they have no word for smell in the standing language and only a borrowed one, learned from pilgrims, in the sealed tongues. Visitors arrive gagging, faces wrapped, eyes streaming, and the citizens watch this with the mild interest of people watching a foreigner react to a colour they cannot see.
+
+There are forty-one of them, more or less, which is not a coincidence and not a tradition. It is the number of habitable pockets of quiet the lattice currently offers, divided by nobody, and it fluctuates between thirty-nine and forty-three the way a river fluctuates. The population is not a demographic fact here. It is an acoustic one.
+
+## The Two Tongues
+
+Out in the loud, no speech is possible at all. A shout three paces away is a mouth opening in a wall of noise. So all public life — the whole of it, the arguing, the pruning committee, the trading, the courtship, the insults, the instruction of children in the geometry of nulls — is conducted in the hands.
+
+The standing language is a sign-tongue of extraordinary precision and almost no warmth, developed over two centuries by people whose main subject of conversation is the exact position of an invisible surface in the air. It has thirty-odd distinct handshapes and a system of locating them relative to the speaker's body that maps directly onto the bell of the pit; you can say *the null has moved a forearm outward and a hand's breadth up, on the fourth shell, since the sand walked at midmorning* in about two seconds, and be understood by a deaf man of eighty across a gap of twenty paces in glare so bright he is squinting. It has no whisper and no shout. It cannot be overheard, and it cannot be private: it happens in daylight, in the open, in front of everyone.
+
+Speech — actual voiced speech — happens only inside the stills, and nothing said inside a still has ever left one.
+
+The consequence took a while to become clear and is now the strangest thing about them. Spoken language, here, never pools. It never gets averaged out in a marketplace or a temple or a crowd, because there is no crowd; it passes from a mother to the two or three children who share her quiet, from a wife to a husband, from a dying woman to whoever is sitting with her, and then it stops. Forty-one people carry something like eleven or twelve mutually half-intelligible spoken tongues, drifting freely, sharing the sign-language's vocabulary of measurement and almost nothing else. A marriage here is partly a transfer of language: you teach him your words, in the dark, over years, and he teaches you his, and if you are lucky the children get a working hybrid and if you are not they grow up bilingual in two dead ends.
+
+There is an old mason on the fifth terrace, deaf since she was forty-six, who is the last speaker of hers. Her sisters are dead and her husband is dead and the two children went out to the guide-camp fifty years ago and their words will have gone soft and foreign out there in the quiet. She talks anyway. She has a good still, a reliable one, in quiet from the third hour to the seventh, and she sits in it and speaks to the plaster in a language that has become, in the technical and complete sense, hers. Sometimes children are sent to sit with her and learn a little of it as a courtesy. They find the vowels difficult and the grammar arbitrary, and none of them will keep it, and she knows this, and she teaches them anyway, and what they mostly take away is the memory of an old woman's mouth moving in a room where no sound comes in.
+
+## The Ear and the Tone
+
+Everyone here goes deaf. It is not an accident or a hazard; it is the shape of a life, as reliable as greying.
+
+Until about twenty-five you have the whole range, and you are therefore a surveyor, because sand can lie and a young ear cannot. The surveyors are the truth-organ of the city: thin youths hanging off ropes out in the thunder with a drum on a stick and a knotted string, plugs half-out, working in bursts of ninety seconds and coming up with blood on their upper lips, mapping by hand the invisible thing the whole city stands on. It is understood that they are spending themselves to do it. It is understood that this is fair, because they will get the rest of it back later, in the form of being able to work.
+
+By forty the top of the range is gone and you can no longer hear the reedwood shriek, only the roar. By fifty you hear nothing at all, and you become a mason, and you can stay out in the loud from dawn to dusk laying course on course while a hearing person would come apart in an hour. The old build; the young measure; and the plans pass between them in scratched marks on the plaster of dead cells, which is the city's only writing and its only archive — two centuries of measurements incised on the inside walls of rooms that lost their silence long ago and now stand open and full of noise, legible only to people who were taught the marks, out where no one can be told anything.
+
+And every one of them, deaf or not, hears one thing forever.
+
+In a still, once the ringing settles, you hear the inside of your own head, and the highest and steadiest part of that is a pure tone that belongs to the ear itself and to nobody else. They call it your note. It is the first thing a child is taught to find and the last thing anyone has. The theology, insofar as they have one, is entirely built on it: the roar outside is the world's note and it does not care about you; the note inside is yours; a life is the slow business of the outside going quiet and the inside getting louder, until at the end there is only you, sounding, in a small round room. The deaf of eighty live inside a single unbroken tone and are not, by all accounts, unhappy about it. They say it has got sweeter.
+
+## What They Sell
+
+They have no metal, no water, no grain, no leather, no lime but what they burn — they cannot burn anything — no lime but what they quarry and grind. Everything comes across the gypsum on the backs of guides. What goes out is nothing at all, and this is the whole economy.
+
+Pilgrims walk two days into a noise that makes their nostrils bleed in order to be taken down into the bell, put into a shuttered drum three paces across with one other human being, and permitted to say a thing once. That is the trade. Nothing said inside a still leaves it. No one is listening at the window, because there is no listening within three paces of any window on earth. There is no eavesdropping here and there has never been, not once, not by accident; the architecture forbids it in the way a vacuum forbids fire.
+
+The listener is always young, because the listener has to be able to hear. This is the part the pilgrims are told at the lip and mostly do not understand until afterwards: the person who receives what you say will, within twenty years, be unable to hear the same words if you screamed them. You are heard, and then the hearing is taken out of the world. There is an art to being an Ear — to receiving and returning nothing, to letting the words go where the deafness will take them — and the ones who are good at it are quiet, unimpressive people who never marry early and who spend their off-shifts alone, and the city treats them with the wary respect owed to anyone carrying a load nobody else can lift.
+
+The guides, incidentally, are the city's surplus children. When the lattice offers forty-one quiets and there are forty-three people, two people go up over the lip and out onto the plain, and they become the ones who walk the spiral with their heads turning, who know what a bird sounds like, who keep their hearing into old age and go slightly strange from it. They come back with grain and copper and news of empires, and to tell anyone the news they have to go down into a still and speak it, where it dies. The city's ignorance of the world is not a policy. It is a property of the building.
+
+## Children, and Dying
+
+An infant shares its mother's quiet and is carried with the bedding on the rounds of the day, four or five moves between waking and dark, the whole of infancy spent being lifted through walls of noise into pockets of nothing. Children are never left alone in a deep still; a child who has not yet found its note, alone in absolute silence, comes out with something rearranged. The first solitary hour is given at about nine, in a shallow cell with a good margin, and is the only rite these people have. Some children cannot bear it — the silence, not the noise — and those become the early-deaf, sleeping out in the loud with wax and packed cloth, stone deaf by twenty-five, masons a generation ahead of schedule, valued enormously and pitied enormously and not, generally, married.
+
+At the other end there are the two cells on the seventh harmonic, which come into quiet for about nine days, twice a year, and are used for dying in. Dying here is calendrical. The very old are carried up and installed with a jar of water bought at ruinous expense and someone to sit with them, and they spend their last days in the best silence in the world, listening to their own note, speaking a language the sitter may or may not follow. Those who fail to die inside the window are carried back down, which is a shame and is not resented, and everyone waits six months.
+
+The dead go into the Throat. There is no water to wash them and no fire to burn them and the gypsum will not hold a grave, so they are wrapped and weighted and dropped, and the flue takes them, and for four or five seconds the note of the city staggers.
+
+That flutter is the only signal that penetrates a still. It comes through the stone and the floor and the bones of the sternum, and every one of the forty-one feels it wherever they are, in whatever pocket of nothing, deaf or hearing, and stops, and knows. It is the single public utterance available to them, and they have two uses for it: a death, and a stone thrown into the Throat by anyone who sees flame.
+
+## The Others
+
+Nothing much else can live in a place this loud.
+
+The borers can: soft flightless moth-things the colour of candle wax, blundering in the thickets, laying in the reedwood joints. Their grubs eat the pith and open new holes, and every new hole is a new pipe and a new voice and eleven houses gone sour by evening. They are the enemy, taken with hooked sticks and with fingers, and they are also the only meat, roasted on the black stones by the Throat, tasting of resin and salt. Children hunt them constantly. It is the one form of work that is also play.
+
+And there is the thing that hunts the borers: a lean, blind, six-legged animal the length of a forearm, glassy, translucent, that lives out in the thunder where no person goes and finds its food by pressing itself flat to a stem and feeling for the wrong vibration in it. It has no name in the sign-tongue that anyone will make in the open; you sign it with the hand turned away. It cannot enter a still — will not, has never been seen to. To it a null is a blank space with nothing in it, a hole in the world, a room made of death, and it walks around them, and the citizens know this, and think about it more than they say.
+
+Twice a season someone sees one out there in the glare, gripping a stem, absolutely patient, listening with its whole body to the only thing here that never lies. They consider it lucky. They leave it alone. And then they go back to their bedding and their drum of sand, and carry the one and follow the other around the inside of the pit, three paces at a time, all day, forever.

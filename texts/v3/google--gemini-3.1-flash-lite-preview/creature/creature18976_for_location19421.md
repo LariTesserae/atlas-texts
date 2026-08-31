@@ -1,0 +1,17 @@
+The inhabitants of this place are not citizens in the way we understand the word. They are the *Refractions*—beings that seem to occupy the same liminal state as the architecture they inhabit. 
+
+They do not walk so much as they drift, their geometry echoing the spindly, crystalline spires that rise from the mountain’s brow. If you were to catch sight of one, you might initially mistake it for a trick of the humidity. They are tall, impossibly thin, and their physical integrity seems to flicker. They are humanoid, perhaps, but with limbs that possess too many joints, as if their bodies were still deciding on a final orientation in the thin, sharp air. 
+
+Their skin is their most striking feature. It is not skin at all, but a semi-permeable, opalescent membrane that shares the same molecular composition as the city’s translucent masonry. When a Refraction stands still against the cliffside, they vanish entirely, becoming a literal part of the geological architecture. They have no pigmentation; instead, they act as living prisms, capturing the bruised, cool light of the plateau and scattering it internally. They glow with a soft, pulsing rhythm that matches the bioluminescence of the moss in the cracks. 
+
+They do not speak. To communicate, they resonate. If you stood near one, you would feel a sudden, jarring change in the local gravity—a gentle, rhythmic tugging at your own senses. They emit low-frequency hums that vibrate through the rock, a language of tectonic feedback. You would feel their meaning in your marrow rather than hear it in your ears. It is a language of maintenance, of "here" and "now," of "solidify" and "flow."
+
+They are the city’s nervous system made manifest. 
+
+When a structure begins to bloom from the mist, a Refraction will typically be found at the heart of the growth, pressing its long, multi-jointed fingers against the raw, igneous rock. They act as a focus for the molecular organization, drawing the metallic minerals from the mountain and knitting them into the spindly, self-repairing spires. They aren't laborers; they are the catalyst. As they work, their bodies become translucent, their veins glowing with the same blue, bio-synaptic circuitry that governs the city’s power grid. 
+
+They do not sleep, not in the sense of closing eyes and dreaming. They simply cycle into a period of extreme stillness, their metabolism slowing until it mirrors the sluggish, million-year crawl of the stone beneath them. In these moments, they are indistinguishable from the statues that decorate the vaulted plazas. They are waiting for the city to decide its next shape, tied to the environment by a tether of shared physics. 
+
+To look a Refraction in the face is an exercise in vertigo. Their features are not fixed; their eyes—if one can call them that—are shifting, liquid configurations of light. They have no curiosity for those who do not belong to the mountain. You are to them as a drifting cloud or a falling rock: an inconsequential visitor in a world of geological gestation. 
+
+They are the stewards of a world that is still becoming. They are not waiting for the mountain to finish growing; they are the mountain’s way of breathing, the quiet, persistent ghosts of an architecture that refuses to be static, moving forever toward a horizon that will never arrive.

@@ -1,0 +1,59 @@
+At first the inhabitants seem smaller than they are.
+
+Seen through the green distance, they resemble scraps of cultivation shaken loose from the towers: a bundle of cut stems progressing hand over hand along a guide-line, a hooded shape folded beneath a leaf, a narrow figure hanging motionless while fish pass through its trailing cords. Their clothing breaks up the body’s outline. Mats of hollow fiber are wrapped around the chest and abdomen for warmth; weighted skirts hold the legs down; overlapping bark scales protect the shoulders from abrasive roots. Even at close range it is difficult to tell where the person ends and their equipment begins.
+
+Beneath these wrappings they are long-limbed, fine-boned, and almost hairless. Their skin varies from the gray-brown of soaked wood to a muted, algae-tinted olive. The cold raises it in permanent stipples. Fingers and toes are unusually broad, but the conspicuous webs are artificial: detachable paddles fitted over the hands, stiffened with slivers of reed and opened or furled depending on the work. Without them, their hands are dexterous and narrow, adapted less for swimming than for knotting, grafting, and feeling minute flaws in living fiber.
+
+They are not wholly aquatic. They can remain submerged for a long time, slowing themselves until movement becomes deliberate and sparse, but they must eventually breathe. Their hoods are not gills. Each is a close-fitted frame of bark, gut membrane, and oiled thread connected to one or more air bladders carried along the spine. A skilled traveler takes only a small reserve and moves from breathing court to breathing court. Children and the old wear bulkier arrangements, buoyant clusters that make them look like seedpods with faces.
+
+The face beneath the hood is quiet and watchful. Nostrils close tightly. The eyes are large, dark, and protected by a translucent inner lid that clouds the expression without obscuring sight. Their hearing is more striking than their vision. A soft fan of cartilage lies behind each jaw, pressed against hood or tower when they listen. Through it they detect vibrations in cord, water, and wood: the approach of a ray, the fraying of a bridge, a distant pruning crew tapping its identity into a trunk.
+
+They do not name themselves after the lake, because to them the lake is not a place surrounding the city. It is weather, street, distance, medium, and sky. Nor do they make a firm distinction between citizen and gardener. In their oldest usage, the word for a person means something closer to **one who keeps an opening**.
+
+An opening may be a doorway pruned free of shoots, a corridor preserved between towers, a sounding hole in a current-organ, a breathing court kept from sealing over, or a place in a story where a future generation is expected to add its part. Adulthood is marked by being entrusted with such a space. Some receive a literal gate between paired trunks. Others maintain a shaft of light, a migration lane for pollinating eels, or a single low note in the district chord.
+
+Their households are distributed rather than enclosed. A family may sleep in one membrane-walled chamber, keep tools in a hollow two towers away, tend food plants on three different terraces, and share rights to an air court with twenty other families. Kinship follows grafts more readily than blood. Those who raise a child, teach the same tower, or exchange breathing bladders in danger may be joined formally as “bound tips.” Such relations are recorded not in writing, but in living knots: distinctive braids trained into narrow genealogical stems and periodically renewed by descendants.
+
+No one moves quickly unless something has gone wrong.
+
+The young are taught that free swimming is wasteful, boastful, and dangerous. A respectable traveler pulls along fixed lines, clips every tool twice, pauses at crossings to feel the local vibration, and leaves the water no more disturbed than necessary. Children violate all of this. They kick through plazas, hide among pad roots, release bubbles under sleeping elders, and dare one another to touch the unmarked outer growth. Their games produce brief, bright confusions of limbs and silver air. Adults reprimand them by making them clean crustaceans from bladder valves or sort seed by buoyancy.
+
+In the breathing courts, people become different creatures. They unseal their hoods, unwrap their hands, cough, speak, eat, and laugh. Voices unused underwater are low and somewhat rough. Conversation is punctuated by the drip of condensation and the soft knocking of skulls against the leaf roof when someone rises too abruptly. Here infants are born, wounds are cleaned, fibers are dried, and the dead are prepared.
+
+Their spoken language belongs mostly to air, but the city’s everyday language is percussive. Knuckles, bone tappers, stretched cords, and hollow stems carry short patterns farther than voices could. Every inhabitant has a personal interval. Districts announce themselves through chords. Urgency is expressed not chiefly by loudness but by broken rhythm. A repeated note arriving too evenly means structural strain; three descending knocks indicate fouled air; a rapid irregular flutter warns of a large animal moving where it should not.
+
+Because the sounding towers are alive, their language is never perfectly stable. A branch thickens and a note deepens. A cold season tightens one cord while loosening another. The oldest listeners do not memorize a fixed map of tones; they recognize how the city is changing.
+
+These listeners are among the settlement’s most respected inhabitants. They spend hours with cheek or sternum pressed to wood, charting tremors through their bodies. Some have lost much of their sight from age or illness and navigate by chord, cable-hum, current pressure, and remembered distances. During storms they are stationed throughout the districts. They hear breaks before others see them and direct crews with drum codes transmitted from tower to tower.
+
+The gardeners are less a profession than the majority of the population, though their specialties differ. Shapers maintain inhabited structures. Openers prune streets and windows. Binders work on bridges that may not be completed within their lifetimes. Air-keepers tend the great pads, scraping rot from the leaf undersides and managing the trapped mirrors beneath them. Warmth-keepers feed sealed fermentation bladders with mashed tuber and old fiber. Light-tenders cultivate insects, selecting colonies for steadiness, color, and tolerance of depth.
+
+Their patience is not passive. They intervene constantly, but in increments so small that an outsider might not recognize the work. A shaper may spend thirty years encouraging a root to turn around a chamber. Every few weeks they score one side, shade another, alter the current with a screen, or pack a crease with nutrient pulp. The finished curve belongs partly to them, partly to several predecessors, and partly to the plant. They claim no sole authorship.
+
+This makes their idea of property peculiar. Tools, clothing, stored food, and personal cords may belong to individuals. Living structures do not. One can possess the duty of a tower, inherit its burdens, or be blamed for its sickness, but no one owns it any more than one owns a district’s current. The closest thing to wealth is continuity: healthy grafts, dependable air rights, well-taught successors, and obligations that others trust will be fulfilled.
+
+They eat in the breathing courts or in small dry chambers grown within buoyant trunks. Their food is cold or gently warmed against fermentation sacks: tuber paste, pressed algae, fish roe, translucent stem pith, sour leaf curd, crustaceans ground with oil, and the flesh of carefully culled grazers. Long fish are rarely killed. Their browsing routes are part of the city’s maintenance, and particular herds are recognized by scar patterns and the shapes of their fins.
+
+The amphibious birds are tolerated as hunters, thieves, weather signs, and occasional messengers from a world the inhabitants seldom enter. Feathers caught on upper lattices are treasured. A person who has climbed through the lake surface and stood beneath the naked sky wears a feather braided into the hood cord until it decays.
+
+Few make that ascent willingly. Above is an immense region without handholds, roofs, or breathable boundaries. The brightness has no walls. Wind moves unpredictably and speech vanishes into it. Those who surface to repair storm damage return shaken by the mountain’s exposed distances. Their stories describe the valleys below not as land but as an inverted abyss into which the lake might someday spill.
+
+Death is handled according to what remains useful. Bodies are wrapped in open weave and secured in quiet nurseries along the lower terraces. Small scavengers clean the bones. The flesh enters root beds; the bones return as needles, braces, toggles, and listening pieces. Skulls are sometimes enclosed within young sounding trunks, not as relics but as acoustic inclusions. Years later, when water moves through the grown wood, the dead alter its voice.
+
+Thus ancestors are heard as slight irregularities in the district chord.
+
+Only those lost in the central shaft receive no such return. Their names are not spoken in air for a full cycle of the pads. Instead, relatives tie empty loops into the nearest terminating road. Nothing is lowered after them. The shaft is neither worshiped nor explained consistently. Some say it is the lake’s listening place, kept empty so the city’s many noises have somewhere to go. Some call it the root of the sky. Children are told that the mountain once had a heart there and that the blind armored creature below still knocks against the hollow where it was removed.
+
+No one claims to have seen that creature entire.
+
+Lower gardeners sometimes find pale scrapes across buried wood, each wider than an outstretched body. Listening crews report a sequence of impacts that moves without regard for streets, roots, or known passages. The oldest account describes not an animal but a blunt white brow emerging from the dark substrate, followed by one lidless eye and a field of feelers like dead branches. Another insists there are several creatures answering one another through the crater wall. The inhabitants count the knocks, compare intervals, and alter deep construction when the pattern changes.
+
+They do not descend to settle the matter. Curiosity, in their culture, is respected only when paired with a means of return.
+
+During the rare clear beam, work pauses. People emerge onto balconies around the central depth and fasten themselves there, facing inward. The sudden light reveals them by degrees: bark hoods polished from generations of handling, pale hands resting on living rails, strings of tools, larvae glowing in cages at their hips. Hundreds may be visible, yet the city never looks crowded. They remain distributed among its great vegetal forms, each figure attached to a tower, line, pad root, or suspended path.
+
+For those few minutes they watch the whole settlement appear.
+
+They see old collapsed neighborhoods beneath them, new bridges reaching out but not yet joined, fish herds turning in silver sheets, rays passing like broad shadows over the root terraces. They see the open shaft receiving the sun and giving nothing back.
+
+Then cloud closes over the summit. The light thins to green, then blue. One by one the inhabitants release the balconies and return to their openings. Hoods seal. Hand-paddles unfold. Bone tools tap against wood. Across the basin, the city resumes speaking through them—and they, almost indistinguishable from its tended growth, resume the long work of keeping it alive.

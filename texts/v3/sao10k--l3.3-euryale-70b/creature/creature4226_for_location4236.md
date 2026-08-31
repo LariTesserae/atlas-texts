@@ -1,0 +1,3 @@
+Two species that thrive in this world are the giant, slow-moving euMiNAS. They roam the misty expanse, using their long snouts to filter feed on the rich plant life that blankets everything. 
+
+The Helix were early victims of the erosive tendencies of this world. Their once grand structures, now nothing more than rounded mounds overgrown with moss and ferns, blend seamlessly into the natural landscape.

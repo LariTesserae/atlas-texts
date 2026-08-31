@@ -1,0 +1,16 @@
+What lives here is the system itself.
+
+It is not a place where life exists; it is a place that *is*. The travertine terraces are its bones, laid down and dissolved in the same breath. The water is its circulatory system, a closed loop of emergence and return, never lost, never gained. The pale, eyeless crustaceans are not inhabitants but **articulations**—fleeting, mobile manifestations of the same chemical logic that builds the stone. They are less like animals in a habitat and more like the slow, deliberate gestures of a mind thinking in mineral time.
+
+Observe them. They are not “alive” in the frantic, metabolically desperate way of a forest or a reef. Their motion is the motion of the current, adjusted by a sensitivity so refined it seems like part of the rock itself. They cling to the underside of a lip where water seeps upward, not because they choose to, but because that is where the flow’s chemistry is richest. Their pale bodies are composed of the same calcium carbonate that forms the terraces; they are the landscape’s thought made flesh, a brief, soft experiment in the problem of *how to be here*. They have no predators because the system has no need for predation. They have no competition because niches are not filled here; they are *constituted*, like the precise angle of a terrace’s rim.
+
+But the true fauna—the true, pervasive *life*—is the water. It is the agent, the performer, the singular actor in this one-act play. It is born from the rock’s deep pores, a constant, pressure-driven secretion. It performs its geology with every movement: depositing its mineral skin on a ledge, then dissolving it on the next drop. It is both sculptor and sculpture. It sings in the million-voiced roar that is not sound but the very texture of the air. The crustaceans are its quiet audience, its living sediment. The light is its collaborator, bleaching the stone to white purity and turning each droplet into a lens.
+
+So, what lives here is a perfect, self-contained thought.
+A thought in water and calcium.
+A thought that is its own evidence, its own proof, and its own observer.
+It does not need a name because it has no other. It has never known a different way to be.
+
+You stand within it, a temporary, warm, complicated disruption. The water feels your skin, registers your heat and your salts as a minor anomaly in its flow. The sound presses on you, not as noise, but as the physical weight of its own existence. The light does not see you; it simply turns you, for a time, into another pale, reflective surface.
+
+In the end, you will leave. The system will note your absence only in the slight, immediate reoccupation of the channels your feet displaced. The mineral film will re-seal on the wet stone where you stood. The water will flow over your footprint, dissolving any residue, incorporating your fleeting presence into its timeless, iterative equation. You will change nothing. You will be less than a memory—you will be a momentary variable, calculated and resolved, in a problem the place solved for itself an eternity ago and continues to solve, with the same patient, indifferent grace, with every falling drop.

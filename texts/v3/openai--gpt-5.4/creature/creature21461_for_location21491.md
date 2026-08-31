@@ -1,0 +1,63 @@
+What lives there feels less like a single species than the place's final interpretation of inhabitants: life that has accepted, without resentment, that the world is made of pressure, seam, runoff, and cold.
+
+If there is one creature that belongs to this high drowned artifact more completely than the others, it would not be something bright or obviously sovereign. It would be old in the same way the retaining walls are old: not ancestral, but abraded into rightness. A resident that does not oppose the infrastructure, does not merely shelter in it, but reads it instinctively as terrain, weather, memory, and body all at once.
+
+They are probably large enough to alter the silence when they move.
+
+At first you might take them for detachments of shadow under the water, or for sections of loosened cladding traveling where no current should carry them. In rain they disappear almost perfectly. On black spill-surfaces they are invisible until one unfolds. Their bodies would have learned the local grammar: long planes rather than bulks, hinged or flexing profiles that fit sluices and wall-shadows, matte skins the color of wet engineered stone. Not fish exactly, not seal exactly, not ray exactly, though they may borrow from all three. They would be creatures made to pass from open retention seas into drowned ducts, from shallow sheeting flow into vertical chambers, from exposed freezing plateaus into the warmed throats of pressure works.
+
+Their age would show first in their proportions. The juveniles, if seen at all, might look almost ordinary: sleek, many-limbed, cautious things basking on dark surfaces and dropping at once into runnels when disturbed. But the adults would have a monumental quality. Not gigantic in the melodramatic sense—this is not a place that needs monsters—but broad enough, long enough, and self-possessed enough to feel infrastructural themselves. When one rests beneath the lip of a spill terrace, it might resemble a collapsed membrane gate. When several align headfirst in an outflow, they could be mistaken for old fenders or silt-baffles. Their camouflage would not mimic rock or weed, because there is no such softness to imitate; it would mimic utility.
+
+I think they would be six-limbed, because that pattern already suggests itself in the place: two sets for anchoring, one for steering or manipulation. But "limbed" may be misleading. The forward pair might be narrow grappling fins or clasping forestructures, jointed enough to hook grates, ridge concrete, and cable remains. The middle pair would bear most of the body's weight when hauled onto exposed planes. The rear pair would be broad and powerful, able to kick in short violent bursts through vertical water. In open swimming they would fold much of themselves away, becoming streamlined and nearly ribboned. On land—if one can call the wet slabs and spill aprons land—they would move with a deliberate, economical drag-and-place, never hurried unless the hydraulics demanded it.
+
+Their heads would be low and wedge-shaped, built to enter current. The eyes, if present externally, would be small, shielded, and often closed in spray. Vision cannot be their chief sense here. They would feel by pressure, temperature gradients, vibration through surfaces, perhaps even by the minute tonal signatures of resonant walls. One can imagine rows of slit-sensory organs along the face and flanks, not unlike lateral lines, but adapted to distinguish not only moving water from still but spillway from cistern, loaded gate from empty chamber, safe undertow from lethal draw. To such creatures the whole region would be legible in tensions. A human sees ruins; they feel sequence.
+
+They would know when a basin is about to reverse.
+
+They would know, from a note in the wall or a change in the cold, that a float block is rising three terraces away.
+
+They would know which shafts breathe warm compression and which only feign shelter before a surge.
+
+That intimacy with old hydraulic law would make them seem uncanny, not because they are magical, but because they are locally wise at a level no newcomer could ever be. They live not in space, but in timing.
+
+Their skin would likely be bare, or nearly so: a dense matte integument resistant to abrasion, edged in places with callused ridges where the body habitually meets concrete, ceramic, metal, and ice. In older individuals these ridges might whiten, polish, or accumulate mineral tracing. Spray-zones might leave them frosted. Iron sheens might bloom and fade over their backs. Some would host the faint opalescent films that cling to the walls, so that a resting animal is not just hidden by color but by participation in the same slow life that stains the infrastructure. There may be no clean distinction between hide and substrate after enough years.
+
+And they would be patient feeders.
+
+Not pursuit predators in the open-water heroic sense, though they could certainly kill. This place rewards economy and ambush. They might feed in several ways according to district and age. Along walls they could rasp films and shell-clusters with soft but durable mouthparts, like the broad flexible grazers already present. In channels they might wait at convergence points where pale-bodied swimmers hold in the current, then fold and strike with abrupt total force. In enclosed ducts they might hunt the clear-fleshed eels by sensing pulse and heat. At times they might scavenge whatever the hydraulic system catches for them—animals pinned in grates, stunned against weirs, trapped in drawdown alcoves after a rapid level change. A mature individual would understand the landscape's feeding opportunities as a map of recurring events. It would not so much search for food as arrive where the structure was about to provide it.
+
+Perhaps that is what they are: not apex predators in the ordinary ecological diagram, but apex interpreters of inherited flow.
+
+They should have young, but in a way that suits the world. Not nests, not dens full of warmth, nothing botanical or burrowing. Maybe they choose certain half-flooded chambers high in the system where deep walls hold a little compressive heat and the surge cycle is reliable across generations. There the young cling to vertical surfaces in clusters, dark and almost featureless, feeding first on microbial films and on secretions from the adults' skin. Or perhaps the eggs, if they lay eggs, are cemented into seam-lines above and below the fluctuating waterline, where they are alternately wetted and aerated in precisely timed intervals dictated by ancient design. That would feel right for this place: reproduction entrusted not to seasons of leaf and sun, but to valve-memory and overtopping rhythm.
+
+Their sociality would be sparse.
+
+Not solitary in the theatrical predator sense, but widely spaced, tolerant, occasionally convergent. You might see several basking on a warmed apron after a freezing night, each occupying its own patch of retained heat with exact courtesy. During major surges they might gather around favored release channels, every body angled differently to exploit another layer of turbulence. In breeding districts they may exchange low contact sounds—subsonic knocks through wetted surfaces, throatless moans carried more by wall than air, pulses felt through the feet before they are heard. Across open black reaches, one surfacing far away might be answered not vocally but by a change in posture from another, as if signaling is as much hydrodynamic as visual.
+
+They would not waste movement on display. The place itself is too austere for ornament. But age may ornament them anyway. Old scars from ice-fracture, cable-cuts, pressure-door brushes. Margins worn unevenly from decades of hauling over one preferred type of edge. Embedded shards of shell or ceramic harmlessly seated in callus. Perhaps in the oldest individuals the body grows fringes or sensory whiskers along the jaw and limbs that, in motionless water, drift like fine rootlets—an eerie counterfeit of the vegetation this world lacks. Seen in a cistern's silver dimness, such an elder might look less like an animal than like some drowned, thinking fragment of the architecture come loose and grown hungry.
+
+I do not think they are cruel. Cold-purposeful, yes. Utterly indifferent to softness, yes. But not malicious. They belong to a place where death is usually a matter of force, misreading, and timing. If they kill, they do so with the concentration of things that cannot afford waste. If they ignore you, it is because you have not yet entered any of their meaningful categories: food, obstacle, turbulence source, threat to young, displacement from shelter. The danger in them would come from the same source as the danger in the place overall: they understand the rules better than you, and have no reason to slow their life to teach them.
+
+Still, there may be moments of contact.
+
+A traveler crossing a flooded avenue might feel, through boots on submerged slab, a measured series of impacts that proves a large body is pacing the parallel wall below the surface.
+
+Someone sheltering under a spillwork overhang may discover, only when the rain thins, that one of these animals has been sharing the lee side, motionless as poured shadow, collecting the same escaping warmth.
+
+In a quiet cistern a hand lowered into silver water might draw near one without realizing it, until the skin of the basin dimples around an exhale and a dark head rises not to attack but to test the local chemistry of this newcomer.
+
+That last matters. I suspect they are curious in a constrained way. Not playful perhaps, but investigative. They would sample disturbances because disturbances often mean opportunity or hazard. New vibration, new smell, new thermal plume: these must be known. Their curiosity would look severe. A long still regard. A circling pass with almost no wake. A forelimb briefly touching a metal rail you recently touched, comparing traces. Then a withdrawal so smooth it seems the place simply reclaimed one of its shadows.
+
+Alongside them, many smaller lives occupy every scale of hardness and flow. The place swarms, just not vividly. Fine-limbed wall-runners that read current like mathematics. Pale prayer-swimmers in outflow. Adhesive grazers like moving scars. Spray-shells that tick shut in communal weather reflex. Cartilage-sailed skimmers riding cataract updrafts. Glassy duct-hunters. Slow bells and ribbons in cistern stillness. But all of these feel, in a way, like details of the system.
+
+These larger six-limbed residents feel like citizens.
+
+Or perhaps wardens, though no one appointed them.
+
+Not guardians in any noble sense—nothing so sentimental—but inheritors of function. They move through the old city-sea as if some fraction of its vanished intentionality has survived by passing into flesh. The machine-mind is gone, the makers are gone, the purposes are metabolized beyond recovery; yet something still attends to release cycles, warm refuges, migration corridors, feeding convergences, the vulnerable chambers where young can survive winter. Not consciously on behalf of the whole, perhaps. But by living expertly enough within it, these creatures preserve patterns. Their routes become safe routes for lesser fauna. Their hunting keeps certain channels dynamic. Their abandoned skins or dead bodies seed entire temporary ecologies where they lodge in grates and alcoves. Even their basking redistributes films and shell-larvae. The infrastructure has naturalized itself, and so have they; but unlike the lesser life, they make that naturalization visible.
+
+If you wanted one final image of what lives there, it might be this:
+
+On a day of low cloud and slant rain, an immense stepped spillwork is running only partly full. Water threads down some channels and leaves others black and gleaming. Shell-clusters tick in the spray zone. Far below, a central shaft breathes cold mist upward. On one of the exposed dark terraces lies what appears to be a collapsed sheet of wet material, charcoal and without feature. Then the pressure shifts somewhere deep in the system. A different gate takes load. The note of the wall changes. The sheet raises its head. Another nearby does the same. Then a third, farther upslope where no one had seen it at all. One by one they begin moving toward the new flow, not hurriedly, but with absolute confidence, as if responding to a signal older than species.
+
+That is what lives there: creatures that have learned to hear the continued thoughts of dead hydraulics, and have made a life inside them.

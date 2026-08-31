@@ -1,0 +1,17 @@
+At first glance, what lives there looks like a population.  
+On longer watching, it looks like a practice.
+
+The people are narrow-built and deliberate, with the kind of balance learned young and never lost. They walk with knees soft and feet placed by memory, not sight, because planks shift, ladders sweat, and a familiar route can be wrong by evening. Their hands are their most marked feature: thickly callused palms, resin-dark fingertips, old cord-burn scars crossing the thumbs. Clothing is layered for damp rather than cold—inner wraps that wick, outer reed-cloth and fishskin capes greased against mist, belts hung with pegs, wedges, awls, coil-cord, patch-clay in waxed pouches. Everyone carries repair.
+
+Children are not warned away from danger so much as inducted into it. They learn to read sheen: which boards are merely wet and which are about to lift; which bank cracks are surface and which are hungry. They play at “runnel court,” reciting the basin rules in sing-song, then grow into adults who say those same lines before lifting a beam. Old people are prized not for stories alone but for ear-skill: they can tell by the sound through a post whether a pile is sound, hollowing, or beginning to walk.
+
+Their households are vertical, like rookeries built by patient engineers. Sleep high, cook mid-level, store where weight won’t shear a fresh edge. Nothing is still long enough to become heirloom in the usual way, so inheritance is procedural: knot patterns, drying timings, bank-binding recipes, tide calendars cut into bone slats. Marriage gifts are useful things—good tar, seasoned pegs, rights to a roof bridge segment—because affection here is proven as maintenance.
+
+They are quiet, but not timid. Speech is economical because the place rewards listening: drip tempo changes, rope hums, a dull thunk where yesterday there was ring. They greet one another with condition reports (“south seam rising,” “third gantry holds,” “eels expected”), and gossip often concerns structural character (“their loft always leans,” “his hearth smokes wet”). Religion, if named, is less worship than compliance with reality: transgression is not sin because a god is angry; it is sin because the ground answers immediately.
+
+Diet and labor make them wiry, patient, and communal by necessity. Eel nights turn whole tiers into coordinated traps and lamps; storm mornings are everyone’s workday whether or not your own wall failed. They do keep small tendernesses: shell beads hung where condensation gathers first, lullabies timed to drip rhythms, bits of traded green carefully grown in cracked pots on rare bright ledges. Beauty survives, but in durable forms—texture, cadence, fit.
+
+And yet the deeper answer is this: the thing living there is not only human.
+
+The town itself behaves like an organism, and its people are one of its tissues. Timber, clay, algae, rope, runoff, and law form a single metabolism: take in moisture, move it, store it, release it; detect stress, redistribute load, scar, regrow. A newcomer might ask, “Who lives in this basin?” Someone born there might answer, without metaphor: “We do. It does. Same thing, on most days.”  
+When the tide breathes in, the whole settlement tightens. When it breathes out, they loosen, mend, and prepare for the next inhale.

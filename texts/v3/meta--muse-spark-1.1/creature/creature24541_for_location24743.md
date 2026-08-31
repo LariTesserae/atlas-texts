@@ -1,0 +1,39 @@
+They live there.
+
+At first you think it's only one thing — the dark itself moving. The motile dark. You kneel longer until your eyes stop making up shapes and start resolving them, and then it resolves wrong, and then it resolves true.
+
+They are not woodlice. Woodlice are what lowland people call them when they find them under a pot. These are their cousins who never left the water. Isopods. Crustaceans still.
+
+Each one is about as long as the top joint of your little finger, but most of that length is soft. Their plates are not armor so much as weather — thin, translucent amber chitin, the color of old tea, with the gut and the brood showing through as a darker smear underneath. You can see the heart beating in the smaller ones, a fast tick far too fast for this cold. They have fourteen legs, which is too many to count at speed, so your brain edits them into flow. When they walk they don't scuttle, they pour. The ground is wet, they need wet, their gills are on their bellies and if they dry they die, so they never go more than a body-length from a film of water. That's why the city works — every surface weeps. Every surface is habitable lung.
+
+Look closer. Their heads are blunt, under-slung, all mouth underneath. Two pairs of antennae: one long, jointed, feathered with chemoreceptors that flick and taste the air for ammonia, for rot, for heat; one short, almost invisible, that does nothing but touch what's directly ahead. Their eyes are there but vestigial, three black beads on each side that register change in light, not image. In that moss-sealed room there is no image anyway. They navigate by antennae and by footfall. Where an antenna brushes, a leg has already memorized.
+
+There are thousands. You said hundreds at first because thousands was obscene for a space the size of a dog's chest.
+
+The wall is not wall plus inhabitants. The wall is inhabitants being a wall, for a while, and then moving. They roil over the retaining walls of living stem — those walls pulse because they are half wormed with animals packed inside them, keeping warm. When one leaves, a gap closes. This is not a crowd. This is a circulation.
+
+What they do is constant and not frantic. Cold has taken speed and traded it for thoroughness.
+
+The ones on the lower avenue carry water. Not in vessels. Between their first two pairs of legs, in the cup of their gnathopods, surface tension can hold a perfect sphere of bog water if you are careful and slow and hairy enough. The hairs on their legs are hydrophilic at the tip, hydrophobic at the base. They walk on six or eight legs and carry with four, the droplet quivering but never breaking. They haul from the central cistern — that still, black mirror with a pencil-lead drain to keep it from flooding — up the ramps to the terraces, to mist the nurseries. In the nurseries, deep in the double wall of a hut where the dead thatch holds still air, clusters of young, white as boiled rice, cling to their mother's underside. She is a ghost in there, hollowed herself, her marsupium swollen. The water-bearers dab a drop onto her venter and she shivers.
+
+Others carry food, but food is also building material, also farming. There is no distinction. One comes up the north ramp with a flake of crane fly leg, still barbed, larger than itself, dragging it backwards, cutting it as it goes. Another follows behind it to collect the frayed strings. The fly itself is in the plaza being undone by a team that has become an organism: six big adults holding, twelve smaller ones shearing with mandibles so sharp they click on chitin. The meat goes one way, wrapped in fungal paste to keep it from fouling. The hollow chitin of the fly goes another — a roof beam, a door reinforcement. Nothing wasted because waste is a concept that requires surplus.
+
+On the top terrace is the farm you thought was a farm. You were close. It's not mushrooms they grow for eating. It's a lace-fungus, a mycorrhiza that doesn't fruit, that sheets over living sphagnum tips in white veins and persuades the moss to grow differently. Where it touches, the moss ceases to be fluffy and becomes structural — stems straighten and lignify and turn that veined red, leaflets fuse into scales. The gardeners tend it with their mouths, pruning back any strand that tries to spore, licking the lace to spread it. Those gardeners are smaller, paler, their mouthparts blunter. A caste, perhaps, or just the young. They live up there. Their droppings are pink, from pure moss-sap, and that is what has stained the roofs around the farm huts that strange warm pink.
+
+And the tools. You keep looking back to the tools because tools imply mind, and you weren't ready for mind in December in a peat flat.
+
+One animal — an old one, its back pitted and stippled with algae so that it is greenish — sits on the ridge of a hut with its back to the drip and holds. Between its front legs, pinched against its mandibles, is a flake of basalt. That basalt you saw punch up through the bog, fresh broken from under the world this winter, its conchoidal edge still atomic sharp. It is a scythe to them. It uses it to shave ripe capsules off the moss thatch overhanging the hut, one stroke, pop, and the capsule falls to a second isopod below who cradles it and runs. Inside capsules: spores plus oil. Food for the spring brood.
+
+Another, on the east wall where the rock has torn the town open to wind, is doing repair. It has clay. Not mud, clay — the cold gray living clay from just above the water table where the bog meets the basalt. It comes up pellet by pellet, each pellet carried like water, but stuck to its chest. It spits a thread of silk-fungus and presses the pellet into the breach. Behind it, two others are weaving: they seize a living sphagnum tip between them and pull, and the moss does not resist because the fungus has told it not to. They weave it over the clay like thatch over daub.
+
+They know size. They build ramps not stairs because water must travel and because they cannot jump. Their doorways are low circles ringed with black chitin — not made chitin, scavenged. The rings are the neck-joints of dead siblings, chewed clean and filed circular and set in place. That is architecture that remembers ancestors.
+
+They have predators in town, and that is also part of them. When the little linyphiid spider — black, glossy, moving like spilled ink compared to their ooze — steps across the central avenue, the street doesn't panic. It empties. A wave runs ahead. Isopods flatten and tuck their antennae. The spider plucks one unlucky old drifter from the edge and carries it up onto a moss beam to eat. The street fills behind. No alarm pheromone you can smell, but the floor tastes different for a while.
+
+For sound they have nearly none. What you hear as click and rasp is leg on house, mouth on leaf. What they hear is vibration through water. On a good day, through the floor mat, the whole town can feel a caribou step a quarter mile away and they go still as one, until the wave passes.
+
+They are not warm-blooded and not cold-blooded in the way textbooks mean. They carry a few degrees with them, when they pile. In the biggest hut, central terrace, the roof steams — literally, a faint plume of warmer-than-air that condenses instantly. Inside, a wintering clump, hundreds interlocked in a ball, female over female, the eggs in the middle alive. Breathing together. That heat is what you felt as a fraction warmer. That heat is the town.
+
+They don't see you. Or if they taste you through the moss, you are weather. The dome lifts, a huge light changes, cold knifes in, and they tuck. You lower it. Soft clay sigh. Drip. Click. Drip. They repair.
+
+Under your boots the water table waits, impartial.

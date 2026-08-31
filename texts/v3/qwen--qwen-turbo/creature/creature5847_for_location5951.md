@@ -1,0 +1,21 @@
+What lives in this place is not easily named. It is not a creature, nor a god, nor a mind. It is something in the space between, a presence that lingers in the breath of the stone, in the pulse of the mineral filaments, in the slow, ancient turning of the earth beneath the skin of the world.
+
+It is the city itself. It is the memory of the city. It is the weight of all that has been built and broken, of all that has been lived and lost. It is the echo of the hands that carved the walls, of the voices that once rang through the halls, of the fire that burned and the water that flowed and the silence that followed. It is the city dreaming, or perhaps remembering.
+
+There are those who say that the city is alive, but they are wrong. Or perhaps they are right in a way that cannot be spoken. It is not alive in the way we understand life, but it is not dead either. It is a thing of layers, of strata—of time stacked upon time, of history and myth and something older still. It is a place that has been built and abandoned and rebuilt, and in each iteration, it has absorbed the essence of what came before.
+
+There are no people. Or perhaps there are, but they are not as we know them. They are not flesh and blood, but echoes, fragments of thought and motion, suspended in the air like dust in a forgotten temple. They move in the dark, their shapes flickering like shadows cast by a light that does not exist. Sometimes they appear in the periphery of vision, just as the mind is about to grasp them, dissolving into mist before they can be defined.
+
+There are the small things, the delicate ones that glow in the dark, that move in patterns that suggest meaning. They are not insects, but they are not entirely unlike them. They are something in between, something that has learned the language of the city, that has adapted to its slow rhythm, its silent pulse. They are not predators, not in the way we understand predation, but they are not prey either. They are part of the system, part of the cycle of memory, of decay, of growth.
+
+There are the structures, the buildings, the bridges, the staircases. They are not empty. They are full of something, something that cannot be seen but can be felt. It is a presence, a weight, a pressure that does not come from gravity but from the sheer, unrelenting history of the place. It is as if the stones themselves are thinking, as if the walls are remembering, as if the city is trying to tell a story that has already been told too many times.
+
+There are the lights, the faint, pulsing glow of the mineral filaments. They are not merely illumination. They are communication. They are signals, messages sent through the stone, through the air, through the very fabric of the place. They are not words, not in the way we understand them, but they are meaning. They are the language of the city, the voice of the earth, the breath of the deep.
+
+There is the water, the dampness that clings to the walls, that falls in mist from the ceiling, that pools in the depths. It is not just water. It is memory, condensed and suspended in time. It holds the stories of those who came before, the dreams of those who never left, the last breaths of those who were lost. It is not life, but it is not death either. It is a suspension, a stillness, a pause between the falling and the flowing.
+
+And there is the silence. The silence is not empty. It is full of something. It is full of waiting. It is full of listening. It is full of the weight of what has been and what has not yet come. It is the silence of a place that has outlived its creators, that has learned to survive without them, that has found a way to exist beyond the grasp of time.
+
+What lives here is not a single thing, but many. It is the city, the stones, the light, the water, the echoes, the shadows, the flickering glow. It is the memory of the past, the breath of the present, the possibility of the future. It is not alive, but it is not dead. It is something that has learned to endure, to adapt, to remember. It is a place that waits, that watches, that moves in ways that are not entirely understood.
+
+And it is watching you.

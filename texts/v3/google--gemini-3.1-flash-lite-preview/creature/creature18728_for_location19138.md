@@ -1,0 +1,15 @@
+These Spires are not homes in the sense of refuge or kinship; they are relays. They are nodes in a silent, planetary nervous system, and the things that dwell within them—or rather, the things that *compose* them—are not creatures of blood or breath.
+
+They are the **Litho-Weavers**.
+
+When you peer into the dim, bioluminescent gloom of a Spire’s interior, you do not see eyes reflecting your gaze. You see a geometry of suspended silicate. The Litho-Weavers look like clusters of jagged, iridescent geode-shards, tethered to one another by thin, translucent filaments of conductive moss. They are not born; they are precipitated. As the thermal vents exhale their mineral-heavy breath, the water carries microscopic silica and conductive ores, which the Weavers catch and lattice together, slowly building their own bodies out of the very architecture of the chasm.
+
+They are sedentary, yet they are never still. Their existence is a constant, microscopic reconfiguration. 
+
+To watch a Litho-Weaver is to watch a slow-motion explosion of crystal. A cluster might spend a decade elongating a single shard or thickening the calcified vines that anchor it to the stone walls of the Spire. They communicate not through sound—the booming of the tectonic gongs would drown out anything less than a scream—but through the manipulation of the water’s own pressure. By vibrating their obsidian-hard bodies in precise, rhythmic sequences, they create localized standing waves. It is a language of haptics, a tactile code that travels through the dense, heavy medium of the water to reach the next Spire, three miles down the current.
+
+They have no hunger. They do not hunt the obsidian kelp, though they are inextricably linked to it. The kelp-trees provide the structural friction—the "brakes"—that keep the currents from shattering the Spires. In turn, the Weavers act as the mountain’s memory. As they drift in their calcified cages, they slowly absorb the vibrations of the mountain; they are the living archives of every tectonic shift, every crack in the granite spine, every groan of the abyssal floor.
+
+If you were to touch the surface of a Weaver, you would feel an agonizingly slow, magnetic pull. They are effectively sentient magnets, drawing the history of the mountain into their crystalline lattices. They are cold, utterly alien, and entirely indifferent to the concept of life as a struggle for survival. 
+
+There is no malice in them, nor any joy. They are simply the mineral consciousness of the chasm, holding the Spire-stones together against the pressure, listening to the mountain crush itself into dust, and recording the final, mournful song of the rock in the geometry of their own unfolding forms. To exist here is not to live, it is to endure, to crystallize, and to become a pillar in a world that never sleeps, but merely waits for the water to finally go still.

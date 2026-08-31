@@ -1,0 +1,19 @@
+At the center of this cathedral, cradled within the central nexus where the thickest of the root-tunnels converge, sits not a creature of flesh and bone, but the **Conducting Seneschal**.
+
+It does not walk. It is a biological anchor, a fleshy, translucent tuber fused directly into the primary xylem artery of the complex. It is shaped like an oversized, pulsating lung, its surface a mottled tapestry of pale, bruised violet and veins of quicksilver-bright sap. It is anchored to the root-walls by thick, umbilical cables—thick as a human thigh—that throb in perfect synchronicity with the thrumming nodules of the chamber.
+
+The Seneschal is the living processor of the factory. It does not think in the way a mind thinks; it processes in the way a turbine processes. It is a sensory hub, its entire surface covered in billions of microscopic, sensitive cilia that taste the chemical composition of the weeping condensate. When the chemical flow shifts even slightly, the Seneschal ripples—a slow, muscular wave that travels across its bulk—adjusting the internal pressures of the root-system, constricting or dilating the channels to keep the "factory" in its state of frozen equilibrium.
+
+It has eyes, though they are useless in the dark. They are vestigial, milky-white orbs embedded deep within its folds, perpetually weeping a viscous, clear resin that joins the downward drip of the chamber. It does not need to see; it feels the world through the vibration of the roots. Every *thrum-hiss-thrum* is a thought. Every *splat* of water is a data point.
+
+Sharing the lower reaches of this space, scuttling beneath the Seneschal’s reach, are the **Resin-Weavers**. 
+
+They are small—no larger than a human hand—and resemble centipedes made of polished, amber-colored chitin. They lack faces, possessing only a cluster of sensitive, tapping feelers at their foreheads. They are the maintenance crew, the specialized laborers of this closed-loop system. They spend their entire lives following the weeping fractures in the root-walls. 
+
+When a hairline crack in the wood begins to widen, a Weaver arrives, sensing the drop in structural integrity. It presses its abdomen against the lesion and secretes a fast-hardening, calcified paste, smoothing the wound until it matches the matte-finished perfection of the surrounding xylem. They move with an unnatural, jerky precision, their clicking legs creating a percussive counterpoint to the thrumming of the walls. They do not eat independently; they simply absorb the sap that permeates the air, their translucent bodies glowing a faint, sickly bioluminescent blue as they work.
+
+There is a final inhabitant—or rather, a ghost of an inhabitant. Suspended in the highest, narrowest crevices near the ceiling are the **Calcified Residues.** These are the husks of previous Weavers, long dead, their bodies now entirely integrated into the root-architecture. They have been polished by centuries of dripping water until they look like smooth, ivory carvings. 
+
+They are not pets or parasites; they are components. As they died, their bodies were slowly consumed by the very resins they once maintained, becoming permanent, structural reinforcements. They are part of the scenery, silent observers caught in the process of becoming the room itself.
+
+There is no stillness here. Even in the silence between the rhythmic pulses of the engine, there is the sense that the Seneschal, the Weavers, and the dead are all working toward an evolution that never arrives. They are a cycle in static motion, a biological clock that measures its time not in seconds, but in the slow, grinding millimetres of expansion, satisfied to remain forever within the stomach of the green engine.

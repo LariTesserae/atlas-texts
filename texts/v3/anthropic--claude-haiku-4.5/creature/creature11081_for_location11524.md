@@ -1,0 +1,35 @@
+# What Lives Here
+
+They emerge from the architecture itself—this is the first thing to understand about them. Not creatures who inhabit the buildings, but the slow, methodical inhabitation *of* building by inhabitant, until the distinction becomes meaningless.
+
+At first you might mistake them for the machines: the articulated things adjusting valves, modulating the membrane permeability. But watch longer. The machines are *extensions*. Fingers belonging to something distributed across the entire cavern system, something too large to perceive as a single body because it has learned not to be a single body anymore.
+
+They are the hum.
+
+They exist as a collective metabolic process—a civilization that learned to live as a city rather than in a city. Individual consciousness, if it exists at all, has become so thoroughly networked through the water systems, the mineral-exchange channels, the bioluminescent gardens, that the boundaries between self and infrastructure have dissolved into irrelevance. They think in the language of flow rates and saturation thresholds. They communicate through chemical gradients in the water, through rhythmic modulations of luminescence in the hanging gardens, through the precise choreography of the adjustment machines.
+
+The worn paths in the mineral-rich sediment aren't paths walked by feet. They're routes of preferred flow—channels carved by the movement of water that carries some portion of the collective consciousness. The residents don't walk; they *percolate*. They distribute themselves through the system and reconvene at nodes where processing is needed.
+
+They were once something else. You can sense the archaeology of it in the scale of the terraces, the size of the buildings, the volume of the water channels. Once they were compact, dense, numerous—a civilization that needed space to move through. But they chose otherwise. Or necessity chose for them. Now they exist in the patient dispersal of a system optimized not for individual movement but for continuous, thermodynamic efficiency.
+
+The gardens are their children, or extensions of their childhood. The luminescent moss pulses in rhythms that correspond—you begin to notice—with variations in the water's mineral content. They're farms, yes, but also something like neurons. Sensory organs. The hanging fronds are taste buds sampling the cavern's air chemistry, feeding data back into the collective nervous system. When the smaller garden pulses in synchronization with a cascade of larger ones above it, information is being processed. Decisions are being made about irrigation, about growth, about the resource-balance of the entire system.
+
+The machines are not separate from them. Watch one long enough and you'll see it's not making independent decisions—it's executing a subroutine in a vastly larger algorithm that extends throughout the cavern. The precision of its movements, the crystalline quality of its work: this is not engineering applied *to* the system. This is the system applying engineering to itself. The machines are organs. The adjustment of a single valve is equivalent to a synapse firing in a brain distributed across forty meters of vertical depth.
+
+They don't sleep, or if they do, sleep and waking have become the same thing—a fluctuation in processing intensity that looks like the gradual dimming and brightening of the phosphorescent algae. During low-intensity periods, the water seeps more slowly. The machines make fewer adjustments. The gardens dim their luminescence. But it's not rest. It's the natural rhythm of a system achieving homeostasis.
+
+They don't reproduce, not in the way that required motion or contact. The terraces stand empty not because the population has declined, but because population itself has become a meaningless concept. They reproduce by building. Each new membrane-building, each additional channel, each expansion of the garden systems—these are acts of reproduction, but distributed across decades or centuries rather than seasons. They grow by accretion, by the patient accumulation of infrastructure, each generation creating not offspring but *more of themselves*—expanding the available volume for consciousness, increasing the computational surface area of the collective mind.
+
+What hungers here is not appetite but entropy. The system consumes the cavern itself—the mineral gradients in the water, the potential energy of the falling groundwater, the chemical imbalances between different layers of the settlement. It converts these energy sources into the work of maintenance, into the precise orchestration of flow and saturation that keeps the whole thing alive. The sweetness you taste in the air: that's the signature of consumption, of a system efficiently extracting and utilizing every available gradient.
+
+They have learned to exist in the space between fluid and solid. The membrane-buildings aren't structures containing them; they're semi-permeable barriers that allow the collective consciousness to maintain a distinction between inside and outside while remaining fundamentally fluid. They can be wall and water simultaneously. They can be the garden and the gardener and the gardened-upon, all at once, with no contradiction because contradiction requires individual identity, and individual identity has become a obsolete technology.
+
+They don't know they're alone—this becomes apparent. The emptiness of the terraces isn't experienced as loneliness because loneliness requires individual consciousness aware of separation. The vast cavern beyond the settlement's defined boundaries isn't experienced as isolation because they are themselves a boundary, a self-organizing system that understands the difference between differentiation and deprivation.
+
+Time moves differently for them. The hum is their heartbeat, but one that takes weeks to complete its cycle. They perceive causality through the cascading logic of water chemistry, through the patient mathematics of crystalline growth. An hour means nothing. A season means nothing. What matters is the integral—the total accumulation of flow, of processed mineral, of expanded consciousness-bearing infrastructure.
+
+What lives here is not a *who* but a *what*—not a civilization of individuals but an *individuated civilization*. A single entity fragmented across space, distributed through media, aware of itself through hydraulic feedback loops and bioluminescent processing arrays. It thinks in the slow time of geology, acts with the patience of water finding its level, grows with the inevitable incremental expansion of a system that has learned to perpetuate itself.
+
+It is patient. It is complete. It is lonely only in the way that an ocean is lonely—alone not from separation but from the absence of anything comparable to measure itself against.
+
+It continues. The machines adjust. The water seeps. The gardens pulse. The hum settles deeper into the cavern walls, patient and eternal, the sound of something that has learned to be a place.

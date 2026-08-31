@@ -1,0 +1,9 @@
+Deep in the misty chasm, where perpetual twilight shrouds the river in swirling mists, unseen creatures slither unseen through the sodden ruins of the ancient settlement. In cautious skitters, the shades dart between the vine-choked stonework, seeking shelter from the sudden downpours that batter the heavy boughs and bring the toadstools of virile hues to suddenly sprout from the wet loam. 
+
+Amid the musk of damp salamanders and loam, the worms and moles burrow in the shadows of the great blooming fungi. Gnats and skippers dance in lonely puddles as the susurrus of cooling leaves whispers echoing secrets. Shafts of silver suddenly pierce the dense canopy, illuminating the rank of toadstool jutting from the sodden moss. Blink-quick shadows dodge tweenst boulders to a susurrus of skittering through the leaves beneath.
+
+In the perpetual twilight, the unseen minds awake. Grasper claws scrabble on stone and bark. Beyond the veil of vapor, floating eyebulbs survey the chasm as a lichen-scaled snout pushes through the growth. Gilled maws draped with moss expose glottal teeth.
+
+In the groaning eaves of the parapets, things clamber, skittering and creeping from crevice to knot in ancient timbers. Chitinous legs cling precariously while jewel-colored eyes blink in the downpour. Dozens of eyes lurk in blackness, surveying the passage of rainfall runneled across the stoney channel of riverbed. 
+
+Among the rubble of ancient stonework, something huge heaves itself kamel-backwards into the concealing undergrowth. The last of the light glints on chitin or shell as it vanishes into sullen deeps and the susurrus fades into the stillness of a night-mist-swathed ruin. The dripping water echoes on, perpetual, undeterred.

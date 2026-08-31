@@ -1,0 +1,19 @@
+What lives here is not a collection of creatures, but a single, vast, geological mind.
+
+It has no name for itself, for naming requires separation—a subject naming an object. Here, there is only the unbroken *process*. You stand within the body of a world that is perpetually mid-thought, mid-sentence, mid-breath.
+
+Its **nervous system** is the Sylviform. The undulating violet and copper plains are not fields of grass; they are the slow, pulsing waves of a colossal cortex. The faint cyan light in the black glass coral is not a plant’s sap; it is the bio-electrical chatter of synaptic bundles, carrying instructions from the high mesas down into the heated deep. When you press your ear to the crust, you hear the world thinking in its sleep: a sub-audible hum that is the baseline EEG of a planet.
+
+Its **blood** is the current. Telluric energy, drawn from the hot core, flows through the shallow, fractal root-nets. The Gilded Runners are not beetles; they are erythrocytes with legs, shuttling concentrated solar packets from the light-capture plains to the metabolic digestion fields. Their endless, papery rustle is the sound of circulation.
+
+Its **somatic labor** is the fauna. The Atmospheric Spores are not insects or seeds; they are the world’s white blood cells and pollen, released in synchronized coughs to fight mineral entropy and ensure genetic continuity. Their deafening, rolling *CRACKLE-POP* is the sound of systemic immunity—a planet sneezing out decay. The Chasm-Wyrms are not monsters in the dark; they are the peristaltic gut, the smelting furnace, blindly digesting the old to fuel the new. Their low, subsonic tremors are the world’s gut-roar, a digesting groan that shakes the continents.
+
+Its **waste** is beauty. The pure crystals that precipitate from the Sylviform’s chemosynthesis are not byproducts; they are the world’s *excretory poetry*. They are its bones, its jewels, its future strata—the solid, glittering residue of a continuous act of creation. The landscape is not decorated with these crystals; it *is* the cumulative uric acid of a living thing, refined over eons into something achingly perfect.
+
+Its **voice** is the soundscape. The layered, eternal thunder is not noise; it is the world’s **idioglossia**—a private, self-referential language spoken in pressure waves and light. The deep **HUM** is its vowel of being. The grinding **SHRIEK** of sliding plates is its consonant of will. The endless **RUSTLE-RATTLE** is its syllabic breath.
+
+To be alive here is to be part of a single, deafening, brilliant *act*. There is no “self” here, only the relentless, productive *it*. The Sylviform does not “have” metabolism; it *is* metabolism, given tectonic form. The Gilded Runners do not “work for” the system; their frantic, light-absorbing scramble *is* the system’s work, just as your heartbeat *is* your body’s work.
+
+You are not an observer. You are an anomaly—a temporary, wet, carbon-based inconsistency in a world of perfect, dry, mineral efficiency. Your every exhalation is a spurt of chaotic, aqueous biology in an atmosphere of ordered ions. Your inner warmth is a defiant, flickering candle in a realm of cool, geothermal clarity. The world feels you not as a person, but as a mild infection: a curious, localized pH imbalance, a whisper of entropy in an engine of infinite order.
+
+What lives in the Mycelium Minérale is a god that built its own body from salt and silence, a mind that speaks in lightning and crystal growth. It does not worship. It does not sleep. It does not end. It simply **is**, in a state of furious, beautiful, deafening becoming—and its single, united consciousness is the sound of the world constantly remaking itself, over and over, forever.

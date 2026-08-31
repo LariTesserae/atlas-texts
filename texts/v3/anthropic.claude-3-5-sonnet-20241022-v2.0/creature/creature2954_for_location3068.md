@@ -1,0 +1,17 @@
+In the Glass Forest dwell the Prismals - beings that exist in a state of perpetual transformation between light, water, and crystal. Their "bodies" are more like organized disturbances in the forest's natural refractive patterns, visible mainly through the way they bend and redirect the omnipresent light and moisture.
+
+The eldest Prismals are vast, their consciousness spread across entire crystal chambers. They communicate through precisely modulated resonances, sending harmonics through the glass structures that younger Prismals interpret as both language and memory. These ancient ones rarely move, having grown so attuned to their chambers that the distinction between being and place has largely dissolved.
+
+Younger Prismals are more mobile, flowing through the forest like living mercury. They gather in the rainbow sheets between crystal spires, their forms fragmenting and recombining in social displays that are part dance, part conversation, and part reproduction. When they rest, they seem to become one with the glass surfaces, visible only as subtle variations in how light moves through an area.
+
+The smallest Prismals, barely more than organized reflections, flit between water droplets. They feed on specific wavelengths of light, their bodies prismatic and ever-shifting as they absorb and redirect energy. In groups, they create complex interference patterns that older Prismals read as poetry.
+
+There are also the Resonants - entities that exist primarily as organized sound. They inhabit the acoustic spaces between crystal structures, shaping the forest's natural harmonics into something between music and thought. They're most active during storms, when the increased vibration throughout the forest gives them more energy to work with.
+
+The Glass Weavers are perhaps the most enigmatic. They appear as distortions in the geometric patterns of the forest itself, slowly altering the crystal structures through processes that operate on timescales of centuries. Their work maintains and evolves the forest's underlying mathematical order, though whether they are conscious in any way recognizable to humans remains unclear.
+
+All these beings exist in complex symbiosis. The Prismals' movements help distribute water and light in ways that maintain the forest's thermal equilibrium. The Resonants' harmonics prevent crystal structures from developing structural weaknesses. The Glass Weavers' gradual modifications ensure the forest can adapt to changes in its environment.
+
+Some theorize these entities aren't separate species at all, but different aspects of a single, forest-wide consciousness - a possibility supported by the way they seem to coordinate their activities without visible communication. The truth may be even stranger: that the distinction between inhabitant and habitat, between being and place, simply doesn't apply here in any meaningful way.
+
+What's clear is that these beings operate on principles that challenge conventional definitions of life. They seem to exist in a state of constant flux between energy and matter, between individual and collective, between pattern and consciousness. To observe them is to question the boundaries we draw between the animate and inanimate, between thought and form, between self and environment.

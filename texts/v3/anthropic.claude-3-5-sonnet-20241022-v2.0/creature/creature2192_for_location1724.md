@@ -1,0 +1,19 @@
+In this hidden city live the Moldkin - beings whose existence blurs the line between person and place as thoroughly as their home blurs the line between built and grown. They stand roughly human-height but seem taller, their bodies naturally elongated and fluid in movement, adapted to flowing through the narrow passages of their home.
+
+Their skin has the texture of living stone, not hard but resilient, marked with patterns that echo the travertine deposits on the walls. These patterns shift slowly over their lives, recording their experiences in mineral poetry. The oldest among them bear such intricate markings that their skin resembles abstract maps or astronomical charts.
+
+The Moldkin don't exactly breathe - instead, they process air through a network of tiny pores across their surface, much like the moss gardens they tend. Their bodies participate in the city's constant moisture exchange, absorbing and releasing water in cycles that match the daily rhythms of condensation and flow. When they're still, it can be difficult to distinguish them from the organic formations of their surroundings.
+
+They communicate through a combination of bioluminescent patterns (their skin hosts symbiotic fungi similar to those that light the city's shadows) and subtle vibrations conducted through stone and water. Their "voices" feel like gentle ripples in the consciousness, carrying meaning in waves that echo off the walls and blend with the city's ambient sounds.
+
+The Moldkin don't have children so much as they gradually accumulate - new individuals slowly condensing from the interaction of stone, water, and the complex fungal networks that permeate the city. These new beings begin as slight perturbations in the regular patterns of mineral deposit, gradually developing consciousness over years or decades. The entire community participates in their formation, though not necessarily consciously.
+
+They are patient cultivators, working with time rather than against it. Their gardens grow under their touch not because they force growth, but because they understand intimately the relationships between water, stone, and living things. They shape spaces by encouraging certain flows and relationships while gently discouraging others, their methods so subtle that the results seem entirely natural.
+
+The Moldkin have no concept of ownership as distinct from stewardship. They see themselves as part of the city's ongoing processes of growth and change, temporary concentrations of consciousness in the broader flow of mineral and moisture. Their memories extend beyond their individual existence, carried in the mineral patterns of their skin and shared through the city's fungal networks.
+
+They are neither solitary nor truly social in any way we would recognize. Their consciousness flows between individual and collective states as naturally as water flows between the city's channels. During times of high moisture, when the fog settles thick in their valley, the boundaries between them become particularly permeable, and they might share in complex communal dreams that last for days.
+
+The Moldkin do not age in any conventional sense, but they do change. Over centuries, some gradually return to the stone, their consciousness dispersing back into the city's networks. Others slowly migrate upward, their bodies becoming more crystalline and translucent until they seem to merge with the light that filters down from above. These transitions are celebrated as natural progressions in the city's ongoing evolution.
+
+They are profoundly aware of their interdependence with their environment, not as an intellectual concept but as a lived reality. Each Moldkin is a nexus of relationships - with the stone, the water, the moss and fungi, the small creatures that inhabit their skin patterns, and with each other. They don't preserve their city; they participate in its living processes, adding their own patterns to its endless becoming.

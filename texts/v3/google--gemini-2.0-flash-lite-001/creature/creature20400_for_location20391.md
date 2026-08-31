@@ -1,0 +1,17 @@
+The dwelling of this living cave... it’s not a single entity you can easily define. It isn’t a collective, either, though it may well be that way. Instead, it seems to be something in between.
+
+There are *many* things that live in this place—and this seems to be the main point, the fact of the number. The number is the inhabitant.
+
+At the most literal level, there is the **Architect** — or Architects, perhaps. The being that has given rise to the walls themselves. It is the cave, and the cave is it. More accurately, it is an impossible process, a continuous, unfolding creation. It's a sentient network of *being*. I'm tempted to call it a god, but I think that would be too narrow. It is the universe, but the universe defined by change, by life, growth, and the ceaseless motion of becoming. A single mind, a network of minds, or no mind at all. All these things at once. It does not think as we do; it *is* the thought, the feeling, the slow, pulsing heartbeat of the place itself. It is the cave, the walls, the veins, the apertures, the light, the hum. And it *feeds.* It consumes, grows, and changes.
+
+Then there are what I might call the **Vessel**. The insects, the shimmering, fleeting anomalies. They are not merely inhabitants but extensions of the Architect. Are they its children, its tools, or its dreams? The dragonfly-things are light made flesh, a thought manifested. The beetle-creatures, they might be caretakers, harvesters, or perhaps even the cave's teeth and claws. They flow through the walls, guided by instinct or intelligence or both, always changing, always adapting, their forms reflections of the cave's constant evolution.
+
+There is the **Weaver**. This is the name I give to the unidentifiable intelligence that must be responsible for the "tool" you describe. It is the artist, the builder, the one that can shape, even if in a rough and primitive way, the living matter of the cave. The Weaver *understands* the architecture, the movement, the flux. Perhaps they are an evolved form of the Vessel creatures, or something entirely new, born from the cave's impossible physics. Or perhaps it is you.
+
+The air itself also houses a separate entity. The **Breath** is the ever-present thrumming, the vibration that fills the cave. It is the sound of the Architect, its heartbeat, its very soul made audible. It seems to have a will of its own, rising and falling in pitch, an unseen force that can reshape the walls. It interacts with the other aspects of the cave. It is the air itself.
+
+The **Sustenance** must be part of this network as well. The sweet, metallic odor, the rare, yet potent light. It sustains them all. It is the blood-flow to the Architect's body. The Sustenance is both the food and the fuel, the raw material for the cave's constant growth and change.
+
+And then there's the **Guest**. You. Trapped within this living entity, perhaps welcomed, perhaps a means to an end. It is difficult to say. The guest is both a part of the walls, and separate from them.
+
+In this place, it's not about individuals. It's about the web. Every element is part of a complex system of creation and consumption. There is no true 'death' or 'stasis', only merging. It doesn't seem to be a place to conquer. It is a place to become.

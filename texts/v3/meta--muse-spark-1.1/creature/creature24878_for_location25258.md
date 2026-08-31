@@ -1,0 +1,35 @@
+They are still people. That is the first surprise, and then after a minute it isn't.
+
+You expect troglodytes, something stunted and apolitical and squinting — but the light here would not allow squinting. It comes from everywhere. And you expect cave pallor to mean weakness. It doesn't.
+
+They are tall when they stand up straight, but they rarely do. Everyone here learns a half-crouch early, a way of moving that keeps your head below your shoulders and your center of gravity low for hauling. Their legs are short relative to their torso, calves thick as tree rounds, feet absurdly wide and flat — splayed by a lifetime on smooth, sweating stone. No shoes. Shoes would slip. Their soles are yellowed and cracked like the mineral crusts, but soft at the edges.
+
+Their skin is the color of the stone before it sweats. Not white. White would be clean. It's a translucent, bloodless limestone-beige, and you can see the blue map of veins in their forearms when they pass close, running. They do not tan. There is no sun to tan under, only bright. The bright bleaches them and they let it. Old people go almost clear at the temples, their hair — which is fine and sparse — the same soot-brown as the bacterial skin they eat.
+
+Their eyes are what stops you.
+
+They are large. Not comically large, like a lemur's. Just fifteen percent too big, lidded against the all-around glare. Deep-set, and wet. Always wet, because the air is cool and they never blink quite enough. The iris has thinned out over generations — grey, or a washed-out hazel, or no color at all. They have no eyebrows to speak of. Hair would collect condensation and drip into those eyes. Many of them have those eyes closed during the middle hour, but the rest of the time they are open and looking not at you but at the floor, at the wall, at the seep-line above your head. They watch water the way desert people watch clouds.
+
+They do not speak loudly because the city does not allow it.
+
+A child born here learns in its first week that a cry brings consequences. Not from its mother — she will scoop it shoulder-high and bounce it — but from the roof. A sharp sound carries wrong in that pressed cotton air. It cuts instead of traveling. And thirty meters up, the sails wake. You thought they were stalactites at first. They are manta-thin, twenty feet across, the color of old paper, eyeless, mouths on the underside like a lamprey's puckered kiss. They ride the cool sink. Most of the time they are asleep, hanging. When something cracks — a basalt maul struck wrong, a basket dropped, a baby wailing — they unpeel and drop, silent, and seek the source to see if it is wounded meat. They don't kill what isn't bleeding, but the whole city has seen what happens when they decide a loud thing is food. So the people here have edited sound out of their language.
+
+What they have instead is speed and elbows.
+
+Their talk is at the level of breath. Two women passing at a jog with water pans on their heads will exchange three exhaled syllables, a click of the tongue against teeth, and all the news of a house falling. Their market is a flurry of hands. They bargain in gesture — palm flick for too much, two fingers tapping the inside of the wrist for I will come later when the seep is better. When they do have to argue, they do it with their whole bodies, darting in front of each other, blocking paths, a furious, silent dance that ends when one steps aside. Then both trot away.
+
+They are in a hurry because the city is in a hurry. The water does not stay. That's the entire theology.
+
+The limestone sweats but it does not pour. In the morning the walls weep in dark lines and for twenty minutes a pan will fill a thumb deep, glass-clear, salt-bitter to drink but drinkable. If you are not there with a clay scoop and a head-pan, it is gone — back into the floor, back into the air, into the mouths of the long-legged milk crabs that swarm every wet line with combs out. So there is always someone running. Always. Children whose only job is to sit beside a good drip with a cup and wait, and then sprint. Old men who can read the sheen on a boulder and know, “that one will run in six minutes, on the north side.” Young men in teams of four dragging a sledge with a new drum stone, breathing hard through their noses, mouths shut. 
+
+That is why the density is so low and the motion so high. The houses are not houses in your sense. Each low, thick-walled drum — hollowed whale-back with a cap of sun-dried block — is built around a seep that was good last year. When the seep moves, and it always moves as the season changes the way the surface above bakes and cracks, they take their house apart. Carefully, patiently, stone by stone, and they walk it ten, twenty, fifty meters to where the wall is darkening again. The city has been walking in place for a thousand years, polishing its paths to a mirror shine with bare feet.
+
+And they eat what walks with it.
+
+The girls come back from the pans with baskets that writhe quietly. Hand-sized isopods, blind and armored, which they crack with their teeth and eat raw while still trotting, grey meat like cold shrimp. The milk crabs leg by leg. The deeper pools they fish with their hair — literally, long strands weighted with copper green-black nails, left to sit — until a blind whiskered fish noses it and they yank it up. And when none of that is enough, they scrape the floor low where the bacterial skin has grown thick as leather after a week of damp, peeling it in sheets that smell of cold iron and salt. They dry it on the warmest stones. It tastes like licking a battery.
+
+They have no chiefs. A place this busy cannot afford one person standing still giving orders. What they have are Seep-sayers, old women whose feet are too swollen to run anymore and who therefore sit. They sit all day on the highest smoothed benches where they can see the multiple faint shadows everyone throws in the reflected light. They watch where the shadows are shortest, where the condensation will be heaviest. And they point. That is all. A finger, held two minutes in a direction, and the traffic of runners shifts.
+
+At noon, when the rip of white sky straightens overhead and the light loses direction and becomes sourceless, the whole bowl goes shadowless and bright as the inside of a shell, all those people stop.
+
+It is the one time they are together and still. They stand in the paths between the hollow drums, faces tipped up, eyes closed tight, palms open. The cold bright falls on them and you can see the blood under their pale skin. The crabs freeze on the walls. The isopods stop. The gliders stop gliding and hang motionless, sails outstretched, absorbing. No one knows if it's prayer or photosynthesis or just warmth, but for ten minutes there is no trot, no drip-collecting, no tug of sledge. Just a valley full of translucent, wide-footed, silent people holding light in their faces like water in a pan, before it all evaporates and they have to run again.

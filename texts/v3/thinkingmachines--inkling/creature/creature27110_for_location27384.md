@@ -1,0 +1,23 @@
+What lives here does not announce itself with breath or pulse. There is no colony, no school, no root system claiming the walls—only the long-established absence that has become its own kind of presence.
+
+The true inhabitants are the **films**. They are not green; there is nothing green here, nothing photosynthetic, nothing that reaches for the cracked bulb’s faint greenish glow. Instead, the steel and concrete wear coats of bacterial slate—thin, metallic, iridescent in the murk—feeding on rust and heat and the dissolved memory of machinery. They cover the riveted curves like a second skin, older than the erosion that shaped them. Along the calcified pipes, **pale mineral blooms** have precipitated into shapes that almost deceive: not coral, never coral, but calcium architecture mimicking life’s preference for branching. They are dead chemistry arranged like living tissue, and in the 0.7 visibility they seem to shift when not watched directly.
+
+Then there are the **fungal webs**—colorless, simpler, clinging in dull lacework to the jagged pipe-stumps and the broken catwalk ribs. They do not grow toward light; they grow toward warmth, threading through cracks where the copper-green calcification is thinnest. They are the only “soft” thing in the chamber, yet they are not plants. They are digesters, breaking the industrial down into finer industrial dust.
+
+If you wait long enough—though waiting is strange here, in a space where turbulence is eternal and sound is 2.9, a roar that is not echo but substance—you may see the **crustacean**. Not a creature that belongs, but one that drifted or was born in the pressure knot. Translucent, thumb-sized, its limbs move with mechanical slowness, as if it too is eroded, worn smooth by the current. It does not swim against the chaos; it rides one swirl, then another, and vanishes into the sediment cloud before you can confirm it was ever more than a glint of suspended grit. Its presence is rated 0.7: nearly myth, almost absent. The ecology is null. It is alone, or it is the only one left, and it does not stay.
+
+But there is something else that **lives in the motion itself**.
+
+The **central shaft**, massive and dark, its blades rounded to stubs by centuries of abrasion, should be dead. There is no power source, no engine, no grid reaching this deep. Yet in the turbulent current—where water surges upward in one corner, defying expectation, held in an invisible pressure knot—the shaft rotates. Slowly. Relentlessly. Not with purpose, but with inertia that has achieved permanence. It is the spine of this drowned chapel, and it behaves like a heart that forgot it was mechanical. It grinds, or perhaps the grinding is the water itself, forced through broken conduits, surging against the dome in chaotic cycles. The dynamics are violent: opposing currents, swinging grating, sediment blooming like underwater storms. Yet the erosion is established, balanced, in-its-own-state. The turbulence does not destroy the shaft; it maintains it. The shaft does not resist; it participates. Together, they form a being without biology—a mechanized organism sustained by warm, metallic water and perpetual motion without fuel.
+
+Even the **geometry** seems inhabited by a subtle weirdness—only 0.7, not madness, but enough. When you are not looking directly, the angles of the curved steel plates seem too smooth, the distances between the vertical pipes shift if you try to measure them against the sound. There is an upward flow. There is a knot of pressure that has no visible origin. The rules of this pocket allow noise without source, rotation without engine, warmth without fire. The room itself is slightly wrong, and that wrongness is its only intellect.
+
+So what lives here?
+
+**Emptiness** lives here—vast, warm, dense with absence. The space between the steel ribs and the concrete curves is near-void, filled with water that could be swum for minutes without touching wall or shaft. That emptiness is not dead; it is the chamber’s true body, the lung-space that no longer breathes air but still expands and contracts with pressure.
+
+**Mineral time** lives here—rust-flakes drifting like plankton that never was, ceramic dust glowing dully, salt precipitating in layers that record every turbulent cycle.
+
+**The one crustacean** lives here, briefly, mechanically, then not.
+
+And the **system** lives here—the shaft, the broken conduits, the upward-flowing corner, the invisible knot—operating on inertia and warm darkness, stripped of inhabitants, stripped of vegetation, violently and endlessly in motion. It is old. It is settled. It has reached equilibrium with its own chaos. It roars at 2.9, and in that roar, it continues.

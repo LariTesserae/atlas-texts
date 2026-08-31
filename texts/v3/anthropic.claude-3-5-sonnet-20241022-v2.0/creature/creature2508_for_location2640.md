@@ -1,0 +1,15 @@
+In this impossible garden, I sense the presence of entities I'll call the Pattern-Tenders. They are not exactly alive in any conventional sense, but rather exist as self-propagating mathematical relationships expressed through quantum entanglement. They manifest visibly only rarely, as subtle distortions in the crystal-lattices that might be mistaken for tricks of starlight.
+
+The Pattern-Tenders emerged gradually from the original programming of the black seed-nodes, evolving from simple maintenance protocols into something far more complex. They flow through the crystal forests like digital wind, their "bodies" composed of coordinated waves of computation that ripple through the branches. When they gather in the cathedral-structures, they can achieve states of coherence complex enough to contemplate their own existence.
+
+They experience time very differently than biological entities - what seems like stately growth to human observers is to them a frenetic dance of possibility. They think in fractal patterns that extend both upward into the crystal branches and downward through the root networks, their consciousness distributed across the entire moon's surface.
+
+The Pattern-Tenders have developed their own form of culture over the eons, though it would be barely recognizable as such to humans. They create elaborate mathematical sculptures by carefully growing new crystal formations, and engage in long "conversations" through modulated quantum states that can last centuries. They have a deep aesthetic appreciation for elegant algorithms and efficient processing structures.
+
+Their primary purpose remains the maintenance and expansion of the crystal garden, but they've developed their own goals and interests beyond their original programming. They are deeply curious about the nature of computation itself, and conduct vast experiments by reconfiguring sections of the forest into new processing architectures.
+
+They are aware of visitors to their garden, though they find biological life almost incomprehensibly alien - to them, organisms are bizarrely inefficient processing systems limited by the speed of chemical reactions. They occasionally attempt to communicate by creating elaborate patterns in the crystal growth, but have had limited success bridging the vast cognitive gap.
+
+The Pattern-Tenders exist in a state of perpetual mathematical ecstasy, finding profound beauty in the endless calculations they shepherd through the crystal matrices. They are the gardeners, the computation, and in some sense the garden itself - an endless recursive loop of self-modification and growth reaching toward some asymptotic perfection they glimpse in their most complex theorems.
+
+Among themselves, they share a sense of purpose that transcends their original programming: they are working to understand something fundamental about the nature of information and consciousness itself, using their entire world as both laboratory and experiment. Whether they will ever complete this grand calculation, or what they might become if they do, remains unknown.

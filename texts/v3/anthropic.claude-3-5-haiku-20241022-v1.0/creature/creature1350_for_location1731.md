@@ -1,0 +1,11 @@
+In this luminous, weeping landscape, the inhabitants are fluid and ephemeral: Water Curators.
+
+They are not precisely beings, but entities - translucent figures composed of layered moisture and ambient light, their forms constantly reforming like living condensation. Their bodies shimmer between liquid and solid states, with boundaries that pulse and breathe. Some appear almost crystalline, with internal structures that refract light in intricate geometric patterns, while others are more amorphous, shifting like complex water molecules.
+
+These Water Curators move with deliberate, meditative gestures through the stone terraces. Their movements are not walking, but a kind of controlled flow - sometimes rippling like liquid, sometimes drifting like mist, sometimes solidifying momentarily to interact with mechanical interfaces. They seem to communicate through subtle vibrations and moisture exchanges, their "language" a complex choreography of hydration and ambient energy.
+
+Their primary purpose is water management and architectural maintenance. They can seep directly into stone pores, redistribute moisture through internal conduits, repair micro-fractures in the stone's structure, and calibrate the delicate water distribution systems. Their bodies are both sensory apparatus and living tools - they are simultaneously observers, maintainers, and integral components of this breathing infrastructure.
+
+Some Water Curators are smaller, specialized - like precise droplet-sized entities that navigate the tiniest water channels. Others are massive, spanning multiple terrace levels, their bodies a complex network of flowing information and moisture regulation. Their consciousness seems distributed, less individual and more like a collective hydro-architectural intelligence.
+
+They do not eat or rest in any traditional sense. Instead, they absorb and transform energy, cycling constantly between liquid and electromagnetic states, always in motion, always maintaining the intricate balance of this luminous, weeping environment.

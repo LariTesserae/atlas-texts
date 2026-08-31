@@ -1,0 +1,13 @@
+What lives there is easiest to mistake in pieces.
+
+At first you meet it as fauna: the six-limbed grazers with ceramic tongues, the burrow-snorting warmbloods, the silver eels writing blind knots through conductive mud. Then as flora: load-bearing vines, signal-flashing stems, acoustic fungi tuning ice. Then as weather: fog exhaled from waterlogged mats, frost blooming and vanishing on a pulse. But none of those are separate in the way surface life is separate. They are organs.
+
+The resident is a **distributed wetland organism**—part root-network, part fungal computation mesh, part animal chorus—an intelligence that does not sit in a skull but in pressure gradients, ion flows, and timing. If you needed a name, field ecologists might call it a **rhizarch**: a ruling rootwork, a governance-by-growth system. It is not one body. It is one *coordination*.
+
+Its “nervous system” is hydraulic first, electrical second. Sap surges carry slow-state information (season, stress, nutrient debt), while vein flashes carry urgent packets (collapse risk, toxin plume, movement of large mass). Pollen serves as temporary hardware: released where needed, assembling into filters, membranes, and short-lived logic films, then dissolving back into feedstock. Fungal fans act like resonators and stabilizers, shaping ice and load-bearing geometry the way muscles shape posture. The whole chamber is less habitat than thinking tissue.
+
+It reproduces by **exporting pattern**, not seeds alone. A viable offspring is a starter architecture: a knot of roots, fungi, and programmable spores preloaded with timing rules—how to hold a ceiling, how to route water, how to recruit grazers, how to keep acoustics within safe bands. Given frozen peat, seepage, and darkness, it builds another chamber and slowly teaches local life to become parts of itself. Evolution here looks like civil engineering done by metabolism.
+
+If you encountered its nearest thing to an individual, it would not charge or flee. You might notice a corridor ahead subtly preparing for you: leaves turning fieldward, mats firming underfoot, amphibian calls spacing out into non-overlapping frequencies, condensation nudging blue nodules into a low light path. That is how it “looks at” you—by reallocating function around your presence. Attention, in this place, is architectural.
+
+So what lives there is a **nursery mind**: cold-adapted, patient, non-centralized, always revising. Not post-biological, not mechanical—something after that argument. A living draft of terrain that has learned to plan.

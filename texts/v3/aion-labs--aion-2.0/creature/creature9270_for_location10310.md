@@ -1,0 +1,29 @@
+They live in the stone, of the stone, and for the stone.
+
+They call themselves the Kith of the Long Drip. A name not of poetry, but of fact. Their lives are calibrated to the *plink… plink…* from the high dark, the patient pulse of their world.
+
+They are pale, these people. Not sickly, but the color of the moonlit rock that feeds them: tones of ash, of marble, of milky quartz. Their skin is fine-grained, often dusted with a faint, luminous powder from their work. Hair runs from the white of pure calcite to the dark grey of slate, worn cropped short or tightly braided—nothing loose to catch in tools or on precarious ladders. Their eyes are large, dark, and liquid, adapted to the perpetual soft gloom. They do not blink often.
+
+Their clothing is the hide of the leather-winged flitters, cured to a supple, almost cloth-like softness, and felted lichen-fiber. It is close-fitting, layerable, dyed with mineral ochres: muted reds from iron, deep blacks from manganese, subtle blues from copper salts. The patterns are not decorative, but topographic: lines mapping water-rights canals, sigils denoting clan and quarry affiliation, knots indicating skill-level in carving.
+
+They are a quiet people. Their language is a thing of clicks, hums, and glottal stops, designed to carry clearly in the echoing stone halls without shouting. A full-throated yell is considered a profound transgression, an act of violence against the communal peace. Conversation is a soft, rhythmic murmur, like water finding a new path through gravel. They listen as much to the rock as to each other—for the subtle groan of stress, the new trickle of seepage.
+
+Their society is a mirror of their city: vertically integrated, meticulously channeled. Status is not held, but *flowed*. It derives from one's relationship to water and light.
+
+The **Aquifers** are the highest caste. They are the hydrologists, the canal-wrights, the diviners of the drip. They interpret the faintest changes in moisture on a wall, the new song of a seep. They allocate the water, the true currency. Their hands are perpetually damp, their fingertips pruned. They wear bands of deep blue copper.
+
+The **Lamplighters** are not makers of light, but its stewards. They understand the phosphorescent veins. They know which quarries yield stone that glows bright and long, which seams are fading. They plan the city's expansion, ensuring new constructions are lit by the best stone. They wear pins of pale, uncut crystal.
+
+The **Knappers** and **Stackers** are the muscle and bone. The Knappers quarry and rough-cut the stone. Their tools are song: each strike of hammer on chert flake is a note, each shearing of a slate slab a chord. They feel the rock's desire to split. The Stackers are the architects and masons, fitting block to block without mortar, their joints so tight a knife-blade cannot slip in. Their sign is the dust, worn in the lines of their skin.
+
+The **Spore-Tenders** are the lowest, yet essential. They cultivate the faint bioluminescent fungi in the runoff channels, the lichen on the north walls. They are the city's only farmers in a world without soil. They are often slight, with a far-away look, as if listening to a slower, softer growth. They smell of damp and faint, sweet decay.
+
+Family units are small—parent and child, perhaps a sibling. The communal whole is the true family. Children are raised by the creche of their parent's work-caste, learning the rhythms of drip and chisel before they can walk. Personal ownership is minimal. A tool, a sleeping pad of flitter-hide, a personal cup for one's daily water allotment. Everything else—the dwelling, the light, the water in the canal—is held in common by the lattice.
+
+Their rituals are of silence and observation. The marking of a new year, as the chosen stalactite in the Central Well grows another finger's-width, is a day of absolute quiet. The entire city stills. No tool is lifted. No word is spoken. For twenty-four hours, they only listen to the drip, watch the stone, feel the cool air move. It is a reminder that they are guests here, in a palace still being built by a process slower than thought.
+
+When one of them dies, the body is taken to the Quarry of Return. There, the Knappers, with songs of mourning and respect, carefully reduce the form back to rubble-sized pieces. These fragments are then used as the core-fill for a new wall or the base of a new ramp. To be returned to the lattice is the highest honor; your substance becomes part of the city's future growth. Your memory is a well-fitted stone that will never shift.
+
+They know no sun, no moon, no storm. Their sky is a ceiling of slowly growing teeth. Their weather is the occasional deep shiver of the earth, a gift of new cracks and raw material. Their enemies are not monsters, but silence from the drips (a terrifying thought) or the sudden, aggressive smoothing of their sharp, new rock by some unknown process of fast water—a sign of a world changing too quickly.
+
+They are a people of profound, unshakeable patience. Their ambition is not to conquer, but to fit. To integrate their own living lattice so perfectly into the stone lattice that, in eons to come, some future digger might not be able to tell where the geology ended and the city began. They are building a fossil of themselves in real-time, a glowing, breathing crystal of community in the dark womb of the world. Their happiness is the sound of a clean fracture. Their love is the act of handing a full water-cup to another. Their art is the perfect, seamless joint between two blocks, hidden from all sight, known only to the hands that made it and the weight it will bear for millennia.

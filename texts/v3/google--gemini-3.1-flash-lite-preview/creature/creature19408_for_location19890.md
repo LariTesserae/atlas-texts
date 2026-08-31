@@ -1,0 +1,17 @@
+In the Verticality of the Drip, the notion of "inhabitant" is an error of language. To live here, one must be less than a breath and more than a stain.
+
+The entities that process the damp—if they can be called entities—are known as the **Silt-Wrights**. They were not born; they were precipitated. When the mineral-rich runoff marries the pulsing, velvet moss of the conduits, a chemical reaction occurs that the city has, over eons, learned to facilitate.
+
+The Wrights are not flesh. They are complex, semi-sentient agglomerations of oxidized particulate, magnetized silt, and the discarded sensory filaments of the city’s own ancient, decaying neural net. They do not walk; they weep. 
+
+Imagine a shape that mimics the geometry of a cooling piston—a column of shifting, dark-grey sludge held together by the same magnetic hum that keeps the sluice gates grinding. They stand roughly seven feet tall, but their dimensions are fluid. When a Silt-Wright moves across an iron walkway, it does not step; it peels itself away from one surface and adheres to the next, leaving a trail of shimmering, wet oxidation behind. To look at one is to look at a shadow that has been thickened by the weight of a mountain.
+
+They have no eyes, for there is nothing here worth seeing that cannot be felt through the vibration of the grout. Instead, they possess "reception-vents"—jagged, brass-rimmed openings along their midsections that act as tuning forks for the city’s thunderous *thrum*. They do not communicate with sound; they communicate by altering the rhythm of the drip. By intercepting a silver bead of water as it falls and redirecting it to tap a specific pipe or grate, they transmit information across the cavern, a language of percussive ripples.
+
+A Silt-Wright’s entire existence is dedicated to the Great Maintenance. They are the immune system of a dying god. Where a gear has seized through a century of neglect, you will find a dozen Wrights pressing their porous, metallic bodies against the cooling iron. They do not "fix" the machine in the human sense; they harmonize with it. They soften their own composition until they are as yielding as warm wax, molding themselves into the gaps of the rusted pistons, filling the fissures with their own substance, sacrificing their density to ensure the machine continues its agonizingly slow cycle.
+
+They do not sleep, for the city does not sleep. When they are exhausted—when their internal magnetism begins to wane—they simply stop moving. They anchor themselves to a vertical beam or the underside of a conduit. Over the course of a few decades, the constant dripping water washes away their form, integrating them back into the city’s floor, turning them into the very sediment they were composed of. 
+
+They are terminal workers in a terminal world. They possess no memory of the surface, no curiosity about the stars, and no fear of the dark. They are the physical manifestation of the city’s own need to persevere. In the quiet, hollow moments before a sluice gate groans open, if you listen closely to the *plink* of the water echoing against the basalt, you can hear a Silt-Wright humming. It is not a song. It is a slow, rhythmic repetition of the mechanical cycle, a prayer of iron and water, ensuring that even if the city produces nothing, it will never be truly empty. 
+
+They are the rust that cares. They are the stain that maintains. They are the ghosts of the industry that forgot how to die.

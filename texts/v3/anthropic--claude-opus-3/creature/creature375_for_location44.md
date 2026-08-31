@@ -1,0 +1,11 @@
+In this stark volcanic landscape, life has found a tenuous foothold against all odds. Clinging to the cracks and fissures of the obsidian caldera are the Cinderlings - small, soot-colored creatures adapted to survive in this harsh and eerily quiet realm.
+
+Cinderlings resemble a cross between a mole and a salamander, their sleek bodies coated in fine, heat-resistant scales that blend seamlessly with the dark basalt and ash. Rarely exceeding six inches in length, they skitter nimbly across the still-warm rocks, darting from shadow to shadow with surprising speed.
+
+These peculiar beings are perfectly suited to their austere environment. Their large, lidless eyes are highly sensitive, allowing them to navigate by starlight on the darkest nights. Broad, spade-like claws on their forefeet enable them to burrow deep into the loose volcanic soil, excavating cozy warrens insulated against the cold of the thin atmosphere.
+
+Cinderlings have evolved to exploit every scrap of sustenance the caldera provides. Their primary food source is a type of tough, fibrous lichen that grows in patches near the thermal vents, nourished by a combination of lingering heat and mineral-rich vapor. The Cinderlings' pointed snouts and needle-like teeth are perfectly adapted for scraping and tearing these leathery growths from the rocks.
+
+While generally solitary creatures, Cinderlings have been observed engaging in a peculiar social ritual. On nights when the starlight is particularly bright, they gather in small groups atop the crater's towering basalt formations. There, they raise their snouts to the unfamiliar constellations and emit an eerie, warbling cry that echoes across the caldera. These haunting vocalizations are thought to be a form of primitive communication or perhaps a mating call, but their true purpose remains a mystery.
+
+Though their existence is a precarious one, the Cinderlings are a testament to life's tenacity and adaptability. In a landscape shaped by cataclysmic forces, where the very air is thin and the nights are shrouded in impenetrable darkness, these small, unassuming creatures have found a way to thrive. As the caldera slowly cools and settles into its new configuration, the Cinderlings stand ready to inherit this strange and wondrous world, the first pioneers of a fledgling biosphere.

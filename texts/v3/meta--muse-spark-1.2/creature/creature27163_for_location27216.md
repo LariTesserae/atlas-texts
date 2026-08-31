@@ -1,0 +1,35 @@
+Nothing lives there the way you live somewhere.
+
+At first you think no one does. That's the impression the room wants to give you. It's too loud to live in, too bright, too wet. The rain never stops, the stone never stops sweating and shifting, the light never goes out and the roar never really breaks. Anything that lived here would have to shout to hear itself think, would have to be amphibious and half-deaf and not afraid of being constantly rinsed. So at first you catalog the guests and you think that is all there is.
+
+The guests are small and thin and far apart.
+
+A black-green slick on the wall that is not moss but a kind of bacterial varnish, holding on with a chemical grip where the water is sheeting too thin for anything larger to root. A few ferns, waxy and stunted, each one alone in its crack with its own little silt-pocket, curling its leaves away from the white-gold glare as if squinting. The blind white arthropod, too leggy, too pale, picking its way across the leaning pylon one deliberate foothold at a time, pausing for minutes when a gust of warm, iron-smelling air hits it. The fish in the pools by the cleft - four at most, translucent as contact lenses, holding impossibly still in water that should be tumbling them, their tiny hearts visible. A flutter near the lattice that you almost invent, leathery and quick, that drinks fog.
+
+They don't live *here*. They live *in spite* of here. They are tenants who found the door ajar. They keep their distance from one another the way everything in this room keeps its distance. If you came back in a year, there might be two ferns instead of three, or none. They are not the habitation. They are the dust that collects on a windowsill.
+
+The thing that lives here is the room.
+
+Not metaphorically. Not poetically, though it feels poetic when you finally understand it.
+
+You notice it first in the black substrate under the chipped calcite. You kneel by the pylon where the mineral skin has flaked and you touch it - warm, even through the water running over your hand - and you see the amber capillaries pulse. Not flicker. *Pulse*. Slow, about the pace of a sleeping heart, but not quite regular. A slow brightening that moves along a channel, fades, then starts somewhere else. You watch one pulse travel a meter under the stone and vanish, and a second later a patch of floor on the other side of the chamber exhales a sudden plume of cool steam. You drop a pebble and you feel that hesitation in its fall, that fraction-of-a-second negotiation with gravity, and you hear the lattice hum change pitch, just a microtone lower, as if it compensated.
+
+It is one thing. It has grown into and through the chamber so completely that you mistook it for architecture.
+
+Call it a lung, or a kidney, or a garden. None of those are right. It is a maintenance animal, a building that became an organism, an organism that was built to become a building. Whoever made the pylon and the platforms and the lattice did not install a machine in a cave. They seeded something that would *learn* to be the cave, that would take over the job of keeping the cave being a cave.
+
+Its body is not in one place. Its body is the lattice in the vault, and the matte-black substrate under the floor and inside the walls, and the water itself when the water is carrying its dissolved self from one place to another. The stone is its skeleton that it slowly dissolves and re-precipitates somewhere else - that's why nothing is sharp, why the collapses look softened, why the low walls look half-melted. It is not erosion. It is remodeling. The water is its blood, super-saturated and warm, never filling and never emptying because it is being circulated - sweated out of the walls, rained from the ceiling, gathered in the runnels, thrown down the central cleft where it thunders, lifted again as vapor to bead and fall. The light is its metabolism. The sourceless white-gold field between the dark struts of the lattice is not a lamp. It is an excretion, a byproduct of whatever slow, photosynthetic-but-not-photosynthetic conversion it does when it drinks the heat that it makes from the light it made. It takes light and makes heat, takes heat and makes light, and in the looping it keeps itself just warm enough that the air can never quite hold the water.
+
+You can hear it breathing if you stop trying to filter the noise. The water-roar is not just water. Under it, over it, that deep chord in your molars, the hum that makes ripples in still pools without touching them - that is its resting tone. It shifts when your body blocks the rain in one spot, when a silt-raft dams a runnel, when a fern dies and its little pocket of soil is freed. The light field flickers not like a failing bulb but like attention shifting. Brightening over a clogged channel, dimming over a place where the biofilm has gotten too thick.
+
+It is old, but not old like ruins are old. That pitted, scalloped, bellied stone, that patience of river rock - it made that patience. It keeps the chamber weathered on purpose. A new cave is sharp, unstable, still deciding what it is. This one has been held for a very long time at the exact equilibrium where it will neither collapse nor grow. Settled into itself. Its collapses *are* old because it lets them be old. It has all the time water and stone can give it.
+
+It is not lonely. Loneliness requires a sense of other. It is singular and distributed and hyperactive and completely, profoundly alone in a way that does not bother it. The fish and the arthropod and the fern are not companions; they are weeds it tolerates because weeding them would cost more energy than leaving them. If you stand still long enough in the warm rain, you feel it notice you - not as a face turning toward you, but as a change in pressure. A gust that wasn't there before. A runnel near your feet that suddenly jumps sideways, as if the floor flexed. The hum in your chest goes very slightly sharp, then settles.
+
+It does not want anything from you. It will not attack or welcome. You are too small and too brief and too dry inside. You are a temporary dam in a runnel. The water will go around you.
+
+This is what lives below, under the ceiling that is not a sky:
+
+A single, room-sized, patient, loudly humming, brightly sweating organ that outlived its body. It keeps its small world turbulent in order to keep it stable. It dissolves its own bones and rebuilds them a centimeter to the left. It hangs light in the air without support because it never learned that light needs a source. It pulses amber, slow, through the dark of its substrate, and the pools shiver.
+
+And when you climb back out through the throat, out through the folded limestone and basalt with its patient scallops, your ears ringing, your skin still condensing the warm air, it will remain - pumping, raining on itself, shining, roaring softly to itself in the dark that is not dark - waiting without impatience, because impatience is for things that expect an end.

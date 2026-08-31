@@ -1,0 +1,25 @@
+To find life here is to understand the meaning of the number 0.1. In any other ecosystem, such a rating suggests an absence, a void, a sterile wasteland where nothing survives. But here, in the humid, respiration-choked dark, the absence of birds, rodents, and insects is not a failure of life; it is an exclusion. The silence of the animal kingdom is absolute because nothing else is permitted to exist alongside the masters of this place.
+
+The inhabitants of this sunken cathedral are few—so few that one might walk the grated catwalks for hours and see nothing but wet iron and breathing ferns. But when they are seen, they are not distinct from the machinery. They are the exception that proves the rule of the machine's dominance.
+
+They are the Curators of the Rot.
+
+They do not scurry. Scuttling is for creatures that fear predation, and nothing here hunts the Curators. They move with the terrifying, glacial majesty of the flywheels themselves. To see one is to doubt your own eyes, for at first glance, they appear to be a trick of the light—a pile of discarded slag, a heap of wet rags, or a particularly dense colony of shelf fungus slumped against a pressure valve.
+
+Only after minutes of fixed staring—watching for the shift of a shadow that contradicts the swing of the amber lamps—does the form resolve itself.
+
+A Curator is roughly humanoid in shape, though the proportions are grotesquely elongated, stretched to match the verticality of the towers. They stand perhaps seven feet tall, but their posture is perpetually hunched, as if the weight of the humid air is too great for their spines. Their skin is the texture of the place: not flesh, but a porous, spongy material that resembles wet terracotta or peeling rust. It ranges in color from the dull red of oxidized iron to the bruised purple of deep-sea bruises.
+
+They are naked, but they are not exposed. Their bodies serve as the trellis for the city’s flora. A thick, velvet moss coats their shoulders and arms, running down their backs in a mane of damp greenery. Vines, thinner than the massive ones strangling the pistons but just as tenacious, wrap around their limbs, burrowing gently into the soft, rust-like skin. There is no boundary between the being and the basilisk; the creature is a walking garden plot, its blood carrying the nutrients that feed the orchids growing from its collarbone.
+
+Their faces are the most haunting aspect. There are no eyes, for eyes are useless in the gloom and unnecessary for a creature that senses vibration and heat. Instead, the head is a smooth, featureless slope, like a helmet worn by a medieval knight, but made of polished bone or white ceramic that has yellowed with age. Where a mouth should be, there is only a vertical slit, often hidden behind a curtain of hanging Spanish moss. They do not eat solid food; they stand with their faces tilted up toward the dripping ceilings, their slit-mouths opening to inhale the thick, meat-scented steam rising from the vents. They filter the industrial soup, their internal biology acting as the final filtration system of the factory, turning the machine's exhaust into the spores that feed the moss.
+
+They possess no vocal cords. The roar of the chamber (1.9) makes sound communication impossible, and they have no need for it. They communicate through the floor. When a Curator shifts its weight, the rusted grating groans. This metal groan travels through the pipes and gantries, a seismic signal that alerts others miles away. They hum with the building. When a massive piston descends, compressing the air, the Curators will press their hands against the warm metal, feeling the compression, syncing their slow, fluid movements to the machine’s rhythm.
+
+They are not repairing the damage; they are curating it.
+
+You might see one high above on a gantry, standing motionless beside a ruptured pipe that sprays a fine mist of hot oil. The creature does not fix the leak. Instead, it uses its long, spindly fingers—which look disturbingly like tools made of calcified bone—to guide the flow of the oil toward a patch of hungry fungi. It encourages the rust to spread here, and discourages it there, pruning the metal as carefully as a gardener prunes a rose bush. They cultivate the erosion (2.3). They ensure the machine weeps in the right places.
+
+There is no gender, no youth, and no age among them. They simply exist, spectral and silent. If they die, they do not fall. They simply stop moving. The moss consumes them, the steel rusts around them, and they become part of the architecture, a permanent statue of wet oxidation indistinguishable from the boiler they once tended.
+
+They are the sole biological agents in a realm of mechanics, the shepherds of a flock of pistons and pipes. They are the 0.1, the silent monks of the wet dark, tending a garden that is slowly digesting itself, waiting for the flywheel to complete its single, century-long turn.

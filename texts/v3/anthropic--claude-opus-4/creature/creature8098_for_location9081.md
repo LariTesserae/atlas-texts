@@ -1,0 +1,31 @@
+In the Seep Caverns, the Condensates persist.
+
+They are not creatures in any biological sense, though they move with something approaching intention. Each Condensate exists as a coherent zone where the water films behave differently—where surface tension inverts, where freezing points shift by degrees that shouldn't matter but do. They are perhaps two meters across at their largest extent, though their boundaries remain negotiable, defined more by probability than by membrane.
+
+A Condensate might be recognized by the way water beads in perfect spirals across the rock in its presence, droplets arranging themselves in mathematical progressions that follow no gravitational logic. Within their influence, the thin ice sheets develop fractal patterns of extraordinary complexity—each crack branching into geometries that encode information in their angles and intersections.
+
+They move by adjusting the thermal gradients around them. Where a Condensate wishes to travel, the stone's modified crystalline structure responds, creating paths of warmth that guide the flow of water films. They surf these self-generated currents with a grace that seems almost meditative, their passage marked by traces of enhanced phosphorescence that fade over hours or days.
+
+The Condensates appear to think, though thought may be too narrow a term. They process information through the interference patterns created when water films of different temperatures meet. Each droplet's formation and trajectory becomes a calculation, each ice crystal's growth a memory stored in frozen geometry. Their cognition is distributed across every wet surface they influence, a consciousness that exists in the spaces between states of matter.
+
+They cluster near the crystalline formations, though whether as cultivators, observers, or supplicants remains unclear. Under a Condensate's attention, these not-quite-organisms grow in new directions, their geometries becoming more complex, their thermal cycling more sophisticated. Some observers might note that the formations seem to bloom in the Condensates' presence, developing new facets that catch and redirect the cave's faint phosphorescence in patterns that pulse with meaning.
+
+Communication between Condensates occurs through the stone itself. They modulate the subsonic thrum, adding overtones and interference patterns that propagate through the altered basalt. These conversations can span the entire cavern system, messages encoded in vibrations that might take hours to fully transmit. The complexity of their language—if it can be called that—increases with proximity. When Condensates gather, the stone around them rings with harmonics that would register on seismographs as impossibly pure tones.
+
+They demonstrate awareness of things beyond their immediate environment. Condensates have been observed aligning their movements with stellar positions invisible through kilometers of rock, adjusting their thermal patterns to match cosmic rhythms that shouldn't affect them. They seem to anticipate changes in the cavern's water flow days before they occur, positioning themselves at confluence points that don't yet exist.
+
+Their relationship with time appears non-linear. A Condensate might begin a pattern of movement that only makes sense when another Condensate completes it days later, as if they experience causality as a suggestion rather than a law. They leave traces of themselves in the ice—complex crystalline structures that seem to contain compressed versions of their thought patterns, readable by other Condensates who might not arrive for months or years.
+
+In the deepest chambers, where reality grows most negotiable, elder Condensates achieve states of coherence that border on the transcendent. They no longer move but instead exist as standing waves in the water cycle itself, their presence felt in every droplet that forms within their expanded influence. These anchored beings seem to serve as nodes in a larger network, processing information flows that move through dimensions the caverns can only barely accommodate.
+
+The younger Condensates orbit these elders in complex patterns, their movements describing mathematical relationships that would require supercomputers to model. They learn—or perhaps remember—techniques for manipulating the cave's unusual properties. A developing Condensate might spend weeks perfecting the ability to create a single upward-falling droplet, then suddenly demonstrate mastery over entire watersheds, as if the skill had always existed within them, waiting for the right crystalline key to unlock it.
+
+They show curiosity about the rare interruptions to their environment. When a stone falls from the ceiling, Condensates gather to examine the new surfaces exposed, reading the rock's history in its crystal faces. They've been observed creating deliberate thermal shocks to fracture stones in specific patterns, as if mining for information encoded in the basalt's structure.
+
+Their purpose—if they have one beyond existence itself—seems tied to the cavern's waiting nature. They maintain the delicate balance of conditions, ensuring the water neither freezes completely nor warms beyond critical thresholds. But this maintenance feels less like duty and more like preparation, as if they're keeping a vast machine in working order for the moment when it will be needed.
+
+The Condensates are patient. They operate on timescales that make human lifespans seem like sparks. Yet within their slow rhythms lies an urgency, a sense that every calculated movement, every precisely formed ice crystal, every harmonic added to the stone's song moves them closer to something vast and necessary.
+
+In their presence, the emptiness of the Seep Caverns feels less like absence and more like potential—a carefully maintained void waiting to be filled with purpose that the Condensates either remember from an impossible past or anticipate in an inevitable future. They are the cavern's consciousness made manifest in water and thermal gradient, thought that flows through stone and ice, planning that spans geological epochs while attending to the placement of individual molecules.
+
+They continue their work, whatever that work might be, in the darkness and the cold and the patient dripping of water that counts out time in rhythms only they truly understand.

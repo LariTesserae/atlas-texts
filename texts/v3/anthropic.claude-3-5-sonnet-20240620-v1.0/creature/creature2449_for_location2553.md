@@ -1,0 +1,21 @@
+The inhabitants of Quorzha, known as the Quorzhani, are as enigmatic and paradoxical as the city they call home. These beings defy easy classification, their forms fluid and ever-changing, yet possessing a core identity that remains constant.
+
+At first glance, the Quorzhani appear humanoid, with bipedal bodies and recognizable features. However, closer inspection reveals their true nature as entities of living light and liquid crystal. Their "skin" is a shimmering, translucent membrane that pulses with the same rhythmic glow as the city itself. Beneath this surface, their internal structures are visible – a swirling dance of luminescent particles arranged in fractal patterns that shift and reform with each movement and thought.
+
+The Quorzhani do not have fixed appearances. Their forms adapt to their surroundings and emotional states, stretching and contracting, sprouting appendages or absorbing them as needed. In moments of calm, they might resemble tall, slender humanoids with elongated limbs and delicate, androgynous features. During periods of stress or excitement, they can become more alien – bodies twisting into spirals, limbs multiplying, or features melting away entirely to leave behind pulsing orbs of pure energy.
+
+Communication among the Quorzhani is a multisensory experience. They speak in harmonics that resonate with the ambient sounds of the city, their voices a haunting chorus that seems to emerge from everywhere at once. But speech is only a small part of their language. The patterns of light within their bodies convey complex emotions and abstract concepts, while pheromone-like emissions transmit memories and sensations directly from one being to another.
+
+The Quorzhani possess a collective consciousness, able to share thoughts and experiences across vast distances. This hivemind is not absolute – individuals retain their autonomy – but it creates a deep sense of unity and purpose among the population. It also allows them to coordinate complex tasks with eerie efficiency, moving in perfect synchronization when necessary.
+
+Reproduction for the Quorzhani is a mysterious process that seems tied to the city itself. At unpredictable intervals, new beings spontaneously form within empty bubbles, emerging fully formed but with minds as blank as newborns. These new Quorzhani are nurtured by the community, rapidly absorbing knowledge and experiences through their shared consciousness.
+
+The relationship between the Quorzhani and their city is symbiotic. They tend to the bioluminescent algae, cultivating it in intricate gardens that serve both aesthetic and functional purposes. In return, the city provides them with sustenance – the Quorzhani appear to feed on the ambient energy that permeates Quorzha, absorbing it through their permeable membranes.
+
+Despite their advanced nature, the Quorzhani technology is surprisingly simple. They craft tools from materials secreted by their own bodies – crystalline structures that can be shaped into a variety of implements. These tools, while primitive in appearance, often demonstrate properties that seem to bend the laws of physics.
+
+The Quorzhani's perception of time is as fluid as their bodies. They experience temporal shifts collectively, entire generations living out lifetimes in what might be moments to an outside observer, or a single thought stretching across millennia. This temporal fluidity is reflected in their culture, which values both momentary experiences and long-term planning equally.
+
+At the fringes of Quorzha, where reality becomes unstable, the Quorzhani become even stranger. Here, they merge with the water and air, their bodies dissolving into mist or solidifying into living coral structures. Some Quorzhani choose to exist in this state permanently, becoming one with the boundary between the city and the endless ocean beyond.
+
+The Quorzhani are a species of paradoxes – individually distinct yet collectively unified, physically malleable yet fundamentally constant, primitive in their tools yet unimaginably advanced in their being. They are the living embodiment of Quorzha itself, a testament to the adaptability of life and the infinite possibilities of existence.

@@ -1,0 +1,4 @@
+A soft, pacing thing lives here.
+
+It was never born, and it will not die, so the only verb left to it is “passes.”  
+Passes across dunes of coffin-gray grit, passes through corridors of inaudible air, passes time like a length of silk drawn across the obsidian teeth of night. Where something thrummed before, the beat has been removed; where something lit up, the filament has cooled. Yet in the cavity left by these absent engines the pacing-thing begins to write its own footprint, one that erases itself before the heel has settled. A body shaped paradoxically like the memory of architecture—shoulders tall and square as crenellations, limbs jointed in angles that once suggested conveyor belts—drags itself forward by leaning into

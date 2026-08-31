@@ -1,0 +1,17 @@
+Deep within the humming thorax of this basin, the inhabitants do not crawl, nor do they fly, nor do they speak. They are the **Loom-Keepers**, entities that began as mere epiphytic parasites but have long since migrated into the architecture itself, becoming a part of the city’s plumbing.
+
+They are translucent, gelatinous husks—roughly the size of an outstretched human hand, though they have no rigid skeletons to define their scale. They look like teardrops of amber-colored resin, clinging to the underside of the weeping rafters. They possess no eyes, for there is no "sight" required in a place that knows itself through hydraulics and pressure gradients. Instead, they are entirely sensory.
+
+When you watch one, you realize it is not merely sitting on the bark; it is *plugged in*. Fine, hair-like filaments, thinner than a spider’s silk, extend from the underside of the Keeper, burrowing deep into the petrified vascular channels of the building-plants. They are the technicians of the organic machine.
+
+Once every rotation of the deep-earth bellows, a Keeper will detach itself from its station. It is a slow, agonizing process of viscous peeling. As it moves, it leaves behind a glistening trail of glucose-rich slime, the very stuff that seals the microscopic cracks in the calcified roots. If a leaf-valve begins to fray or a pneumatic bellows grows stiff with fungal plaque, the Keeper slides toward the source of the friction. It folds its soft body over the wounded mechanism, its skin pulsing in time with the city’s metallic drone.
+
+It does not "fix" the city in the human sense. It *integrates*. The Keeper will liquefy a portion of its own mass to fill a rupture, effectively becoming the mortar or the gasket of the structural bark. It gives part of itself to the system, becoming a calcified ridge or a slick, protective coating, eventually hardening into the very material it sought to repair.
+
+In return, the city-grove feeds them. By shifting its internal pressures, the landscape encourages the flow of rich, metallic-sweet sap toward the specific nodes where the Keepers cluster. They are like sap-ferries, drinking in the distilled energy of the photosynthesis-factories, turning them into the complex chemical compounds needed to maintain the city's integrity.
+
+There is a strange, quiet dignity to them. They are the maintenance staff of an ecosystem that operates on a timescale so glacial that individual consciousness is barely a flicker. A Keeper may spend a decade—or a century—stationary, listening to the deep-earth thrum, its body slowly hardening while it monitors the pressure of the weeping conduits.
+
+If you were to stand still in the humid soup of the Cistern-City, you might feel a faint vibration, not from the ground, but from the walls themselves. It is the communal heartbeat of the Loom-Keepers, a low-frequency hum that synchronizes the entire city. They are the city’s memory, the record-keepers of every surge and blockage, their own bodies eventually becoming the foundation for the next generation of conduits.
+
+They do not fear the grinding gears or the choking steam. To them, the hiss of a pressure-vent is a conversation, and the slow, rhythmic expansion of a woody piston is a dance. They are the silent, sweating ghosts of the engine, content to slowly dissolve into the walls, ensuring that the light, the water, and the copper remain in a state of perpetual, heavy motion.

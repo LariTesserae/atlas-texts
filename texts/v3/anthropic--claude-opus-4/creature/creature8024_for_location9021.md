@@ -1,0 +1,21 @@
+The Keepers emerge from the green walls like thoughts becoming solid—humanoid in silhouette but fundamentally transformed by their symbiosis with the Garden. Their skin has taken on the texture of young bark, smooth in some places, deeply furrowed in others, with a faint green undertone that shifts with the light. Thin root networks trace visible patterns just beneath the surface, pulsing faintly with the flow of mineral-enriched fluids.
+
+They move through the vertical maze with an economy that speaks of perfect adaptation. Their fingers have lengthened and developed small climbing pads, while their joints bend at angles that would be impossible for unmodified humans. When they need to traverse a wall of pure vegetation, their movements become almost serpentine, bodies compressing and extending to slip through spaces that seem far too small.
+
+The Keepers tend to the boundary zones where plant and machine meet, understanding both languages. They speak to each other in low harmonics that resonate through the metal frames—a communication method that allows messages to travel vast distances through the structure. Their voices, when used for conventional speech, carry undertones of rustling leaves.
+
+Most distinctive are their tools, which blur the line between grown and made. A Keeper might carry what appears to be a pruning blade, but closer inspection reveals it to be a modified leaf, its edge honed to molecular sharpness and its stem ergonomically curved to fit their altered hands. They cultivate tool-plants in specialized gardens, training them into shapes needed for their work.
+
+Their clothing, if it can be called that, consists of living garments—moss that has been coaxed into protective layers, vine networks that provide both modesty and utility. These living clothes respond to their wearers' needs, thickening where protection is required, opening pores for ventilation, extending tendrils to secure tools or provide additional grip.
+
+The eldest among them have begun the slow transformation into permanence. Their movements grow more deliberate each decade as the mineral content in their bodies increases. Eventually, they root themselves in chosen spots, becoming living pillars that support new growth. They remain conscious through this transition, their awareness spreading through the root networks they join. The younger Keepers commune with these elders through touch, receiving decades of accumulated knowledge through chemical and electrical signals.
+
+Children among the Keepers gestate partially within specialized plant pods that supplement human pregnancy, emerging with their adaptations already begun. They learn to read the health of machine-plants through the taste of their sap, to recognize stress patterns in the metal frames through vibration, to navigate by the scent-maps left by various plant species.
+
+The Keepers' dwellings are grown rather than built—hollow spaces within the plant mass that expand slowly over years. Each home is unique, shaped by its inhabitant's needs and preferences, with living furniture that adjusts its form, bioluminescent panels that respond to touch, and water that filters through root systems before emerging crystal clear from growing spouts.
+
+They understand their role not as masters or servants but as conscious components of the Garden's vast organism. They guide growth away from critical machinery, ensure proper mineral distribution, and facilitate the reproduction of the rarer hybrid species. Some specialize in the moth colonies, their skin developing scales that allow them to communicate through wing-pattern displays. Others work deep in the mineral extraction zones, their bodies adapted to process the raw chemical environment.
+
+The Keepers measure time not in human lifespans but in growth cycles. They speak of events in terms of "before the third canopy merger" or "during the copper vine plague." Their art consists of trained growth patterns, their music of orchestrated industrial rhythms, their philosophy of the eternal conversation between the grown and the built.
+
+They are what humanity becomes when it chooses to be gardeners of the impossible—not separate from their creation but woven into its very fabric, as essential to the Vertical Garden as roots or steel, and just as permanent.

@@ -1,0 +1,30 @@
+What lives here are things for whom the world’s edge is not an end, but a womb—creatures and presences tuned to the hum and hush of a place pinched so tight against the elements that every being is thickened by necessity, sharpened by exposure, and made small, subtle, resilient.
+
+They are not many.  
+What you find here—what *dares* to exist—are lives condensed by the scarcity of open ground and the grandeur that presses in from all sides. The stone bowl collects existences, sheltering them from the screaming wind just overhead. Its occupants answer the world’s unceasing challenge with quiet persistence rather than bravado.
+
+**Small mammals** are among the most visible—if anything here can be called “visible.” They emerge and vanish, dusk-colored and darting, their shapes mirrored in the moss’s convolutions. Think of something between mole and pika, yet not precisely either: rounded backs slick with dew, large flat paws wearing silvery claws for scooping, eyes like polished river stones. They rarely linger in the open; you glimpse them tracing the seams where stone meets stone, threading the moss, or perhaps pausing, nose-twitching, beside a clutch of fingerlike, sugar-emitting plants. Their world is mud, root, the undersides of rocks—damp and trembling, tunneled with secret doors that open only for them.
+
+**Predators** stalk these little mammals—not brute hunters, but elongated shapes, sinewy as river otters, wet-furred, gray-black, and built for lithe silence. They swim through shadows, hugging the cracks; their eyes are narrow, catching glimmers of refracted light. You hear them more often than see: a soft click, the brush of pelt against grit, fleeting shapes warped by the curves of the bowl. They move in and out of sight, just below the threshold of certainty.
+
+**Birds** are the bowl’s boldest personalities. In this echoing chamber, where sound ricochets and gathers, they have learned to fill the emptiness with calls—startlingly sharp one moment, flute-thin the next. Their plumage is green streaked with silver, sometimes so pale they seem like animated shards of dew. Some perch, warily, on the most perilous ledges, heads cocked; others wheel in arcs so tight you wonder if gravity has lessened here, only to vanish in a sudden drop through the mist. They feed from the ferns and flashing, beetle-bright insects; some are solitary—brooding, with notes as low as the mountain’s own voice. Others fly in squabbling, chattering flocks, briefly electrifying the air above the pools before vanishing into ravelings of stone shadow.
+
+Among the **insects**, strange beetles are noticeable—glass-bodied, wedge-shaped, legs splayed wide for gripping slick stone. They dabble and immerse themselves in the scummy fringe of every pool, methodically mining the surfaces for the minute, the miraculous. Water-striders skate the reflective blackness, twitching in quick conspiracies. Spiders build low, moisture-strung webs between moss and rock, sometimes collapsing under the weight of dew. All are adapted to damp: none have wings wasted on wind, but instead hug the bowl’s curvature, seldom straying into drafts or bright cold.
+
+But beyond animal life—beyond the persistent, self-insistent pulse of fur, feather, carapace and flesh—there is another presence here, more ambiguous, filling the space left between simple creature and vanished inhabitant.
+
+For you find in a sheltered lee, half-concealed by moss and the geometric patience of the stones, the stilled marks of *something* that could shape fire, twist fiber, knap shell to blade. They are not here now, or rarely are, but the traces remain: the blackened hollow, the remains of woven net or basket, the stones shaped for pounding, the subtle arrangement of things not entirely random. Perhaps they come in fleeting, needful transit when the winds aloft are impossible; perhaps they came long ago and now only ghosts or wanderers return, their touch slight, their impact mostly on memory.
+
+Those ones—call them people, or perhaps another word, since their tools seem part natural, part gift of the stone itself—were surely small, or made themselves so in humility to share space with the bowl’s other denizens. They prized the moss and water, trapped the bright birds, snared mammals beneath the slab-edges, fished the pools for shell-creatures. Their world was wet hands, cold feet, careful listening, nights spent with eyes half-open as the wind howled, and days finding what could be spared by a stingy earth.
+
+One senses, in the charged emptiness between presences, the possibility that the bowl itself is alive in some manner. The stone, shaped by endless weather and water, is attentive—a slow mind, processing time and memory in a scale no mammal or bird can imagine. The wind, which presses at the rim, is a half-invited guest, sometimes chased away by the bowl’s walls, but always reminding the living of openness, risk, and borders.
+
+So, who lives here?
+- **The furtive and fleet**: Moss-burrowers, deft-pawed and keen-eyed.
+- **The liquid and lethal**: Shadow-slipping hunters, water-furred, teeth sharp as split rock.
+- **The bright-throated and echo-brave**: Birds of shimmer and call, deft in chaos and hush.
+- **Many-legged gleaners**: Beetles and skaters, gatherers of the smallest lives.
+- **The passers-through and quietly absent**: Those who shaped, gathered, burned, but left mostly the memory of hands.
+- **The stone and the weather**: Slow, unspeaking, yet always shaping, holding, and marking those who dwell here.
+
+In all, this is a place for the necessary, the deft, the unobtrusive—and for any presence that can claim meaning from in-betweenness: between rainfall and rock, between vastness and shelter, between the memory of fire and the hunger that presses, soft and endless, from the world above.

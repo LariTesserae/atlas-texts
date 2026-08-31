@@ -1,0 +1,19 @@
+They live in the turning.
+
+Not in burrows—there is no soil to yield—but inside and upon the Spindles themselves, those continent-scale organisms that have, over uncounted dry centuries, dissolved the boundary between root and gear. Each Spindle is a single inhabitant, though it occupies hundreds of miles. It is a twisted hollow column or radial disc of lignin woven with mineral-fiber, weathered by the hard, unfiltered light to bone-white and silver. There is no green anywhere; these beings do not photosynthesize as wet-world trees do, but catalyze, pulling energy from friction, from dry chemical contradiction, from the grinding of their own crystalline veins against the bedrock into which they are anchored.
+
+Inside, they are cavernous. Cathedrals of woody tissue and interlocking gears, hollow cavities through which the cool, thin air is pulled and exhaled in turbulent streams. They rotate—not quickly, but with industrial inevitability, a biological mechanism that cannot stop. Over days, over years, they shift; they split, reseal, grow new radial arms, contract in chaotic hyperactive cycles. The erosion around them is settled, ancient: smooth channels worn deep into the compressed substrate, glass-pans between them polished by wind that carries no moisture. They settle deeper into these channels even as they turn, grinding mineral dust into finer mineral dust, exhaling sound.
+
+The sound is their breath, and it is deafening. Not one noise but layers: the grinding of fibrous gears, the howl of air forced through hollow bodies, the sharp cracks of growth splitting and resealing in dry chaos. Between the Spindles—scattered with deliberate sparseness across the vast bright plateau—the roar fades but never dies; it becomes a continuous deep vibration felt in the chest, a turbulent atmosphere generated not by weather but by thousands of living mills.
+
+But the Spindles are not alone.
+
+Within their machinery lives an abundant, scattered fauna, hard and small, adapted to constant motion and absence of water. Fiber-moths navigate the turbulent corridors between mills on brittle, silvery membranes thinner than dried leaf, not flying freely but riding the exhaled dry currents, nesting in the grinding joints where the temperature is stable and the vibration is home. Their larvae feed on the powdery byproduct—the mineral dust reduced to chemistry.
+
+Dust-rats, pale and hairless, burrow not into earth but into the soft pith between crystalline gears inside the hollow columns, drinking trace moisture not from liquid but drawn through crystalline osmosis, metabolizing the chemical exhalations of their massive hosts. They are small enough to live in the machinery without disrupting it, part of the dry ecosystem.
+
+There are wind-riding larvae that never settle, suspended in the permanent storms created by the mills’ collective breath, feeding on airborne mineral particles; symbiotic crystals that grow in the Spindle’s outer bark, extending catalytic surfaces into the bright air; and other forms restrained in their strangeness—always physical, always dry, never violating the cool thin physics of the place.
+
+No predator hunts with teeth. Consumption is gradual, mechanical, symbiotic. The small creatures live inside the large ones’ being, feeding on waste, riding motion, nesting in noise. The Spindles reshape the continent not by will but by existence, and everything else has evolved into the spaces they leave: hundreds of miles of bright emptiness, then suddenly, an island of absolute vegetation, turning, cracking, exhaling, alive with hidden inhabitants.
+
+To be among them—having traveled for days across silver flats—is to understand that here, life became its own factory. The inhabitants are neither plant nor beast nor machine, but a resolved form of both, scattered like islands in a cool, dry, endlessly turning sea.

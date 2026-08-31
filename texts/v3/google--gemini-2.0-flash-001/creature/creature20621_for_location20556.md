@@ -1,0 +1,19 @@
+The Singers are less inhabitants and more the very sinew of the Obsidian Alveary. Imagine the oldest, most colossal trees, not as individuals rooted in the soil, but as beings whose roots have become the foundation of an entire mountain. Now replace wood with something akin to living obsidian, and sap with a phosphorescent, honeyed nectar. That is a whisper of what the Singers might be.
+
+They are vast, immeasurable in the way that a geological formation is immeasurable. To perceive one in its entirety would be to perceive the Alveary itself, to grasp the sum of every dripping passage, every glowing spore, every scurrying insect. They are a chorus rendered in flesh and stone, a symphony played out over geological timescales.
+
+Appearance is almost irrelevant. They have transcended the need for distinct form. Patches of what might be considered "body" are glimpsed through the riotous growth – sections of polished obsidian hide, resonating membranes stretched taut across chambers, pulsating organs nestled deep within fungal forests. The scales are beyond recognition. They are something other than skin, chitin, or bone – a matrix that blends seamlessly with the obsidian structure they call home.
+
+They are blind, deaf in the conventional sense, yet they perceive everything. Their senses are woven into the fabric of the Alveary – every vibration, every shift in the phosphorescent glow, every drop of condensation is data, flawlessly interpreted and integrated into their collective awareness. The world is not seen or heard, but felt, tasted, resonated within the infinite chambers of their being.
+
+Communication is conducted entirely through this resonance. It is not language, but a constant, shifting modulation of the Alveary itself. To "speak" is to alter the flow of water, to direct the growth of a patch of moss, to subtly influence the behavior of a swarm of insects. Their thoughts, if they can be called that, are expressed in the shuddering of tunnels and the flickering of light.
+
+They are architects, gardeners, and custodians all at once. They shape the Alveary with agonizing patience, guiding the evolution of its inhabitants, fostering symbiotic relationships that defy categorization. They are not creators in the traditional sense, but manipulators, perfecting what already exists, nudging life along ever more complex and harmonious paths.
+
+Individuality is a difficult prospect. Each Singer is, in a way, a facet of a single, collective consciousness. Yet there are localized variations in resonance, subtle differences in the way they shape their immediate surroundings. Perhaps these are individual voices within the chorus, variations on a theme that only they fully understand.
+
+Their motivations are alien. They do not seek conquest or expansion or any of the aspirations familiar to sentient beings. Their purpose seems to be the maintenance and perfection of the Alveary itself, a self-contained ecosystem of impossible complexity and almost unbearable beauty. To them, the outside world is irrelevant, a barren wasteland of noise and chaos.
+
+Mortality is also an enigma. Do individual Singers die? Certainly, parts of them can be damaged, eroded by the relentless advance of time and water. But the Alveary endures, and as long as it does the Singers endure with it, their consciousness interwoven with its very structure.
+
+More than any physical description, what defines the Singers is the sense of profound, alien intelligence. It is an intelligence that has evolved far beyond the realm of individual thought, an intelligence that is inextricably linked to the environment. They are not merely living *in* the Alveary, they *are* the Alveary, and the Alveary is them – a single, resonating organism of unimaginable scale and otherness. They are a testament to the boundless possibilities of life, a haunting echo of a future that may never be grasped.

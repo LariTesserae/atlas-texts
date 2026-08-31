@@ -1,0 +1,29 @@
+The life here is not distinct from the machine; it is an extension of it, a biological colonization of a mechanical corpse. Every creature that swims or crawls in this bruised teal darkness has evolved not just to survive the pressure and the cold, but to mimic, exploit, and become the infrastructure around them.
+
+First and most numerous are the **Grating-Lords**.
+
+These are the smooth, unsegmented crab-like entities that patrol the floor. If you were to shine a light on one—and the light here is failing, so you must look closely—you would see that their carapaces are not chitin as nature intended, but a calcified accumulation of iron oxide and mineral deposits. They have grown their shells by ingesting the rust that flakes off the walls and floor. Over generations, they have become indistinguishable from the debris they scavenge.
+
+They move with a terrifying silence for their size. Because the floor is a lattice of metal, they have evolved long, spider-like limbs that allow them to stride from intersection to intersection without touching the hollows of the grating. This prevents their legs from clattering against the metal. They are the janitors of this deep place. Their claws are not pincers but flat, spatulate shovels, perfectly shaped for scraping the velvet-like algae and silt into their mouths. They do not see; the pits where eyes should be have been smoothed over by bone-plating, relying instead on the tremors of the *Thrum-thrum* to navigate. They know where you are by the vibration of your heartbeat disturbing the water.
+
+In the water column above them, darting like silver needles through the gloom, are the **Resonance-Fish**.
+
+These are the blind, pale schools mentioned in the shifting dark. They are small, skeletal things, translucent enough that you can see the dark silhouettes of the Machine’s pipes through their bodies. They have evolved a unique defense mechanism: synchronization.
+
+The Machine’s heartbeat is a violent physical force. To a normal fish, the pressure waves would be confusing, battering against their lateral lines. But the Resonance-Fish have adapted to ride the wave. They swim in a tight, pulsating cloud that expands and contracts in perfect time with the Machine’s pistons. When the engine drives the water outward with a *Thrum*, the school explodes outward, drifting effortlessly on the surge. When the intake sucks the water back, the school collapses inward, darting toward the center. They become part of the hydrodynamics of the room, moving not with their own energy, but with the borrowed power of the engine. They only break this pattern when a predator approaches, scattering into chaotic static that is immediately swallowed by the gloom.
+
+Among the vertical pillars and the hanging darkness of the upper reaches lurk the **Pipe-Mimics**.
+
+These are the apex predators of the cylinder. They are long, serpentine creatures, perhaps ten feet in length, with a hide that mimics the texture of the central pillar’s casing—black, smoothed, and pitted with age. They do not swim actively. Instead, they hang vertically in the water, rigid and motionless, aligning their bodies perfectly with the stationary pipes that rise from the floor.
+
+A Pipe-Mimic will hover there for hours, indistinguishable from the industrial background, its tail anchored in a grating joint or wrapped around a piston rod. Its mouth is located at the end of its snout, not a jaw, but a circular, toothed funnel that looks exactly like the flared intake of a pump.
+
+It hunts by waiting for the intake cycle. When the *Thrum* pulls the water—and the unsuspecting Resonance-Fish—toward the floor, the Pipe-Mimic opens its funnel-mouth. It creates a micro-current of suction that overrides the machine’s gentle pull, snapping up anything that drifts too close to the "pipe." It is a parasite of the vacuum, a false mouth in a world of metal ones.
+
+Higher still, clinging to the riveted iron ceiling where the water meets the trapped air pockets, live the **Gas-Grazers**.
+
+These are small, amphibious crustaceans with hooked claws. They hang upside down, suspended in the interface between the liquid and the dry void. They are uniquely adapted to breathe the thin, stale air trapped in the ceiling bubbles while remaining submerged to feed. Their gills are located in a specialized cavity on their backs that they breach into the air pockets with a snorkel-like siphon.
+
+They feed on the surface scum, the layer of oily film and bacterial mat that floats atop the trapped water. They are the only creatures here that do not rely on the Machine’s rhythm. They live in the silence above the noise, picking at the roof of the world, detached from the pulse below. Occasionally, one loses its grip and falls—a tiny, white stone dropping through the teal dark—to be instantly shattered by the pressure or snapped up by a waiting Grating-Lord before it hits the floor.
+
+And finally, there is the rumor of something larger. The divers who sometimes brave the edges of this place speak of the **Great Float**, a solitary entity that lives in the absolute center of the cylinder, far from the walls and the floor. It is said to be massive, a blob of undifferentiated tissue, translucent and filled with glowing bioluminescent fluids that pulse in a pattern not of the Machine, but of a living mind. It does not hunt; it merely drifts, suspended in the equilibrium of the currents, absorbing the metallic nutrients directly through its skin. It is the ghost of the ecosystem, a reminder that even in a place of iron and pressure, life is stubborn, soft, and intent on persisting.

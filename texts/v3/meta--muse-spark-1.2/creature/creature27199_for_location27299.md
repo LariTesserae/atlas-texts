@@ -1,0 +1,51 @@
+They are not what you expect from the distance.
+
+From the distance you think: if anything lives there it must be hard. Dockworkers of the north. Arctic laborers. People in sealed suits, in heavy parkas, moving like divers under that flat white light. People who have armored themselves against the place.
+
+Then you get close enough to hear how quiet it is, and you realize there is nothing armored about them at all. Nothing sealed. If they had tried to seal themselves off they would have died.
+
+Who lives in the Low City is something soft, and damp, and compact. Something that learned to sweat with the city instead of fighting it.
+
+At first you just see hands.
+
+That's because you don't see *people* moving in streets — there are no streets to move in, really — you see motion in the gaps. A hand appears over a parapet to cut back vine. A shoulder passes in a slot between two walls not much wider than a shoulder. A back bent double under a pipe, scraping moss into a bucket. For a long time you think the city is underpopulated for its size, because you are looking for crowds and there are no crowds. Then your eye recalibrates to the scale of the gaps and you understand it is impossibly, continuously populated. You just have to look at the correct aperture.
+
+They are low, the people. Not dwarves, not caricatures — just built the way things are built when heat is precious and space is vertical only in inches. Most are short and broad through the chest and hips, with short necks and short legs. Low center of gravity for walking on frost-slick gantries. Broad, flat feet that find purchase on wet concrete. The children look almost spherical in their wadded layers, like little humid pebbles.
+
+They are pale in a way that has nothing to do with being sickly. The light there is the same everywhere, all day, no shadows to hide in, and their skin has followed suit. Not pink, not olive — the pallor of paper left in water, of things that live under leaves. A very light grey-pink, with a translucence at the temples and the backs of the hands where you can see the blue of the blood close to the surface. Their eyes are mostly light, too — grey, washed blue, lichen-green — and they are all a little bit puffy at the lids, a little bit red at the rim, the way eyes get when the air is always damp and faintly smoky and you never quite dry out. Their hair, when you see it uncovered, is thin and fine and clings. Most keep it cropped brutally short or covered, because it never dries otherwise, and would freeze.
+
+They look cold-adapted until you see them indoors, or rather, *inside* — there is no real indoors in the Low City, buildings leak into buildings — and you realize they run hot. Their faces are flushed even when the air is biting. They steam. Literally steam, in the cold. They take off layers constantly, put them on again. They are always a little damp at the hairline and the upper lip, and their cuffs are always dark with water, and they don't seem to mind. To mind would be to go mad. Dryness is a rumor there, like desert. Wet is the neutral state.
+
+You think they will be loud. People crammed that tight, running forges and stamping presses, always building — you expect shouting to be heard over the machines. It is the opposite. The first true marker that you are looking at a native and not a visitor is the volume at which they speak.
+
+They whisper without whispering. They speak in a low, flat, clipped murmur, syllables a little shortened, consonants softened so they don't carry. They lean in. They talk mouth-to-ear even when they are one foot apart. Children learn not to yell almost before they learn to talk, because yelling is socially strange there — like taking off all your clothes in the market — and because yelling simply doesn't work. The moss and the wet and the low air swallow it. So they have bred a culture around proximity. They touch a lot. A hand on a forearm to get attention, not a call. Two forehead bumps in greeting. They listen with their whole bodies, heads cocked. When they laugh, they do it with their shoulders.
+
+If you watch them long enough on one of those narrow walkways — say, the pipe-gantry over the dye works where the condensation drums and drips — the second thing you understand is that no one ever stops.
+
+There is no one idle in the Low City. There is no conception of idle. Stillness is when the cold comes back in.
+
+So they are all, in some way, maintenance people. The old woman who grows kale in a lightwell made of two leaning walls is also patching the wall's mortar with a trowel held in the same hand as her trowel for the soil. The man hammering corrugated steel onto a roof is also pulling vine off the adjacent roof. The teenagers carrying a sheet of riveted iron between them on a crane-slung walkway will, in twenty minutes, be gutting that same sheet for wiring. Everyone has the same hands: broad, calloused, short fingers, nails cut to the quick and always with black under them that is not dirt but a mix of concrete dust and dried moss juice and iron oxide that will not wash out. Their fingerprints are worn nearly smooth from handling wet brick.
+
+They wear what the city wears. Layers that never match, made to be taken apart: wool sweaters darned until they are more darn than sweater, waxed canvas aprons that have gone soft as skin, trousers with kneepads sewn in because everyone kneels, everyone crouches to work in a gap. Everything is patched at the elbows and cuffs where it rubs on walls. Everything has a faint green tinge at the shoulders where moss has tried to colonize it and been brushed off. They smell, when you stand close enough to hear them, of wet wool and coal smoke and the sweet-sharp tang of crushed vine leaves. Of breath that has been inside a mask.
+
+They build like animals build. Not from a plan.
+
+There are no architects in the Low City, or if there are, they are not in charge. There are no maps that stay true for a month. A family will expand its room by half a meter into the alley by moving a wall one cinderblock at a time, and the family on the other side will compensate by building up. Space is negotiated continuously, by gesture and mutter, not by deed. You can tell how long someone has lived in a block by how well their wall fits the neighbor's wall — the seams thick with years of shared caulk and shared moss, the heating pipes braided together so neither can tell where their heat ends and the other's begins. Property is heat. If you share a warm pipe, you are kin.
+
+That tells you their social shape. It's mycelial.
+
+There is no nuclear family in the tight gaps. A sleeping nook is a warm spot behind a forge or over a culvert, often shared in shifts. Three generations might sleep with their heads to each other's feet, breathing each other's steam, for warmth. They raise children communally not from ideology but from thermodynamics. A child alone cools. A child tucked between two adults and a hot water pipe does not. So they pass infants along constantly, from arms to arms, and the infants learn early not to cry loudly — it is useless, and the damp air hurts their throats — they make a small, mewling, catlike sound instead.
+
+And they eat what the city eats. Which is to say, they eat its leaks.
+
+No one farms out on the plain. There is no soil yet, just striated basalt and till. So they farm the city itself. Every flat roof is a paddy of moss that they harvest wet and fry. They cut the pale, fast vine — they call it *hand vine* for its leaves — and blanch it until it loses its bitterness. They tend the amber-lit alley greenhouses where those iron-tasting tubers swell and the tomatoes grow split and huge from too much heat. They eat pigeon, constantly pigeon, baked in communal ovens that are just the outsides of the brick kilns. They eat the long grey moss-grazers, fried crisp. They trade for the blind white fish that appears in the cisterns — no one knows where it comes from so no one asks if it is safe; it is there, so it is food. They grow mushrooms on purpose on the north sides where the condensation never stops, shelf fungi they slice like bread. Nothing is thrown away because a gap where rot could set in is a gap where cold could set in. Scraps go to the rats, rats go to the cats, cats go feral and pale and are sometimes eaten too when winter leans harder.
+
+Watch them eat and you see the other adaptation: they are not separate from the fauna at all. A woman will be eating soup while a sparrow picks crumbs from her lap and she doesn't shoo it. A man repairing conduit will gently lift one of those big pale moths off a hot pipe so it doesn't scorch, and set it on a cooler pipe. They talk about the gulls the way other cities talk about weather.
+
+Their strangest quality only shows if you stay a full day, through the dripping noon and the frost-fern night. It is that they are not *from* there, and they know it, and they have made a virtue of not being from there.
+
+No one in the Low City acts like they have lived there forever, even if their grandparents were born between the same two walls. They act like recent arrivals who have decided to make do brilliantly. There is no ancestral claim. No one says "my people built this plain." They say "we are keeping this pipe from freezing." Because the plain itself is so new, so unfinished, it has not had time to make natives. It has made tenants. Energetic, anxious tenants who know the landlord — the cold, the ice that is still only just over the horizon — could come back. So they keep moving, keep hammering, keep growing tomatoes in the steam.
+
+If you stand on that high gantry long enough, you will see one of them stop — just for a minute, to catch breath, to let the steam rise off their shoulders — and look out at the perfect circle of horizon, at the flat white light, at the endless circuit-board of roofs and weeds and smoke, and you will see them shiver not from cold but from the vertigo of being in a place that has not yet decided what it is. And then they will pat the pipe they are leaning on, as if to reassure it, and go back to patching, and whispering, and dripping.
+
+That is who lives there: a damp, pale, quiet, short, hot-blooded, moss-stained people who have learned to be the city's perspiration. Not its masters. Its sweat. Its breath hanging in the cold.

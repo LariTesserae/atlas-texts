@@ -1,0 +1,51 @@
+They don't live *on* it.
+
+That is the first thing you have to unlearn. You came in with the old picture in your head - animal on land, bird on branch, insect on wall. A thing placed on top of a place. Here there is no on top. There's only inside.
+
+The ones who live there are part of the making.
+
+At first you won't see them as separate at all. You'll think the plain is moving by itself.
+
+Out at the edge of a terrace, where the warm film is only a few millimeters deep and the sun makes a white mirror of it, the surface will shiver without wind. A pale disc will resolve out of the pale concrete, then a hundred, then ten thousand. You thought it was the silt shifting. It isn't.
+
+They are flat. That is their first rule. Everything that lives here learned low the way the world is low.
+
+The foundation animals are the color of uncured concrete. Not camouflage - kinship. They are plate-things, broad and jointless, the size of your palm to the size of a dinner plate, with a low dome on top like a blister of ceramic and a fringe of fine, hair-like cirri underneath. They tile the shallow pans by the hundreds of thousands, shell almost touching shell, not crowding, not clumping, at exactly the density where water can still flow between them. They don't walk so much as creep, a millimeter at a time. Under each one, the cirri comb the water. The water here is too young and too clean for algae as you know it, but it is thick with what the world precipitates - a warm broth of dissolved lime and iron and salt and the soft, beige-pink biofilm that grows not on the water but out of the air where condensation forms on steel. The plate-things harvest that. They filter the sweat of the building. When one dies, which they do constantly and quietly, it doesn't float or bloat. It goes opaque, loosens, and the animals around it extend filaments and take it apart where it lies and its calcium goes back into the film within the hour. There is no corpse. There is only a brief gap in the tiling, and then the tiling closes. You can watch that gap close in real time if you stand still.
+
+Then you'll notice the second layer is standing *among* them and was always there, and you thought it was rebar.
+
+The waders.
+
+They are so still they become architecture. Along every lip where water veils from one basin to the next, they stand in lines. Stilts with too many knees - three, sometimes four joints per leg, folding the wrong way - holding a body that is mostly neck and mostly beak. They are grey-white with legs the rust-red of primer paint, and their heads are small and blind-looking. They don't wade like herons. Herons are tense. These are not tense. They stand with their needle beaks just kissing the film and they wait for the plate-things to twitch, for the smaller fry to stir. When they strike, it is not a stab. The whole head telescopes down on a neck that you didn't know could extend that far, like a slide rule, and comes up with a soft thing wriggling. They swallow, reset, and don't move again for minutes. They stand so close together their filament-legs interleave and still they never tangle. If you walk past, they don't fly. They lift one leg, then another, and let you pass through the line. There is no alarm call. Sound is waste here.
+
+Above your head, under every catwalk, under every overhang and pipe-rack and gantry, is the third density.
+
+You heard breathing before you looked up. You thought it was a pump cycling.
+
+It is wings.
+
+They roost in mats. Not colonies - mats, like felt. Hairless, smoke-grey, with wings that are not feathered or leathery but semi-transparent and veined like the membranes inside a machine. The young ones are clear enough you can see the dark line of their gut through them. They hang with heads down and wings folded over each other, layered three and four deep, so many that the underside of the concrete disappears. They are not bats, but the building taught them the same shape because the shape is good for hanging in humid dark and drinking air. Which is what they do. They don't hunt. In the heat the air itself is full - water droplets, shed biofilm flakes, the aerial plankton of spores and mites that never land. The hanging mats breathe together, in a slow peristalsis, and their wings - thousands of wings - beat not to fly but to fray the air and pull it through the fur on their chests, which is not fur but a comb of chitinous baleen. When one needs to move it doesn't take off so much as peel away from the mass, hang for a moment in the thick air like a leaf on water, and reattach a foot away. At dusk that never comes, in the endless late morning, a few will detach properly and veil the air in slow, silent clouds that part around your shoulders without ever buzzing. They are warm to the touch. If you put your hand near a mat, the whole nearby section will lean a fraction toward your sweat without waking.
+
+On the verticals are the ones that made you think the walls were dirty.
+
+Every wall that is not being sheeted with water is covered but not covered. A living enamel. Beetle-things with domed backs the exact cream and institutional blue and rust-red of the paint behind them, so the wall looks at first like it has an odd, pitted texture. Then the texture moves. Each one is the size of a thumbnail, or a fist, smooth, hard, with antennae that are not feathery but broad and cupped to catch condensation. They graze. This is what grazes here when there is no grass. They rasp the thin orange blush of young rust off iron. They lick the white salt beards off concrete. They tongue the biofilm off pipes. Their droppings are tiny pellets of reconstituted mineral that fall into the film and dissolve. Their shells are literally made of what they eat - iron oxide and calcium bonded with chitin - so a beetle that has been on blue paint has a blue-tinged shell. They never strip a surface bare. The density thins exactly where the food thins, and holds. You will see a pipe that is half covered, half pristine, the line between eaten and uneaten as neat as a waterline, and it will stay like that for as long as you watch.
+
+And then the larger ones, out where the terraces are widest and the water is deepest - ankle deep - moving with the patience of things that do not need to hurry because nothing ever changes.
+
+The striders and the smooth-rats and the low hunters.
+
+The striders are the grazers. On legs as thin and tall as scaffolding, a barrel body hangs high above the warm mirror, neck down, drinking not in gulps but in a continuous filtration. They walk and drink at the same time, their three-toed feet - not hooves, not paws, but broad, splayed pads - leaving the only prints that last more than minutes in the soft mineral silt, until the next veil erases them. Their skin is naked, pale grey-pink, like the inside of a mouth, and you can see the water moving through them.
+
+Around their feet, in the cable trays and expansion joints, flow the runners. You thought they were rats at first. They have the same quick, shoulder-driven scuttle. But they are hairless and their flanks are keeled, their tails flattened for swimming short stretches. They run in streams of ten and twenty, nose to tail, along the exact routes where crumbs of composite have flaked or where a plate-thing has been disassembled, and they gather it. They are the tidiers. They are why there is no litter, no pile of dead beetles, no drift of feathers. A runner will pick up a fallen wader's feather in its mouth and be gone with it into a service slot before you register it fell.
+
+Among them, so low you take it for a shadow until its edge moves, are the hunters. Wide, flat, the color of wet aggregate, with eyes on stalks that never blink, they don't stalk. They flow. A foot forward, an hour of stillness, a foot forward. The striders don't flee them. There is nowhere to flee to that isn't more of the same. When the hunter is hungry, which is seldom - because hunger here is tuned low, like everything else - the nearest runner or the slowest plate-thing simply is not there anymore. No struggle you can hear over the low thrum of the pump houses. The balance is kept not by chase but by quorum. Every birth is permitted only when a death has made a slot. How they know, you don't see. But you count the waders on a spillway, and an hour later you count again, and the number is identical though the individuals are not.
+
+None of them were born wild. None of them evolved to this place.
+
+They were grown with it, or grown for it, and that is why they fit so perfectly you have to learn to see them. The bolts still have burrs because the beetle-things have not yet been told to smooth them. The casting seams are still sharp because the runners haven't filed them down. Or maybe they have, exactly enough, and sharp is the desired state. This is not a wilderness that overtook a factory. It is a factory that grew its own fauna the way a body grows its flora. The building makes the water, the water makes the film, the film feeds the plates, the plates feed the waders, the waders feed the hunters, the runners return it all to the building. The heat that keeps the clouds forming a few hundred meters up is the same heat that keeps the blood of the striders warm without them ever shivering. The thrum you feel in your molars is not only pumps. It is all of them at once, moving at the pace the system can sustain without ever marking time.
+
+If you stand long enough in the warm drizzle, with water beading on your arms and running off, the veil-cloud of winged things will stop parting around you and begin to treat you as another warm pipe to hang near. A runner will pause at your boot, sniff the alien salt of you, decide you are not part of the loop, and detour. A plate-thing will bump your ankle and divert. You are the only thing there that is still accumulating history - your boots leaving silt-prints that last a little too long, your breath adding a little too much vapor before the air takes it.
+
+The ones who live there do not accumulate. They maintain. The plain is not their home.
+
+They *are* the plain, extended into shapes that can filter and rasp and wade and hang and drink the perpetual sweat of its young, sharp edges, keeping it forever young and forever sharp and forever warm and wet and low under the heavy sky.

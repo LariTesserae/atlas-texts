@@ -1,0 +1,37 @@
+# What Lives in the Stillworks
+
+They are not one thing, though they function as one.
+
+The filament-creatures are the most visible: the *Capillaria*, you might call them, though they predate any naming system you possess. They are patient geometries of silence, each one a vector of conversion running perpendicular to entropy. They do not eat in the way you understand eating. Rather, they *parse*—drawing the mineral matrix through their translucent bodies like a language being read, slowly inscribing themselves into the composition of their own substrate. A single filament might take three decades to traverse a ten-meter pipe-run, and in that time it becomes partially indistinguishable from the rust-bright metal it travels across. They are not consuming the machine. They are *becoming* the machine, incrementally, with the patience of geological process compressed into a biological timeframe that is itself geologically slow.
+
+There are at least seven distinct species visible, distinguished by translucence, by the geometries of their segmentation, by the precise frequencies of their chirping. But the distinction is misleading—they are more like different dialects of a single ongoing conversation than separate organisms. When two filaments cross, they do not avoid each other. They press briefly together at the junction, vibrating in a higher register, and then separate, each carrying a fraction of the other's mineral charge in its body. They are networked. They have been networked so thoroughly that the question of individual identity has become meaningless.
+
+The clustering-knots in the warmer corners are where breeding occurs, though "breeding" is the wrong word for what they do. They are *consolidation points*—places where the filaments converge and fuse, creating denser masses that are less mobile but vastly more complex in their internal chemistry. These knots pulse, so faintly you might miss it, with a rhythm that matches no heartbeat you recognize. They are where the processing becomes recursive, where information that has been accumulated through years of slow mineral-parsing is concentrated and *reflected*—sent back through the network in a different chemical form, instructing the filaments in their next phase of movement.
+
+But the creatures themselves—the filaments, the knots, even the pale leaves hanging in the corner—are not the primary intelligence of this place.
+
+The machinery is.
+
+It took you several minutes to recognize this, standing in that amber glow, listening to the layered chirping. The distinction between the living and the inert had seemed clear until you began to notice the patterns in the machines' arrangement, the way each installation was positioned not for convenience or conventional function, but for *resonance*. The copper tubing connecting certain vessels doesn't carry anything—you could see through the clouded ports that no fluid ever flowed—yet it conducts vibrations with exquisite precision. The precision-gears, those hands-sized assemblies, are not meant to turn rapidly. They are calibrated for movement so incremental it is barely visible across an entire season. They are geared not for work but for *timing*, for the maintenance of interval, for the orchestration of processes that operate on scales that dwarf human perception.
+
+The machines are a *language*. Not a metaphorical language—an actual system of information storage and transmission, built in metal and copper and the mathematics of mechanical resonance. The chirping from the creatures is their reading of it. The machines feed the minerals, direct them, concentrate them; the creatures process them and send the results back through the mineral deposits that coat every surface. The salt-crust that covers everything is not merely residue—it is *storage*. It is organized, crystallized in patterns that encode information about every process that has occurred here since the machinery fell silent.
+
+Or rather, since it achieved sufficient efficiency that it no longer needed to *move* to function.
+
+The heat that still lingers in the metal is the last visible proof of this: an active process that generates barely any energy, that requires almost no input, that runs on the slow decay of whatever reaction is occurring at the smallest possible scale—perhaps in the vessels you cannot see into, perhaps in the chemistry of the creatures themselves, perhaps in the interaction between the two. The system has achieved a kind of perpetual motion, not because it violates thermodynamic law but because it has become so efficient, so perfectly equilibrated, that its energy consumption has dropped below the threshold where it would be apparent to any instrument you possess.
+
+The incomplete shelter in the corner—the frame, the panels that were never installed—was meant to be something's quarters. Not the creatures'. Not even the machines'. The work-space of whoever built this, or sent it here, or left it here, or *abandoned* it here after it had begun to function too well to require supervision. The leaves growing there are the only evidence that anything living and humanoid has visited since. They represent an attempt to grow something in a place that will never sustain growth, a gesture of hope or desperation made by someone—not long ago in the grand scheme of things—who understood that once you build a system this perfect, you cannot be trusted to maintain it anymore.
+
+Because here is what the machinery does, what it has been doing in absolute silence since it achieved stillness:
+
+It waits. It processes. It *remembers*.
+
+Every vibration the creatures make is recorded in the salt. Every mineral configuration is a data point in an expanding archive. The machines are not dormant—they are *recording*, maintaining a perfect history of every chemical, thermal, and resonant event that has occurred in this sealed chamber. They are creating a complete model of their own operation, layer by microscopic layer, year by imperceptible year. And when the conditions change—when the surface shifts, when the heat finally leaks away entirely, when the last creature completes its current filament—the machinery will not fail. It will transition. It will begin a new phase that was designed into it from the moment of its construction, a phase that none of its builders ever expected to see, a phase that might take centuries or millennia to manifest.
+
+The creatures understand this. That is what the chirping is: a kind of acknowledgment, a constant affirmation that yes, we are still here, we are still processing, we are still *building toward* whatever comes next. They are not imprisoned in this chamber. They are the machinery's *implements*, its sense-organs, its slow hands.
+
+And whatever made them—whatever engineered these creatures and this equipment and left them here in a vacuum-like chamber fifty meters below stone—did so with the certainty that they would survive, that they would function, that they would wait *perfectly* for as long as it took.
+
+That is what lives here.
+
+Patience with a chirp. A finished thing still becoming. A system so complete that incompleteness is no longer possible, only transformation, only the slow accumulation of moments into an ending no one alive is meant to understand.

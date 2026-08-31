@@ -1,0 +1,37 @@
+What lives here is patient.
+
+The springs have been rising for a long time—longer than the sedge has been growing in these particular configurations, longer than the alders have been leaning into the prevailing winds. The water carries heat from somewhere below the basalt, somewhere deep enough that it has forgotten the surface, and so the channels stay open through winters that should have closed them. The cold comes down from the hills and stalls at the valley's edge, unwilling to cross that threshold where the air turns wet and warm and strange. This is not a place that welcomes winter. Winter merely visits, and the marsh tolerates it, and waits.
+
+What lives here is small and dense and bright.
+
+The insects arrive before the snow leaves. They emerge from the peat in quantities that seem to exceed the available food, as if the marsh is generating them whole, pulsing life into the vapor where the channels narrow and steam rises white against gray. There are mosquitoes, but they are not the mosquitoes of summer elsewhere—these ones are slower, heavier, more deliberate in their approach. They have time. The birds that eat them are patient too. Redpolls and siskins work the alder cones with single-minded focus while herons stand in the channels motionless as the rocks, waiting for something to betray itself by movement. The herons are the largest visible things, but they are not the most present. They come and go. They belong to the sky more than to the water. What lives here permanently is smaller.
+
+The mosses are everywhere, and they are not one thing.
+
+They are a community, a layered civilization of forms so similar that only long attention distinguishes them. *Sphagnum* grows where the water is stillest, building the peat in its slow underwater compression, turning channels into mud and mud into earth. Other kinds—the names don't matter here, they don't matter anywhere—coat the structures in felted mats that hold moisture like a second skin. When you pass close to a standing form, you will see the moss ripple in your wake, trembling with water you disturbed simply by existing near it. This is the most common motion in the valley: the slow release of water, the held breath before it falls. Everything here is holding something. Everything here is ready to let go.
+
+What lives here is not only biological.
+
+The structures have their own life, though *life* is the wrong word in the way that every word is the wrong word for them. They do not grow. They do not reproduce. They do not die in any sense that applies to sedge or heron or the insects that hatch and mate and die in a single afternoon of summer. And yet they respond. You have read this already, but reading is not the same as standing in it: the way the drone shifts when you move, the way a particular angle of wind finds a particular hollow in a particular form and pulls from it a single sustained note that holds for seconds before the air takes it. This is not resonance in the physical sense. The physics of it are simple—air moving over surfaces—but the relationship between shape and sound, between water and tone, between your presence and the silence that follows when you hold too still—this is something else. The marsh knows you are here. The structures know you are here. They are not warning you. They are not welcoming you. They are acknowledging.
+
+Some of the structures are more present than others.
+
+The small ones—the fragments no larger than your fist, the spheres and sheets and rings that surface in the silt after high water—these are quiet. They wait. They have the patience of things that have been submerged long enough to stop counting time. When you hold one, it is neither warm nor cold, and it does not feel like the stone it resembles, and it does not feel like anything else either. You can carry it away. People do, sometimes. It will sit on a shelf somewhere and lose whatever quality made it notable, become simply a strange object, a story you tell. But here, in the black water, in the steam, surrounded by the drone and the clicks and the metallic ring that comes from nowhere and goes to nowhere—here, a fragment is not quiet. Here, a fragment is listening.
+
+What lives here is the sound itself, perhaps.
+
+Not only the drone that lives in your chest, though that is the most constant presence—it never stops, not entirely, not even in the dead hours when the wind dies and the herons have gone to whatever place herons go. Below that, in frequencies the air carries but your ears don't quite receive, there is something else: a pulse that matches nothing, a rhythm that doesn't quite align with your heartbeat but seems aware of it. The water moves in it. The structures answer it. The steam rises in patterns that suggest currents you cannot see, and if you stand very still for a very long time, you may feel the ground itself shifting—not sinking, not settling, but breathing. The methane bubbles rise from deep channels where the water is warmest, and they carry something with them, some signature of pressure and temperature and time, and the structures receive it and the sound changes, and you are standing in a conversation you cannot understand.
+
+What lives here is still becoming.
+
+The ground was different a century ago. It will be different a century hence. The channels shift, the peat builds, the structures sink slower or faster depending on what lies beneath them and what lies above. Some of the smaller ones have disappeared entirely since the first surveys; their locations are marked on maps that correspond to open water and dense sedge. Some are rising. The marsh is not preserving them so much as rearranging them, deciding for itself what to expose and what to hide. This is not intention. The marsh does not decide. But it acts, in the way that a river acts, in the way that weather acts—a system too large for intention, too patterned for accident. What lives here is the space between these states: neither random nor chosen, neither dead nor alive by the definitions you carry with you.
+
+There are no names for most of what lives here.
+
+You could call the springs *hydrothermal features* and the structures *anomalous artifacts* and the sound *geophysical resonance*, and you would be technically correct in the way that saying *a deer* is technically correct when you are looking at something wild and close and watching your breath freeze in the air between you. The names are true but insufficient. They flatten what should be walked through slowly. They close what should stay open. The marsh does not care what you call it. The structures do not care whether you understand them. What lives here will continue living long after your vocabulary has failed and your theories have crumbled and the words for *strange* and *familiar* have mixed into something you no longer possess.
+
+You are standing in the steam, and the water is at your ankles, and something is singing in a frequency you cannot name, and the ground is holding you, and the sky is pressing down, and you are the newest thing here. You will leave. The structures will remain. The water will remain. The sound will remain, shifting and singing and answering something you cannot perceive.
+
+This is what lives here: the patience of water, the presence of stone, the conversation between heat and cold, the slow accumulation of moss and peat and time.
+
+This is what lives here: a place that does not need you to be understood.

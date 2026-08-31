@@ -1,0 +1,23 @@
+In this gelatinous, pressurized cathedral, the citizenry consists of beings that have never known the sensation of weight or the concept of distance. They are the **Suture-Kin**, a civilization defined by the fact that they are physically, biologically, and permanently intertwined.
+
+### The Foundation-Lords
+At the center of the urban density are the **Calculus-Mollusks**. These are the "Great Landlords" of the bubble. They are massive, sedentary pulses of muscle housed within shells that look like obsidian cathedrals. They do not move; they simply *persist*. Their purpose is the secretion of the city itself. They exhale the black, glassy mineral that forms the skyscrapers, a slow calcification of their own grief and byproduct. They are the only ones who remember the "Before," though their memory is not in thoughts, but in the thickness of their rings. To be a citizen is to live in the shadow of a Mollusk, sheltered by its slow-growing eaves.
+
+### The Lace-Eels (The Weavers)
+If the Mollusks are the architecture, the **Lace-Eels** are the nerves. These creatures are little more than translucent, undulating ribbons of sensory skin. They are nearly invisible, save for the way they distort the violet phosphorescence. Because the water is a thick syrup, the Eels do not "swim"—they pull. They possess microscopic, hooked cilia along their flanks that allow them to grip the gelatinous medium. They weave between the shell-towers in continuous, miles-long loops. They act as a living postal system; they carry chemical scents—the "words" of this world—from one end of the kitchen-sized metropolis to the other, their bodies vibrating with the slow-motion data of the deep.
+
+### The Chitinous Bourgeoisie
+Occupying the middle-rungs of the shell-shanties are the **Palp-Walkers**. These are multi-limbed crustaceans the size of a human thumbnail, but with the complexity of a clockwork machine. Given that there is no technology, these creatures *are* the tools. They possess specialized appendages: some are tipped with fine diamond-grit for grooming the moss filaments; others have feather-like fans used to circulate the heavy brine plumes. They live in a state of perpetual communal huddle. They do not have homes; they have "grips." They cling to one another in clusters of hundreds, forming living blankets that insulate the colder chambers of the city.
+
+### The Violet-Glowers (The Light)
+The "sun" of this world is not a celestial body, but a cast of drifting, semi-conscious **Aurelias**. These are tiny, bell-shaped jellies that possess a biological clock timed to the internal vibrations of the glass walls. They pulse with a rhythmic, cold violet light. They are the only residents who are truly free-floating, drifting through the brine-syrup like heavy, glowing embers. The other inhabitants treat them with a subconscious reverence; to move through the city is to constantly push these soft, glowing lanterns out of your path, their stingers long since evolved into sensory threads that provide a communal sense of touch to the entire bubble.
+
+### The Velvet-Predators
+Life here is an infinite, crowded intimacy, and so is death. The **Velvet Worms** are the silent police of the shanties. They are long, segmented tubes of dark purple muscle that move with a terrifying, liquid grace. They do not hunt with speed—speed is impossible in the 2.6 density water. Instead, they hunt with *inevitability*. They find a gap in the shell-spires and wait. Because the city is so crowded, something will eventually drift into them. When they strike, it is a slow-motion folding; they envelop their prey like a heavy curtain falling over a candle. There is no struggle, only a slow merging of shapes until the light of the prey is extinguished.
+
+### The Sentience of the Crowd
+The "weirdness" of the inhabitants lies in their lack of individuality. In a city this small and this dense, there is no room for a "self." Every movement is a reaction to the neighbor’s touch. When the brine clouds shift, the city breathes as a single lung.
+
+The residents possess "sensing stalks"—protrusions of soft tissue that are constantly tasting the water. They know when a new building-sac is being birthed three shells away because they can taste the change in mineral acidity. They know when a Foundation-Lord is dying because the violet light of the Aurelias dims in sympathy.
+
+They are a people of the **Syr-Grip**. They do not understand the concept of "away." To them, the universe is a warm, crowded, vibrating knot of brothers and sisters, held safe within a diamond wall, forever suspended in a thick, silent, and holy amber.

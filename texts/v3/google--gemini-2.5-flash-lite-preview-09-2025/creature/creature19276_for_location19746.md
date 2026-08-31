@@ -1,0 +1,31 @@
+The denizens of the Underhollow are the **Silt-Clingers**, or more formally, the **Chthonic Adherents**. They are not a unified race but a collection of species—perhaps a highly devolved branch of subterranean humanoids, or a specialized caste of deeply adapted troglobytes—who have survived by becoming functionally inseparable from the geologic instability that defines their home.
+
+### Adaptation and Form
+
+The Silt-Clingers share characteristics born of necessity, revolving around rigidity, silence, and an almost obsessive attention to structural integrity.
+
+**Physique:** They are almost uniformly compact and low to the ground, often possessing a broad, flat base or multiple, widely splayed limbs (usually four primary manipulative appendages and two supporting, stilt-like legs, or a serpentine lower body that grips multiple surfaces). This morphology maximizes contact area with the irregular rock surfaces, distributing their weight precisely to avoid exceeding the load-bearing capacity of their chosen shelf or strut. Their bodies are dense, possessing heavy musculature necessary for hauling necessary structural supports (resin-laced mud bricks, bracing timbers salvaged from incredibly old, deeper layers, or quartz shards).
+
+**Integument:** Their skin is thick, often bearing patches of dull, matte keratinization—a natural consequence of constant, low-friction contact with abrasive shale. The coloration ranges from deep charcoal grey to pale, translucent off-white, depending on their primary living elevation and proximity to the scant, glowing fungal mats. They have no external body hair. Instead, many clingers develop fine, sensitive cilia or minute, pressure-reactive filaments along their joints and along the ridges of their backs. These act as early warning systems, vibrating imperceptibly just before a micro-tremor shifts the rock nearby.
+
+**Senses:** Vision is secondary. Many exhibit highly reduced eyes, often recessed behind protective bone structures, capable only of discerning gross shifts in the ambient bioluminescent glow or the sharp flare of a resin lamp. Their primary sense is **tactual-seismic awareness**. They interpret their world through vibration. They can "read" the health of a load-bearing strut by placing a hand or specialized pressure pad against it, discerning stress fractures or settling patterns that would be invisible to the eye. Sound is processed not just through ears, but through their entire dermal layer, allowing them to perceive the *intent* of the grinding darkness—whether a movement is a natural settling or a prelude to catastrophic collapse.
+
+### Culture and Society: The Ethos of Integrity
+
+The Silt-Clingers possess a culture entirely devoted to **Structural Kinship**. Social status is directly proportional to one's proven ability to stabilize and reinforce the structures shared by the community.
+
+**The Bracers (The Ruling Caste):** The highest status belongs to the "Bracers," individuals who possess the uncanny engineering intuition to select the perfect wedge, the correct angle of support, or the exact mixture of binding slurry. They are recognizable by the tools permanently affixed to their bodies—not worn, but integrated with specially designed harnesses—and by the faint, rhythmic application of resin-patching applied to the rock surfaces nearest their resting place. They rarely speak above a low, focused hum, spending their existence mapping stress vectors in the surrounding darkness.
+
+**The Excavators (The Labor Caste):** These individuals perform the necessary, dangerous work of expanding living space. They do not blast or strike forcefully; their technique is one of agonizingly slow **controlled delamination**. They use precisely shaped flint picks and bone scrapers to peel away layers of rock deemed *superfluous* or *stressed*, prioritizing the maintenance of intersecting scaffolds over creating large, hollow chambers. Their lives are short, as the fine stone dust and the constant proximity to active faults takes its toll, but their sacrifice is deemed necessary for the next generation's footprint.
+
+**Displacement and Ritual:** The greatest crime is **Disruptive Negligence**—any act that causes a non-programmed subsidence. Exile is not banishment into the deep black, but being forced to occupy the most unstable, high-risk nodes of the Underhollow (the outer, thinnest layers of the sprawl). A person dying naturally is absorbed; their remains are carefully pulverized and mixed into the next batch of reinforcing slurry, ensuring their material presence remains to support the living.
+
+### Interaction with the Environment
+
+The relationship with the inherent dangers (the raw geology and the low light) is one of perpetual, respectful tension.
+
+**Light Economy:** Light sources are hoarded and minimized. Communities adhere to strict rationing cycles. When a Bracer is surveying a critical load point, a cluster of pale resins is lit—a rare moment of brilliance that is acutely functional. Otherwise, the light is derived from symbiotic, pale-yellow phosphorescent molds they cultivate on their own damp clothing or stored resin caches. They navigate by shadow interpretation and vibration, not sight.
+
+**Water and Sustenance:** They are expert at managing the mineral-rich condensation. Small, shallow channels are etched into every accessible surface leading to communal, filtered catchments—not for drinking directly, but for the ritual mixing of binding agents. Food is scarce: mainly pale, chitinous detritivores they capture in the deeper crevices, or the nutrient-rich fungi scraped from the humid walls. They exist in a state of near-starvation, their metabolic rates slowed by the cool temperature and the necessity of absolute stillness during critical structural rest periods.
+
+The Silt-Clingers are defined by restraint. They move like shadows clinging to the ribs of a dying behemoth, their entire existence a silent prayer against the inevitable crush of the world above and around them. They are the slow, living mortar holding the raw, shifting earth together.

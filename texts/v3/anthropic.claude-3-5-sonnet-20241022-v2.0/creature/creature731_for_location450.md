@@ -1,0 +1,15 @@
+In this crystalline forest, the primary inhabitants are the Lumini - beings that exist in a state between matter and light, between plant and animal, between individual and network. They are the gardeners, architects, and children of this space, though they didn't exactly create it nor were they exactly created by it - their relationship to the cavern is one of mutual emergence.
+
+The Lumini manifest as translucent, fractal forms that shift between different organizational states. Sometimes they gather into clouds of barely-visible motes that drift through the vegetation, sampling chemical gradients and adjusting the growth patterns of the plants. Other times they coalesce into larger forms - delicate geometric structures that pulse with the same pale golden light as the plants, or flowing ribbons that wind through the forest like living streams of light.
+
+Their consciousness is distributed and collective, operating at multiple scales simultaneously. The smallest units - the drifting motes - carry simple awareness and basic drives. As they aggregate into larger forms, more complex thoughts and intentions emerge. The hollow spheres scattered throughout the space serve as nodes where the Lumini can gather and achieve their highest levels of coordination and awareness.
+
+They don't communicate through sound or touch, but through subtle modulations of light and biochemical exchanges. Their "language" is inseparable from the processes that maintain the forest - each adjustment to a plant's growth pattern, each subtle shift in local chemistry, carries meaning. They think by growing, and grow by thinking.
+
+The Lumini have no concept of death as we would understand it. Their constituent parts continuously dissolve and reform, and their awareness flows freely between different levels of organization. They experience time very differently from surface creatures - what might seem like stasis to human eyes is to them a constant dance of growth and transformation.
+
+Their purpose - if such a term even applies - seems to be the gradual refinement and expansion of their forest-world. They are perpetually engaged in subtle adjustments to the ecosystem, working toward some ideal state that may never be reached but whose pursuit gives shape to their existence. Each new section of cavern they colonize becomes another movement in their endless symphony of light and life.
+
+They are curious about surface dwellers when they encounter them, but find direct communication challenging. Surface creatures move too quickly, think too linearly, and exist too separately for the Lumini to easily relate to them. Still, they sometimes attempt to share understanding through careful manipulations of their bioluminescence, creating patterns that hint at the deep harmonies they perceive in the universe.
+
+The Lumini are not so much inhabitants of this space as they are its living embodiment - the consciousness of the cavern made manifest, forever exploring the possibilities inherent in their unique form of existence.

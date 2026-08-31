@@ -1,0 +1,35 @@
+It is not people who live here. Not first.
+
+First, what lives here is the film.
+
+On every stone, in every shallow pan of water that shouldn't be water, under the guano, over the lichen. A maroon-black curd, a slick, an oil. Algae, you'd call it, if you needed a word to put it in a jar. It is not decorative. It is the reason.
+
+It farms the sun. Up here the sun is a weapon, a white hammer that tries to flay everything, and the film drinks it and converts it into a sullen, low-grade heat. It curdles, it thickens, it exhales. That sigh you saw pocking the black water — that's it breathing. It grows in perfect rings because it is sorting itself by temperature, by mineral, by taste. It climbs uphill because the coldest rock is the best place to condense more water for itself. The whole bowl is a culture dish and the dish is culturing itself.
+
+Second, what lives here are the birds. And they know it.
+
+They aren't birds the way a robin is a bird. They're high-altitude ferry things. Lung-birds. Think: auk, shearwater, puffin — bodies that evolved for heavy water and then found that thin air at twenty thousand feet behaves like heavy water if you are strong enough. Big chests, short broad wings that beat too fast, white bellies to bounce light back at the light, black backs to take the light in. Eyes like polished jet, set forward for judging stone at speed. Webbed feet as big as a child's hands.
+
+They live almost nowhere. They live in the jet stream, in that river of air that never stops. They can stay aloft for years. But they cannot breed in air. They need heat the air does not have, and they need this exact curd, this exact algae, which exists nowhere else because nowhere else has a bowl shaped exactly like this to catch it.
+
+So they come. Not a migration — a commute. The whole living roof of the sky is one breeding colony that has been circling the planet since before people had words for circle.
+
+They are silent because silence is efficient. A call up here freezes in your throat and falls out dead. They communicate with wing-pressure, with the flicker-shade they make when ten thousand bodies block the sun at once. When they land they are clumsy, embarrassed. All that mastery of the upper air reduced to scrabbling on wet basalt, sliding into houses, stepping on each other with a soft *thuk thuk*. You can hear their hearts — fast, too fast — if one lands near you. They vomit up their crop, not eggs: warm, translucent sacs of half-digested, half-incubated algae mixed with their own gut lining. Each sac pulses faintly, 102 degrees in a zero-degree world. That is their child and their child's food at once. They lay them in the warmest rocks, in the pools where the water steams half an inch high, and they stand over them until they hatch into something that is not a chick, exactly, but a mouth.
+
+And third — only third — the people.
+
+Small. You thought so, didn't you, when you saw the parkas? They are small because there is not enough air to make big people and not enough food to waste on height. Barrel-chested, even the children. Chests like drums. When they are born their lips are blue-black for a month until their blood learns the trick of it, learns to wring twice as much out of a breath. Noses flat, nostrils wide, rimed always with ice. Eyes dark, dark brown to black, swollen at the lid — perpetual snowblindness held at bay by having as little white as possible visible. Their hands are the most human thing about them and the least. Red, cracked, swollen-knuckled, the nails thick and yellowed from guano and algae. A child's hands look seventy. An old woman's hands look like stone. They have to be quick because if they are not quick the cold finds the stillness.
+
+They do not think of themselves as living *in* the bowl. There is no word for outside in their dialect, only *bowl* and *not-bowl*. Not-bowl is where you die. People who walk out onto the plateau don't come back, not because they are forbidden but because their physics stops working — the air there doesn't have enough water to breathe, the light has nothing to soften it.
+
+So they live as a single crowded animal. You were right about the seabird colony. There are no families here in the lowland sense. There are roofs. When a man and a woman want to be warm together they go under the same birdskin and share a pot that never empties of algae soup. Children belong to whichever ladder they can climb. The old woman with the drum isn't chief. She is metronome. When the birds have been still too long her low thump, felt more than heard through the soles of your feet, through the shared walls, tells every feathered roof to shift, to let the heat move, to stop the guano from freezing solid. Everyone knows how to read posture in steam because you can't read a face under that much hood and that much frost.
+
+Their work is tending. They are midwives to birds that are not theirs. They wade through the bird-mat — birds parting around them with that rustling sigh, tolerating them the way a sheep tolerates a tickbird — and they turn the sacs. A sac left too long in one place cooks on the bottom and freezes on top. They roll them with sticks. They pop the ones that have gone milky-white and smear the curd back into the pools to feed the film. They scoop the clearest water, which is warmest, and pour it over the stones that have gone too cold. They collect the pink-white night soil and pack it around the lowest huts because it steams for hours, a cheap furnace. It stinks, but up here stink freezes at three feet.
+
+They eat what the birds eat, after the birds have improved it. Algae curd, sac jelly, the occasional dead bird that misjudged a landing and broke its neck on basalt. They have no fire as you know fire. Fire won't stay lit unless you shelter it in like a chick. They have low, sullen smudges of fat and feather that make more smoke than heat, and that smoke never leaves, it just adds to the fog.
+
+They do not speak often, but they have a language. It is not words. It is the way a hand shoots up, two fingers: *I need help, my roof*. The way a shoulder leans: *move your birds off my water*. At midnight, when the sun finally thins for an hour, they press foreheads together under the felts and breaths mingle, and that is where they put the things that cannot be said in fingers. Dreams bleach out here too fast anyway.
+
+Nobody is old here for long. A lung goes. A foot goes black. You fall asleep in motion and they find you standing up, steamed over. Then your bones become part of the house, because wood is rare and bone is straight, because something big died here long ago and they are still using it. Some of the beams are whales that never saw an ocean. Some are things with too many ribs.
+
+If you stay until that one breath at midday, when every head turns, you understand: they are all — film and bird and bundled human — doing the same thing. Turning their faces to the hammer-light to keep the bowl from freezing over. Keeping the impossible wet the only way anything has ever kept anything alive at this height: by crowding so tight there is no room for the cold to get between them.

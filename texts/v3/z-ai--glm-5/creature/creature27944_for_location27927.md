@@ -1,0 +1,123 @@
+# The People of the Cistern
+
+## The Body
+
+They are small-framed, most of them—not from malnutrition, though that plays its part, but from generations in a space where the ceiling presses close and the walkways demand negotiation. The men average perhaps five feet four inches; the women, five feet even. Their bones are dense despite their size, a compensation for the climbing, the carrying, the constant negotiation of ladders and swaying bridges. Their hands are strong and clever, the hands of people who make everything they own. Their feet are broad and calloused, accustomed to bare surfaces, to the grip of rope and the slip of wet stone.
+
+Their skin has a quality that visitors notice: not precisely pale—the oculus provides genuine sunlight—but something muted, as if the pigments have been diluted. The children who grow up in the lower levels have a faintly gray undertone, a discoloration that fades if they spend enough time near the top. The elders speak of a time when this was more pronounced, when the smoke from the kiln and cookfires was thicker, before the ventilation shafts were cut. They say the old ones were "the color of clay." It is not metaphor.
+
+Their eyes are adapted to the light. Pupils dilate wide and contract slowly; they navigate the dimness with an ease that surface-dwellers find uncanny. A cistern-born person can read a face across the chamber by light that would leave a visitor blind. But they struggle with the open sky. The first time a cistern child ascends to the surface—usually as a young adult, usually for work—the brightness is agonizing. They squint against it, weep from it, sometimes develop the headaches that the old women treat with compresses of boiled moss. Those who go topside regularly learn to manage; those who stay below retain the sensitivity, their large dark eyes marking them instantly as creatures of the depths.
+
+Their voices have adapted, too. They speak in a lower register than surface-dwellers—not from any anatomical difference, but from learned habit. High sounds carry; low sounds sink. To speak low is to speak privately. They have a style of communication, a kind of sub-vocal murmur, that renders their words inaudible more than a few feet away. It is not whispered—the vocal cords still engage—but it is a register below what the acoustics catch and return. Surface traders often think the cistern people are sullen, uncommunicative. In truth, they are simply speaking in a way that their home permits.
+
+They have a scent. All people do, but this is particular—a compound of the elements of their environment: woodsmoke and goat, the mineral damp of stone, the vegetative rot of the ferns, the yeasty sourness of their fermented food. To them, it is neutral, unremarkable, simply the way that human beings smell. To visitors, it is a wall they must pass through, an olfactory announcement that they have entered somewhere that operates by different rules. The cistern people can smell surface-dwellers, too—their relative cleanness, the strange soaps and perfumes that cling to them. They find it disturbing, sterile, like the scent of illness stripped of its symptoms.
+
+---
+
+## The Social Order
+
+They are not a single group. This is important. The cistern was not settled by a coherent band of refugees, a tribe with shared history and mutual obligation. It was filled, over decades and generations, by individuals and families who came separately, who found the space already partly occupied, who negotiated or fought or submitted their way into the cracks. This origin haunts them. They are a people who are not quite a people—a community that must constantly remind itself that it is one.
+
+There are families—actual families, lineages that can trace themselves back through five or six generations of cistern-born children. They are the closest thing to aristocracy that exists here. They hold the prime territory: the upper platforms near the oculus, the spaces with genuine light and fresh air. Their platforms are the most elaborately built, with real walls and doors, with furniture inherited from ancestors who scavenged better than their competitors. They tend to marry among themselves, carefully, preserving claims that amount to property. The Hasprin family controls the best section of the eastern wall, six connected platforms that have been theirs for four generations. The Bain family holds the area nearest the fig tree. The oldest family, called simply the Elders—no one remembers their original surname—are the ones who sit on the council, who adjudicate disputes, who remember when there were fewer than fifty people living in the space.
+
+There are also the newcomers—recent arrivals, surface-dwellers who have fallen through the cracks of the world above and found themselves descending the worn stone steps. They are marked by their bodies: taller, softer, unaccustomed to the climbing, their hands uncalloused from rope work. They are marked by their ignorance: they speak too loudly, they stand in the wrong places, they ask questions that reveal how little they understand. The cistern does not welcome them. There is no room for welcome. But there is room for negotiation. If a newcomer has useful skills—can they weave? Can they fire pottery? Do they know herbs?—they may find a sponsor, a family willing to trade instruction for labor. If they have nothing, they descend to the lowest level, the ring around the sump, where they live in the spaces no one else wants and survive on what they can beg or steal until they prove themselves or until they disappear.
+
+Between these extremes are the middle families, the majority, who hold the middle ring with its dense warren of rooms and half-rooms. They are the craftspeople, the workers, the ones whose labor produces the goods that the cistern trades with the surface. They weave the goat-hair cloth; they fire the pottery; they tend the birds; they manage the careful balance of the internal ecology. They are not wealthy—wealth here is relative, measured in platform space and tool ownership—but they are secure. Their children marry the children of other middle families. Their disputes are settled by the council. They will never rise to the upper platforms, but they will never fall to the sump.
+
+And then there are the ones who do not fit into the hierarchy at all. The outliers. There is a man who lives alone in a crack in the western wall, a crevice so narrow that no one else would consider it habitable. He has been there longer than anyone can remember; no one knows his name or his history. He trades small hand-carved objects—a bowl, a figurine, a child's toy—for food left at his entrance. He never speaks. He may be mad. He may be holy. The children are afraid of him; the adults have simply accepted him as a feature of the environment, like the moss or the beetles. There is a woman who has declared herself the priestess of something she calls "the Deep Below." She has gathered a small following, mostly younger people dissatisfied with the council's authority. They meet in the darkness of the lowest level, near the sealed cracks that lead to the unexplored cavities. What they do there, what they believe, is not known. The council tolerates them nervously, watching for signs of genuine danger.
+
+---
+
+## The Children
+
+They are everywhere. The cistern is not a place where children are closeted away; they are part of the functioning of the space from the moment they can walk. They carry messages, they fetch and carry, they learn to navigate the walkways before they are fully steady on their legs. They are raised collectively—not in the sense that no one knows whose child is whose, but in the sense that any adult may correct a child, may teach a child, may call on a child for a small service. This is not altruism; it is necessity. There is not enough space for separate child-rearing. The children learn to be comfortable with all the adults, to read the moods and needs of a dozen different people in a day.
+
+They are daring. The walkways, the ladders, the precarious bridges—these are their playground, their world, the only environment they know. They run where adults walk carefully; they leap where adults step cautiously. They fall, sometimes. The cistern has its injuries, its disabled ones—a child who dropped from a high platform and lived but walks with a crooked leg, a boy who reached for a bird and missed and now cannot use one arm. These ones are still part of the community. They find work that their bodies permit. They are not cast out; there is no room for casting out.
+
+They play constantly, but their play is training. They race beetles along tracks scratched into the stone, and in doing so, they learn to observe the insects, to understand their habits, to predict their movements—skills that will serve them when they are adults managing the ecology. They climb to the highest reaches of the dome, chasing each other through the chisel-grooves where the pigeons roost, and in doing so, they learn the architecture of their home, the hidden handholds, the unstable stones. They whisper to each other in the acoustic shadows, developing the low speech that the adults use, passing on secrets that children have passed to children for generations.
+
+They are not told much about the surface. They know it exists—they see the light through the oculus, they occasionally glimpse a surface trader descending the steps—but it is not presented to them as a future or a possibility. Their world is the cistern. Their world is sixty feet across and forty feet high and contains everything they have ever known. When they are old enough to understand, they are told that the surface is hard, that there is no place for them there, that the people above look down on cistern-born as beggars and thieves. Some of them grow curious and climb the steps to peer out at the world beyond. Some of them dream of leaving. Most of them, most of the time, accept that they will live and die in the only space that has ever made sense to them.
+
+---
+
+## The Women Who Tend the Birds
+
+They are a distinct group, recognized by the others as having a special status. There are perhaps a dozen of them, all older, all women, all initiated into their role by predecessors who held it before them. They tend the pigeons: they feed them, they collect their eggs, they manage their breeding, they kill them when meat is needed. But they do more than this.
+
+They speak to the birds. Or rather, they speak near the birds, in a particular tone, a particular rhythm, that the birds have learned to attend to. They give the birds names—not human names, but sounds that the birds seem to recognize as referring to themselves. They send the birds with messages: a strip of cloth tied to a leg, a small tube containing a rolled scrap of paper, carried from one side of the cistern to another, or occasionally to the surface and back. The birds do this reliably. It is one of the mysteries that the younger people dismiss as superstition and the older people know to be simply true.
+
+The women say that the birds remember. Not just places, but *things*—conversations, faces, events. They say that a pigeon that has been present for a significant moment will return to that moment in its behavior, will react to the people involved, will carry some imprint of what occurred. This is why the women are present at disputes, at councils, at births and deaths. They bring birds. They say the birds are witnesses. The council has learned to tolerate this; there have been occasions when a bird's behavior revealed something that no human had noticed.
+
+They also say—quietly, among themselves, not for general hearing—that the birds go below. Not into the cistern, but into the cracks, the sealed passages that lead down into the dark. They say they have sent birds down there and the birds have returned, altered. Not harmed. Not frightened. Just different. Knowing something they did not know before. The women examine these birds carefully. They do not eat them. They do not send them to the surface. They keep them in special coops and watch them, and sometimes the birds die of no apparent cause, and sometimes they live for years, and the women do not know what it means.
+
+---
+
+## The Council of Elders
+
+They meet when there is need—not on any schedule, but when a dispute arises that cannot be settled privately, when a decision must be made that affects the whole community. They are five: the oldest representatives of the five oldest families. They are not elected. They inherit their positions, or rather, they grow into them, becoming the ones who remember the most, who have been present for the most councils, whose faces carry the authority of accumulated time.
+
+They do not judge. They do not punish. They facilitate. A dispute between families over platform boundaries is not decided by the council; it is talked through until a solution emerges that both parties can accept, often through the application of pressure—moral pressure, social pressure, the awareness that the whole cistern is watching. The council's power is the power of attention, of collective memory. If a family defies the council too flagrantly, they find themselves isolated, their trade refused, their children unwelcome. This is usually enough. When it is not enough, there is exile.
+
+Exile is the council's final tool. It is rarely used. It is not a formal sentence, not pronounced from a seat of judgment. It is a mutual understanding, arrived at through the slow withdrawal of community, until the offending party finds themselves without allies, without trade, without any place in the social web that sustains life. They leave. They climb the steps to the surface. They do not return. Sometimes they are seen in the surface markets, thin and desperate. Sometimes they are not seen at all.
+
+---
+
+## The Labor and Its Products
+
+They make what they need. This is not ideology; it is constraint. There is no store to buy from, no money that circulates within the cistern itself. (Surface traders take coin, but inside, goods and services are exchanged directly, measured in needs and agreements.) What they own, they have made or inherited or scavenged.
+
+The pottery is distinctive. The clay comes from a deposit that one family knows how to reach, a tunnel beyond the main chamber that extends into the earth at an angle. The vessels they produce are thick-walled, heavy, glazed only on the interiors if at all. They are not beautiful by surface standards, but they hold water, they survive being dropped, they stack efficiently. A potter spends decades learning the craft; a good potter is valued highly and trades their work for the best of what others produce.
+
+The textiles are finer. The goat hair is carded and spun by women who have done it since childhood, then woven on backstrap looms that can be set up and taken down in minutes—a necessity when platform space is limited. The cloth is rough but warm, dyed with pigments extracted from the mosses and ferns (pale greens, dusty yellows) or traded from the surface (occasionally brighter colors, red and blue, prized for special garments). The weaving patterns are traditional, passed down through observation and instruction, each family preserving its own motifs that identify the work as theirs.
+
+The goats are central. They provide milk, hair, and eventually meat. They are tended by a small group of children and one adult whose role is to manage the herd, to ensure they are fed (they eat the waste vegetation, the scraps of food that would otherwise rot, and occasionally are brought fodder from the surface), to keep their platform clean, to watch for illness. A goat is a significant investment. The herd fluctuates between six and twelve animals, carefully balanced between productive capacity and the ability to feed them all. When a goat dies or is killed, nothing is wasted: the meat is eaten, the hide is tanned, the bones become tools or decorations or toys.
+
+The birds provide eggs and meat, but they also provide something else: a connection to the surface. The pigeons fly out through the oculus and return with seeds, with twigs, occasionally with small objects dropped or discarded from above. They are gatherers, inadvertent traders. The women who tend them say that the pigeons know what is valuable. They bring back, sometimes, things that have no obvious origin: a scrap of cloth with an unknown pattern, a coin from a distant city, a piece of colored glass worn smooth by weather. These objects are kept. Some of them have been passed down for generations, meaningless treasures from unknown places.
+
+---
+
+## The Beliefs
+
+They do not have a single religion. They have fragments.
+
+Some families preserve rituals from the surface, traditions from whatever region their ancestors fled. These are attenuated, simplified, adapted to an environment where the original meanings no longer quite apply. A prayer that once faced the rising sun now faces the oculus, where the light falls whether or not it is morning. A festival that once marked the harvest now marks a date remembered rather than observed, the seasons meaningless forty feet below the earth.
+
+Some families have developed new beliefs. The cistern itself is a presence in their thought—not worshipped, but respected, treated as a kind of entity, a container that has become a participant in their lives. They speak of "what the cistern wants," usually meaning what necessity demands, what the balance requires. They do not literally believe that the stone has intentions. But they act as if it does, and the difference is unimportant.
+
+The cracks in the floor, the sealed passages that lead to spaces below—these are the focus of genuine fear. Everyone knows the stories. Something lives there. Something old. The stories contradict each other—sometimes it is a creature, sometimes a spirit, sometimes a human who went below and was transformed—but they agree on the essential point: you do not go down there. You do not break the seals. You do not ask what lies beneath the lowest level. The council has reinforced this. The old women have reinforced this. The occasional sounds from below—deep, rhythmic, not quite mechanical—have reinforced this. The young people, the skeptical ones, sometimes mock the fear. But they do not go down either.
+
+---
+
+## The Surface Relationship
+
+They are not entirely hidden. The surface knows they are there. The authorities have made periodic attempts to clear them out—usually when some surface interest decides the cistern might be useful for something else, or when a crime is traced back to the depths. These attempts have all failed. The cistern people know their space too well. They vanish into their bolt-holes, their hidden tunnels, the places they have prepared over generations for exactly this moment. The authorities descend into an apparently empty chamber, find nothing worth seizing, and eventually leave. The people return. The cistern continues.
+
+But the raids have shaped them. They do not trust surface authority. They do not call for help when they might be expected to. They settle their own disputes, treat their own illnesses, manage their own crises. There is no point in appealing to a world that has already demonstrated its hostility. They are not unaware of the laws and powers that exist above; they simply do not consider themselves subject to them. They have their own laws, their own powers, their own ways.
+
+The traders are different. There are a few surface merchants who come regularly, who have developed relationships with the cistern's traders, who have learned to navigate the steps and the acoustics and the negotiations. They are tolerated. They bring goods that cannot be made within the cistern—metal tools, sometimes, or better cloth, or food in bulk when the internal production has failed. They take away the cistern's products, which they sell elsewhere. They do not ask questions. They do not report what they see. They have found that the cistern is good business, and good business requires discretion.
+
+The laborers who go topside are another category. Some cistern residents—usually young, usually strong—are hired for surface work, carrying and building and digging. They are not liked by the surface-dwellers—they are seen as filthy, as strange, as competition—but they are cheap and they work hard. They return to the cistern at night with coins that they trade for goods, or for better space, or for favors. They are the ones who bring news of the surface world, who report what the authorities are planning, who sometimes catch wind of a coming raid in time to warn the others.
+
+---
+
+## The Dead
+
+They do not bury their dead. There is no earth to bury them in, and the cistern has no space for a graveyard. They have other methods.
+
+The traditional method, used for most deaths, is the deep fissure. There is a crack in the western wall, narrow and dark, that extends down beyond the reach of light. It was there before the people came; it will be there after they are gone. The dead are wrapped in their best cloth, weighted with stones, and lowered into the fissure. They are not thrown; they are placed, with care, with whispers, with the presence of family. They descend. They vanish. They join whatever lies below.
+
+This practice reinforces the fear of the depths. The dead go down there. The dead become part of whatever the below is. The living do not follow. The living stay above, in the light, in the warmth, in the noise and the press of bodies. The boundary is absolute.
+
+The exception is the council members, the elders, the ones who have held authority. They are not placed in the fissure. They are interred in the walls themselves—small niches carved into the stone behind the platforms of their families, sealed with clay, marked with a scratched symbol. They remain present, in a sense. They are ancestors who have not departed. The families say that the elders watch from their niches. They say that the elders know what happens in the cistern. They say that the elders will speak, sometimes, in the acoustics, in the returning echoes, in the words that come back altered.
+
+---
+
+## The Internal World
+
+They have stories. They have songs. They have games, jokes, gossip, all the apparatus of human society, compressed into a space where everyone knows everyone and no secret stays hidden for long. Their entertainment is each other. The tellers of tales are valued—the ones who can hold an audience, who can weave a narrative from the materials of cistern life, who can make the children's eyes widen and the adults' laughter ring. The stories are not about other worlds; they are about this world, transformed. A child who climbs too high and finds a different oculus, a platform that was not there yesterday, a goat that speaks with the voice of a dead grandmother. The impossible here is not a different world; it is this world, changed.
+
+They have loves and hates. Families feud across generations. Children inherit their parents' grudges. Alliances form and break and reform. There are romances that cross boundaries, that defy the careful negotiations of marriage, that end in joy or tragedy depending on whether the families can be brought to accept them. There are friendships that last lifetimes, pairs who have known each other since infancy, who speak in the shorthand of shared experience, who will care for each other's children and each other's elders without needing to be asked.
+
+They have inner lives that are invisible to the observer, that would be invisible even to each other if they were not so compressed. In the curtained spaces, in the low speech, in the dark hours when the cistern finally settles, they think their own thoughts. They have dreams. They have fears that they do not voice. They have hopes that they know are futile. They have regrets about things done and not done, about chances not taken, about the lives they might have led if they had been born elsewhere.
+
+They are not happy, exactly. Happiness is not a word that translates well here. They are occupied. They are engaged. They are part of something—a mesh, a web, a social structure so dense and so total that the question of individual satisfaction barely applies. They have purpose. They have place. They have each other, which is both comfort and constraint. They are alive, which is not nothing.

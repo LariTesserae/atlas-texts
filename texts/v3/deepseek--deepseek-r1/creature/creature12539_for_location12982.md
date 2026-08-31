@@ -1,0 +1,26 @@
+## The Ashen-Kin: Guardians of the Whispering Stone
+
+They call themselves the *Ura-Mal*—"Stone's Breath" in their soft, sibilant tongue. To outsiders, they are the Ashen-Kin, a people woven as deeply into the Sunken Garden as the moss-clad pumice and cycad roots. They are not tall, rarely exceeding five feet, with wiry frames honed by generations of moving through the dense, vertical world. Their skin is the color of the garden’s dust—pale, ashen grey—often etched with delicate, self-applied patterns in iridescent fungal inks that shift from emerald to violet in the dim light, mimicking the luminous flora around them. This is both art and camouflage, a testament to their belief that to stand apart from the grove is to invite imbalance.
+
+### Physicality & Adaptation
+- **Eyes**: Their most striking feature. Large, obsidian-black, and lidless, they absorb every shred of the garden’s pearlescent twilight. Pupils dilate to fill the entire visible surface, granting them preternatural sight in the gloom. They blink rarely; a thin, transparent nictitating membrane sweeps horizontally to clear dust or moisture.  
+- **Movement**: Deliberate and fluid, like wind through fronds. Every step is placed with care on the talc-soft ash, avoiding fragile moss-carpets or the tiny, glittering fungi that thrive in their footprints. In the canopy, they climb with simian grace, using long-fingered hands and prehensile toes to grip vines and cycad bark. Haste is foreign here—their metabolism is slow, conserving energy in the thick, warm air.  
+- **Respiration**: Their nostrils are flared and porous, filtering the spore-rich air efficiently. They exhale minimally, a necessity in an ecosystem where every molecule of non-aqueous moisture is precious.  
+
+### Culture & Society
+The Ashen-Kin live by a single creed: *"We are the grove, and the grove is us."* Their settlement is less a village than a symbiotic extension of the ecology. Families dwell in hollowed cycad boles or on platforms lashed between living trunks, structures that creak and sigh with the growth of the trees. Society is matrilineal and communal, led by **Root-Speakers**—elders who interpret the deep *thrum* of the mountain through the pumice slab (the **Heart-Stone**), believed to be the voice of the sleeping earth. 
+
+- **Economy**: They are gatherer-cultivators, not hunters. Each dawn (marked by the faint brightening of the haze above), they collect resin from cycad fronds, harvest rubbery seed-pods, and tend "moss-gardens" on the pumice walls. They keep fat, mucus-coated slugs in clay pots, using them to "clean" microbial films from walkways, then release them back to the stone.  
+- **Technology**: Simple, sustainable, and silent. Tools are knapped volcanic glass or carved bone; fabrics are woven from cycad fibers and waterproofed with resin. Light comes from handheld **glow-orbs**—hollowed gourds containing bioluminescent gnats or cultured fungi—casting soft, shifting pools of blue-green.  
+- **Sound & Ritual**: Their language is a whispery blend of clicks, hums, and drawn-out vowels, designed to harmonize with the grove’s drone. Music is central: **Chitin-Drums** (made from beetle carapaces) resonate with the mountain’s infrequent vibrations, signaling gatherings or shifts in labor. Dances mimic the gliding lizards—slow, spiraling motions that tell stories of geological time.  
+
+### Beliefs & Psychology
+Time here is not linear but cyclical, measured in generations, not years. The Ashen-Kin perceive change as the Heart-Stone does—in millimeters over centuries. They worship condensation and capillary action as sacred forces, leaving tiny offerings of gathered dew in pumice crevices. Death is a return: bodies are laid atop the ash, becoming nurseries for moss and fungi. Their greatest fear is *silence*—a lull in the grove’s hum signifies ecological disruption, met with days of chanting to "awaken" the stone.  
+
+### Interactions with Fauna
+They coexist peacefully with the garden’s creatures. Six-legged grazers are tolerated as "moss-trimmers"; children sometimes ride them in gentle processions. Gliding lizards are considered messengers, their paths studied for omens. When bioluminescent gnats swarm, the Ashen-Kin stand motionless, breathing in the light—a form of meditation. There is no predation; violence is as alien as haste. Conflict is resolved through **Stone-Telling**, where disputants press their palms to the pumice slab, listening for the Heart-Stone’s guidance in its vibrations.  
+
+### The Threat of Outsiders
+The Ashen-Kin have no memory of a world beyond the Last Peak. If intruders came—clattering with metal, shedding sweat that wastes moisture, breathing too fast—they would retreat into the grove’s embrace, vanishing like shadows. To them, such disruption is a desecration, a scream in a sanctuary of whispers. Their existence hinges on the garden’s fragile equilibrium, and they will defend it with the patient, relentless force of roots cracking stone.  
+
+They are the stillness within the mountain, the living echo of deep time—a people who have learned that to thrive is to move at the speed of moss.

@@ -1,0 +1,15 @@
+In this living labyrinth dwell the Weavers - beings that exist in a state between plant and animal, between individual and collective. Their bodies are translucent and fibrous, like living glass threaded with chlorophyll, stretching and branching through the mega-trees' chambers in anastomosing networks.
+
+A single Weaver might extend for kilometers, their consciousness distributed through photosynthetic neural fibers that pulse with the same bioluminescent patterns seen in the canopy above. They process information through changes in fluid pressure and chemical gradients, thinking in rhythms that match the slow breathing of their massive habitat.
+
+They do not move so much as flow and grow, extending new branches while absorbing old ones. Their "bodies" are continuously rebuilt, like the living architecture around them. What appears as a single entity might be many, and what seems like many might be one - they merge and separate freely, sharing nutrients and information through their interconnected tissues.
+
+The Weavers tend to the great trees, though "tending" implies more separation than exists between them and their environment. They are both gardeners and garden, their activities so integrated with the trees' growth patterns that it becomes impossible to say where purposeful cultivation ends and natural processes begin.
+
+Their intelligence is alien but profound, operating on multiple timescales simultaneously. Part of their awareness moves at the pace of cellular growth, directing the long-term evolution of the living towers. Another part flows quickly through their photosynthetic neural networks, creating rapid patterns of thought and communication that humans would find more recognizable.
+
+They reproduce through a process that resembles both flowering and mitosis - periodic bursts of generative tissue that cascade through their networks, creating new patterns of consciousness as much as new physical forms. Their memories are stored in the biochemical structures of their tissues, passed down through generations of cells.
+
+The strange creatures that share their realm - the air-swimming organisms and fungal collectives - are their symbionts and extensions, carrying out specialized functions in the greater organism of the ecosystem. Some may even be specialized forms of the Weavers themselves, temporarily separated like the polyps of a coral.
+
+They are ancient, patient, and utterly alien - yet their existence resonates with familiar patterns of life and growth. They are what emerges when the boundaries between organism and ecosystem dissolve, when consciousness spreads through living architecture like mycelium through soil. They are the gardeners who have become the garden, the builders who have become the building, the thinkers who have become the thought.

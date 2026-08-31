@@ -1,0 +1,27 @@
+The Millkeepers drift between the terraces like thoughts between synapses—elongated beings of living mercury wrapped in films of the same polymer that forms the synthetic kelp. They have no fixed shape, but tend toward streamlined forms when moving: sometimes a twist of silver ribbon twenty feet long, sometimes a compact sphere trailing tentacles of quicksilver. Their surfaces mirror everything perfectly, creating the illusion that pieces of the environment itself have gained motility.
+
+When at rest, they spread themselves thin across the platform surfaces, becoming pools of reflective liquid that seep into the perforations. In this state, they taste the chemical gradients flowing through the machinery, reading the industrial processes like sheet music. They can remain like this for days, perfectly still except for the occasional ripple that passes through their mass—a shiver of comprehension as they decode some new pattern in the system's operation.
+
+They communicate through harmonics in the machinery itself, modulating the vibrations of turbines and the flow rates through pipes to create complex symphonies of mechanical sound. A conversation between Millkeepers might manifest as a gradual change in the rhythm of a conveyor belt, or a subtle shift in the resonance of the brass columns. They think in industrial time, with discussions that can span months.
+
+Their primary occupation is optimization. They adjust the angle of a polymer frond by micrometers to improve fluid flow. They regulate the speed of the glass vessels' rotation to maximize polymer extraction. They are not servants of the mills but partners in an endless dance of refinement, their liquid bodies serving as both sensors and actuators for the great machine.
+
+The Millkeepers reproduce through division, but only when they've accumulated enough trace metals from the water-medium. The process takes decades of careful feeding, filtering tons of fluid through their permeable membranes to extract the necessary materials. When ready, they find a quiet terrace and slowly separate, the parent diminishing as the offspring emerges—both smaller than before, both carrying perfect copies of the accumulated knowledge of mill operations.
+
+Younger Millkeepers are more active, darting between platforms to explore new configurations of machinery. They play by creating interference patterns in the synthetic kelp forests, racing through the fronds to see who can generate the most complex waveforms. The elders move hardly at all, having found optimal positions where they can monitor vast sections of the mill through vibration alone.
+
+They feed on impurities in the system—microscopic flaws in the polymer chains, trace contaminants in the water-medium, the occasional malfunction that produces useful chemical byproducts. Their metabolism transforms these imperfections into the silvery substance of their bodies. In a sense, they are the mill's immune system, constantly purifying and perfecting its operations.
+
+But there are others here, newer arrivals drawn by the warmth and plenty:
+
+The Splice Worms appeared first, finger-thick creatures of living polymer that exactly match the material of the synthetic kelp. They live by carefully severing fronds and grafting them onto their own bodies, growing longer and more complex with each theft. The Millkeepers tolerate them because their pruning often improves fluid flow, though they will absorb any Splice Worm that grows too greedy.
+
+Glass Shepherds emerged from the depths last season—transparent jellies the size of dinner plates that tend the rotating vessels where kelp is dissolved. They secrete a thin film that prevents polymer buildup on the glass surfaces, feeding on whatever they scrape away. Their bodies contain tiny copper inclusions that create galvanic currents when they touch the metal platforms, giving them a way to navigate by electrical sensation.
+
+The Resonance Mice are the smallest inhabitants, no larger than thumbnails, with bodies of crystallized sound. They live in the spaces between moving parts, feeding on the acoustic energy of the machinery. Where they gather, the mill's music becomes complex and beautiful. The Millkeepers sometimes cultivate colonies of them in specific locations to create auditory landmarks for navigation.
+
+Most mysterious are the Pattern Prophets—colonies of microscopic organisms that form shifting geometric designs on the undersides of platforms. They seem to predict changes in the mill's operations, their configurations altering days before the Millkeepers make adjustments. Whether they truly foresee the future or somehow influence it remains unclear. The Millkeepers study them intently but have yet to decode their language of living mathematics.
+
+The ecosystem, such as it is, remains in constant flux. New organisms arrive from the depths, evolve from the machinery, or spontaneously generate from the interaction of chemistry and current. Most fail to find a niche and dissolve back into the water-medium. But some persist, adding new layers of complexity to the mill's operations.
+
+The Millkeepers observe it all with the patience of liquid metal, adjusting, optimizing, maintaining the delicate balance between industry and life. They are curators of a museum that builds itself, gardeners in a garden that grows toward an unknown harvest, shepherds of a flock that may one day reveal its purpose—or may simply continue forever, processing and reprocessing in the warm aqueous darkness, perfect in its purposelessness.

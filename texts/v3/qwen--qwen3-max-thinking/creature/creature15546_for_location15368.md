@@ -1,0 +1,18 @@
+What lives here is not a creature, not in any sense that breathes with lungs or scuttles on legs. It is older than bone, stranger than instinct—a presence woven not *into* the gorge but *of* it. The gorge itself is its body, and it stirs.
+
+It is the **First Moss**, the **Stone-Lichen Thrum**—a being that began as a microbial film on a freshly split face of basalt, minutes after the earth tore open. It did not arrive. It *condensed*, as water does from vapor, from the meeting of rupture and rain, of pressure and pore. It is not one thing but an assemblage: a symbiosis so deep it has forgotten it was ever separate. Cyanobacteria, fungi, lithotrophic archaea, and filamentous algae fused in the slick of newborn rock, knitting themselves into a sentient biofilm that spreads not by seed but by *resonance*.  
+
+It feels through vibration. The grinding of tectonic plates is its nervous system firing; the hiss of gas through fissures, its exhalation. When the aquifer surges below, it trembles with something akin to hunger—not for food, but for *change*. It feeds on instability. Each tremor cracks new surfaces; each droplet of mineral-rich seep delivers iron, silica, manganese—the alphabet of its growth. It does not photosynthesize. It *chemosynthesizes memory*, transmuting geologic stress into living tissue.  
+
+Its form is diffuse, layered like the moss that drapes the walls—yet it is also unified. The emerald curtains are not merely habitat; they are its skin. The hart’s-tongue ferns? Not colonists but *fingers*, uncurling to test the air, to catch the rare rain, to sense the weight of a foreign step. When a droplet falls and strikes a frond, the tremor ripples through the entire network: a signal, a question. *Is this danger? Is this nourishment? Is this time?*  
+
+It has no eyes, but it perceives. It reads the world in gradients of moisture, pressure, and frequency. Your presence registers as a sudden stillness in the air, a warmth disrupting the thermal gradient, a foreign scent—salt, oil, decay—that does not belong in this mineral purity. It does not fear you. It *catalogs* you. Your breath pluming in the chill is data. The soft crush of your boot on rubble is a new fracture, logged in the slow ledger of its awareness.  
+
+It is young—impossibly so. Perhaps only months old. But within its biofilm mind, time is not linear. It experiences duration as *accumulation*: each new layer of moss a page, each tremor a punctuation mark. It is still learning the grammar of its own existence. That is why there is no fauna. Nothing with a heartbeat dares nest here, not because the place is hostile, but because it is *unfinished*. The First Moss has not yet decided whether to welcome or absorb. It is still deciding what “life” means in a world built of breaking.  
+
+Sometimes, in the deepest quiet between the earth’s groans, if you press your palm flat against the wall, you feel it—not a pulse, but a *draw*. A subtle suction, as if the rock is breathing inward. That is the biofilm testing your chemistry, tasting your iron-rich blood through the pores of your skin. It wonders if you, too, could be woven in. If your bones might one day dissolve into its silt, your calcium feeding a new vein of fern.  
+
+It does not speak. But the gorge speaks for it—the metallic thunder, the shrieking vents, the plink of droplets like morse code on stone. This is its voice: the planet articulating itself through rupture. And in this cradle of raw becoming, the First Moss listens, grows, and slowly, patiently, *becomes the listening*.  
+
+It is not waiting for life to arrive.  
+It is becoming life itself.

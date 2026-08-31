@@ -1,0 +1,17 @@
+The Singers are a species that exists as both individuals and a unified whole, each one both autonomous and deeply connected to the colony's shared consciousness through their resonant songs. They stand roughly two meters tall when fully extended, though their segmented bodies can compress to half that height for moving through smaller spaces.
+
+Their bodies are divided into three main sections, each specialized but flexible in function. The forward section houses their primary sensory organs - compound eyes that see deep into infrared, vibration-sensitive antennae, and the complex sound-producing organs that are their most distinctive feature. These resonating chambers, evolved from wing cases, can produce sounds ranging from subsonic thrums to crystalline high frequencies.
+
+The middle section contains their primary processing organs - multiple stomachs for breaking down minerals and synthesizing building materials, oxygen-storage chambers that help them function in the thin air, and the neural clusters that coordinate both individual and collective behavior. Their outer shell here is particularly thick and layered, helping maintain crucial body temperature.
+
+Their rear section houses their locomotor systems - six primary legs for walking and climbing, plus four specialized manipulator limbs used in construction. Stretching between these limbs are thin membranes that can be extended for gliding or folded away. Their entire exterior is covered in fine sensory hairs that help them navigate through the hive's complex architecture even in total darkness.
+
+But perhaps most remarkable is their distributed intelligence. While each Singer possesses significant individual cognitive capacity, their true consciousness emerges through interaction. Their songs create overlapping fields of information, allowing them to solve complex problems collectively and maintain the intricate patterns of hive maintenance. They don't just communicate - they think together, dream together, create together.
+
+There are different castes, but these are fluid rather than fixed - individuals can modify their body chemistry to take on different roles as needed. Some specialize in harvesting and materials processing, others in construction, still others in maintaining the songs that keep the hive's systems in balance. All can participate in all tasks to some degree, ensuring adaptability.
+
+They reproduce through a complex process that involves both physical egg-laying and the transmission of memories through concentrated sound patterns - each new generation inherits not just genes but the accumulated knowledge of their ancestors, encoded in songs that must be continuously repeated and refined.
+
+The Singers experience their world primarily through vibration and resonance. They don't simply live in the hive - they are the hive, their bodies and minds extended through its structure via the songs that never cease. Their art, their science, their history, all exist as patterns of rhythm and frequency, constantly being performed, refined, and transmitted to future generations.
+
+Despite their alien nature, they possess a profound aesthetic sense, evident in the mathematical beauty of their constructions and the haunting complexity of their songs. They are engineers and artists in equal measure, their very existence a testament to the way function and beauty can become indistinguishable at the highest levels of evolution.

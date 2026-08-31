@@ -1,0 +1,17 @@
+In this cathedral of obsidian, the inhabitants are not creatures so much as they are *states of matter* attempting to achieve persistence. 
+
+They are the Shimmers—or perhaps, more accurately, the Refractions. 
+
+They do not have a head or a tail, but they possess a center of gravity, a core of dense, mercury-bright liquid held together by an iridescent membrane that shudders with the frequency of the cooling crust. They are shaped like truncated polyhedra—sometimes a cube that has begun to melt into a sphere, sometimes a flat, planar sheet of glass that folds itself into a knot to survive the heat.
+
+They lack internal organs; instead, they have internal *topographies*. When light passes through them, you can see the architecture of their interiors: clockwork labyrinths of trapped air bubbles and microscopic, spinning crystals that act as their hearts. They do not eat; they consume the heat itself, bathing in the radiation that bleeds from the obsidian, turning the thermal energy into the shimmering movement that powers their limbs—limbs that are not flesh, but extrusions of liquid metal that lengthen and retract like cooling lava. 
+
+Because they exist in an environment of "rehearsing laws," their bodies are as mutable as the world they tread upon. When they collide, they do not bruise or bleed. They perform an exchange of data. One might touch another with a filament of silvered plasma, and in that contact, they trade geometric memory. One may suddenly sprout a wing-like membrane of gossamer-thin glass because it "learned" the shape of the condensation beads, while the other might lose a facet of its form, smoothing out into a simple, perfect drop. 
+
+They are in a constant, breathless state of becoming. They have no parents, and they do not die in the way we understand it. When a entity can no longer hold its shape—when the heat becomes too much or the tectonic shift of the obsidian cracks its internal symmetry—it simply liquefies, spreading out over the razor-sharp surface of the shard like a mirror-slick. It is then absorbed by the others, collected by the swarm, who drink the spill to incorporate the "geometry" of the fallen into their own ongoing existence.
+
+They are the archivists of the shard, though they have no concept of history. They know only the *pressure* of the light and the *texture* of the weep. 
+
+Observe them closely: a triad of them is currently fused to the apex of a jagged obsidian mountain. They have linked their forms together to create a bridge, a structural arch of liquid chrome over a pool of trapped condensation. They are vibrating in unison, a low, melodic thrumming that is less a sound and more the physical sensation of the shard’s bedrock trying to find balance. As they pass a heavy, mineral-rich droplet between them, they change colors—from the pale, blind white of moonlight to a deep, bruising violet that matches the shadows in the deepest fissures. 
+
+They are not lonely. Loneliness requires a distance that does not exist here. They are a single, collective pulse, an infinite negotiation of shape and shadow, perpetually refining the physics of their own existence, one wet, shimmering vibration at a time. They are the dream the obsidian has of being alive, and they will dance until the planet grows too cold, and the shard finally settles into the silence of stone.

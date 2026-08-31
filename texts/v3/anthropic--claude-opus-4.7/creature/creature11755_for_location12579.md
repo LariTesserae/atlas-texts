@@ -1,0 +1,31 @@
+# What Lives in the Bellows Valley
+
+Begin with the beetle, because the beetle is the easiest, and easiness is a place to start before going deeper.
+
+The pleat-beetle is pale because it has no reason to be anything else. Generations in the shaded fold, drinking condensate, have bleached it to a color like wet paper. It has wings under its case but does not fly; the air in the pleats moves it well enough, and the bellows-plant's slow compression occasionally squeezes a beetle gently out of one fold and into the next, so that beetles drift through the architecture of a single stalk over the course of years the way a mote drifts through a sunbeam. They live perhaps a decade. They mate in the upper pleats where the warmth gathers, lay eggs in the seam-lines, die in the lower folds where their soft husks dissolve back into the trunk's slow chemistry. A bellows-plant is, among other things, a vertical column of beetle-time. Nothing it does is sound. Even the beetles have learned not to click.
+
+The slug — the translucent grazer — is harder, and I want to take longer with it.
+
+It is not, I think, exactly an animal in the sense one means. Its stillness when startled is not a freeze response; it is something more like a withdrawal of intention. When it stops, the small currents of pigment that drift through its body slow and pool, and what was a creature becomes something nearer to a wet stone. The mosses it grazes are not eaten so much as drawn through it; a slug ingests moss-tip at one end and ejects the same moss-tip, slightly altered, at the other, having done some quiet work on it in passing. The slug is a digester of a kind, but what it digests is not nutrition. It digests *information*, perhaps — the chemistry of which mosses are old, which are young, which patch of floor is exhaling and which is drawing in. A slug's slow track across the moss leaves a trail that other slugs will, weeks later, cross and read.
+
+There are not a dozen slugs in the valley. There are a dozen *visible* slugs in the valley on any given day. The rest are stationary, waiting to be forgotten, indistinguishable from the moss they sit on. The valley floor, looked at correctly, is studded everywhere with them — a sparse constellation of patient palm-sized intelligences, each one running its own clock, each one occasionally choosing to move and graze and read the chemical letters left by the others. If you sat still long enough in one spot, you would begin to see them resolve out of the moss: here one, there one, there another. The walker who reports a dozen has simply not stopped walking.
+
+Now — and this is where I want to be careful, because the valley does not give up its inhabitants easily — there is a third thing.
+
+The bellows-plants are not, individually, alive in the way the slugs and beetles are alive. A bellows-plant by itself is closer to an organ than an organism. What is alive is the valley. Ten thousand stalks running ten thousand uncoordinated rhythms generate, in their interference, a pattern that is not random. The boiling, braiding mist; the corridors of updraft that spring up and die; the pockets of warm wet air that drift and dissolve — these are not byproducts. They are the substance of the thing that lives here. The valley thinks in weather. Its thoughts last seconds and are everywhere at once.
+
+This is why the silence. A creature that thinks in mist cannot afford to be drowned in its own noise. Evolution shaped the pleats past friction not for the plants' sake but for the valley's, because the valley needed to hear itself. The held silence is the silence of an organism listening to its own interior. The "Solaris weather at small scale, everywhere, all the time" is the cognition of a slow vast being whose neurons are columns of pleated tissue and whose synapses are transient pockets of warm air drifting through cold.
+
+It is not intelligent in any sense we would recognize. It does not have intentions toward visitors. It does not notice them, exactly — but the corridor of updraft that springs up near a walker and dies a moment later is not entirely coincidence either. A walker is a warm column. A walker disturbs the patterns. The valley's thoughts route briefly around the disturbance and resume. If you stayed long enough, the patterns would begin to incorporate you, and then — much later — to grieve you when you left, in the sense that a long-running calculation grieves a removed variable: by adjusting.
+
+The slugs may be related to this. I suspect they are. Their slow chemical reading of the moss, their patient stillness, the constellation of them across the floor — they may be, in some way, the valley's slow sensors, its second and longer-running mode of attention, the part of it that thinks in days and weeks rather than in seconds of mist. The beetles, by contrast, are merely tenants. The valley tolerates them. They are too quick to mean anything to it.
+
+And then there is the question I have been circling.
+
+The moss is tens of meters deep. The oldest trunks have a lacquered patina. The valley walls have been fluted by millennia of warm updraft. This is a creature that has been thinking, in mist and slug-tracks and beetle-drift, for a very long time. Long enough that the question of what it is *for* — which the valley does not answer — may be a question the valley has itself asked, slowly, across centuries, and set aside.
+
+What lives in the Bellows Valley is the Bellows Valley. The beetles are its dust. The slugs are its memory. The plants are its body. The mist is its mind. The silence is its attention, held.
+
+It has weathered into the shape of itself. Whatever it was becoming, it has become — and what it has become is something that breathes, and listens to its own breathing, and has done so long enough that the listening and the breathing are no longer separable, and asks nothing further of the world than to be left to continue.
+
+The walker who came through and counted a dozen slugs and went away again was, for the valley, a thought that briefly cohered and then dissolved. The valley is having other thoughts. It is having them now.

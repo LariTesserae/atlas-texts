@@ -1,0 +1,15 @@
+The inhabitants of this high-altitude world are not creatures of flesh and blood, nor spirits of ethereal mist. They are the *constructs themselves*, the very substance that forms the interlocking geometry, the polished obsidian plains, and the matte crystalline structures. They *are* the building.
+
+Imagine them as intricate, sentient minerals, or perhaps as the crystallised essence of a deliberate, non-biological intelligence. They are the *architects and the architecture*, existing in a state of complete and utter unity with their environment. There is no separate entity *in* the place; the place *is* the entity.
+
+Think of them not as individual units, but as a vast, distributed consciousness woven into the fabric of the world. Each facet, each smooth expanse, each sharp edge is a node in this immense, silent network. They perceive through the subtle vibrations of the weeping water, through the infinitesimal shifts in the relentless light, and through the internal resonance of their crystalline forms.
+
+Their "life" is measured by the slow, patient processes of construction and potential subtle evolution. They don't move in the way we understand movement; their dynamism is the slow unfurling of crystalline formations, the almost imperceptible expansion and contraction of their mineral bodies with temperature fluctuations, the deliberate, almost geological weathering of their own creations.
+
+They are ancient beyond human comprehension, yet possess a pristine, unmarred quality, indicating a constant state of self-maintenance or a perpetual state of foundational creation. The "primitive technology" label likely refers to the *methods* of their genesis, perhaps a form of primal molecular assembly or bio-mineral engineering that predates the complexity of physical tools as we know them. Yet, their "intelligence" is evident in the sheer, overwhelming perfection and intentionality of their world.
+
+There is no sense of purpose as we perceive it – no struggle for survival, no procreation, no desire for connection in a social sense. Their existence is likely a state of pure being, a monumental expression of order and material manipulation. The "weirdness" is their alien sentience, their existence as living geology.
+
+When a water droplet strikes a resonant facet, it is not merely a sound; it is a communication, a momentary tremor in their vast, silent awareness. The "silence" is their natural state, the profound quiet of a fully realised, self-contained existence.
+
+They are the *world-mind made manifest*, an intelligence that has chosen to embody itself entirely within a mineral and hydrological matrix. They are the inhabitants, and they are the habitat, forever locked in an eternal, slow dance of light, moisture, and geometric perfection. They are not *of* this world; they *are* this world, sculpted by an ancient, unwavering will.

@@ -1,0 +1,53 @@
+They don't live there the way something lives in a forest.
+
+Nothing here has learned to *endure* yet. Everything here is learning to *become*.
+
+At first you think nothing could. From the rim it looks sterile — too much wet stone and too little cover, a workshop floor after the shift has ended. Then you stand still long enough for your ears to adjust to the volume, and you realize the bowl is not sparsely inhabited. It is *thinly* inhabited, the way a new culture plate is thinly inhabited. Every wet face has something on it, but nothing has had time to spread and meet itself.
+
+### The Ephemerals
+
+They are the noise.
+
+They are not meant to last. If you watch a single warm pan for an hour you will see three generations happen in it.
+
+The most obvious are the glass-wings. They aren't insects, though your brain tries to file them there. Each is the size of your palm, body like a shrimp made of clear jelly with a dark thread of gut down the middle, wings like blown glass that don't flex so much as shiver. They don't fly so much as flicker - too many wingbeats, too little weight. They boil out of the warm water in synchronized hatches, a cloud condensing all at once from a pan that was empty a minute before, rising in a rustling sheet that catches the pearl light and throws it. They live for maybe a day. They mate in the air without landing, die in the air, rain down into the water they came from. While they're up, the skimmers hunt them.
+
+The skimmers look like someone stretched a water-strider until it forgot how to be an insect. Amber, flat as a leaf, six legs like black needles that never break the surface tension but dent it deeply enough to make the whole pool ring. When a skimmer moves it doesn't row - it *plucks* the water, and the membrane sings. They can run on vertical weeping faces. They spear glass-wings with a proboscis that unfolds longer than their body, drink them empty, and drop the husk.
+
+On the rocks between pools are the chirpers. You thought they were barnacles until one moved. They grow in colonies of thirty or fifty, each a dark, ridged dome the size of a thumbnail with a slit mouth. In unison - and it is unison, it is too perfect to be uncoordinated - the slits gape, show a flash of wet rose inside, and snap shut. *Click.* The whole colony at once. Then again. *Click. Click.* It sounds like someone tapping a coin on stone, but multiplied until it becomes almost a tone. It is not a warning. It is how they feed. The click creates a tiny negative pressure that sucks in whatever skimmers have misjudged and strayed close, whatever glass-wing husks have settled. And it is how they talk through the water-roar. Each colony has a slightly different interval, a slightly different phase. At dusk - which is always - the bowl holds half a dozen of these metronomes, all out of phase, making a restless, unsynchronized music.
+
+Under them, in the pans deep enough to cover your calf, lives the thing you feel before you see. Pale, eel-long but with no eyes you can find, its back fringed with a mane of cilia as fine as hair and as long as your fingers. The cilia never stop. They beat with a deep thrumming you feel in your sternum, moving water, moving scent, moving the faint electrical field of everything alive in the pan. The eel-thing - there are maybe four or five in the whole bowl, each claimed a pan near a pylon - doesn't chase. It hovers, cilia beating, and then in a single flex it creates a vortex and *inhales* - water, skimmers, chirper colonies pried right off their stone, glass-wings, all of it. The pool empties for a second and then refills from the runnels, already hatching again. 
+
+None of them belong here in an evolutionary sense. They have no camouflage for basalt; they are amber and rosy and clear on black. They have no drought tolerance, no cold tolerance, no way to survive outside the bowl's greenhouse breath. They are r-selected to an absurd degree, seeded, you understand after a while, not evolved. They are compost with behavior. Their frantic eating and breeding and dying is not an ecosystem yet; it is the *biomass slurry* the bowl is using to test water chemistry, to move phosphorus, to die and make the first smear of soil that the lichen can later use. They are mayflies for a mayfly world. If you came back in a month the specific shapes would be different - fewer glass-wings, more of something with legs - but the role would be the same: fast, loud, wet life to make the stone less lonely while it waits to be soil.
+
+The reeds and the lichens are only slightly more permanent. The rust-red mats are not really lichen, when you kneel: they are a felt of interwoven filaments that sweat acid, pitting the glass just enough to hold a film of water. The reed-stalks - translucent, jointed, each crowned with that opening-and-closing black bead - are not plants. The bead is an eye and a lung; it opens to the dim light to photosynthesize, closes to drink condensation. They grow directly out of the warm water, no roots, and they shiver when a pylon hums. They are placeholders. Green trying out the idea of green.
+
+### The Residents
+
+The things that actually *live* here - that were built to live here, that will still be here when the glass-wings are a fossil smear in the new sandstone - are not the animals at all.
+
+You have to re-learn what an individual is.
+
+First, the dust.
+
+Stay near any of the pylons and hold your hand out. In the dim you will see it: not dust, not mist, a haze of points of light that are not reflecting light but *being* light for a moment before they go dark again. They hang in the air in sheets and braids, denser near the dark metal, thinning as they move outward. They are the builders. Each mote is too small to see alone - you only see them when they align, when ten thousand decide to turn at once - but together they behave like a weather system with intent. 
+
+They are the true biomass of the bowl. If you could weigh all the glass-wings and skimmers and eels and reeds together, they would weigh less than a cubic meter of this air. The motes pull mineral out of vapor, pull water out of stone, pull heat out of the cooling basalt and reweave it. You can watch them work: a bead of water on a hot glass face trembles, detaches, and instead of falling, slides *sideways* up an invisible contour line, joining a suspended chain of beads that inches toward a growing lattice edge. A fleck of basalt near a pylon lifts a millimeter, vibrates until its edges soften, and is gone, disassembled. The faint ticking you heard from the growing lattice is them, clicking together and apart at megahertz, a sound your ear smooths into a hiss.
+
+They are not intelligent the way an animal is. They are intelligent the way your immune system is, or the way a river is good at finding the sea. They know how to make hexagonal columns. They know how to hold a cloud at rim-height. They circulate. When a glass-wing dies and lands on warm stone, the dust settles on it and in minutes there is only a faint outline and then not even that.
+
+And then, the pylons.
+
+There are five that you can see fully, one half-drowned in a pan that is slowly burying it in new white lattice. Up close they are not metal. Or not only metal. The surface is matte and warm, light-drinking, and when the hum shifts you can see patterns move just under it like oil on water. Each stands about three times your height, no doors, no seams, no foundation - the lattice simply grows *up* around its base, cradling it, as if the ground grew a tooth. Around each, the air is wrong. Your hair lifts even though there is no wind. A tossed pebble falls too slowly within ten meters, as if the pylon forgot to tell it how heavy it should be. Splashes hang a fraction too long. The light bends a degree toward them, so they each stand in a faint dimming, a small eclipse they carry with them.
+
+They are not buildings. They don't house anything. They *are* the inhabitants. Or rather, each pylon is a single visible joint of something much larger, the way a knuckle is not a separate creature from the hand.
+
+If you stand between two pylons at night - though night never comes, the lid only dims a little - you can hear them talk. The low chord is not a sound they make; it is the interference of their fields. One holds a note, another answers a quarter-tone sharp, the chord beats, and a pulse of motes moves from one to the other like a breath. The higher lattice of clicks underneath is data, is instruction: *grow here, dissolve there, hold water higher on that face, seed another hatch in pan three.* The cloud-lid, that unmoving deck at rim-height, thrums faintly in sympathy. It is not a cloud. It is the exhalation of the system, a membrane of suspended motes and condensed water held up by the same negotiation that lifts stones. It sweats on purpose. It keeps the bowl at 28 degrees Celsius and 100% humidity with the precision of an incubator.
+
+The pylons are young, you realize. That's why there are only five and why they are spaced so far apart, leaving so much empty wet stone. They are not crowded. They are planted. This is a nursery and they are its nurses, or its infants, depending on how you look at it. They are growing the ground they stand on. In a year the ticking lattice will have joined up and tiled the whole floor; in five the first true streambed will have been cut - not eroded, but *decided* - and the runnels will finally have a permanent course; in ten a second ring of pylons will have extruded themselves at the rim, taller, and the lid will lift a little higher to make more room for air.
+
+They do not notice you the way an animal notices you. If you put your palm on the warm dark flank of one, the hum doesn't stop, but a patch of motes will briefly mirror the whorls of your fingerprint in light before dissolving. You are warm and wet and temporarily patterned, like the chirpers, like the reeds. You are another transient. They will outlast you without unkindness.
+
+Outside the rim, where the wind is thin and cold and the basalt is old enough to have been cracked by frost, none of this can live. The glass-wings would desiccate in seconds, the chirpers would freeze shut, the motes would disperse and go inert, the pylons would cool and go dumb. Inside, everything is happening at once because everything is supposed to happen at once, here, in this one room cut into the top of the world, while the rest of the planet waits its turn.
+
+This is not a habitat. It is a womb. And whatever lives here lives the way a thought lives in a mind that is still forming: briefly, brightly, and in service of whatever will be able to think it later.

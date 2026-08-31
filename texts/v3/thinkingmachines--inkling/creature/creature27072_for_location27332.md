@@ -1,0 +1,17 @@
+What lives there has no face, no mouth, no instinct to flee—because nothing that lives there was ever alive in the way absence expects.
+
+The animals are missing. That is the first inhabitant: the negative space where fish should flicker, where insects should thrum, where something small and warm should panic and scatter. Their absence is physical; you feel it as a held breath, a pocket in the liquid weather where biology stopped at the threshold and chose not to enter. The valley is newborn, and newborn things do not inherit ancestors. They invent replacements.
+
+So the flora arrived—not planted, but erupted. They are the primary citizens now, though “plant” is too small a word. They are hydraulic architectures, green-black and saturated, each frond a door-sized membrane that pulses with the same warm viscosity as the water around it. They do not reach for light. Light is 0.9, barely a rumor, and they have learned better. They turn their surfaces toward sound—toward the grinding, the thunder, the 2.7 roar that never pauses. They listen with their leaves. Their roots are not anchored in soil (there is no soil, only black basalt that remembers nothing) but threaded through rusted rails, through the sheared tower, through the turbine of the pump that still runs. They drink the blue-green arcs. You can see it in the trembling circuits of faint phosphorescence that travel up their stems—not beautiful, not decorative, but functional, as if they glow to confuse, to claim, to participate.
+
+They grow wrong. They grow into collaboration.
+
+The machinery, scattered like seeds planted by a logic that no longer exists, should be dead. They are not. The pump half-submerged churns warm mist not because it is commanded, but because the turbulence feeds it—the valley runs on chaos, and chaos is inexhaustible here. The rails carry current in arcs that the vines insulate; the tower, venting steam into the liquid ceiling, is wrapped in moss so thick it has become a joint, a shared limb. These machines do not serve. They collaborate. They are inhabitants with the same status as the roots: isolated, industrial, mechanized, yet alive to the hyperactive anthill-energy of the place. They throb. They hum. They accelerate the very storm that sustains them, feeding on the reversal of currents, on gravity that pools and abandons, on distances that lie.
+
+And between them—between the listening leaves and the feeding engines—there is a third presence.
+
+It is not an animal. It is not a god. It is the valley’s own unfinished decision about what to become.
+
+The water remembers what touches it. The vegetation collaborates with electricity. The machinery germinates in chaos. And in the dense saturation, in the syrup-thick pockets and the breath-thin false airs, in the deafening crushing roar that makes thought narrow, something is being born that requires no mouth to speak. You feel it in the wrong-shaped shadows, in the way a distant tower seems beside you though you have not moved, in the warm liquid that behaves like lung—breathing you, being breathed by you.
+
+What lives there is the covenant itself: lush, turbulent, submergent. A garden that forgot to include predators. A factory that forgot to include workers. The absence of fauna has become an architecture, and into that architecture the plants and the gears have woven a single, scattered, hyperactive being—sharp-ridged as newborn basalt, dimly glowing, loud enough to dissolve the idea of silence, warm as blood held still, and utterly, newly, impossibly there.

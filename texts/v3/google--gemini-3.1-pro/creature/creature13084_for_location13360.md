@@ -1,0 +1,31 @@
+To the eyes of a creature made of meat and bone, the city is a tomb. But that is because eyes evolved to look for the kinetic: the twitch of a muscle, the displacement of air, the crude, crawling locomotion of physical mass. 
+
+Flesh could not survive here. It would boil, rupture, and be rendered down to atomized fat by the sheer percussive force of the atmosphere. Life here did not bother with the fragile halfway-stage of cells, blood, and cartilage. It skipped the medium of biology altogether, evolving directly within the only mediums that matter in this blistering abyss: pressure, heat, and vibration.
+
+They are there, standing right beside you on the mossy avenue. You simply have to stop looking for bodies and begin looking for *lenses*. 
+
+When one of the inhabitants draws near, you do not see a form. You see a localized warping of the environment, a walking singularity of acoustic refraction. The perfect, three-dimensional grid of suspended, boiling rain begins to distort. The droplets do not fall—instead, thousands of them are suddenly pulled out of their spherical shape, elongating into trembling, horizontal needles of shining liquid that curve around an invisible epicenter. 
+
+Within that warped epicenter, the perpetual heavy steam of the atmosphere flashes into sudden, violent geometry. For a fraction of a second, you might catch the silhouette of the entity: a towering, multi-axial mandala of organizing pressure. It looks like a complex, spinning cymatic pattern—a three-dimensional shape formed entirely by the collision of soundwaves. They are sculptures of pressurized absence, entities made of sheer acoustic tension. They have no skin, only a boundary where their internal harmony pushes back against the monolithic roar of the city.
+
+They are vast. A single inhabitant might be twenty feet tall, a floating column of intricate, folded air, like acoustic origami. Inside their temporary, shimmering boundaries, the blistering heat of the city is compressed into glowing, iridescent bands of thermal energy that shift and rotate like the rings of a gyroscope.
+
+Because motion in this city is fractured and frozen, they do not walk. Locomotion is useless when the air itself is an impenetrable wall of sound. Instead, they *propagate*. They transfer their conscious harmonic pattern from one pressure-node in the atmosphere to the next. Watching them move is like watching a glitch in a pane of glass slide from left to right. They phase through the paralyzed environment, their presence rippling through the dense, heavy air, causing the Escher-esque hanging gardens to momentarily vibrate in sympathetic resonance as they pass. 
+
+They are the unseen architects. The biological wonder of the city—the braided root-bridges, the tessellated moss, the colossal honeycombed towers—was not grown by chance. It was *sung* into existence. The plants here are highly sensitive, hyper-reactive biological matter, and these acoustic entities shaped the flora over millennia simply by existing near it. They tuned the ironwood, forcing the roots to braid by applying centuries of sustained, agonizingly precise frequencies. The hollowed-out skyscrapers are colossal flutes, amplifiers designed to channel the planet’s roaring white noise into specific chords that the entities can feed on, rest within, or use to communicate.
+
+The gravity is shattered because *they* shattered it. Where an entity takes up permanent residence, its internal acoustic density is so overwhelmingly immense that it warps the local spatial physics, bending gravity to its will, pulling the waterfalls upward to build quiet alcoves beneath the roar of the liquid arches. 
+
+And the giant, screaming orchids permanently open on the sides of the cathedral-trees? They are not waiting for an insect. They are waiting for a harmonic. 
+
+If you stand still long enough, pressing your hands to your ears against the crushing white noise, you might witness a "pollination." One of the shimmering, lens-like entities will drift up to an orchid. It does not land. It simply overlaps its acoustic geometry with the flower. In that moment of contact, the entity shifts its internal frequency. A profound, bone-deep sub-bass hum suddenly undercuts the city’s roar—a sound that you feel in your dental cavities and the marrow of your spine. 
+
+Struck by this exact frequency, the anthers of the orchid do not merely release pollen; the pollen instantly vaporizes. It violently sublimates into a cloud of glowing, genetic gas. The acoustic entity inhales this bioluminescent vapor, drawing the plant's suspended DNA directly into its spinning, thermal rings. The entity becomes a swirling phantom of green, glowing dust, absorbing the biological data before phasing across the mile-wide, Escher-warped abyss to impregnate a flower on an inverted canopy above.
+
+You are entirely surrounded by them. As you stand alone on the moss, deafened and boiling, you suddenly feel a change in the pressure. The weight of the noise subtly hollows out space just in front of you. The levitating raindrops stretch into a dome around your body. The paralyzing heat spikes wildly. 
+
+One of them is passing *through* you.
+
+It does not mean you harm, for it barely registers humans as matter at all—to them, you are just a watery, porous obstruction in their acoustic field. But as it sweeps through your physical space, your body becomes an instrument played by its passing. Your ribs vibrate like xylophone keys; the blood in your veins is temporarily held in a localized standing wave, halting your pulse for three terrifying seconds; the fluid in your eyes spins into perfect, microscopic mandalas. You experience a flash of their consciousness: a vast, wordless, euphoric chord of pure mathematics, biological imperative, and boiling light. 
+
+And then the lens glides on, leaving you gasping purely on instinct, alone again in the monolithic roar, standing among the frozen, mathematically perfect rain, a blind ghost wandering blindly through a thriving, thundering metropolis.

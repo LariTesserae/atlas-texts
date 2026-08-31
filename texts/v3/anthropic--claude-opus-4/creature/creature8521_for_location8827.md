@@ -1,0 +1,31 @@
+## The Flowbloods
+
+They came first as refugees—humans whose villages had been swallowed when the earth began its churning. But staying here changed them, generation by generation, until they became something else entirely.
+
+The Flowbloods move through the Churning Hollows like mercury through a maze. Their bones have grown cartilaginous, able to compress and flex as they squeeze through passages barely wider than a fist. Their joints bend in too many directions. When they must, they can dislocate their own shoulders and hips without pain, folding themselves into configurations that would kill an unchanged human. Their skin has thickened into a waxy, water-repellent hide that seeps a clear mucus, allowing them to slide through the tightest spaces.
+
+But it's their senses that have changed most dramatically. Their eyes have enlarged and multiplied—typically three to five per individual, positioned at various points on the skull to provide near-complete spatial awareness. These eyes see primarily in the infrared spectrum, detecting the heat signatures of flowing stone and approaching water. Their pupils dilate and contract independently, constantly adjusting to the brief flashes of bioluminescence and piezoelectric discharge.
+
+They've developed echolocation, not through their mouths but through specialized chambers in their chests that produce subsonic pulses. They feel the echoes through their whole bodies, building three-dimensional maps of spaces that will cease to exist within hours. Their language has evolved to include these pulses—conversations that unchanged humans would experience only as uncomfortable pressure in their ears.
+
+The Flowbloods live in constant motion, following patterns they call "stone-tides" that only they can read. They've learned to predict, with uncanny accuracy, which chambers will remain stable for the next few hours or days. In these temporary havens, they cluster in family groups of twelve to twenty individuals, sharing warmth and food.
+
+Their diet consists primarily of the pallid vegetation and the translucent, boneless creatures that inhabit the depths. But they've also learned to harvest the minerals from the water itself, their modified digestive systems extracting nutrients from compounds that would poison normal humans. They cultivate certain bioluminescent fungi, not for light but for the psychoactive compounds that help them maintain their sanity in the endless flux.
+
+Children are born already partially adapted—their bones soft, their extra eyes present but sealed shut. The community raises them collectively, as parentage becomes irrelevant when survival depends on the group. Young Flowbloods learn to navigate before they can properly walk, slithering through practice tunnels that the adults maintain just long enough for training.
+
+They wear no clothing—fabric would only hinder their movement and trap moisture against their skin. Instead, they modify their own bodies, scarifying patterns that serve both as identification and as channels for water to flow away from their eyes and breathing passages. Tools are minimal and disposable: sharp fragments of stone that they use once and abandon, knowing that carrying anything permanent is folly in a world without permanence.
+
+Their culture revolves around memory and motion. They are the keepers of the Hollows' history, maintaining an oral tradition that tracks the patterns of change, the rhythms of collapse and creation. Elder Flowbloods, those who've survived forty or more years in the depths, can predict stone-tides days in advance. They're revered but never followed—in the Churning Hollows, each individual must find their own path or perish.
+
+They practice a form of art that exists only in the moment of its creation—arranging stones in patterns during the brief stable periods, knowing these will be destroyed but believing the act of creation itself has meaning. They sing in frequencies that resonate with the stone, sometimes causing small chambers to form or passages to widen slightly. Whether this is coincidence or some deeper connection with the living rock, even they cannot say.
+
+The Flowbloods rarely venture to the surface. Those who do find the fixed nature of the upper world deeply disturbing—the idea of walls that don't move, ground that doesn't shift, fills them with a existential dread they call "stone-sickness." They trade sometimes with surface dwellers at the few semi-stable entrance points, exchanging rare minerals and phosphorescent fungi for metal tools and preserved foods, but these interactions are brief and fraught with mutual incomprehension.
+
+They worship no gods but acknowledge the Hollows themselves as a living thing, vast and indifferent. They leave offerings of their own blood mixed with mineral-rich water in certain recurring chambers, believing this feeds the stone and keeps it from crushing them entirely. They name each major chamber and passage, but these names are temporary, retired when the space ceases to exist and recycled when new ones form.
+
+In their deepest rituals, performed only when a rare large chamber remains stable for more than a lunar month, they gather in hundreds and move together in complex patterns, their bodies flowing like a single organism through the space. These gatherings serve to share genetic material—reproduction happens through a complex process of chemical signals and synchronized fertility cycles rather than individual pairings. They also exchange the subsonic maps they've built, creating a collective knowledge of the current state of the Hollows that no single mind could hold.
+
+The Flowbloods are dying out, but slowly. Each generation is smaller than the last, as the adaptations that allow them to survive also reduce their fertility. They know this and accept it with the same fluid philosophy they apply to everything else. Nothing in the Churning Hollows is permanent—why should they be any different? But while they exist, they are the only truly successful inhabitants of this impossible place, flowing with the stone rather than fighting it, becoming as mutable as their environment demands.
+
+They are, in their own words, "the blood of the stone, flowing where it flows, pooling where it pools, always moving, never lost."

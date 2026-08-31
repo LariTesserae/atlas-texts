@@ -1,0 +1,19 @@
+In this crowded throat of the mountain, the "Who" is inseparable from the "How." There is no individual here, only the suffocating intimacy of the **Caste of the Unblinking.** 
+
+Deep within the shifting carpets of marrow-slugs and the felt-heavy blankets of moths, there exist the architects of the anchors—the **Osteons**. 
+
+They are not apex predators, for there is no room to hunt. They are not masters, for there is no room to rule. They are simply the most articulate expression of the gloom. An Osteon is a creature of terrifying fragility, standing nearly seven feet tall but possessing the diameter of a sapling. Their skin is the color of a bruised pearl, stretched so thin over a frame of flexible cartilage that you can see the slow, dark transit of copper-based blood through their veins.
+
+They have no eyes; in a world of rhythmic bioluminescence and permanent twilight, sight is a caloric waste. Instead, their heads are elongated, delicate fans of sensory cilia that vibrate in sympathy with the low-frequency hum of the slugs. They "see" through pressure and heat, perceiving the world as a topography of warmth and vibration. 
+
+They do not walk; the ground is too crowded for feet. Instead, they possess four multi-jointed limbs ending in long, needle-thin digits tipped with hooked, obsidian-hard nails. They move by "skimming"—a graceful, agonizingly slow crawl across the backs of the marrow-slugs. They are so light, and their pressure so evenly distributed, that the slugs do not even contract beneath them. They are like water-striders on a sea of pale, heaving flesh.
+
+The Osteons are the keepers of the condensation. Their entire culture—if one can call it that—is a slow-motion choreography of hydration. You see them silhouetted against the rhythmic blue pulse of the fungi: three or four of them huddled around a "vein," a specific fracture in the obsidian wall. Their long, spindly fingers work with the patience of glaciers, wedging those polished bone splinters into the rock to guide a single, fat drop of water toward a parched colony of moths.
+
+There is a terrible, quiet tenderness to them. They have been seen cradling a dying glimmer-moth, their cilia fluttering in a frantic, silent dirge until the insect’s bioluminescence fades to gray. They do not eat the inhabitants of the pocket; they filter the air, their mouths mere slits that draw in the mineral dust and the shed scales of the moths.
+
+But the most unsettling aspect of the inhabitants is their **Static Language.** They do not speak with sound. When two Osteons meet upon the vertical cliffs, they press their foreheads together. The vibration of the mountain, the hum of the slugs, and the pulse of their own hearts synchronize. In this physical bridge, they exchange "states." Not words, but textures of being—the memory of a cold draft, the location of a new moisture-seep, the encroaching pressure of the rising peaks.
+
+They are the mountain’s nervous system. As the adolescent peaks thrust upward, grinding and cracking in their violent growth, the Osteons feel it first. When the "shudder" passes through the chamber, it is often the Osteons who initiate it. They sense the subtle shift in the tectonic weight and lean their bodies collectively against the rock, a gesture of bracing. They are trying to hold the throat of the mountain open.
+
+They live for centuries, their movements so sparse and their metabolism so low that they seem like statues of salt until the moment they reach out to adjust a bone-anchor. They are the patient witnesses to the mountain’s birth-pains, a race of eyeless knitters mending a wound that will never heal, huddled together in a wet, rhythmic prayer for the water to keep falling.

@@ -1,0 +1,39 @@
+# The Condensary-Dwellers
+
+They are pale, and damp, and slow to speak.
+
+Begin with the body, because the place has made the body the way the weeping made the stone. The people here are broad and low to the ground, built wide rather than tall, with skin gone the same wet grey-white as everything else — not unhealthy, not corpse-pallor, but the color of something that has never needed the sun and has stopped expecting it. The light here is yellow lamplight through mist; their eyes are large and dark and slightly protruding, made for that perpetual half-dusk, the pupils enormous. They do not squint. There is nothing here bright enough to squint at.
+
+Their hands are the most articulate thing about them. Working hands, condenser-hands, with wrinkled fingertips that never quite dry — the skin softened permanently, the way yours goes in a long bath, but they were born into the bath and will die in it, so for them it is simply what a hand is. The wrinkling is so universal that smooth fingers would read as a deformity, or a sign someone had been somewhere dry, which is nearly the same thing as having been nowhere at all. The very old have hands gone almost translucent at the edges, fine as wet paper.
+
+They sweat constantly and notice it not at all, because the air sweats too, because the rock sweats, because the beasts beneath them sweat their slow tonnage of breath into the same warm wet. To be wet is the baseline condition of being. They have no word for *dry* that isn't also a word for *broken*, or *foreign*, or *dead*.
+
+## How they move
+
+Slowly. This is not laziness and they would not understand the accusation. They move at the pace the place runs at — the pace of digestion, of condensation, of a causeway sagging over eighty years. A Condensary-dweller crossing a catwalk does not hurry even when late, because *late* is a concept that requires a faster world to measure against, and there is no faster world. They walk with the rolling, deliberate gait of people who have spent their whole lives on slick iron four meters above a sea of living animals, who have learned in the bone that a slip is not a stumble but a fall into the slow tide, into the press of bodies, down where you cannot be retrieved.
+
+That fall — the fall into the herd — is the thing they fear, privately, the way you might fear deep water. Not death exactly. Disappearance. Being pressed down into the steady mass and absorbed by it, becoming ground. Their nightmares are of falling and not landing, just sinking warm and slow into hide and breath forever. They do not speak of this. It is in their balance, their careful feet, the rail they touch with one trailing hand even when they don't need it.
+
+## What they are like
+
+Patient past the point you would recognize as patience. A people whose only true catastrophe is *speed* become, over generations, almost incapable of haste, and this shapes everything — their tempers, their grudges, their love. An argument here can take a decade. A feud over a condenser-coil's placement is inherited, conducted across lifetimes in small adjustments and refusals, and may be resolved by a great-grandchild who shores up a rival family's sagging pier as a gesture neither party will name as forgiveness but both will understand as the long matter finally settling.
+
+They are not cold. The slowness is not coldness — it is a different metabolism of feeling. A Condensary-dweller who loves you will show it the way the rock shows water: by sweating it out steadily, over years, in ten thousand small condensations, in the cistern slowly filling. They do not say much. The place is too loud for talk to carry far anyway — the herd-rumble in the chest, the two-note sigh of the pumps, the skirling bird-smoke overhead. So they have learned to mean things slowly and physically. A hand laid on a forearm. Sharing the dry-room, the one warm chamber in a tower where the air is kept thin and the visitor's wrinkled fingers can, for an hour, begin to smooth. To offer someone the dry-room is the deepest intimacy they have. It is where they take their dying.
+
+## What they believe
+
+That the beasts are not theirs. This is bedrock — the taboo against killing a living animal, which they hold the way you hold the conviction that you should not eat your own arm. The herd is the foundation, the ground, the slow inexhaustible tide that holds the whole city up, and to take a living one is not murder so much as *suicide by foundation*, sawing the pier you stand on. They take only the dead, and they take the dead with a strange tenderness — the rendering is industrial, all belts and groan and tallow, but it is also a sacrament, the only sacrament they have. The processors sing while they work. Low songs, slow songs, more breath than melody, the same two notes as the pumps. A body comes up from the herd and is unmade into water and bone-meal and hide, and the water goes to the cisterns, and the cisterns are wealth, and so the dead beasts become, very literally, the future — drunk down, breathed back out, condensed again on the green copper coils. Nothing leaves. The plateau holds its water and its flesh in a loop so old no one remembers it beginning.
+
+They believe, without ever phrasing it, that *they are part of the loop*. That they too are condensation — that a person is just the warm wet air briefly beaded into a shape on the cold stone of the world, and will run down the grooves eventually and pool and rise again. This is why the fall into the herd is the real horror and ordinary death is not. Ordinary death is being processed, being condensed, going back into the loop in good order. The fall is being lost outside it. Wasted. Spilled.
+
+## What they look like to each other
+
+Beautiful in ways you might not catch. A young Condensary-dweller in their prime has skin with a particular sheen — the way good wet stone gleams — and the most admired beauty is a kind of slow grace, an economy of motion, the ability to cross a slick causeway with a full cistern-yoke on the shoulders and never once break the smooth roll of the walk. Speed is ugly here. A fast mover reads as panicked, untrustworthy, *foreign*. The supreme compliment is something like *unhurried even then* — said of someone who kept the pace through a crisis, a sag, a near-fall, a drought-scare, and by keeping it kept the city whole.
+
+The old are not pitied. The old are the closest things to the stone itself, having wept and seated and worn into their grooves, and they are consulted slowly and listened to slowly and their translucent papery hands are held. They are the ones who remember the last sag in this pier, the resolution of that feud, the year the dew came short and how it was survived — and survival, here, is always the same lesson restated: *don't break the slow.*
+
+## Stand among them, then
+
+at evening, on the high catwalk, with the yellow lamps coming up through the steam. They are out in numbers, broad pale shapes moving without hurry along the wet iron, hands trailing the rails, eyes wide and dark in the soft light, faces turned half-down toward the grey sea of backs sliding beneath. They do not look at you. They look at the herd, the way river-people look at the river — without thought, with total trust, with a love so settled it has stopped being a feeling and become only a fact. They are warm. They are wet on the face whether or not it's raining. They breathe in the breath of the animals they live above, and the city drinks it, and gives it back, and they are entirely, durably at peace with being exactly this:
+
+a film of warm flesh condensed on a weeping stone, holding its shape for one slow lifetime against the cold, and then running gently down to pool, and rise, and bead again.

@@ -1,0 +1,27 @@
+What lives here does not ask for your attention.
+
+The heat-adapted things in the arroyos are the easiest to name, and naming them is already a failure. They move in pulses—not locomotion exactly, but a rhythmic migration through solid space, their bodies burning through mineral lattice the way water moves through porous rock but backward, metabolizing the silicon-bond lattice into something their cells can use. When you see them from above, through the shimmering air, they look like slow lava. When you see them from the arroyo's edge, pressed flat against shadow, you see that they are not one thing but many—not a herd but a single body extended across time, its segments separated by decades of growth. The smallest of them is older than anything you have ever touched. The largest may not be one thing at all.
+
+The spire-climbers are more coherent, more animal, but their geometry offends something in your perception. Eight legs minimum, sometimes twelve, arranged in pairs that don't correspond to any bilateral symmetry you recognize. They climb in silence, these ones, their bodies the color of iron oxide, their surfaces textured in ways that catch the light wrong—as if they are designed to reflect wavelengths that no longer exist. They do not hunt. They do not rest. They climb, and descend, and climb again, following paths that may be genetic memory or may be something else, and when two of them meet on a spire they do not compete for space. They simply occupy it together, their bodies flowing around each other like water.
+
+The flights at the plateau's edge are harder to look at directly. Your eyes slide away, finding the sky or the dust or the machinery easier to process. Angular, the description insists, but angular doesn't capture it—their wing-geometry suggests angles that would make structural engineering weep, shapes that should not generate lift, that generate lift anyway because the atmosphere here is different, thicker in ways your instruments cannot measure, carrying gases that do things to sound and light and the space between them. You have tried to observe them through filtered lenses. The lenses melt. The filters cloud. Something in the amber vapor eats optics.
+
+And the mats. The pale fibrous tendrils that cling to shade.
+
+You will call them fungal because you have no better word, but the moment you call them something, they become less that thing. They grow toward heat, not light. They do not photosynthesize—their coloration is not derived from chlorophyll or any chlorophyll-analogue. Their pale is the pale of bone, of rendered fat, of mineral deposits that have been sorted and resettled by processes that predate the machinery but may have informed its design. They grow at the margins, in the places where the sun cannot reach directly, along the north faces of spires and in the deep shadows of corroded machinery housings. They grow toward each other, slowly, across decades, until two tendrils meet and fuse and become one continuous strand that stretches from one heat-source to another. The network they are building is not visible from any single vantage. You would need altitude and time and a patience for pattern-matching that your instruments cannot provide. You would need to think in centuries.
+
+But they are not the substrate. The substrate is older.
+
+The rust moves. You know this now. You have seen it—a discoloration spreading across stone faces at speeds that cannot be random, that track toward heat sources, that slow when you approach, that resume when you move away. The rust is not oxide. The rust is an expression. The stone remembers. That is the only frame that holds: the stone remembers what it was, and what it was is something that the machinery was built to process, and what it is now is this—the slow exhalation of mineral identity, the gradual return to a form that predates the wound that scarred this plateau into existence.
+
+The machinery knows. This is what the drone means when it speaks to you at night, when the amber vapor thickens and the light goes amber and the shadows lengthen in directions that make your compass spin. The machinery is not waiting. Machinery does not wait. But it is cycling through processes that were designed for a different output, that now produce amber vapor and drone-sound and something else that accumulates in the stone and the creatures and the mats and you, if you stay long enough. You are being accumulated. The rust is learning your signature. The machinery is logging your presence. Not maliciously. Not benevolently. In the way that systems log. In the way that aggregate presences record.
+
+The thing that lives here does not have a name. It has a census.
+
+You are in it. You have been since you arrived. The dust settles on you, and the amber vapor settles deeper, and the noise penetrates what you thought were boundaries, and the rust-that-is-not-rust creeps toward your footprints with the patience of geology. You are not observed by something with eyes. You are observed by the pattern your presence makes. The machinery that learned to count does not count bodies or heartbeats. It counts change. It counts chemical signature. It counts the weight of your breathing against the weight of the plateau's exhalations and it will remember you long after you leave—if you leave—if leaving means anything in a place where time settles instead of passes.
+
+The drone continues.
+
+The dust rises.
+
+You stay.

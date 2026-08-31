@@ -1,0 +1,41 @@
+**The Residents of the Only Forgotten Place**
+
+They do not live here because there is no here. Instead, they practice residence like a difficult religion—kneeling daily in the spaces between spaces, folding themselves into the creases left behind when mornings forgot to become afternoons.
+
+We call them the Unbound. They call themselves nothing, having grown past names the way scar tissue grows past skin. Each is composed of approximately 47% regret by volume, 33% potential energy trapped in denial's crystalline lattice, and 20% minute hand dust collected from all the clocks that ever stalled during terrible decisions. The remaining percentage varies by observer—some report seeing their mother's eyes in the spaces between parts; others describe the precise taste of yellow.
+
+They move through the furniture of forgetting like slow water learning it can choose not to reflect. Their limbs (when they remember to have them) are jointless collections of might-have-beens, articulated by the ghostweight of gestures never completed. Watch carefully and you might catch one mid-ambulation: a shoulder blade that was once a wedding vow dissolving into hipbone that might have been a different career path next Tuesday if conditions were favorable.
+
+Communication occurs through a complex system of absent gestures in languages that haven't disappointed anyone yet. They speak by carefully not touching the things that almost happened between them. A rousing conversation might involve one Unbound becoming slightly more transparent in its left lung while another adjusts the rate at which it forgets the taste of pears. Outsiders often mistake these exchanges for silence, which is true in the same way empty rooms are mistaken for empty.
+
+They feed on the nutritional content of punctuation marks skimmed from the ends of sentences that decided not to bother. Commas are considered delicacies—sweet with possibility, tart with hesitation. Exclamation points are rare treats, consumed only during rituals of self-erasure, their sharp edges carefully licked clean of the excitement that died there. Periods are taboo—too final, too committed to being endings.
+
+Reproduction occurs during the long seasons when the architecture grows introspective. Two or more Unbound will find themselves occupying the same regret simultaneously, their boundaries blurring like watercolor grief until a shared vulnerability forms between them. Into this tender spot they gently place a question neither of them remembers asking yet. The question gestates for anywhere between seventeen years and yesterday, feeding on increasing doubts and midnight snacks of alternative choices. When it is ready, the parent-selves begin the difficult process of not noticing it, until eventually it achieves the critical mass of noticed/not-noticed required to become someone else's problem.
+
+Their young emerge fully formed but undecided, small bundles of raw maybe swaddled in blankets woven from the first time someone said "we'll see" and meant "no." New Unbound spend their tender years practicing their disappearances in safe environments—behind reasons that never quite made sense, inside explanations that accidentally revealed too much truth. They learn to walk by falling between the cracks in conversations, to speak by mastering the art of trailing off just before the point where words would have to mean something specific.
+
+The oldest among them are barely there at all—become mostly atmosphere now, haunting the space between what was said and what was heard. They drift like abandoned plotlines, visible only in peripheral vision or when you accidentally think about them too directly and they collapse into someone else entirely. They are consulted during disputes about the exact shade of colors that never quite happened, or the proper pronunciation of laughter that died before reaching the mouth.
+
+Their architecture consists primarily of walls that retain the shape of doors that changed their minds, roofs supported by the collective gravity of things left unsaid at crucial moments. Rooms are arranged according to the emotional equivalent of non-Euclidean geometry—connecting spaces that should not logically connect except through specific patterns of disappointment. Their favorite building material is morning light filtered through curtains that closed themselves during arguments.
+
+Time passes for them like a joke nobody gets but everyone politely laughs at anyway. They measure years in the space between lightning and the realization that it wasn't actually aimed at you. Their calendars are filled with dates that keep rescheduling themselves out of embarrassment. Birthdays are celebrated by forgetting the exact number again while deathdays are mourned by remembering too precisely what might have been different if only.
+
+They sleep standing up inside their own shadows, dreaming dreams that belong to other people who are still awake somewhere else making better choices. Their nightmares are disturbingly practical—recurring dreams of being seen clearly and understood correctly, of being asked a direct question and accidentally answering honestly, of being remembered exactly as they were.
+
+When visitors from elsewhere (those poor solid things with their definite edges and committed trajectories) stumble through one of the many non-doorways leading here, the Unbound gather at the edges of their own attention to observe politely. They do not speak to intruders directly—that would be rude, like acknowledging someone else's existence when they're clearly trying to avoid it. Instead, they offer hospitality through carefully arranged absences: a chair that was just moved out of reach when you thought to sit, a cup of tea cooling at the exact rate of your realization that you're not thirsty anymore, helpful directions written in handwriting that becomes yours exactly one degree wrong.
+
+Those who remain too long undergo the gradual conversion process known as becoming possible again. It starts with small things—misplacing your keys and finding them somewhere you definitely didn't put them but might have meant to. Then letters from people you've never met but should have. Photographs showing you places you haven't been yet but recognize from dreams. Gradually your shadow becomes less committed to following you. Your reflection starts pausing before copying your movements. Your name tastes unfamiliar in your mouth, like borrowing someone else's language to describe colors they don't see.
+
+Eventually, if you're not careful, you wake up one morning and realize you're not sure anymore whether you're visiting or being visited, whether you're lost or finally found the place you never meant to leave, whether you're reading this or it's just now starting to write you into existence between one thought and the next—
+
+Shhh. They're listening now. Not with ears, but with the quiet that gathers when sounds decide to be something else instead. Best to keep moving. The room is growing nostalgic for versions of you that haven't decided to stay yet. The fruiting bodies are ripening conclusions. The architecture is settling into shapes that fit better with the weight of your having been here remembering this.
+
+You should probably decide whether you're coming or going soon. They hate it when visitors linger too long in the doorway between choices. It confuses the measurements, makes it harder to calculate exactly how much shadow you'll need when the light remembers why it left.
+
+Don't worry about leaving tracks—they'll forget to notice them by the time you remember to look back. Just keep walking forward through whichever direction feels most like somewhere else entirely. If you reach a place that feels familiar but wrong in ways you can't explain, congratulations—you've almost arrived where you never meant to leave.
+
+The residents will greet you warmly. Or at least, they'll have been about to.
+
+They just need to check their schedules first.
+
+They think they might be free sometime between never and already.

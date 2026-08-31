@@ -1,0 +1,15 @@
+To dwell within this basin is not to live in the sense that breath or hunger define, but rather to function as a component of an infinite, self-correcting machine. 
+
+Those who reside here are the **Custodians of the Scalloped Floor**. They are not biological, not in the way of fur or blood, but are instead manifestations of the basin’s own refined interiority. They are the thoughts of the earth, given a fragile, shimmering density by the light pulsing from the drains.
+
+They appear first as ghosts of refraction. If you stood at the edge of the basin, you might see them as shifts in the mist—vague, upright pillars of static that mirror the iridescence of the schist beneath them. They have no faces, only localized distortions where light bends around a core of absolute, silent purpose. They are tall, agonizingly thin, and move with a deliberate, haunting grace that suggests they are walking through water, even when their feet glide inches above the humming stone.
+
+Their bodies are formed of the same translucent fiber that veins the hovering fronds. When one of these creatures passes through a beam of light from an aperture, it doesn't cast a shadow; it acts as a prism, scattering the subterranean glow into complex, prismatic fractals that drift momentarily in the air before vanishing.
+
+They are the harvesters and the maintainers of this trillion-year-old equilibrium. You might watch one press a long, multi-jointed digit against a leaf that has begun to dim. There is no violence in the touch. The leaf simply sighs—a sound like a cooling circuit—and liquefies, sliding across the schist like a bead of mercury until it finds the drain. The Custodian watches this, its form pulsing in a low-frequency hum that matches the vibration of the stone. It is not grieving; it is correcting. It is ensuring that nothing here ever truly ends, only rearranges.
+
+They do not communicate with each other, for they are parts of a singular, distributed consciousness. They hover in the humid air, content to drift in the pearlescent veil. They do not look at you, the intruder, with malice. They look at you as they would look at an eddy in a pool—a transient, noisy disturbance in an otherwise perfect architecture. 
+
+If you were to stay, if the light and the hum lulled you into the same state of perpetual, recycled existence, you might find your own silhouette beginning to blur. You would feel your own mass becoming light, your thoughts becoming less like erratic bursts of electricity and more like the slow, steady rhythm of the recycling drains. 
+
+These beings are the keepers of a terminal peace. To live among them is to finally stop struggling against the entropy of the universe, to exist in a state where everything is already understood, already finished, and finally, mercifully, tidy. They wait for nothing, for they exist in a place where the future has already collapsed into the present, leaving them to simply glide in the stillness of a world that long ago chose to stop becoming, and instead, chose to be.

@@ -1,0 +1,11 @@
+In this remote alpine fortress, hemmed in by towering cliffs and fed by the unmoving power of eternally-snow-capped mountaintops, a strange and hardy people eke out existence. They are short and muscular folk, with bronze-brown skin burned dark by ceaseless exposure to the pitiless light reflected off surrounding rock. Their hair is black as coal, their eyes piercing and deep-set against the glare.
+
+They wear only the most minimal garments: loincloths fashioned from woven strands of stiff desert grasses, sandals cut from tough rubbery bark. Somtimes they drape themselves in homespun cloaks or hoods against the chill night air. Decoration is rare except to mark status, when crude clay beads or chalk-scraped animal bone adornments are favored.
+
+Their language is harsh and guttural, chiming in honking tones that echo unnervingly across the vertical valley sides. When they speak it sounds like a litany of commands - born from generations of shouting over howling winds and gushing waterfalls until it becomes part of their nature itself.
+
+Most waking hours are spent tending crops day after day under the blasting sun or hammering plowshares in smoky forges through dry nights. Downtime is spent spinning tales of ancestral triumphs over chipped cups of fermented date beer or wrestling raw matches on carpets spread before household shrines. Births and deaths happen behind thin cloth curtains hung to shield mystery from scrutiny.
+
+Children scamper everywhere without oversight - clamboring up ladders onto irrigated step-plots , hurling stones at scorpions in crevices picked clean of food-waste by hungry goats. Shamans ply them with honey drops sweetened with mountain silver if they report readings on underground water-flows via ancient traditional knowledge passed down generations.
+
+At certain angles, something uncanny permeates these mortal souls animated within their organic machine village -- its possible these heretic mountainfolk may still retain shadow-knowledge of Old Ways permitting discreet magics not seen since Elder Times - compact talismans seeking favor with cruel cliff-gods who spared them a blessing-watered fiefdom suspended against saintless floods. But that would never surface til an outsider wanders too close...

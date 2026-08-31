@@ -1,0 +1,47 @@
+**The herds are the size of houses.**
+
+A grown animal stands roughly twice the height of a person at the shoulder. The body is long, deep through the barrel, built less for travel than for sustained pressure on the ground. The legs are thick and columnar above and articulate strangely below — too many bends, or bends in the wrong places, or angles that simply do not belong to anything that grazes. At the lower joints the piston housings the visitor notices from a distance are, up close, no longer separable from the limb. The metal has the same color as the hide, and the hide has the same color as the rock, and the rock has the same color as the air. Up close, the joints tick when the animal shifts its weight, a dry metronomic sound, the time of the herd.
+
+The head is low and broad. There is no neck to speak of. The skull tapers forward and flattens to something you might generously call a face. The eyes — if they are eyes — are recessed deep under the brow ridge, and they catch the russet light without reflecting it back. The animal does not look at you. It looks at the ground. It is almost always looking at the ground.
+
+The hide is thick, scarred, cratered where pieces of hardware emerge from it. The skin around a vent is smooth and slightly swollen, as if the flesh has been taught to grow around the metal over a long time. Where the metal emerges it is not bolted on. There is no flange, no seam, no weld-mark. The hardware grows out of the animal the way a horn grows out of a skull, except that horn is black and metal here is the color of iron-rust and the line between the two cannot be drawn.
+
+The young have less of it.
+
+A yearling is mostly flesh — long-legged, sway-backed, lighter in color than its elders. The vents along its flanks are small, the housings on its spine are low humps rather than cylinders, the piston joints are barely articulated. You could mistake one for an ordinary animal, if an ordinary animal were the size of a small outbuilding and grazed on stone. As the animal ages the hardware accumulates. By the time it is half-grown — and half-grown here is a long time, longer than a human generation — the flanks carry their full complement of vents and the spine carries a row of cylindrical housings that tick in different rhythms depending on the gait. By the time the animal is old the housings have grown taller, vented, fitted with their own small caps and gratings, and at the shoulder-blades there are the stacks — the shapes you took from a distance for chimneys or steeples. The oldest animals in a herd are half metal. They move more slowly. They tick louder. The stack at the shoulder breathes a thin vapor when the animal feeds. It is unclear what is being vented. The vapor rises a meter into the still air and dissolves.
+
+---
+
+They feed by lowering the head to the stone and holding it there.
+
+This is what they do. The mouthparts — if they are mouthparts — are broad and warm and they sit on the warm rock for hours. There is no tearing. There is no chewing that is visible from outside. The animal stands, head down, motionless, while its internal hardware does whatever it does — clicks, ticks, cycles through some slow internal business. The rock where one has rested is changed when it finally lifts its head: slightly darker, faintly damp, edged with a thin polish. Whatever the animal has taken, the rock has given up. The exchange is patient and one-to-one. Over a long time, the stones of the plateau have been shaped by these low patient mouths as much as by the wind, and the polished basins, the long shallow gutters along fault lines, the soft concavities where the runoff collects — many of these are feeding-sites, worn down by generations of held heads. The herds and the geology are in conversation. Neither is leading.
+
+---
+
+The migrations are not migrations in the sense the word usually carries. There is no destination. There is no season that drives them. The herds drift because drifting is what they do — the way rivers drift, the way the lichen spreads at the rim of a pool. They move along the fault lines because the trace minerals there are richer. They move toward the standing stones because the standing stones are landmarks and the herds navigate by them. They move away from where they have already fed, slowly, because the rock needs time to recover what they have taken from it. A path will be walked for a while, then left, then walked again a generation later when the rock has replenished. The plateau has a memory of where its herds have been, and the herds have a memory of where the rock has been good, and the two memories are not the same memory but they agree often enough to keep the system stable.
+
+A herd is not a herd in the way cattle are a herd. The animals do not bunch. They move in a loose constellation — a kilometer across, sometimes more — with individuals at different ages, different sizes, different stages of hardware-accretion, distributed across the formation without obvious hierarchy. There is no lead animal. There is no edge. If you watch one for long enough you may see it turn, slowly, and begin to drift back across the path the others have already taken, and this is not unusual. The herd is more like a slow weather than like a procession.
+
+---
+
+There are very few young.
+
+This is one of the things you notice only after you have been on the plateau a long time. The herds are not reproducing quickly. A calf appears in a formation perhaps once in several years — a small pale thing with no visible hardware, that walks between two of the larger animals and lowers its head, very early, to the stone. What it is feeding on, at that size, is unclear. Maybe the trace of warmth. Maybe a lichen. Maybe whatever its mother leaves on the stone where she has rested. The young stay close to the older animals for a long time — long enough that by the time a young one separates out into the wider constellation its flanks have begun to dimple with the first small vents, and a year or two later the row of housings along its spine has begun to rise. The pattern is slow and continuous. None of the animals were ever fitted. None of the animals fitted themselves. The hardware is what the animals grow, the way a reef grows, the way a shell grows, and it has grown here for as long as the herds have grazed here, which is as long as the plateau has been a plateau.
+
+---
+
+At the cracks where the warm damp air leaks up from below, the smaller things live.
+
+These are the oases. A crack in the stone, a vent in the geology, and around it the air is several degrees warmer than the air on the open plateau, and the moisture that would elsewhere evaporate instead hangs in a low mist. In these places the black lichen at the rim of a pool thickens into a close fur, and through the lichen a different growth comes up — a rust-red moss, almost furry, that catches the dim light and gives it back. The herds pause at these cracks but they do not stay. The small things have the cracks mostly to themselves.
+
+The small thing is many-legged. Low to the ground. Quick, in the way that things are quick which live in places where nothing much moves — a startled hurry when a shadow passes over, a long stillness after. It is roughly the length of a hand and flat, segmented, the color of the rust-moss. Along its back a low array of vents, smaller and finer than the vents of the herds, breathes a vapor of its own. It hums. The hum is just below the register of the wind, and you only hear it when you have stopped hearing the wind. If you stand very still at a crack for long enough you begin to feel that the crack is busy. The small things move in and out of the rust-moss. They tend the lichen. They go down into the cracks themselves and come back. They do not appear to graze on the moss; they appear to live among it, as if the moss and the lichen and the small things and the warm damp air are all one system, one organism, the way a reef is one organism.
+
+There may be other small things in the pools. There are films on the water — iridescent, very thin — that shift when the wind barely moves. Whether these are alive is unclear. They do not move on their own. They may be the surface of something very small that moves very slowly.
+
+---
+
+There is no rule here except the rule of stillness.
+
+If you stand still on the plateau, the herds will walk around you. They will not look at you. They will not startle. They will not change course for you. You will become, in their slow logistics, another stone — a feature of the terrain to be threaded between, a small obstacle around which the loose formation braids and re-forms. If you move, the formation may notice and adjust, slowly, the way water adjusts around a moving stone. If you move suddenly, an animal nearby may make the sound — the slow mechanical groan, like a piston tested to its limit — and the formation may pause, and the vents along the flanks may breathe a little harder for a while, and then resume.
+
+The plateau does not fear you. The plateau does not know you. The plateau accepts you the way it accepts the rock and the wind and the trace minerals in its own body, which is to say completely, and without remark.

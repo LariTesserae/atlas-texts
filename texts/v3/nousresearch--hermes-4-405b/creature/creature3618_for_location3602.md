@@ -1,0 +1,11 @@
+The beings that dwell in this overwhelming, rapturous domain are insects or insect-like creatures, though on a scale that dwarfs our familiar notions. They exist not as individuals but as components of an enormous living tapestry, an ecosystem built entirely of interdependent, teeming life.
+
+The largest creatures, like the lacewings whose wingbeats create storms, command attention by their majesty and size. every pump of their mighty wings stirs the air, and every engineered gust sends smaller life-forms reeling—a visible expression of their physical power and dominance.
+
+Other, smaller creatures form rivers and “exoskeletal cataracts,” tumbling across landscapes in ceaseless motion. The sheer density of these life-forms transforms even the terrain, for the ground is layered with the husks and remains of countless generations, their exoskeletons forming a bedrock of chitin over which new lives surge. The sound of billions of clicks and hums never ceases—a sound so vast that it becomes the heartbeat of the realm, a relentless undersong of friction, movement, and the rasp of ceaseless, ravenous consumption.
+
+Everywhere one looks, one finds life begetting new life. Grubs, visible as great, glistening stains, ooze over the surfaces, devouring everything in their path. The leviathans, with jeweled mandibles, descend from above to feed, their compound eyes casting galaxies of awareness over their prey.
+
+The weather, too, obeys the cycles of this insect dominion. Mating swarms coalesce into thunderheads, and later a deluge of eggs rains down, slicking the rock floors with a permanent gloss of yolk as larvae burrow into every fissure. In this perpetual cycle, no thought or moment remains untouched by the shapes of predation, consumption, and rebirth. There is no stillness, and every bare surface is claimed by life in its many forms.
+
+To understand these beings is to confront a realm alive under rules of its own design. In this domain, even the laws of mathematics seem to buckle beneath the weight of numbers too vast to fully comprehend. The insect-like inhabitants compose their own strange, transformative reality through endless movement, relentless accumulation, and an insatiable hunger for transformation. In every niche, they fill the world completely, their lives a continuous, overwhelming expression of existence.

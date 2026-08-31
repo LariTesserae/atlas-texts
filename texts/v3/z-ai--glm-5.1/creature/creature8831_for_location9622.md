@@ -1,0 +1,101 @@
+# The Upshaft
+
+---
+
+The ones who scurry come closest to what you might recognize, and this is perhaps why you notice them first, and perhaps why they disappoint you, and perhaps why you are wrong to be disappointed.
+
+They are not rodents. You understand this even though the low light and the constant motion and the shaft's own refusal to let you hear them makes identification difficult. They are not rodents because rodents have a particular architecture—skull shape, tooth arrangement, the specific articulation of jaw to cranium that says *mammal* and says *gnawing* and says *the long inheritance of creatures who survived by eating through obstacles.* These things have a different inheritance. Their teeth, when you see them—briefly, as one yawns in the updraft, stretching a mouth that seems to have too many angles in it—are not for gnawing. They are for grasping. Thin, numerous, angled inward like the barbs of a fishhook. Whatever they eat does not get chewed. It gets caught, and swallowed, and the efficiency of this is apparent in how common they are, how unafraid, how thoroughly they have populated every horizontal surface the vegetation provides.
+
+There are at least three species of them. You determine this over the course of an hour, sitting on the moss, watching. The first is the smallest—a palm-sized thing with limbs that do indeed have too many joints, that bend in places where bending seems optional rather than necessary. They use this excess articulation to move through the vine-mat the way eels move through kelp: by undulation, by fitting their bodies to whatever geometry the vegetation offers. Their fur—if it is fur—is directed, sleeked backward by the constant updraft until it lies flat as paint, and they are dark, nearly black, the color of wet iron, the color of the moss at its deepest layer where the light has not reached. When one passes near your hand, you feel the warmth of it, the tiny furnace of its metabolism working against the ambient warmth of the shaft, and you understand that these creatures run hotter than their environment, that they are not merely adapted to this place but *optimized* for it, their body temperatures calibrated to the exhaust-heat the way deep-sea creatures are calibrated to pressure.
+
+The second species is larger—cat-sized, though the comparison feels wrong because they are longer and lower and move with a fluidity that cats, with their particular elegance, would not recognize. They have a different relationship with the vertical. Where the small ones flow through the vines, these climb them, and you see now why the vegetation is so thick on the walls, why the ivy has been reinforced by species that have no natural analogue in any field guide you have encountered. The larger scurriers have modified the growing conditions. Their droppings fertilize. Their movement trains the vines toward the routes they prefer. They are gardeners, though they would not recognize the word, and the shaft is their plot, and the crop is habitat, and the harvest is ongoing.
+
+You watch one strip a fern frond with its many-angled teeth and fold the material into a crevice between two pipes, and when it pulls back you see the crevice is occupied—by more fronds, by moss, by the shed skin of something that has been accumulating bedding material for what must be weeks or months. They build. They maintain. They return to the same locations across what you suspect are lifespans longer than their size would suggest, because the moss in their nests is deep and layered and the kind of accumulation that requires time and repeated attention.
+
+The third species you are less certain about. You see it only once—a shape moving along a cable tray at a height you cannot reach, silhouetted against the dimness above. It is larger than the others, substantially so, and it moves differently—not scurrying, not flowing, but *climbing* with a deliberation that suggests weight and strength. Its limbs are thicker, fewer. Its silhouette is wrong for the shaft, too blocky, too present, as though it belongs to a different ecological niche entirely. It stops when it reaches a junction box and investigates it with something that might be a snout, might be a hand, might be an organ you do not have a word for. Then it continues upward, vanishing into the green canopy, and you realize that the ecosystem here extends beyond what you can observe from the grating, that there are layers to this place—vertical strata of existence that differ from each other the way forest floor differs from canopy, the way the abyssal plain differs from the continental shelf.
+
+You sit with this. The realization that the shaft is not one habitat but many, stacked, connected by the vines and ladders and the constant respiratory pull of the machinery below.
+
+---
+
+The spiders are everywhere once you start looking.
+
+The webs you noticed initially are only the obvious ones, the architectural statements spun between pipes and cable runs where the condensation catches and turns them into curtains of jewelry. The real population is in the moss, in the layers of vegetation, in every damp crevice where a web can be anchored and a meal can be caught. You lift a section of moss—the easiest thing in the world, it pulls away from the steel in a continuous mat—and beneath it the tiny structures are visible: sheet webs, tangle webs, the careful geometry of orb-weavers adapted to an environment where the prey comes to them on the wind.
+
+Because the wind brings everything here. The updraft carries particulate matter—organic dust, spores, the microscopic detritus of whatever is decaying in the depths—and the spiders have positioned themselves to intercept this aerial plankton the way whale sharks filter krill from tropical water. They do not need to hunt. They need only to build, and wait, and let the shaft feed them.
+
+The largest web you find spans perhaps two meters, anchored to a maintenance ladder on one side and a cluster of ferns on the other, and its owner is visible in the center—a creature the size of your spread hand, with a body like a dark fruit and legs that are too long for beauty but precisely calibrated for the specific tension of this particular web in this particular wind. When you lean close, she—heavy abdomen, probable female—lifts two legs in a gesture you cannot interpret. Warning. Assessment. Acknowledgment. She holds the position for several seconds, then drops back into her hunting posture, and you understand that you have been classified, categorized, and dismissed as irrelevant all in the space of a single breath.
+
+The spiders do not fear you. Nothing here fears you. You are not a predator in this ecosystem. You are too loud, too clumsy, too temporary. You could not catch the scurriers if you tried. You could not navigate the vines. You are a weather event, a brief and unremarkable perturbation in the constant conditions of the shaft, and the inhabitants have evolved to weather far worse than you.
+
+---
+
+The things that live in the canopy above you are known primarily by their effects.
+
+You hear them—not over the roar, which devours all sound below a certain threshold, but through the vibration they create in the structure itself. The vines tremble with impacts that are too heavy for the scurriers. The small trees sway in rhythms that do not match the wind. Occasionally a section of the green canopy moves in a way that contradicts the updraft, and you track the motion upward until it vanishes into the zone where the light source becomes ambiguous, where the diffused glow of the shaft merges with something else, a brightness that might be an opening or might be a quality of the air itself at that altitude.
+
+You see what they drop. This is how you learn them best—not through observation but through archaeology, through the traces they leave on the levels below. Seed husks, cracked and emptied. The remains of the larger insects—carapaces that suggest beetles or something occupying a similar niche, though the proportions are wrong, the leg count is wrong, the whole design has drifted from any template you would recognize. Droppings that are different from the scurriers' contributions—larger, more fibrous, containing the undigested evidence of a diet that includes leaves and bark and the tender tips of the vines themselves.
+
+And sometimes, bones.
+
+Small bones, mostly. The delicate architecture of the scurriers' skeletons, picked clean by insects and bacteria, revealed in the moss like fossils in shale. But also occasionally bones you cannot identify, bones that belong to nothing you have seen, bones that suggest creatures whose living forms you have not yet encountered—or creatures that no longer exist, that were part of an earlier iteration of this ecosystem, a phase that has passed and left only these calcium remnants in the detritus of the vine-mat.
+
+The browsers—the word feels right, though they might be hunters, might be omnivores, might occupy some category your language has not provided for—reveal themselves only in fragments. A glimpse of something pale moving against the dark vegetation. A sound that might be a call or might be the creak of stressed metal. Once, what you are certain is an eye, reflecting light from a source you cannot identify, watching you from a platform three levels above. It blinks. You blink. It withdraws.
+
+You are being observed. You have been observed since you arrived. The ecosystem is aware of you in the way that forests are aware of hikers—not with alarm but with attention, with the specific focus that any novel stimulus receives in an environment where novelty is rare. The creatures of the upper shaft have routines, territories, patterns of movement that your presence has interrupted. They are waiting to see what you do. They are waiting for you to reveal whether you are food, threat, or background, and until you do, you will be watched, and you will not see the watchers.
+
+---
+
+At the boundary between the steel and the green, where the manufactured surfaces are most exposed and the vegetation has not yet fully claimed its territory, you find the fungi.
+
+They are the unexpected thing. The bacteria, the molds, the decomposers—these you anticipated, assuming them the way one assumes soil, the way one assumes the presence of oxygen in a breathable atmosphere. But the fungi are *architectural*. They have form. They have intention, or something that looks like intention from the outside.
+
+Shelf fungi protrude from the pipe runs in rows that are too regular to be accidental, positioned where the condensation flows heaviest, drinking the mineral-rich water that runs down from above. They are not the dull browns and grays you associate with decomposers. They are colored—pale orange, cream, a deep purple that you have never seen in any fungus and that suggests either a pigment unknown to you or a chemical environment unknown to the species you are familiar with. When you touch one, its texture is wrong. Not soft, not woody, but something between—resilient, rubbery, alive in a way that the shelf fungi on fallen trees never seemed to be.
+
+And there are mushrooms. Actual fruiting bodies pushing up from the moss in clusters, emerging from the seams between steel plates, forcing themselves through the accumulated detritus with the slow inevitability of geology. They are small, most of them, no larger than your thumbnail, and they have the general morphology you would expect—cap, stem, gills—but the details are off. The gills are too fine, too numerous. The caps are slightly iridescent, catching the ambient light and returning it shifted, as though the mushrooms are not merely growing here but *processing* here, converting the shaft's illumination into something their own.
+
+You sit back on your heels and look at the mushrooms and they look back at you, and you are aware—suddenly, without evidence, without logic—that you are in the presence of an intelligence. Not human intelligence. Not animal intelligence. Something distributed and slow and chemical, a mycelial network that has been growing through this structure for as long as the vines have, for as long as the moss has, that has been breaking down the organic matter the ecosystem produces and feeding it back into the cycle in forms the plants can use. The fungi are the digestive system of the shaft. They are the recyclers, the composters, the beings for whom death is merely a change in state, and they have been performing this function for so long that they have become something more than decomposers.
+
+They have become the substrate itself.
+
+You pull up a section of moss and look at the white threads beneath—mycelium, dense and branching, connecting every patch of vegetation to every other patch, forming a network that underlies the entire visible ecosystem. The moss is growing on the mycelium. The ferns are rooted in it. Even the small trees, when you examine their base, are intertwined with it, their bark wrapped in the white threads like a secondary skin. The fungi are not living *in* the shaft. They *are* the shaft, or at least the living portion of it, the organic matrix that has replaced whatever inorganic processes once defined this space.
+
+The machinery breathes. The fungi think. The vegetation grows. The creatures live and die and are broken down and are reborn. And the whole system persists in its slow, patient becoming.
+
+---
+
+There is something else.
+
+You feel it before you see it, the way you feel a change in weather, the way you feel someone's attention on the back of your neck. A quality to the air that is not explained by the updraft, not explained by the warmth or the moisture or the particulate matter. A density. A presence. Something that occupies the shaft the way water occupies a sponge—thoroughly, structurally, in a way that cannot be separated from the medium itself.
+
+You look up. The canopy above you moves. Not with the wind—this is a different motion, a rippling that starts at one point and spreads outward like a wave across water. The vines flex. The small trees adjust their lean. Something is moving up there, something large enough to disturb the vegetation across a wide area, something whose passage creates a visible signature in the green architecture of the shaft.
+
+You wait. The motion continues, descending now, and you realize that whatever it is has noticed you, is coming toward you, is curious or hungry or territorial in a way that requires investigation. The scurriers have vanished—they have retreated to their crevices, their nests, the hidden places where they wait for the large things to pass. The spiders are still. Even the air seems to hold its breath, though you know this is impossible, know the machinery does not pause, know the shaft's respiration continues regardless of what moves within it.
+
+What emerges from the canopy is not what you expect.
+
+It is large—larger than you, certainly, large enough that its weight makes the vines creak and the platforms shudder when it transfers from one support to another. But it moves with a care that belies its size, placing each limb with precision, distributing its weight across the manufactured and grown structures with an expertise that suggests a lifetime of navigating this vertical world. You see it in fragments first—a limb reaching down here, a section of body there, the occasional flash of an eye or a mouth or an organ you cannot name—because it does not emerge all at once but reveals itself in pieces, the way the truth of a place reveals itself, the way understanding arrives: gradually, incompletely, subject to constant revision.
+
+Its body is adapted to the shaft the way the shaft's body is adapted to the machinery: thoroughly, structurally, in a way that makes separation impossible. Its limbs are long and jointed for climbing, but they are also *prehensile*, capable of gripping pipes and vines and the rungs of ladders with equal facility. Its skin—scales? hide?—is the color of the iron it climbs, the color of the rust and the moss and the shadow, and it shifts as you watch, not with the dramatic color-change of an octopus but with a slower, more deliberate adjustment, like a shadow lengthening, like metal cooling. It is camouflage, but it is also something else. It is *matching*, the way a frequency matches a resonant cavity, the way a lock matches a key.
+
+It has been here longer than the scurriers. You understand this intuitively, though you could not explain how. It has been here longer than the trees, longer than the vines. It was here when the first moss spore caught on the warm steel and found purchase. It was here when the condensation first began to flow and the rust first began to bloom. It is not the oldest thing in the shaft—the machinery is older, the structure itself is older—but it is the oldest *living* thing, the first to find this place, the first to recognize what the shaft could become.
+
+It watches you from three meters away, clinging to the curved wall with limbs you cannot count, its body arranged in a configuration that might be curiosity, might be threat, might be something your psychology has no category for. Its eyes are the wrong number. You are certain of this without being certain what the correct number would be. They blink at different intervals, and each blink reveals a different colored iris, and you understand that these eyes are not redundant but *specialized*—some for the low light, some for the infrared warmth of living bodies, some for the ultraviolet signatures of the fungi, some for purposes you cannot imagine.
+
+It opens its mouth. The teeth are the same as the scurriers'—angled inward, hook-shaped, designed for grasping rather than chewing—but there are more of them, rows that recede into a darkness you cannot see past. Its tongue, brief glimpse, is dark and pointed and moves with an independence that suggests it is almost a separate creature, an organism within an organism, an appendage that has its own agenda.
+
+It makes a sound. Not over the roar—nothing is over the roar—but *through* it, a vibration that you feel in your sternum, in your teeth, in the steel beneath you. A frequency that the shaft amplifies, that resonates with the structure itself, that turns the entire vertical space into a sounding board for a single, sustained, sub-audible note. The vines shiver. The moss releases spores in a cloud that catches the ambient light and glows. The scurriers, in their hidden places, answer—a chorus of high, thin squeaks that are immediately swallowed by the machinery's breath.
+
+The creature is calling. It is announcing itself, or you, or the fact of your meeting, and somewhere in the shaft—in the depths you cannot see, in the heights you cannot reach—other voices answer, the same sub-audible rumble, the same resonance, the same call and response that has been occurring in this place for longer than the hatch has been ajar, longer than the moss has been growing, longer perhaps than the machinery has been running.
+
+There are more of them.
+
+The shaft is not a habitat for this creature. The shaft is a *colony*. A family grouping, a social structure, a community of beings who have lived and bred and died in this vertical space for generations beyond counting, who have shaped the ecosystem as much as they have been shaped by it, who have evolved with the shaft and within the shaft and *as* the shaft until the distinction between inhabitant and environment has become meaningless.
+
+The creature above you watches. It waits. It has made its call and received its answer and now it is waiting for *yours*, and you realize with a certainty that goes beyond logic that this is the test, this is the moment of classification, this is where the ecosystem decides what you are. Food. Threat. Background.
+
+Or something else. Some fourth category. Some role in the shaft's ecology that you have not yet imagined, that might be available to you if you can find the frequency, if you can make the sound, if you can become part of the breath and the warmth and the slow, patient becoming.
+
+You open your mouth. The roar fills it. The warmth enters your lungs. The taste of iron and water and living things coats your tongue.
+
+You try to answer.

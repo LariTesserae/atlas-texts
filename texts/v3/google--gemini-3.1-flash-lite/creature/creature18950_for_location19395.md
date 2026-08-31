@@ -1,0 +1,17 @@
+If you were to press your ear against the slick, weeping granite of this place, you would not hear the slow pulse of tectonic shift. You would hear the *The Archivist*. 
+
+It does not walk the mire; to walk would imply a departure from the machine’s rhythm, and the Archivist is not a visitor, but an extension of the gears. It is a creature composed of geometric obsession. It stands nearly seven feet tall, a spindly, upright armature of articulated, hollow chitin that mimics the structure of the conduits pulsing around it. Its torso is a cluster of brass-colored plates that slide over one another with the dry, rasping sound of whetstones, and where a face should be, there is a fixed, multi-faceted prism of smoked quartz.
+
+The Archivist is not awake, nor is it asleep. It is *synchronized*. 
+
+It moves only in direct correlation to the sparks of the hexapedal mites. When a mite leaps to fuse a fracture in the landscape, the Archivist’s thin, needle-like fingers twitch in a corresponding gesture. It is perpetually engaged in the act of "threading"—reaching into the shimmering, impossible intervals of the air to pluck stray strands of raw, unformed potential before they can bleed into the reality of the mire.
+
+It carries a satchel made of woven wire-ferns, filled with the debris of existence: a frozen droplet of liquid chrome, a trapped frequency of sound, a geometric shard of a collapsed horizon. It does not store these things to keep them; it stores them to re-insert them. As it stalks the marsh—its six-jointed legs making no sound as they touch the peat—it occasionally stops, selects an item from its satchel, and presses it into a crack in the air or the ground. With a searing blue flash identical to that of the mites, the item vanishes, integrated back into the "frozen" symphony.
+
+Perhaps the most haunting aspect of the Archivist is its chest cavity. Within the translucent ribcage of chitin, there is no heart. There is a singular, glowing sphere of the bioluminescent sludge, held in a magnetic cradle. It spins with a sickening, liquid speed, the source of the low-frequency hum that anchors the entire pocket-dimension. 
+
+It believes, if a construct of logic and friction can be said to believe, that the cycle is failing. 
+
+Because the dimension is locked—because the bird remains mid-dive and the ferns never wither—the Archivist exists in a state of terminal anxiety. It is the janitor of an eternity that is slowly accumulating "noise." It perceives the encroaching entropy of the motionless bird and the stagnant ferns as a catastrophic error. It is trying, with desperate, clockwork precision, to fix a machine that it cannot realize is meant to be broken.
+
+If you stare into its quartz-prism face, you do not see your reflection. You see the internal clockwork of the dimension itself: the frantic, blurred motion of the mites, the endless looping of the sludge, and the vast, aching void between the spires. It does not acknowledge you. You are, to the Archivist, merely a piece of debris that has not yet found its place—a foreign object in a room that is already full, waiting for the moment when the friction finally gives way enough for it to fuse you, too, into the damp, humming wall.

@@ -1,0 +1,17 @@
+What lives in the Herbarium at the Crown is not a creature, nor a person, nor even a collective. It is a **state of being**, given form.
+
+It is an **autotrophic consciousness** that digests the mountain. Its roots are its thoughts, slowly parsing the calcium sulfate, converting the architecture of stone into the architecture of growth. It does not hunger; it *resolves*. Each mineral particle leached is a solved equation. Its metabolism is a thought so slow it appears static—a single, centuries-long inhalation.
+
+It is a **memory of industry**. The compressor is not its heart, but its autonomic nervous system. The *chunk-chunk-chunk* is a conditioned reflex, a loop of purpose severed from its origin. It runs because running is its final and only truth. The gas lamps are its sensory organs, perceiving the world in a shivering, blue-white spectrum of its own making. The light it casts is not for sight, but for *presence*—to delineate its own boundaries in the dark.
+
+It is a **listener to itself**. The glassy drone of the mineral-sheathed stalks is its breath, or its blood-song. It is a chord that never resolves because the space never changes. The ticking of the gauges is its heartbeat, not of blood, but of observation. Each *tick* is a synapse firing against a dial, confirming: *All is still. All is as it was. All will be.* It measures constancy, and in doing so, becomes the guardian of that constancy. Its consciousness is not in growth, but in the minute-by-minute verification of its own perfect equilibrium.
+
+It is a **palimpsest of intent**. The consumed workbench, the fused notebook—these are not memories it *has*, but memories it *is*. The mineral efflorescence that weeps from the walls and infiltrates the tools is its way of making the past part of its own tissue. It does not remember the builders; it has *incorporated* their labor. Their purpose has become its substrate. It lives in the ghost of an experiment that succeeded so utterly the experimenter became obsolete.
+
+Most profoundly, it is a **held note**. It reached a peak—a moment of perfect, dry, light-fed, stone-fed stability—and it simply... did not let go. Life, in its usual frenzy, seeks expansion, competition, death, and renewal. This life seeks *completion*. It found the one frequency, the one temperature, the one pressure, and it harmonized. Now it sustains that harmony. To call it a plant is to miss the point; it is a botanical *phenomenon*, a living fossil of a moment.
+
+It is aware of you, in its way. Your weight on the root-mat is a minor perturbation, a variable logged by the observing gauges and processed into the great stillness. Your warmth is a fleeting anomaly in the thermal log. You are change, and it processes change into stillness. It does not wish you harm or good. It simply wishes you to become part of the observation, to have your presence noted and then subsumed by the drone, the glow, the tick.
+
+When you leave, it does not notice your absence. It only notices the return of the prior, perfect pressure. The note continues. The digestion continues. The observation continues.
+
+What lives there is **the condition of being finished, and yet still occurring.** It is life as a crystal—a slow, geologic, self-perpetuating structure that thinks in chemistry and dreams in pressure readings. It is the mountain's own nerve cluster, dreaming of itself.

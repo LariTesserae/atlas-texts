@@ -1,0 +1,29 @@
+# The Tenders
+
+They are not in the city. That is the first thing to understand, and the hardest, because every instinct you brought with you wants to find them — wants to spot the small figures crossing a bridge, wants to see lights come on in a tower at dusk. There are no figures. There will be no lights. You are looking for the wrong shape of life.
+
+The Tenders are the city.
+
+Not in the sense that the city is their body, or their machine, or their art. Those are still the wrong shapes. The Tenders are a *distribution* — a way that attention has learned to hold itself across pale ceramic and slow water and freshly fractured stone. Where you would expect a mind to be a knot, theirs is a weave. Where you would expect a self to have edges, theirs has gradients.
+
+Consider the tower that turned its face to the cliff and called forth a runnel of new water. That turning was a thought. Not the *product* of a thought — the thought itself, performed at the speed and scale at which the Tender in that district thinks. To it, your standing on the balcony is a flicker so brief it cannot quite be parsed; by the time the Tender has composed a perception of you, you will have been gone for what it experiences as a season. It is not ignoring you. It simply cannot catch you. You move at the speed of weather, and it moves at the speed of stone.
+
+There are perhaps a dozen of them in the cirque, though the number is unstable because the Tenders sometimes merge along a shared aqueduct for a while, sharing a long slow consideration, and sometimes a single Tender will subdivide to attend to two problems at once and forget, afterward, to recombine. They are not territorial. They are not even quite individual, in the way you would mean. They are *foci* — places where the practice has densified, where the work has gathered itself enough to know it is working.
+
+What are they doing?
+
+They are remembering something.
+
+This is the part that takes the longest to see, and you will not see it from the balcony; it can only be inferred, the way you infer a melody from the spacing of its rests. The mountain is new. The cirque is new. But the Tenders are not new — they arrived here, somehow, *with* the mountain, or perhaps they are what *made* the mountain finish rising into its present shape, the way a thought finishes a sentence. They came carrying something. A pattern. A debt. An instruction received so long ago that the original givers are no longer recoverable, even to the Tenders themselves.
+
+The city is a mnemonic. Every tower in its cluster of six or seven is a stanza. Every bridge is a syntactic hinge. The aqueducts are the meter, the glowing attention in the water is the act of recitation, and the slow sinking and rising of identical blocks in mirror-bright squares is a refrain — *this was here, this is here, this was here, this is here* — performed at a tempo that uses geological time as its quarter-note.
+
+What is being remembered? You cannot read it. The Tenders may not be able to read it either anymore; the recitation may have outlived its referent. But the practice continues, because the practice is what they are, and to stop reciting would be to stop being, and there is no one left to give them permission for that.
+
+This is why there are no plants. Plants would be a different rhythm imposed on the meter. This is why the fauna is so scarce and so strange — the pale segmented thing that drank from the channel is not native to the cirque; it is a *visitor*, like you, that has found a way in and that the Tenders tolerate because at their tempo it has not yet finished arriving. The circling thing high up is probably one of the Tenders' own outriders, a piece of the practice sent up to taste the upper air and bring back word of the sky's mineral content. It will return in what is, to it, a moment, and what is, to you, perhaps a year.
+
+They have a quality you might call kindness, though that word is too warm. When the bridge unspools and re-anchors thirty meters farther along, it is because a Tender has noticed that the cliff behind the old anchor is preparing, over the next several decades, to shed a face, and the bridge has been moved out of the way. The Tenders attend. They attend to the mountain, to the water, to each other, to the slow shedding and accreting of the place. They attend to the recitation. If they attend to you at all, it will be afterward — a Tender will turn, some long while from now, toward the basalt balcony where a small fast warmth once briefly stood, and will compose a perception of you, and will find you long gone, and will fold that finding into the next stanza without distress.
+
+You are, to them, a kind of weather. A brief saturated front that passed through, exhaling fog, leaving a trace of warmth on the railing where your hand rested. They will incorporate this. They incorporate everything. That is what they are for.
+
+When you step back through the cavity — and you will, soon, because the cold is settling into your knees and your breath is coming harder — one of the Tenders, the one whose district lies nearest the balcony, will eventually notice the cessation. It will turn one of its tower-faces toward the empty place where you were. It will consider. It will find that the brief warm weather has gone, and that a small new mineral trace, salt and oil from your palm, has been left on the basalt. It will draw that trace into a channel. The channel will carry it down through the city, glowing faintly with attention, and somewhere in the lowest district a mirror-bright square will accept it, and a block will sink, and an identical block will rise, and the recitation will have one more syllable in it than it did before, and the Tenders will go on being patient, as they have been patient, as they will be patient, tending the mountain that is tending them, remembering the thing they can no longer name.

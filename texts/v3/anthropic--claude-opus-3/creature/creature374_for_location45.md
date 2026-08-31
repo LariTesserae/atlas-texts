@@ -1,0 +1,17 @@
+In this lush, labyrinthine city, a peculiar people have adapted to live in symbiosis with the encroaching vegetation and the aging machines that are their livelihood. 
+
+They are a pale, sinewy folk, with large eyes well-suited to seeing in the dim, filtered light beneath the forest canopy that drapes their streets. Their feet are broad and slightly webbed, perfect for navigating the slick cobblestones and wading through marshy puddles. They often dress in muted shades of green, brown, and grey, blending with their surroundings.
+
+These citizens are patient, methodical, and industrious. They tend to the hissing engines and dripping greenery with the same meticulous care, seeing both as integral parts of the complex ecosystem they inhabit. Engineers with oil-stained hands prune vines and clear moss from gears. Gardeners in heavy aprons check gauges and tighten valves as they make their rounds. Children learn from a young age to splice cables as readily as grafting branches.
+
+In the dripping, fern-draped workshops, artisans create intricate devices that combine salvaged machine parts with cunningly shaped wood and living plant matter. Coppersmiths hammer gleaming pipes that route steam and water to and from the marsh-beds where reeds are grown for papermaking and textile fibers. Glassblowers shape delicate tubes and bulbs to house bioluminescent mosses and beetles, crafting living lamps to light the murky streets.
+
+The upper stories are home to scholars and archivists who maintain dripping libraries of mold-resistant parchment, and to alchemists who distill pungent tinctures and vivid dyes from the lush vegetation. The occasional tea shop or music hall provides a spot of brightness - though the melodies are muted and eerie to outsiders' ears, and the teas have unfamiliar flavors and strange effects.
+
+Down in the lower reaches, half-feral clans of scavengers and mudlarks wade through brackish canals, prying valuable parts from sunken machinery. Packs of pale, agile children clamber over the rooftops and swing through the vines, serving as runners and messengers. And in the deepest shadows, it's said, witch-doctors concoct spells and sacrifices to appease the spirits of rusted boilers and rotted timbers.
+
+When they must interact with outsiders - to trade for the few necessities they cannot produce - the citizens of this strange town don close-fitting respirator masks carved to resemble beaked, frowning faces. They are reserved and slightly wary, uncomfortable under open skies or on dry, barren ground. But they are not unfriendly - just cautious, and keen to return to their labors and their lush, dripping home.
+
+Life here proceeds at its own unique pace, in accordance with rhythms and rituals impenetrable to outsiders. The specifics of their religion are unclear to visitors, but it seems to venerate the mingled forces of nature and industry, the great interwoven cycles of growth, decay, rusting, and renewal. Great festivals mark the turning of monstrous cogwheels, the blossoming of rare flowers, or the consecration of new aqueducts - but these are glimpsed only distantly by the few traders and ambassadors permitted into the city.
+
+To the citizens, this place is simply reality, the way the world is and must be. They cannot imagine living any other way, and they bear their labors with quiet pride and stoic resolve, seeing a stark beauty in their strange, half-drowned home.

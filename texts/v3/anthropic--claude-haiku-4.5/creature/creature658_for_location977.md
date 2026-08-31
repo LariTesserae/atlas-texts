@@ -1,0 +1,27 @@
+# What Dwells in Keth
+
+They are not people, precisely. Not anymore.
+
+At first you mistake them for such—the bipedal forms moving through the fitted stone corridors, the deliberate gestures, the way they pause at the wind-apertures as though contemplating something beyond. But prolonged observation reveals the truth: they have become *apparatus*. Or perhaps apparatus has become them. The distinction has been worn smooth by time, like the corners of their buildings.
+
+Their skin is clay. Not metaphorically. Their epidermis has taken on the texture and color of the compacted earth they work, cross-hatched with fissures that open and close as they move, allowing a kind of respiration through the gaps. When they are still—and they are often still, standing motionless in the shade of the great stems—they are nearly indistinguishable from the geological features around them. Only their eyes betray them: dark, patient, watching. Watching the mechanisms. Watching the sky. Watching for the day the void advances too far.
+
+Their joints move with mechanical precision. Not stiffness, but *economy*. Every motion serves function. There is no gesture wasted, no movement that does not contribute to the eternal labor. Fingers taper to implement-like points, evolved or engineered—you cannot tell—for cranking, pulling, adjusting. Their feet are broad and splayed, designed to distribute weight across the cracked clay without sinking. When they walk, they leave marks, but the marks are shallow. They barely press.
+
+They do not eat. Not visibly. But they gather the pale sap that seeps from the great stems into carved stone vessels, and they drink this without apparent satisfaction or dissatisfaction. It is fuel, not food. Nor do they sleep, not as sleeping is commonly understood. Instead, they enter a state of profound stillness, standing upright in the cool of the interior buildings, their fissured skin settling into deeper patterns, their eyes remaining open—always open—reflecting the faint light that filters through the stone apertures.
+
+They breed, after a fashion. New ones appear among the population every few years, not born but *constructed*. The process takes place in the deepest buildings, and those selected to participate in this construction do not emerge for months. When they do, they are diminished—more fissured, more brittle, moved by mechanisms that seem to creak louder than before. And in the deep buildings, in the dark, something new waits in a clay-lined chamber to cure and harden and finally *know* the terrible, necessary work of holding back the desert.
+
+They possess a kind of consciousness, though whether it is unified or distributed remains unclear. Sometimes you will see them pause, mid-action, as though receiving instruction from elsewhere. Their eyes will fix on a distant point—the sky, the horizon, the void—and something passes through the group, a tremor of acknowledgment. Then they return to work. It is possible they are all aspects of a single vast organism. It is possible each one dreams independently of its own futility. The truth is likely more terrible than either alternative: that they remember *being* human, and that they have chosen this transformation as the only means of survival.
+
+They do not age. They erode. The centuries smooth them the way centuries smooth stone. Their fissures deepen, their movements slow, the light in their eyes dims fractionally—but they do not die, not until some threshold is crossed and they can no longer maintain the minimum motion required by the mechanisms. Then they are taken into the deep buildings, and no one asks what becomes of them. New clay waits. The cycle continues.
+
+They have no names, not really. Or rather, they have only function-names: the one who operates the eastern mill, the one who maintains the stem-channels, the one who watches the sky. Occasionally, in the deeper hours of night, you might hear something that sounds like singing emerge from one of the buildings—a thin, dry sound like wind through a canyon—but the singer is never visible, and the song never repeats.
+
+They are not unhappy. Unhappiness requires a self to be unhappy, and they have long since distributed such singular concerns across the mechanisms of survival. They do not fear the desert's advance, though they work tirelessly against it. They do not hope for salvation, though they construct and maintain the only structures capable of providing it. They simply *are*—functionaries of their own persistence, living gears in a machine that grinds on and on, compacting the clay, maintaining the channels, keeping the void at bay through sheer, patient, utterly committed refusal to end.
+
+If you watched them long enough—if you stayed in Keth long enough—you would begin to understand that they are not preventing the desert from claiming the garden.
+
+They are *becoming* the desert's opposite, the final argument against dissolution. They are what arises when a people love their home too much to abandon it and not enough to romanticize the attempt. They are the answer to an impossible question, shaped by centuries of grinding, grinding, *grinding* down.
+
+And somewhere in the deepest chambers, new clay is curing in the dark, waiting to understand this truth for the first time.

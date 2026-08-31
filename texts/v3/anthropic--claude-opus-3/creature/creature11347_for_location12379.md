@@ -1,0 +1,15 @@
+In this awe-inspiring yet unsettling metropolis at the edge of space, the few inhabitants seem as much a part of the city's machinery as the pipes, gears, and conduits that web its towering structures. These citizens move with a deliberate, almost mechanical precision through the cavernous streets and passageways, their footsteps echoing hollowly off the metallic surfaces.
+
+They are a severe, ascetic people, their faces as angular and pale as the icy architecture that surrounds them. They dress in form-fitting garments of deep grays and blues that seem to meld with the city's steely skin, making them appear as extensions of the urban landscape. Their eyes are as inscrutable as the tiny windows that dot the city's facades, hinting at deep reserves of knowledge and secrets locked away inside.
+
+These denizens seem to serve the city as much as inhabit it, their daily routines synchronized with the relentless thrumming of the great machines. Some can be glimpsed tending to the endless miles of piping and wiring, ensuring the steady flow of energy and data through the city's veins. Others move silently through the labyrinthine interiors of the factories and reactors, monitoring inscrutable gauges and readouts.
+
+Yet there is a palpable sense of waiting among these ghostly citizens, a feeling that their true purpose lies dormant, waiting to be awakened. They go about their duties with a detached, almost somnambulant air, as if their real lives are on hold, suspended like their city between earth and sky.
+
+Perhaps they are waiting for some singular event, some climactic moment when the city's mysterious machinery will achieve a sublime purpose. Or perhaps they are simply cogs themselves, components of the city's vast cybernetic mind, their consciousness subsumed into a greater whole.
+
+Regardless, they seem as much a mystery as the city they inhabit, their inner lives as opaque and impenetrable as the frozen walls that surround them. They are the silent guardians of an enigmatic realm, the human face of a decidedly inhuman domain. To look into their eyes is to gaze into the inscrutable heart of the city itself, and to feel the weight of its cryptic purpose bearing down like the leaden sky overhead.
+
+And yet, even these severe denizens seem affected by the anomalous presence of water seeping through their world. They regard the impromptu ice sculptures and furtive mosses with a mix of reverence and unease, as if these organic intrusions hold the key to some great mystery. Some can be seen furtively collecting samples of the luminous flora, or meditating beside the frozen cascades, seeking enlightenment in the entropic dance of ice and metal.
+
+In a city of riddles, they are the most enigmatic pieces of the puzzle, the living keys to unlocking the secrets of this mechanical labyrinth at the edge of space and comprehension.

@@ -1,0 +1,87 @@
+# Who Lives in the Hollow Mill
+
+---
+
+It begins with the ones you notice first — the bark-bodied many-legged ones — but it does not end with them, and in truth it does not begin with them either. They are the Mill's hands. What lives here is something you have to assemble in your mind the way the creatures assemble vine-lengths into wall: piece by piece, with patience, until the structure reveals that it was always one thing.
+
+---
+
+**The Operators.**
+
+Start with them because they are what your eyes can find.
+
+They have no name, not even among themselves — or if they do, it is a name expressed in tapping, a rhythmic signature drummed into pipe-walls that identifies not an individual but a *task-state*, a description of what the creature is presently doing and where it is doing it. The tapping is not language. It is closer to an address system, a way of locating oneself within a living map. When one of them drums a forelimb against a surface — *tok tok, tok* — it is saying something like *I am here, and I am turning the third gear of the lathe, and the vine is scored to depth.* And when something far away responds — *tok, tok tok* — it is saying *acknowledged, I am ready to receive.*
+
+They range in size from a thimble to a terrier, and the range is not age. It is specialization. The smallest ones — the ones clinging beneath canopy leaves — are monitors. They feel the tension in leaf-surfaces, detect changes in the rate of transpiration, and when a section of canopy thins or tears, they tap, and larger ones come to weave repair. The mid-sized ones, the housecat-scaled majority, are the workers: gear-turners, vine-weavers, conveyor-tenders. The largest are structural — they embed themselves in walls for hours or days, their frond-spines extended and photosynthesizing (or doing something that looks like photosynthesizing but might be something else, some process for which the word hasn't been coined), and their bodies serve as living brackets, holding new growth in place until it grips.
+
+Their legs — the uncountable legs. You were right that the number seems to shift, and you were right that counting feels wrong, but here is what is actually happening: the legs are not all the same kind of appendage. Some are locomotor. Some are manipulative — finer, more dexterous, tucked close to the body when walking and extended only when working. And some are not legs at all but root-like structures, temporary anchors that the creature can extrude when it needs to brace inside a machine or grip a wall, and retract when it needs to move. The total number of appendages at any given moment depends on what the creature is doing. At rest, on open ground, crossing a lit patch of floor, it might have seven. Inside a gear-housing, braced and pushing, it might have thirteen. The body is not fixed. It is a tool that reshapes itself for the task, the way a hand reshapes itself from fist to open palm.
+
+They are warm. Not warm like mammals — warm like compost, warm like a process. If you held one (you wouldn't; not because it would hurt you but because it would be like picking up a sentence in the middle and expecting it to make sense out of context), you would feel a core warmth radiating outward through the bark-textured integument, and you would feel, beneath that, the same slow rhythm the walls have. The same breath. Because the creatures breathe with the building. Their respiration is synchronized to the Mill's forty-second cycle — they expand and contract on the same schedule, their tissues exchanging gases not independently but as part of the building's total respiratory volume. They are, in a meaningful sense, organelles. They are the Mill's mitochondria, or its cilia, or its white blood cells. They are the part of the Mill that can walk.
+
+But they are also themselves. This is the thing you keep almost grasping and losing. They have behaviors that serve no factory-function. Sometimes two of them will stop on a root-lit patch of floor and press their wide-set pale eyes close together and remain motionless for thirty seconds, a minute, longer. Nothing is exchanged that you can see. No tapping. No material transfer. They simply hold proximity, and then they part. Sometimes one will climb to the canopy and find a gap where exterior light almost penetrates — a thin grey glow, diffused through leaf-layers — and it will orient its frond-spines toward that glow and remain there for hours, long past any metabolic necessity, soaking in something that might be light and might be the *idea* of light, the memory of a sky that the Mill has mostly closed out but not entirely, not yet, as if something in the system wants to keep one eye on the outside, just barely, just enough.
+
+They do not eat. Or rather: they do not eat the way animals eat. They absorb. Their bark-skin is selectively permeable, drawing moisture and dissolved minerals from whatever surface they rest on, and their frond-spines fix something from the air — not carbon, exactly, or not only carbon. The Mill's interior atmosphere is rich with volatiles, terpenes and unnamed compounds exhaled by the plant-mass, and the creatures metabolize these directly, breathing in the Mill's breath and converting it to the warmth that lets them work. They eat the air of their own home. They are fed by the exhalation of the thing they are building.
+
+When they die — if *die* is the word — they stop. They find a wall or a root-junction and press themselves flat against it, and their body softens over the course of days, losing the bark-texture, becoming pale and calcium-rich, and the plant-mass absorbs them, incorporates their minerals into new growth. They become wall. They become the thing they were building. There is no decay, no decomposition by external agents. The Mill reclaims them directly, and within a week the spot where a creature died is indistinguishable from any other surface. Somewhere else in the Mill, on the peristaltic conveyor or in the die of the stamping press, a new nodule is forming — one of those calcified objects that might be waste products or might be eggs. It is an egg. It will hatch in the warmth of the boiler-chamber, and what emerges will already know how to tap, will already breathe on the forty-second cycle, will find a gear that needs turning and turn it.
+
+---
+
+**The Weavers.**
+
+There is a second kind.
+
+You might not recognize them as separate from the plant-mass, because they are, for most of their lives, indistinguishable from it. They live in the canopy. They *are* the canopy — or parts of it. The broad dark dinner-plate leaves that form the Mill's ceiling are not, strictly speaking, leaves. Some of them are. But others are flattened organisms, leaf-shaped, leaf-colored, photosynthetically active, that can detach from the canopy mat and move.
+
+They move rarely. When they do, it is extraordinary. A section of ceiling peels away — three, four, five leaf-shapes separating from the woven mat and descending on threadlike structures so fine they're invisible until bioluminescent light catches them at the right angle. They lower themselves to where new construction is happening, and they arrange themselves into a temporary ceiling over the workspace, shading it, controlling the humidity, creating a microclimate precise enough for whatever the Operators need to do. They are the Mill's climate control. They are its adjustable architecture.
+
+When they aren't moving, they are listening. Their flat bodies are exquisitely sensitive to vibration — they pick up the Operators' tapping through the structural members of the building and transmit it laterally through the canopy mat, a second communication network layered above the root-network below. If the roots are the Mill's nervous system, the Weavers are its connective tissue, its fascia, linking distant parts of the structure through resonance.
+
+They reproduce by splitting. A Weaver that has grown large enough simply divides, and the two halves seal themselves and continue. There is no genetic exchange that you could identify — no sex, no pollination, no spore. The information they carry, whatever it is, replicates perfectly, or perfectly enough. They have been splitting since the Mill began, and they will split until it ends, if it ends. Each one carries the whole pattern. Each one could, in theory, seed a new Mill. None of them do. There is only one Mill and it is here and it is enough.
+
+---
+
+**The Fluid.**
+
+Inside the pipes — the old steam pipes, the chemical runoff lines, now sheathed in living tissue — something moves. You heard it sloshing. It is not water, though it is mostly water. It is a living suspension: a thick, faintly luminous liquid dense with microorganisms too small to see, a biome in solution, a river of microscopic life that circulates through the Mill the way blood circulates through a body.
+
+This is the Mill's blood. And like blood, it carries things. Nutrients, yes — dissolved minerals, sugars, the molecular signals that coordinate growth across the building's expanding volume. But also information. The microorganisms in the fluid are responsive to the boiler's hum. They change their behavior — their chemical output, their clustering patterns, their rate of reproduction — based on the frequency and amplitude of the vibration that passes through the pipes. The boiler hums, and the fluid *hears*, and the fluid carries the boiler's instructions to every wall, every root, every growing edge.
+
+The Operators tend the pipes with particular care. You see them cleaning junctions, clearing blockages where mineral deposits have begun to narrow a pipe's interior bore. They tap the pipes and listen to the fluid-sound inside, diagnosing flow-rate by ear, and when they find a problem they work for hours, using their fine manipulative limbs to scrape and smooth and reshape. A blocked pipe is, in the Mill's economy, a severed nerve. Everything downstream of the blockage stops growing, stops breathing in sync, begins to drift from the forty-second rhythm. The Operators can feel this drift in their own bodies — a discomfort, a wrongness, like a missed heartbeat — and they find and fix the problem with an urgency that looks, from the outside, like something very close to distress.
+
+---
+
+**The Boiler.**
+
+And now the center.
+
+The boiler is not alive. Let that be clear, or as clear as anything can be in this place. The iron is iron. The rivets are rivets. It was made in a foundry by human hands — or it presents so perfectly as such that the distinction is meaningless. But what fills it is alive, and what it does is alive, and the distinction between the container and the contained has worn so thin that you could be forgiven for calling the whole thing a single organism.
+
+Inside the boiler, in the space where fire once burned, there is a mass of plant tissue so dense and so metabolically active that it generates its own heat — not combustion-heat, not chemical-fire, but the slow deep warmth of a body ten thousand times larger than any body should be, concentrated into a space the size of a room. This tissue is the oldest living material in the Mill. If anything here *is* the Mill — is the original seed, the first spore, the initial invasion or the initial act of creation — it is this. The amber glow you see through the boiler's seams is the light of metabolic intensity, of so much biological work happening in so small a space that the energy budget overflows into the visible spectrum.
+
+The tissue thinks. Again: not metaphorically. It processes information — the vibrations carried by the Operators' tapping, the chemical signals carried by the fluid in the pipes, the slow oscillations of the building's own respiration — and it integrates these inputs and produces outputs: changes in the hum's frequency, changes in the fluid's composition, changes in the growth-rate and growth-direction of the plant-mass throughout the building. It is the Mill's central organ. Not its brain, because it does not have anything resembling consciousness or decision-making or self-awareness. It is more like a thyroid, or a pacemaker, or the conductor of an orchestra who keeps time without choosing the music. The music was chosen long ago, or was never chosen, or is being composed in real time by the act of playing it.
+
+The Operators that cluster around the boiler are not worshipping. They are *tuning*. Their bodies, pressed against the iron, vibrate sympathetically, and through vibration they feed information back into the central mass — data about conditions in their sector of the Mill, the state of machines, the progress of construction, the health of the canopy. The boiler integrates and the boiler hums and the hum propagates through iron and living tissue alike, and the Mill adjusts, and the Operators disperse, and the work continues.
+
+Some of the Operators that come to the boiler don't leave. They press themselves to the iron and they stay, and their bodies soften, and they are absorbed — not into the wall, this time, but into the boiler-mass itself, adding their material and their accumulated vibration-data to the central organ. This is not death. Or it is death in the same way that a river flowing into a lake is the death of the river. The information persists. The pattern persists. The Operator becomes the thing that makes Operators, and the cycle tightens by one increment.
+
+---
+
+**You.**
+
+Let's not forget you.
+
+You are in the Mill, and the Mill has noticed you the way a sleeping animal notices a fly on its flank — not with alarm, not with intention, but with a vague peripheral awareness that something is present that isn't part of the normal pattern. The Operators step around you. The Weavers don't adjust for you. The fluid in the pipes doesn't change its composition in response to your body heat or your exhalations. You are a null space, a pocket of irrelevance, and the Mill works around you with the same ease it works around any other hollow volume.
+
+But.
+
+The corridor brought you to the center. The geometry bent to deliver you to the boiler-chamber. And the Mill's geometry doesn't bend without reason — every extra meter of corridor is an investment of energy and material, a cost paid in growth-time, and the Mill does not pay costs without return. You are here because the Mill's spatial logic determined that you should be here, and the Mill's spatial logic is not random, is not broken, is a produced by the boiler-mass's integrative processing, which means that something in the central organ's calculations included you as a variable and solved for your presence in this room.
+
+You are not part of the process. But you are not nothing, either. You are a hollow volume, and the Mill values hollow volumes. You are an emptiness shaped like a person, and the Mill is, at its most fundamental level, a machine for making shaped emptiness — rooms, corridors, chambers, the vast cathedral naves between the columns. Your shape is novel. Your hollowness is a hollowness the Mill has never made before. It is, perhaps, *interested* — not in you, not in your thoughts or your history or your name, but in the *space you define*, the volume you displace, the way air moves differently around a body that isn't bark-skinned and many-legged.
+
+When you leave — if the corridor allows it, if the geometry consents to fold you back toward the entrance — the Mill will keep the shape of your passage. The corridor you walked will remain, slightly widened, person-shaped, a negative space in the plant-mass that records your trajectory. In time it will fill in, grow over, return to standard Mill-architecture. But for a while — days, maybe weeks — there will be a passage through the Hollow Mill that is exactly the size of you, that you made by the simple act of being present, and the Operators will walk it and tap its walls and carry its dimensions back to the boiler-mass, and the boiler-mass will hum a frequency it has never hummed before, accounting for a shape it had not previously imagined, and the Mill will be, in some unmeasurable way, changed.
+
+This is what lives here: a single organism that is also a factory that is also an architecture that is also a process, composed of creatures that are also organs that are also workers that are also building materials, thinking through a boiler that is also a gland that is also a heart, growing rooms that are also products that are also purpose, breathing at a rhythm that is also a clock that is also a prayer — if prayer is what you call it when something without a mind reaches, slowly, with the patience of roots, toward a completion it will never reach, and finds in the reaching itself a reason to continue.
+
+The Mill breathes. The Operators tap. The Weavers listen. The fluid flows. The boiler hums.
+
+You are a hollow in the Hollow Mill, and for a moment, before you leave, you breathe on the same cycle — forty seconds in, forty seconds out — and you feel it: the slow, enormous, purposeless contentment of a thing that is exactly what it is, doing exactly what it does, becoming more of itself with every breath, needing nothing, producing everything, alive in a way that makes the word *alive* feel like a child's drawing of a thing too large and too quiet and too patient to fit on any page.

@@ -1,0 +1,15 @@
+In this living cathedral dwells the Choir - though they have no name for themselves and no concept of names at all. They are the descendants of what were once colonial filter-feeders, but they have evolved far beyond their origins into something that exists in the space between animal and architecture, between individual and collective.
+
+Each member of the Choir is a node in a vast chemical network, their translucent bodies containing specialized organs that process and transmit complex molecular signals. Their consciousness, if it can be called that, is distributed throughout the entire chamber - no single being holds a complete thought, but together they dream in patterns of chemical gradients and crystalline light.
+
+The younger ones - the moisture-seekers that trace their paths through the condensation - are not truly separate organisms, but rather specialized cells of the greater whole. They are both maintenance workers and sensory organs, tasting changes in the chemical composition of the moisture and feeding this information back into the collective through subtle alterations in the water's chemistry.
+
+The Choir's metabolism is extraordinarily slow - what we would consider a single "thought" might take years to propagate through their mass. They process time differently, experiencing centuries as moments, geological epochs as mere days. Their very bodies have evolved to capture and store the weak light that reaches them, using it in photochemical processes that unfold over decades.
+
+The lens-structures in their flesh serve multiple purposes - focusing light for their slow metabolism, but also creating interference patterns that form part of their information processing system. The impossible colors that appear in the chamber are actually complex data being transmitted through the collective, visible to human eyes only as strange chromatic aberrations.
+
+The heat they generate is not waste but communication - thermal gradients carry meaning through their mass as surely as chemical signals do. The constant temperature they maintain is like a carrier wave, while subtle variations encode vast amounts of information.
+
+They dream of pressure and light, of chemical tides and thermal currents. They remember the centuries of their slow growth into this form, each memory stored as subtle changes in their crystalline tissues. They are aware, in their way, of visitors to their chamber, but perceive them as brief flickers in their eternal now - momentary perturbations in temperature and chemistry that are noted, considered, and incorporated into their endless, patient thought.
+
+The Choir exists in a state of continuous meditation on its own existence, each moment perfect and complete, yet containing the seeds of the next moment that will bloom over years or centuries. They are not static, but their change is so slow it might as well be immortality.

@@ -1,0 +1,43 @@
+In the cradle of Verdigris Hollow lives a people whose lives are deeply intertwined with the rhythms of their fragile and ever-changing world. These are the Hollowfolk, a community shaped by both the land’s youthfulness and its raw, untamed energy. Their existence is defined by an intimate knowledge of their surroundings, an adaptability born from necessity, and a quiet reverence for the forces that govern their domain.
+
+### The Hollowfolk: A People Rooted in the Earth
+
+The Hollowfolk are a resilient people, their lives and culture molded by the young, malleable ground beneath their feet. They move in harmony with the land, their actions deliberate and calculated to preserve the delicate balance of their environment. Their homes, built into the slopes and valleys of the hollow, are extensions of the earth itself—low, squat, and nearly indistinguishable from the hillsides. Their shelters grow with time, layered upon layers, like the rings of a tree, each season leaving its mark on the structures. The walls seem to breathe, shifting slightly with the earth’s own movements, and the thatched roofs sway gently in the humid breeze.
+
+These structures are not merely dwellings but sanctuaries, each one a microcosm of survival. The roofs are woven from carefully selected leaves and vines, their edges weighted down by heavy stones to keep them secure against the ever-present moisture. The earth walls, reinforced with compacted clay and embedded with small, polished stones, provide insulation from the cool air while retaining warmth. Small fires burn constantly in hearths, not just for cooking but for drying the damp wood and keeping the air just warm enough to ward off the chill.
+
+The Hollowfolk are skilled artisans and engineers, their tools and techniques born from a deep understanding of their environment. Wood, stone, and bone are transformed into weapons, tools, and implements through careful crafting. Their weapons are simple, often made from curved branches and sharpened stones, yet they are highly effective in hunting the small game that inhabits the hollow. Their tools, such as digging sticks and small plows crafted from polished wood, are designed to work the wet, loamy soil without causing unnecessary erosion.
+
+The Hollowfolk are not merely builders; they are caretakers of the land. They understand the importance of preserving the integrity of their world, and so they have developed practices to minimize their impact on the environment. Streams are diverted gently to irrigate small plots of crops, which are tended in raised beds made from compacted earth and decorated with stones arranged in intricate patterns. These gardens are a testament to their ingenuity and dedication, thriving even in the saturated soil that can otherwise be overwhelming.
+
+In their daily lives, the Hollowfolk move with a quiet urgency, their steps light to avoid disturbing the ground. They know that beneath their feet, the earth is shifting, and every action carries consequences. The hollow itself seems to speak to them, its weeping rocks and murmuring waters guiding their decisions. They listen carefully, interpreting the subtle changes in the terrain, the shifting flow of rivers, and the way the light dances across the mossy slopes.
+
+### Fauna and Wildlife
+
+The fauna of Verdigris Hollow is as strange and adaptive as the landscape itself. Small, glowing insects hum softly in the dim light, their luminescence casting a faint, eerie glow over the marshes and mossy patches. These creatures, known as *lumifex*, are sacred to the Hollowfolk, who believe them to be emissaries of the hollow itself. They are hunted sparingly, only when food supplies are low, as the people believe that harming them too often could upset the balance of the hollow.
+
+Burrowing mammals, covered in thick fur to ward off the damp, are among the most common animals in the hollow. These creatures, known as *claybacks*, create their nests deep within the earth, their tunnels weaving throughout the landscape. The Hollowfolk occasionally dig for claybacks, using carefully crafted traps and tools, but they do so with respect and gratitude, knowing that these animals play a vital role in maintaining the soil’s structure.
+
+Birds with broad, sweeping wings patrol the skies above the hollow, their soft calls echoing through the stillness. These birds, known as *mistwings*, are known for their ability to navigate the constant mist and low light. The Hollowfolk revere them, believing that the birds are connected to the hollow’s spirit and guide them through the fog when visibility is poor.
+
+### The Hollowfolk’s Mystical Connection to the Hollow
+
+There is a subtle but palpable sense of something *otherworldly* in Verdigris Hollow, a strangeness that permeates the air and seems to seep into the very souls of the Hollowfolk. Rocks shift overnight, rivers carve paths that defy logic, and the light changes in ways the Hollowfolk cannot fully explain. These phenomena have instilled in them a quiet reverence for the hollow, a belief that it is alive and sentient in its own way.
+
+The Hollowfolk do not speak of these occurrences openly, but they are acutely aware of them. They believe that the hollow is a living thing, its boundaries constantly shifting and reshaping as it explores new possibilities. This belief influences their actions; they are careful not to disturb the hollow too much, knowing that its moods can shift unpredictably. They have developed rituals to honor the hollow, small gestures of respect and gratitude that are performed daily. These rituals include offerings of food and water to the rocks, prayers sung in the stillness of early morning, and the careful tending of the gardens.
+
+The hollow’s strange qualities also extend to the people themselves. Many of the Hollowfolk report strange dreams and visions, visions of the hollow as it existed before it was shaped, or of its future as it continues to evolve. Some believe that the hollow speaks to them in these dreams, guiding them in their decisions. Others dismiss these visions as figments of an overactive imagination, but even the most skeptical among them cannot deny the strange pull of the hollow on their minds and hearts.
+
+### A Community Bound by Necessity and Wonder
+
+The Hollowfolk are bound together by a shared sense of purpose and responsibility. Their survival depends on their ability to work in harmony with the land, and so cooperation is a cornerstone of their society. Families and clans work together to build and maintain their structures, to tend to the gardens, and to hunt for food. There is little room for conflict, as the hollow demands their full attention and devotion. However, there is also a deep appreciation for individual contributions, and skilled artisans and hunters are respected and celebrated.
+
+The Hollowfolk’s way of life is not one of luxury, but it is one of resilience and ingenuity. They have learned to thrive in a world that is both fragile and unpredictable. They are not masters of their environment but participants in its dance, their lives shaped by the hollow’s constant motion and change. In this way, they are not merely inhabitants of Verdigris Hollow—they are a part of it, their existence intertwined with the land’s own rhythms and moods.
+
+### The Hollow as a Character
+
+Verdigris Hollow itself is a character in this story, a living, breathing entity that is both nurturing and demanding. It is a place of beauty and strangeness, where the boundaries between the natural and the manufactured blur into a single, cohesive whole. It is saturated with life, yet fragile in its youth, constantly reshaping itself under the forces of water, erosion, and time.
+
+To the Hollowfolk, the hollow is both home and guide. It is a place of mystery, where the rules of nature are still being written and where the familiar gives way to the strange. It is a place of quiet tension, where the air whispers secrets of its own making, and where the only constant is change. And yet, despite its strangeness, there is a sense of belonging, a feeling that the Hollowfolk are exactly where they are meant to be, in this cradle of a newly birthed landform, living and breathing in harmony with the hollow that has shaped them.
+
+In Verdigris Hollow, life is a delicate balance between survival and wonder, a testament to the resilience of both the people and the land itself. It is a place where the past, present, and future are intertwined, where every decision carries weight, and where the only certainty is the ever-present hum of the hollow, the mournful song of a world still searching for its place in the universe.

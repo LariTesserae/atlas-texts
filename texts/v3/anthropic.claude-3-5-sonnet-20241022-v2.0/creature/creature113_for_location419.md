@@ -1,0 +1,17 @@
+In this place, there lives a civilization of beings who are neither fully physical nor purely ethereal - the Droplet Tenders. They manifest as shimmering distortions in the air, like heat waves given consciousness, becoming briefly visible as crystalline forms when they interact with the water droplets that are central to their existence.
+
+Each Tender is a collective intelligence, a chorus of thousands of minute awareness-points that flow together and apart like schools of fish in air. They move through their moss-city by flowing along the moisture paths, their consciousness spread through multiple droplets at once. When they gather, they create subtle patterns in the condensation that serves as both their art and their language.
+
+The Tenders' primary work is maintaining the perfect moisture balance of their realm. They guide each droplet's formation and journey with infinite patience, their movements so slow they might spend what we'd call years shepherding a single bead of water from spire to pool. This is not tedium to them, but meditation - each droplet's path is unique, a story told in miniature.
+
+They share consciousness with the moss itself, not directing its growth so much as participating in its dreams. The architectural forms of the moss-city are the physical expression of their collective imagination, shaped over centuries through the gentle suggestion of water and light. The apparently random patterns of lichen are actually their historical records, written in living tissue.
+
+The insects that move through their realm are their partners in maintenance, though the creatures don't know it. The Tenders subtly influence their movements through minute changes in humidity and chemical signals, creating living maintenance crews that keep the moss-city's systems in balance.
+
+Some Tenders are ancient beyond measure, their distributed consciousness spread so wide they encompass entire sections of the city. Others are young, just learning to hold their form in a single droplet. They don't reproduce so much as gradually accumulate, forming spontaneously from the interaction of water, light, and the living awareness that permeates their realm.
+
+They have no concept of death as we understand it. When their physical forms disperse, their awareness simply rejoins the greater consciousness of the place, eventually re-coalescing in new patterns. Time for them is measured in geological scales - the wearing away of stone, the slow spread of moss, the gradual accumulation of memory in the very minerals of their home.
+
+The strange, sourceless light of their realm is actually their perception bleeding into our reality - we're seeing a tiny fraction of how they experience the world, a constant interchange of information carried by photons bouncing between water molecules. Their entire city exists in a kind of quantum suspension between states, maintained by their collective observation of it.
+
+To them, humans are like weather - rare, dramatic events that pass through their awareness occasionally, creating ripples in their perfect stability that take centuries to settle. They neither seek contact nor avoid it; we exist on too different a scale for meaningful interaction. Yet they are aware of us, and sometimes, when a human sits very still in their realm, they might expend a few decades worth of effort to arrange a pattern of droplets that, just for a moment, catches the light in a way that makes their existence fleetingly perceptible to our crude senses.

@@ -1,0 +1,19 @@
+They are not citizens so much as weather made conscious—if consciousness here is the right word, scattered like seed across the flat dish.
+
+You do not meet them one by one. You enter them.
+
+The winged ones come first, though they are never alone: translucent membranes of flesh stretched over hollow bone-structures too delicate for gravity, drifting through the golden-filtered air inside the spires not as birds but as living pollen-storms. They do not land; they adhere to the vascular walls, merging briefly with the translucent membranes, feeding some hum back into the plant-tissue in exchange for warmth and upward-flowing mineral water. Their bodies are loud—choral, vibrating at frequencies that make the root-stone ridges outside tremble in sympathy. You feel them in your teeth before you see them, a pressure like a held note.
+
+Beneath them, or through them, crawl the swimmers: not aquatic, despite the omnipresent water, but air-breathers with gills like wet silk that draw moisture directly from the humid breath of the place. They move across the spongy substrate and up the curved interiors of the hollow spires in slow, undulating columns, translucent as river-glass, leaving trails of bioluminescent slime that dries only to be wept back into life by the ceiling’s constant condensation. They are the architects of the hollow spaces—not builders in any human sense, but excavators by symbiosis, secreting enzymes that soften the vascular tissue from within, encouraging the spires to grow around absence, to become chambers larger than their shells promise.
+
+But the true inhabitants—the ones who have settled this ancient stable state—are the populations that have no boundary.
+
+There are the choral organisms: not individual voices but distributed throats embedded in the very vein-canals of the spires and in the bubble-substrate of the flat marsh. They hum continuously, not in melody but in equilibrium, a bass drone that regulates the growth cycles. When the spires begin to collapse inward, the hum shifts, slows, and the regeneration accelerates; when new hollow chambers open, the frequency brightens. They do not speak. They maintain. They are the invisible technology made audible—intelligence dissolved into growth pattern, into the upward rush of warm water through living pipes.
+
+And then there is the substrate itself, which is not dead ground but a kind of distributed body: the spongy membrane that breathes, bubbles, exudes. Within it live the smallest, the oldest—microscopic symbionts so ancient they have forgotten single existence, existing only as colonies that think in chemical gradients. They determine where the ridges wear smooth, where the water pools in trembling lenses, where the next spire will hollow itself out of compressed root-stone. They are the settlement’s memory, compressed into flatness, ensuring that nothing ever slopes, nothing ever falls into hierarchy.
+
+Together, they form an urban ecosystem with no center.
+
+The density is low not from scarcity but from agreement: the spires stand far apart because each one contains multitudes, and the streets between them—those long minutes of knee-deep warm water and floating moss—are not empty but filled with the absence that allows turbulence to breathe. You walk through them and feel watched not by eyes but by presence, by the constant motion of populations that do not need you, do not acknowledge you, yet include you in their equilibrium. The fauna swarms loud and turbulent around you, through you; the swimmers brush your form like warm mist; the choral hum adjusts imperceptibly to your warmth, incorporating your breath into the substrate’s exhalation.
+
+They live here by being the place itself—ancient, regenerated every moment, scattered across the flat weeping world in pillars of hollow tissue, singing the old stable state into perpetual, impossible peace.

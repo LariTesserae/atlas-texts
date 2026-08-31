@@ -1,0 +1,3 @@
+In the world you describe, many mysterious creatures move with unexpected intentions. The nearby Inferenorin (a member of a wormlike race) is attempting to destroy a fungal formation by spitting upon it a pellet of collected condensate residue. These pellets harden upon contact, needing weeks to unseal a filtering station they plug. 
+
+However, the fungi have recently developed formations to pass through plugged stations of "hyraham", a fluffed-up mass of maggot-like tendrils that hang as tapestries. The worms often sniff at the plug attempting to perhaps learn details about its insides. Occasionally, the fungal material farts when tasted because their insides can become hauntingly green sometimes, porifering layered commutes.

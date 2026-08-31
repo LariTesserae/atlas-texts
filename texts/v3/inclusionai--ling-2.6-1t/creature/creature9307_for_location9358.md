@@ -1,0 +1,23 @@
+They do not arrive; they condense.
+
+In the basin, life is less a lineage than a sedimentation. It begins as rumor—heat lingering in the grammar of compression—and accretes into form. The first fauna are not born so much as revealed: beetles whose elytra are not shells but salvaged bearings, polished by endless friction into lenses that focus the bruised light. They move in clicks that are less sound than calibration, mapping gradients too subtle for nerves, feeding on the spark-gap between should-be and is. When they mate, they interlock gears and exchange shavings; their offspring hatch as perfect, miniature replicas already rimed with the basin’s signature frost.
+
+Lower, in the medium that has ceased to be water, eel-things braid themselves into wet wiring. They have no eyes because light here is a downward thing, and they prefer to read by conductivity. Their skins are sheaths of enamel and oxide, segmented like old cables, and they pulse with borrowed current, storing voltage in fatty knots that glow faintly blue. They do not swim so much as translate, slipping from conduit to conduit, stitching breaches with their own bodies, metabolizing resistance into a slow, sweet nectar that pools in the crooks of elbows and valves.
+
+Above, the winged scavengers ride the thick air on leather pinions rimed with hoarfrost. These are not birds but arguments against falling—membranes stretched across frames of stamped iron, jointed with rivets that weep brine. They snatch flakes of grease from sagging belts, pluck frozen sparks from the surface of the mire, and carry them to nests woven from shredded insulation and hair-fine copper wire. Their young are born with teeth like drill bits, already spinning, already hungry for the soft metal of the world.
+
+Where machines breathe, mites colonize. They are pale, multilegged commas that live in the throats of valves, cleaning carbon from surfaces that never cough but still accumulate memory. In return, they taste the pressure changes before they happen, and their collective shivering warns the larger fauna when a surge is coming. They are the basin’s immune system, its nervous system, its gossip.
+
+There are larger things, too, half-buried in the composite floor, fused into the layered padding of slag and bone-dust. These are not animals but animalities—slow, tectonic metabolisms that mistake themselves for hills. They shift by millimeters over years, exhaling gases that pearl into brine on the ribs of forgotten scaffolds. Beetles graze on their sweat; eels braid into their capillary cracks; scavengers pick at the leavings of their slow digestion. Occasionally, one raises a ridge, and the basin learns a new contour.
+
+Then there are the symbioses that span kingdoms. Colonies of crystalline films—industrial lichen without DNA, only repetition—grow across the carapaces of beetles, turning them into walking gardens of dendritic frost. The beetles benefit from the insulation; the films benefit from the motion, which seeds new fractures for colonization. Winged scavengers carry mats of these gardens on their backs, dropping them in the wetter places, where they petrify oil into amber lattices and stitch torn metal into lace.
+
+Even the predators wear the marks of their prey. Hunters with skins like chainmail, metabolisms tuned to feast on rust and grease, trail sparks from their claw-tips. They hunt by listening for the subsonic thrum that says a machine is remembering how to work, and they bite to drink the potential, not the blood. Their digestion is a fire that does not burn; it anneals, turning stolen iron into harder edges, which they later shed as teeth, which later become beetles.
+
+And there are things that are not fauna so much as events: swarms of mirrored mites that ride waves of condensation, assembling into temporary shapes that mimic machines that never existed, only to dissolve back into grit when the tide of density shifts. There are beasts that live entirely in the sound, bodies made of standing waves in the thick air, visible only as distortions in the haze, feeding on the harmonics of alarms that forgot why they were set.
+
+Life here is not a tree but a braid. It loops back on itself, merges with the mineral, the industrial, the weird. Beetles become bearings; eels become cables; scavengers become weather. The basin drinks from its own leaks, sings in the language of fracture, and teaches its inhabitants new ways of being dense, of being loud, of belonging.
+
+In the end, you realize the fauna are not in the valley.
+
+The valley is in them.

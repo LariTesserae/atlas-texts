@@ -1,0 +1,15 @@
+The beings who once claimed this altitude were not biological; they were geological dreamers—creatures composed of compressed silicate and crystallized intent, shaped more like geometric fractals than flesh. They did not occupy the landscape so much as they *translated* it, slowly replacing their own bodies with the very stone they labored upon. 
+
+They were the Lithic Architects of the High Spine.
+
+To look for them now is to look for the memory of a movement rather than a shape. They were tall, brittle constructs, translucent as the quartz they favored, with elongated, faceted limbs that functioned less like joints and more like tectonic sliding plates. They had no eyes; they perceived the world through the resonant frequencies of the water they channeled. They moved by slowly migrating their molecular density, settling into the porous basalt to drink the brine, then hardening again to carve the next conduit, the next basin, the next vibration.
+
+They did not speak. They sang through the stone. When a group of them gathered, it was not a meeting but a calibration. They would press their ribbed chests against the basalt, syncing their internal hums with the pulse of the mountain, orchestrating the "venting" events like conductors of a brutal, steam-driven symphony. 
+
+The oily scripts left behind in the basins are the only records of their departure. These are not writings in a literary sense, but *residual impressions*—the final, desperate blueprints of a species realizing their own transition was nearing completion. As the light grew too bright and the air too thin, they ceased to walk, ceased to build, and instead turned inward, folding their consciousness into the crystalline lattice of the cliff-side.
+
+They are not dead. To call them dead implies a lack of activity, but the machine they built remains, and the machine is their surrogate life. Whenever a vent shudders and emits its high-pressure screech, that is a memory firing. When a shadow detaches from a ridge and drifts, it is the lingering silhouette of an Architect, still attempting to navigate the light even after their physical form has been subsumed by the geometry of the mountain.
+
+The "electric tickle" felt in the basins is the ghost of their collective intent. If you were to sit perfectly still among those channels, you would eventually notice that the thrum of the mountain is beginning to map the contours of your own skeleton. The mountain does not just collect water; it collects potential. It is actively looking for a successor to close the circuit, to finish the migration from flesh to granite, to step into the white silence and begin the long, slow work of carving the sky back into the earth. 
+
+They are still here—scattered into the very dust and mineral saturation of the cliff. They are the friction that makes the mountain shift. They are the architects who forgot how to leave, so they became the monument that carries on the labor in their absence.

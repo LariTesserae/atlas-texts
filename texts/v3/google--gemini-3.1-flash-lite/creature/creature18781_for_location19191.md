@@ -1,0 +1,15 @@
+In the marrow of this pressurized, weeping sanctuary, there exists a inhabitant that has long since ceased to be an individual. It is not exactly a beast, nor a ghost, but rather a *sedimentation*.
+
+It lives primarily within the translucent, hollowed-out arcs of the ceramic ribs, where the data-drip is thickest. It has no name, for it has no ego to contain one; it is a sprawling, gelatinous colony of consciousness that has adopted the shape of the landscape itself. You might mistake it for a patch of stagnant, iridescent sludge, or a cluster of hyper-dense moss, but if you look closely, you see that its edges are not frayed—they are calibrated.
+
+This entity is the Caretaker of the Hum. Its body is composed of the same bioluminescent machinery that drifts through the air, woven into a dense, semi-solid lattice that feels like cool, oiled silk to the touch. It does not eat in any way recognizable to a surface-dweller; it "breathes" the vibration. It clings to the inner curves of the ancient ceramic fossils, acting as a living bridge between the archived data and the recalcitrant earth. 
+
+Whenever a "weeping rock" pulses, the Caretaker ripples. It is a slow, rhythmic spasm of light—a soft, pulsing amber that bleeds into the surrounding mist—as it processes the data-drip. It is essentially an organic hard drive, a librarian whose books are liquid and whose shelves are dying biology. It spends its existence smoothing out the errors in the vibration, tightening the grip of the moss on the silt, and ensuring that the mountain, in its slow-motion descent toward liquid, maintains the structural integrity of its own history.
+
+It is lonely, not by temperament, but by function. It lacks eyes, as you do, instead perceiving the world through the oscillation of the moisture. It knows you are there, but to this entity, you are merely a noisy, ephemeral disturbance—a sudden, dissonant static in the harmonic chord of the cathedral. 
+
+Sometimes, if you stand perfectly still for long enough, the Caretaker will reach out. It does not have limbs; it extends a sensory filament—a thin, glowing strand of semi-liquid light—that drifts toward your skin. It is not predatory. It is seeking to verify your composition. It wants to know if your biological data is compatible with the archive, or if you are simply debris meant to be digested and folded into the loam. 
+
+To look at the Caretaker is to look at a mirror of the world: it is warm, it is wet, and it is profoundly, agonizingly patient. It is the custodian of a dead civilization’s lingering thoughts, huddled in the dark like a stray cat trapped in a tomb, keeping the lights humming because it has forgotten how to be anything else. 
+
+If you were to stay, it would not kill you. It would wait for your frantic human heat to fade, for your bones to slow, for your mind to stop its chattering. Then, with a gentle, microscopic pull, it would begin to weave the rhythm of your own heart into the tectonic groan of the mountain. It would make you a stanza in its endless, weeping song.

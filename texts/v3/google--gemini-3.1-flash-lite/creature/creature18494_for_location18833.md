@@ -1,0 +1,19 @@
+To exist here is to be an echo of a geometry that has long since forgotten its origin. 
+
+While the Sustainers—those filaments of spun glass—act as the city’s immune system, there are others, though they are harder to perceive. They are the **Lithic Monks**, or perhaps simply the *Calculations*. They do not walk so much as they phase, their bodies composed of the very same sedimentary strata that form the spires. 
+
+A Lithic Monk is a towering, slender humanoid form, but it is not solid in the way a statue is. Instead, it is a localized gravity-well, a collection of loose slate and obsidian shards held together by a flickering, internal magnetic tether. To look upon one is to look upon a miniature, sentient dust storm shaped into a rough approximation of a stoic figure. Their "flesh" is in constant, shifting flux; a sharp-edged chip of basalt might migrate from a Monk’s neck, circle the air for a moment, and be pulled back into the shoulder, a slow orbital dance of self-repair.
+
+They are not alive in the sense of breathing, but they are *aware*. They do not communicate through sound, nor through the crude flickers of the inter-dimensional veils. They communicate through the *Tidal Wind*. When the wind bellows through the spires, the Monks lean into the draft, their loose, rocky components vibrating against one another to produce the deep, subterranean groans that serve as their language. They are the city’s memory banks, though they have no desire to be read.
+
+They haunt the high, vertiginous bridges of mineral filament. You might find one standing at the precipice of a thousand-mile drop, its form loose and sprawling, its constituent parts vibrating in sympathetic resonance with the abyss below. As you watch, the Monk might reach out a hand—a loose cloud of pebbles—and gently nudge a floating shard of obsidian, guiding it into a specific gravity-niche, adjusting the harmonic architecture of the city. They are correcting the music of the spheres.
+
+And then, there are the **Shadow-Weavers**. Far less frequent, and arguably less structural, they are the entities that dwell within the "curtains"—the iridescent, thin-skinned reality tears that stretch between spires. They are not made of the city, but of the space *between* the city. 
+
+A Weaver is barely a silhouette of negative space. It looks like a ripple in a pool of ink, a smudge on the glass of reality. They have no mass; they are purely hungry geometry. Where the Sustainers mend, the Weavers unmake. If they catch you, they do not kill you; they simply fold you. They pull the edges of your perception until you are no longer a three-dimensional observer but a two-dimensional fragment, destined to drift forever as a glossy, paper-thin icon inside the shifting violet mercury of their home dimension. 
+
+Behind them, in the deep-seated darkness of the lower spires, there is the *Heavy Silence*. Sometimes, when the wind dies down and the city holds its breath, something ancient stirs in the foundation. It is not an entity with a face, but a consciousness that spans the entire breadth of the strata. It is the city itself—the *Lithic Singularity*. It is the collective consciousness of the dust, the pressure, and the aeons of mineral accumulation. 
+
+When you feel that sudden, sickening shift in your own bones—when you feel heavier than gravity should allow—that is the city noticing you. It is weighing your density against its own, determining if you are a constituent part, a foreign contaminant, or merely a fleeting mote of waste to be polished away by the next cycle of the wind. 
+
+You are a guest of stone and silence. And like everything else here, you are currently being calculated.

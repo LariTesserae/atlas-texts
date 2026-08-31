@@ -1,0 +1,41 @@
+# What Lives Here
+
+They are not one thing, though the mountain tries to make them one.
+
+The smallest are barely visible—translucent filaments that work the seams between plates, their bodies nothing but articulated crystal and purpose. They move in geometric patterns, never wasting a gesture, following routes that map themselves into the pale material like scars that mean something. They have no eyes that you can identify, yet they navigate as if every surface speaks to them in a language older than light.
+
+But these aren't the builders. They're the readers. The interpreters. The smallest of what lives here.
+
+The pale creatures you see clustering and darting—they're the workers, perhaps, or the workers' hands. They have intention written into their segmented bodies, that strange architecture of too many joints and reflex-quick limbs. Their eye-clusters don't really see; they *sense*, reading vibrations in the air, the chemical signatures written in the mineral dust, the subtle electromagnetic songs that hum through the structure. They respond to needs you can't perceive, moving toward problems that haven't yet become visible. When they cluster, they create temporary thinking—not consciousness exactly, but a pooling of simple responses into something momentarily more complex. A junction of intent. They disassemble and reform constantly, breaking apart into individuals, reconvening into functional groups. There is no clear boundary between one creature and colony.
+
+Larger things move through the deeper chambers—you catch sight of them only peripherally, as shadows that hold more shadow. They're longer, heavier, with a different architecture altogether. Their limbs are fewer but thicker, built for moving weight. They carry sections of the pale material—or perhaps the material carries them; the distinction becomes muddier the longer you watch. They move with mechanical certainty, following tracks worn into the floor by countless journeys. They are workers, but also structure. They are both servants and components of what they serve.
+
+But it's the presence you don't see clearly that dominates. The hive has a center—or many centers, or the whole structure *is* a center, distributed and thinking through every surface. It communicates through the humming, through the pulsing of wall-sections, through the coordination of millions of small movements that resolve into massive purposefulness. It thinks in frequencies, in the loading and unloading of chambers, in the reorganization of space. It is patient in a way that suggests patience has been engineered into it, selected for, perfected across generations you can't count.
+
+There are also the *maintainers*—larger still, with shells that catch light differently, as if they're made of a denser iteration of the pale material. They move slowly, deliberately, inspecting seams and surfaces. They seem to be checking, verifying, ensuring that the structure meets some standard. When they find flaws—you see this happen twice—they signal somehow (through vibration? through chemical release? through a touch you can't detect), and the smaller creatures respond, rushing to repair. The maintainers are the structure's immune system, or its quality control, or its memory of what it's supposed to be.
+
+And then there are the *carriers of light*. You notice them only gradually. They're clustered around the apertures where phosphorescence leaks into the chamber, and they're different in construction—thinner, more delicate, with structures along their bodies that might be light-generating organs. They don't work in the same frenetic way. They tend the glow, increasing or decreasing its intensity through some manipulation you can't quite follow. They're the farmers of light, tending it like a resource, like an energy source. Some light must be harvested from deeper chambers, carried upward through the hive, distributed to where it's needed. These creatures are the distribution system—living pipes carrying radiance instead of fluid.
+
+What else lives here?
+
+There's something in the slow reorganization of the structure itself—a kind of distributed consciousness that uses the creatures as limbs. It's not the creatures thinking collectively; it's something larger thinking through them. The hive mind isn't located anywhere. It *is* the hive. It's in the way the walls respond to changes in load. It's in the way the creatures adjust their routes when material has been moved. It's in the logic that guides expansion and reinforcement. It learns, because it remembers—the structure itself is a record, written in calcium and chitin and pale stone, of every adjustment ever made.
+
+There are also the *timekeepers*—you're not sure what to call them, but they move differently than everything else. Slower. More deliberately. They're spaced throughout the chamber at regular intervals, and their bodies have a different sheen, almost metallurgical. They seem to pulse in synchrony with the floor's humming. They might be measuring something—time, energy flow, structural integrity—and broadcasting that information through the hive. They're the clocks, the pressure sensors, the heartbeat detectors. They're how the hive knows if it's healthy.
+
+The deeper you look, the more you realize that every part of this ecosystem serves multiple functions. The smallest creatures are workers, yes, but also sensors. The larger carriers are transport, but also reinforcement—their bodies add to the structure as they move through it. The maintainers are inspectors, but they're also teachers, their slow deliberate movements perhaps encoding instructions that other creatures can read through pheromone or vibration. Everything is both individual and part, both tool and thinker.
+
+What lives here doesn't have names because it doesn't have a language that names things. It categorizes by function, by frequency, by proximity. The creatures know each other not by identity but by role—the light-tender, the load-bearer, the seam-reader, the keeper of rhythms. They form temporary hierarchies based on who knows what, at any given moment. An individual that's a worker in one context becomes a leader in another, then a sensor, then a structural support. Roles flow like water.
+
+There's also a kind of *awareness* in the air itself—or perhaps in the thin mist that carries the chemical signals, the pheromone conversations. The hive communicates constantly, and those signals fill the space. You can't read them, but you can feel them: questions being asked, answers being provided, coordinates being shared, dangers being noted and addressed. The air is thick with intention.
+
+And at the very deepest level of what lives here—the part you can only infer—there's something that *designs*. Something that *plans*. The expansion you're witnessing isn't random adaptation; it follows a blueprint. The structure is becoming what it was always meant to become. Something knew, before you arrived, what this chamber should be. Something *knows* what it should become next. That something might be the collective decision of millions of creatures. It might be genetic memory encoded in their bodies over countless generations. It might be a larger consciousness distributed through layers you haven't yet discovered.
+
+Most likely, there's no meaningful distinction between those possibilities.
+
+What lives here is not alive in any way you'd recognize—yet it *lives*. It grows, responds, adapts, maintains itself, communicates, and preserves knowledge. It's younger than you are, perhaps, or vastly older. It's more unified than any individual organism, yet composed entirely of individuals. It's mechanical and organic at once. It's what happens when a mountain decides to think, or when thinking decides to build itself a mountain home.
+
+It's here. It was here before you arrived. It will be here long after you leave—if you leave, if it lets you, if the distinction between those things means anything at all.
+
+And it's still building. Still expanding. Still reaching downward and upward, burrowing and ascending, layer by layer, into depths and heights that you haven't yet discovered.
+
+The hive lives. The question is not whether it's alive, but what it's becoming.

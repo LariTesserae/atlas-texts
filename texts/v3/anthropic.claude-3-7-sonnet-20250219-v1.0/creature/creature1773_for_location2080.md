@@ -1,0 +1,23 @@
+# The Vesh: Builders of the Living City
+
+The Vesh dominate the spires of Vesh-Ka, but they are far from a monolithic species. They exist as a complex society of specialized castes, each evolved for specific functions within their living architecture.
+
+The Builder-Caste are the largest, with abdomens that swell with resin-producing glands. Their four anterior limbs end in delicate manipulators capable of extruding and shaping the waste-resin with microscopic precision. Their hindmost limbs anchor them securely to vertical surfaces as they work. They communicate through rhythmic abdominal contractions that send vibrations through the resin, coordinating massive construction projects without a single vocalization.
+
+The Navigator-Caste possess the most developed wings—four translucent membranes that span nearly two meters when fully extended. Their bodies are slender and lightweight, with enlarged compound eyes that perceive a spectrum of radiation invisible to most species. They soar between spires, riding thermal currents with unnerving precision. Their primary function is mapping and memorizing the ever-changing architecture of Vesh-Ka, storing this information in specialized neural clusters that glow faintly beneath their cranial plates.
+
+The Chemist-Caste are perhaps the most alien in appearance. Their bodies are bulbous and asymmetrical, with specialized glands that can synthesize hundreds of different resin compounds. Their touch can harden fresh resin in seconds or dissolve sections of wall that are no longer needed. They are blind, navigating entirely through chemical receptors that cover their bodies. The amber fluids within them shift and separate like oil in water as different compounds are processed and combined.
+
+The Historian-Caste are small and ancient, rarely seen by outsiders. They tend to the ancestral remains embedded within the resin walls, extracting and preserving genetic material through a process involving their elongated proboscises. They are the memory of Vesh-Ka, capable of accessing information stored in the very structure of their city. They appear frail, with translucent bodies that have atrophied wings, but they are perhaps the most revered caste among the Vesh.
+
+Connecting all these castes is the Resonator-Caste, whose bodies function as living communication nodes. They position themselves at structural junctions throughout the hive, their abdomens expanded into hollow chambers that amplify and transmit vibrations. Through them, information flows across the entire city in waves of precisely modulated frequencies that ripple through the resin architecture.
+
+The Queen-Caste exists in deep chambers at the core of the largest spires. Unlike insect queens, they are not merely reproductive organs—they are massive neural processors, their bodies grown into the very structure of the spire itself. Each is physically unique, adapted to the specific needs and environmental conditions of their spire. They coordinate the overall activities of their respective domains through chemical signals carried by the Messenger-Caste—tiny flying Vesh who shuttle between the Queen and the outer reaches of the hive.
+
+Most numerous are the Tender-Caste, who cultivate the crystalline growths that serve as both food source and environmental regulators. Their bodies produce specialized enzymes that stimulate crystal growth and direct its form. They work in synchronized groups, their movements creating hypnotic patterns as they harvest mature crystal segments and implant new growth sites.
+
+The Vesh reproduce through a complex process involving multiple castes. The Queen produces base genetic material, which is then modified by the Chemist-Caste and incubated within specialized chambers where temperature, vibration patterns, and chemical exposure determine which caste the larval Vesh will develop into. This allows the hive to adjust its population composition based on current needs.
+
+What appears to outsiders as instinctual behavior is actually a sophisticated form of distributed cognition. No single Vesh possesses what we would recognize as individual intelligence, yet collectively they solve complex architectural, environmental, and social problems through their networked consciousness. The entire city is their shared mind—a vast, living computer built of biological components.
+
+The Vesh have no concept of self as separate from their collective. They do not fear death as individuals; when a Vesh reaches the end of its functional life, it will climb to specific decomposition chambers where its body will be broken down and reincorporated into the hive. Nothing is wasted; everything cycles eternally through the living system of Vesh-Ka.

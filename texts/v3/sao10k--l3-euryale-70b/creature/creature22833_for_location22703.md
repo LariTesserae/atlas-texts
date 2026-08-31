@@ -1,0 +1,11 @@
+Cygnus hums with vibrational life, both mechanical and organic. Its island heart pulses with exhalations from the unseen undergrowth - soft thrumming emanating from towering structures that seem to power the very substrata of the city. Pearly waves lap gently against the taperingly glass windows, reflecting back ghostly mirrorings of civilization.
+
+Peculiar entities scuttle through Cygnus' winding corduroy causeways. Tantechs and reliefs adorn every surface, telling stories of the city's history etched into its skin for all to see. Curious contraptions like ditch-dens and cullverts occupy axial spaces between buildings. Spondaesy konstruction marks irregular architecture diverting purposeful water flows. Gaugemenders monitor levels while spilto tanks store excess.
+
+Subterranean hydroflos periodically flush the experimental layout at unknown intervals - an augmented plumbing system working behind the scenes. Minnow-swollops burst forth violently from shoreward vents during these purges, startling those watching from above.
+
+Avian creatures murmer strangely against panes overhead - mage hung gaggle-gibbets creaking in stray breezes. A tri-headed shambo operates under mechanical legs powered by rumbler gears - peering at passerbys through exoscopic oculars, wiping palms on a bathister-wrung hauberk. Another misshapen figure clatters onto rooftops on vantbrass limbs braced by screw-leaved vanes and plinters, brandishing some manner of flight orbitor drone weapons.
+
+An elderly valkyrie perches atop an ermagerd dolmen, polishing her aviator helmutte as she surveys domino-tiled fountains below whirring their vague hymns...while a hatchkit drops sleek cyphermen khojikin upon an armored mount descended from crenellated parapet walls...eckxceptional sight in this strange conurbation!
+
+From my vantage point surveying this jumble of organic life supported by vibrating mechnichal pulsion systems, it seems clear that Cygnus teems with hybrid vigor - a place where biological beings coexist symbiotically amidst throbbing engines and bubbling waters, surrounded by peculiar devices practicing whom they were wrought to serve. The hum builds into a roar as I peer deeper into its depths!

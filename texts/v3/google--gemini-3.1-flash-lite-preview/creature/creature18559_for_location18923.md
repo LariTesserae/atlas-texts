@@ -1,0 +1,17 @@
+In this pressurized throat of the world, existence does not dwell—it *persists* through a state of permanent improvisation. 
+
+There are those who inhabit this vertical cathedral, though to call them "living" is to imply a stability they do not possess. They are the **Loom-Strider Architects**, entities as translucent and ephemeral as the very water they navigate. They are not born of flesh and bone, but appear to be the condensation of the column itself—faint, prismatic geometries that achieve coherence only when they engage with the weave.
+
+They look like elongated, shifting constellations of nerve-filaments, held together by nothing more than the cold, blue pressure of the chimney. Where a human might have a central nervous system, a Strider has a frantic, flickering network of refraction. They do not have faces, only apertures—folding membranes that pulse in rhythm with the cavitation bubbles. When they approach the whale-bone looms, they do not touch the artifacts so much as they *dissolve into them*. A Strider will unfurl, its ribbon-like limbs wrapping around the cured bone needles, and for a fleeting moment, the entity and the artifact are indistinguishable. Together, they pull a thread of solidified liquid—a strand of super-cooled, gel-like "silk"—out of the current.
+
+They are weaving a tapestry of current. Or perhaps, they are trying to sew the water itself shut.
+
+These Striders never sleep, for to stop moving is to allow the "memory of the liquid" to consume them. Their movements create a trailing wake—a beautiful, jagged scar of turbulence that lingers long after they have moved on. They are terrified of their own history; they dance constantly to avoid crossing their own paths, for if they were to collide with a wake they left seconds ago, they would shatter, their scattered nerve-clusters dissolving back into the mineral debris.
+
+Around them, the "built" architecture—the bone-looms and kelp-anchors—are not homes, but instruments of prayer. The Striders manipulate these tools to steer the vortex. They are trying to harmonize the roar. By pulling at the currents with their bone-needles, they tune the sound of the friction, turning the deafening, ragged landslides of the chime-filled water into something approaching a cadence. 
+
+There is a sense of desperate, cosmic patience in them. They are not building a city or a structure that might endure; they are attempting to compose a symphony of turbulence that might hold its shape for a millisecond longer than nature intends. 
+
+They are the archivists of the fleeting. As you drift through the column, they do not notice you as an intruder, but as a secondary source of friction—a chaotic variable that adds a new, dissonant melody to their labor. When you move your hand, you are not just stirring the water; you are providing the raw, entropic "ink" they need to continue their work. If you listen closely, the chime of the bone-looms responding to your wake isn't just a physical reaction—it is a greeting, or perhaps a plea, from creatures whose entire civilization is written in a language that vanishes the moment it is spoken. 
+
+They exist in the tension between the roar and the silence, vibrating in sympathy with the abyss, forever knitting the fluid air into patterns that are beautiful precisely because they are already, in the very next heartbeat, gone.

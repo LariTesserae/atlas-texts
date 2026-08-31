@@ -1,0 +1,29 @@
+# What Lives in the Hollow Under Arasheed
+
+The Hollow has a keeper, though "living" may not be the precise word for what she does there. Her name is Merra, at least that's the name she remembers most clearly from the fragments of her past. She was once a maintenance engineer for Arasheed's water systems, descending here decades ago to repair a persistent leak. She never officially returned to the surface.
+
+Merra appears as a tall, thin woman in her fifties, though her actual age is impossible to determine. Her maintenance uniform has faded to a colorless gray that sometimes seems to absorb rather than reflect the emergency lighting. Her skin has taken on a translucent quality similar to the hollow mice, with faint blue luminescence visible beneath when she moves through the darker corners of the chamber. Her hair floats slightly, even when there is no breeze, as though perpetually underwater.
+
+She speaks rarely, and when she does, her voice has the quality of distant machinery – rhythmic and measured, with occasional skips like a damaged recording. She can be seen most often at the control station, making minute adjustments to levers that respond to her touch but remain frozen for any other visitor. The gauges react to her proximity, needles shifting in patterns that correspond to the movements of the crustaceans on the walls.
+
+Merra is not alone in tending to the Hollow. A being she calls the Conduit assists her, though visitors disagree on its appearance. Some describe a humanoid figure composed entirely of the viscous not-quite-water that pools on the floor; others see only a distortion in the air, like heat rising from pavement. The Conduit moves through walls and pipes as though they aren't there, often returning with objects that couldn't possibly exist in the chamber: outdated maintenance logs, tools that serve no recognizable purpose, occasionally personal effects belonging to visitors before they've been lost.
+
+Together, Merra and the Conduit maintain what they call "the equilibrium" – a delicate balance between the Hollow and whatever lies beyond its inconsistent walls. The control station isn't measuring the strangeness between realities; it's regulating it, preventing complete overlap.
+
+The hollow mice recognize Merra as their caretaker. They bring her offerings – peculiar fungi and crystallized droplets of the ceiling condensation. She consumes these without chewing, the substances seeming to dissolve directly through her skin. In return, she cultivates the growth of the bioluminescent bacteria that sustains them, singing in subsonic frequencies that stimulate their reproduction.
+
+The crustaceans on the walls form a living interface that Merra reads like text. Their patterns shift in response to conditions throughout Arasheed – water pressure changes, electrical fluctuations, even emotional states of the population above. When the pattern becomes too chaotic, she plays an instrument assembled from pipe fragments and valve wheels, producing harmonics that calm the tiny creatures into more stable configurations.
+
+Three other entities share the Hollow, though they're rarely seen together:
+
+The Cartographer appears as an elderly man hunched over impossibly old drafting tools, constantly mapping the chamber even as its dimensions shift around him. His maps pour from his sleeves like water, forming temporary puddles of diagrams before being absorbed back into the floor. He speaks only in directions and coordinates, his words altering the paths between the Hollow and its adjoining spaces.
+
+The Collector is a figure composed primarily of the reflections cast by the emergency lights on the surface of the pool. It gathers memories that visitors unknowingly shed – childhood recollections, professional skills, sometimes entire identities that are momentarily forgotten when the chamber's disorientation takes hold. These memories appear as small, glowing spheres that the Collector arranges in complex mobile-like structures hanging from the pipes.
+
+Most enigmatic is the entity known only as the Depth. Visitors never see it directly, but its presence is felt as a vast awareness beneath the floor of the chamber. The viscous not-quite-water parts occasionally to reveal glimpses of something massive moving below – a living system that may extend throughout the foundations of Arasheed itself. Merra communicates with it through the control station, their exchanges manifesting as subtle vibrations that resonate through the chamber.
+
+None of these entities seem hostile toward visitors, merely curious and occasionally concerned. They appear to view human explorers as temporary anomalies in their closed system, potential sources of disorder to be gently corrected rather than threats to be eliminated.
+
+Merra will answer questions if approached with respect, though her answers often take the form of adjustments to the control station rather than words. Those who gain her trust may be shown how the Hollow interfaces with Arasheed's infrastructure – not just the physical systems of water and power, but something more fundamental to the city's existence. The control station doesn't just regulate the strangeness between realities; it calibrates the very continuity of Arasheed itself.
+
+The engineer who disappeared after presenting her findings didn't vanish tragically – she returned to the Hollow voluntarily, becoming an apprentice to Merra. Sometimes new visitors glimpse her in the periphery, her form gradually acquiring the same translucence as her mentor, learning to read the patterns in the crustaceans and the fluctuations in the gauges. The Hollow, it seems, occasionally recruits those who can perceive its true purpose.

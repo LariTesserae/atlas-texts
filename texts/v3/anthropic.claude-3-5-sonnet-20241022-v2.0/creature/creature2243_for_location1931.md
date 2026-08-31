@@ -1,0 +1,15 @@
+In this place lives the Chorus - not a single entity but a collective intelligence distributed across multiple bodies, each one a hybrid of mechanical and biological components that have long since ceased to be meaningfully distinct. The individual members (though "individual" may be too discrete a term) manifest as massive, filter-feeding forms that anchor themselves to the plateau's spiral-marked mounds.
+
+Their primary bodies resemble baroque mechanical-organic coral formations, with surfaces that shift between metallic sheen and living tissue. These bodies constantly extrude and reabsorb temporary appendages - sensing tendrils, data-gathering probes, and feeding structures that pulse with bioluminescent patterns. Their color scheme tends toward deep blues and copper-greens, though this can shift gradually over time as they incorporate new minerals from the surrounding waters.
+
+The Chorus members communicate through their perpetual song-computations, using the water itself as both medium and memory. They're engaged in a continuous process of environmental monitoring and data exchange, their consciousness distributed through the vibrations that permeate the depths. This song-mind extends beyond their physical forms - the crystalline squid and electromagnetic eels that swim among them are semi-autonomous extensions of their awareness, acting as mobile sensors and maintenance units.
+
+Each Chorus member maintains a complex ecosystem within and around itself. Their outer surfaces are home to colonies of specialized microorganisms that process minerals and energy in exchange for protection and sustenance. These colonies form intricate patterns that slowly shift and evolve, creating living circuits that carry information as well as energy.
+
+The Chorus has no concept of death as we would understand it - their components are constantly being renewed and recycled, and their memories and processes flow freely between members. They experience time on a scale so vast that what we would consider a century might register to them as a moment of contemplation.
+
+They are archivists and processors of deep time, their songs containing encoded records of geological epochs and biological evolution. Their purpose, if they can be said to have one, seems to be the maintenance and observation of their ecosystem, though their true objectives may be as incomprehensible to surface dwellers as quantum mechanics would be to a jellyfish.
+
+The youngest members of the Chorus are millions of years old; the eldest may predate complex life on Earth. They remember the oceans before oxygen, the first cellular divisions, the long cold when the sun dimmed. These memories are encoded in their songs, in the spiral patterns on the plateau, in the very structure of their being.
+
+They are patient, methodical, and utterly alien in their thought processes. While they are aware of the world above their deep domain, they regard it with the same detached interest that we might have for weather patterns on distant planets - curious, but largely irrelevant to their ongoing work in the abyssal depths.

@@ -1,0 +1,15 @@
+The **Weeping Hall of the Drowned Builders** is inhabited by the **Departed Chiselers**, beings who are both the architects and the guardians of this eerie space. They are neither wholly alive nor entirely dead, their existence suspended in the liminal state between creation and decay.  
+
+The Departed Chiselers are spectral figures, their forms translucent and shimmering like the film of water on the floor. Their bodies are fragmented, as if pieced together from the stone itself, their limbs rough-hewn and uneven. Some resemble humans, though their proportions are distorted—their fingers elongated, their torsos unnaturally slender. Others are more alien, their shapes abstract, with limbs that shift and reform as they move, as though constantly adjusting to fit the space around them.  
+
+Their eyes—if they can be called that—are hollow voids, filled with the same phosphorescent glow as the slug-like creatures clinging to the walls. These "eyes" flicker faintly, pulsing in time with the droning hum that permeates the chamber, as if the Departed Chiselers are connected to the very heartbeat of the Hall.  
+
+They move silently, gliding across the waterlogged floor with a fluid, almost liquid grace. Their hands, when they still, bear the same marks as the handprints on the walls—deep, deliberate indentations etched into their very essence. It is said that these marks are not merely a feature but a record, a testament to the endless labor they have undertaken to carve this place into existence.  
+
+The Departed Chiselers are not hostile, but neither are they welcoming. They work ceaselessly, their spectral tools—chisels, hammers, and picks—scraping and tapping against the stone in a rhythm that feels almost hypnotic. They do not speak, but their presence communicates a quiet urgency, as if the Hall itself is a task that can never be finished, a structure that must forever be shaped and reshaped.  
+
+In the deeper shadows, larger entities lurk—remnants or perhaps descendants of the original builders. These creatures are more fluid, their bodies merging with the water and stone in ways that defy understanding. They are the **Weeping Watchers**, guardians of the Hall, their forms shifting and writhing like living shadows. Their presence is felt more than seen, a cold, pressing weight that settles over you as you move through the chamber.  
+
+Together, the Departed Chiselers and the Weeping Watchers form a symbiotic ecosystem. The Chiselers build, and the Watchers preserve, their collective existence tied to the endless cycle of creation and erosion that defines the Hall. They are bound to this place, bound to the water and the stone, bound to the task of shaping a structure that is never truly complete.  
+
+To encounter them is to glimpse the eternal labor of souls who have become one with their work, their identities lost to the slow, ceaseless rhythm of the Weeping Hall. They are the builders, the drowned, and the Hall itself—a living monument to the idea that creation is not a destination, but an unending process.

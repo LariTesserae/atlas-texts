@@ -1,0 +1,1 @@
+To exist here is to commit to a timescale that renders the snapshot of a single lifetime meaningless. The inhabitants of this

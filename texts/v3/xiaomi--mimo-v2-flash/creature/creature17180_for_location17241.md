@@ -1,0 +1,13 @@
+In this place of patient pressure and violet-grey light, the only inhabitant is the **Crag-Warden**, a being that is not so much a creature as a feature given sentience. It is the synthesis of the cirque’s slow breath and its geometric bones.
+
+It does not stand upright, nor does it crawl; it *manifests*. It is a slow accretion of the sharp, angular shards of the rock, held together not by muscle or sinew but by the same magnetic, tectonic patience that shifts the ground beneath your boots. Its form is jagged and asymmetrical, a living cairn that rises from the field of shattered stone. It has no face, only a suggestion of structure—a suggestion of weight.
+
+Its skin is the velvet grey of the moss that clings to the north faces, damp to the touch and cool as the deep stone. Where joints might be on a mortal thing, there are only gaps, fissures filled with the silvered, ribbed pads of the pale vegetation that drinks the dim light. These growths pulse faintly, not with a heartbeat, but with a photosynthetic rhythm attuned to the eternal dusk.
+
+The Warden moves with the imperceptible slowness of the place itself. To watch it directly is to see nothing happen; it is only in the periphery of vision, or when looking away and back again, that one notices a shift in position, a redistribution of weight, a millimeter of movement over the course of an hour. It follows the logic of the rock—the line of least resistance—flowing over the shattered ground like a glacier of stone.
+
+It is attended by the place’s fauna. The filigreed winged things spiral in slow orbits around its spire-like limbs, their hum harmonizing with the deep frequency that vibrates in the bones. The armored, scuttling creatures nestle in the crevices of its form, finding shelter in the folds of its mossy skin. It is a walking ecology, a colony in motion, but it is indifferent to its passengers. They are simply part of its volume.
+
+The Warden breathes with the place. When the slow exhalation rises from the hollow of your chest, it is the Warden’s own respiration—the gradual release of pressure from within the stone. It does not acknowledge you with sight or sound, for it has no eyes and its voice is the low-frequency hum that you feel in your teeth. Yet, to stand in its presence is to be seen by the entire volume of the landscape. You are cataloged not as a threat or a friend, but as a temporary layer in its slow, humming, patient breath.
+
+It is the guardian of nothing, for there is nothing here to guard. It is simply the living axis of a world that is both emerging and ancient, a consciousness built from the memory of light and the weight of millennia. It is the place, made manifest.

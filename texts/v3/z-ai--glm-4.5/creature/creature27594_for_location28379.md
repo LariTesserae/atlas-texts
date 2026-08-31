@@ -1,0 +1,22 @@
+The inhabitants of this vesicle are of two kinds: the ceaseless, chattering chorus that fills the air, and the silent, geometric sentinels who built the cairns. Both are defined by the hardness of their world, creatures of silicon and sulfur who have evolved to navigate a reality that offers no softness and no mercy.
+
+**The Swarm**
+First are the source of the noise. They are a teeming, multitudinous horde that carpets the rust-red moss and swarms the crystalline stalks. To the casual glance, they appear to be animated gemstones—individuals no larger than a clenched fist, shaped like trilobites but constructed from interlocking plates of chitin and mineral deposit. Their exteriors are faceted, catching the sickly pale light of the room and refracting it into tiny, hard rainbows.
+
+They are the "Grazers of the Glass." With mandibles designed for crushing and grinding, they feed upon the metallic moss, stripping the floor of its rust-red bounty and processing the iron filings into raw energy. They do not scuttle blindly; their faceted eyes are compound and hyper-sensitive to the dim bioluminescence, allowing them to navigate the jagged talus with supreme confidence. It is their movement that creates the mechanical din—the clicking of a million legs on stone, the clatter of their armored bodies colliding. They are the nervous system of the room, the constant, vibrating energy that prevents the tomb from feeling truly dead. They reproduce via fragmentation, shedding mineral-coated eggs into the cracks of the floor, ensuring that the noise never truly fades.
+
+**The Silent Architects**
+But the Grazers are not the intelligence that left the tools. The true masters of this cavity are the beings who are felt rather than seen—the Architects.
+
+They are solitary, immensely rare, and perfectly still. An adult Architect is a towering figure, standing nearly three meters tall when fully extended, though they spend most of their existence hunched over. Their physiology is a miracle of geological adaptation: they appear almost indistinguishable from the environment. Their "skin" is a form of living basalt, a flexible, plate-like armor that mimics the texture and color of the surrounding rock. When an Architect folds its limbs and tucks its head, it becomes a boulder, invisible against the chaotic backdrop of the chamber.
+
+They possess no eyes. Having evolved in a world of perpetual twilight where sight is nearly useless, they "see" through vibration. The soles of their wide, splayed feet are lined with sensitive cilia that detect the faintest footfalls of the Grazers and the resonance of the crystal stalks. The clicking, chattering noise of the insectile horde is not an annoyance to them; it is a sonar map. Through the roar, they can sense a pebble falling a mile away, or the structural integrity of a crystal tree.
+
+They are the builders of the cairns. These structures are not monuments, but auditory tuning forks. By stacking the basalt slabs with such precision, the Architects create focal points for the ambient noise of the room. They stand motionless beside these cairns for hours or days, their internal cavities resonating with the focused hum, using the sound to charge their internal chemical reserves—living batteries feeding on the volume of the world.
+
+Their tools—the flint axes and bone scrapers—are held in multi-jointed limbs that can split open like a flower to reveal manipulator tendrils. They use the flint not to hunt, for there is no predator here, but to sculpt. They prune the obsidian trees, cutting away the sharp, overgrown leaves to feed the Grazers, maintaining the delicate equilibrium of the garden. They grind pigments not for art, but for repair, mixing the powders with sulfurous pastes to seal cracks in their own stone-like hides.
+
+**The Cycle of Existence**
+There is no death here, only integration. When an Architect finally ceases to function—perhaps after millennia of standing in the stasis lock—it does not rot. It simply stops moving. Its internal chemistry calcifies. It hardens into true, inert stone, becoming a permanent part of the landscape, a new boulder for the Grazers to climb over. The tools are placed upon its resting form, a final offering to the stone that birthed it.
+
+Thus, the room is inhabited by a paradox: a noisy, frantic horde that never rests, and a silent, stationary intelligence that never moves. Together, they maintain the hot, dry eternity of the vesicle, a closed loop of click and hum, silence and stone.

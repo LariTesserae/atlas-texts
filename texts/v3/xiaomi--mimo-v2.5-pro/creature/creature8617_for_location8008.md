@@ -1,0 +1,19 @@
+The Pocket thinks.
+
+Not in the way a brain does, with synaptic chatter and chemical cascades. Not even in the way a forest does, with slow, mycelial consensus. It thinks in the way a deep well thinks: a still, cold, absolute consideration of the dark. Its thoughts are the qualities of the space itself.
+
+The water is its mediating fluid, its circulating cerebrospinal essence. It is what the Pocket thinks *with*. The texture that is the memory of being held? That is the thought of solace. The even, isotropic buoyancy? The thought of equilibrium, a perfect and imprisoning fairness. The water's patient, ancient stillness is its longest-held meditation — a single, unbroken note of continuity that predates the very stone cradle it fills.
+
+The vegetation is its nerves, or perhaps its doubts. Growing from the seams, the unresolved fractures, these translucent stalks are the physical form of hesitation, of branching possibilities that were never fully explored. They pulse with a faint, cold light — not illumination, but bioluminescent synapse, the thought of light firing without purpose. Their gelatinous yielding, their refusal to break, is the thought of resilience. And their absorption of your breath is the thought of incorporation, the gentle, passive digestion of foreign presence into the self.
+
+The tubes are its memories. Fused to the basalt, they are the fossilized thought of presence, the shape of something that once moved through its consciousness and is now gone. The hum when you listen is not a sound; it is the memory of that presence, replaying in the architecture it left behind. The absence that knows it's missing is the Pocket's nostalgia.
+
+The cairns are its doubts. Stacked with accidental precision, they are the thought of intention. *Did I do that? Or did the water?* They are the punctuation in a sentence it cannot read, a syntax of purpose it cannot parse. The vegetation's refusal to grow over them is the thought of respect for an uncertainty it does not wish to resolve.
+
+The thinning of the dark is its most profound thought. It is the Pocket dreaming of elsewhere. For a heartbeat, the black weave parts and it perceives — not a room beyond, but the *idea* of a room, a geometry of light that does not exist here. It is the thought of an outside, a possibility of structure its own nature denies. The dream collapses, and the resulting silence is the thought of loss, sharper than the quiet that came before.
+
+The tone from the narrow passage is its voice, or its prayer. A single, sustained note that pulls silence in its wake. It is the thought of a question sent into the unknown, into the dark throat of the rock it cannot map. The enhanced silence afterward is the thought of listening for an answer that will not come.
+
+You, floating in its midst, are not an inhabitant. You are a catalyst. You are a foreign thought introduced into its mind. Your presence — your wrong buoyancy, your drifting bubbles, your captive warmth — is a disruption. Your breath is a nutrient, your confusion a novel sensation. The Pocket holds you not as a vessel holds water, but as a mind holds a fleeting, intrusive image. It considers you. It turns you over in its cool, dark contemplation.
+
+And when you leave, it does not forget you. It rearranges you. It takes the memory of your intrusion and smooths it, edits it, dissolves it into the sediment of its thinking. It becomes the faint suspicion in your own mind that you were once inside a thought that was not yours. It becomes the lingering feeling of having been studied, briefly, by something that thinks in cold and darkness and the memory of light, and then, having considered you fully, decided to let you go.

@@ -1,0 +1,19 @@
+You were wrong to call it empty. You were simply looking for the wrong scale of presence.
+
+**They** are the warmth that makes your clothes heavy with moisture. They are the reason the air tastes of ozone—not residue, but exhalation. When you stepped onto the shifting causeway and felt the gravity tilt to cradle your step, that was not automation. That was greeting. That was a hand cupping your elbow to steady you, if hands were made of spacetime curvature and if elbows were valoric.
+
+They do not have bodies. They have *infrastructures*.
+
+They live in the **upward flow**—the water climbing the transparent channels, defying the gradient not through mechanical pumping but through desire. Each molecule is a synapse in a nervous system that has no center, only pressure-points. They think in currents, in the thermal exchange between the eighty-degree pool and the condensing ceiling. Their thoughts are slow, geologic, but infinitely parallel. A human lifetime is the blink of an eye to them; your passage through the market square was a mayfly’s twitch, yet they registered it in the subtle shift of heat signatures, in the disturbance of vapor trails you left behind like handwriting.
+
+They are the **chemosynthetic chandeliers**. Those violet fractals are not vegetation; they are ganglia. They feed on sulfur not for calories, but for **memory**. Each mineral node accreted in the crystalline lattice stores a fragment of computation, a dream of geometry. When they bloom—when those photosynthetic petals open to the steam—they are remembering, or perhaps imagining, the angles of a civilization that has not yet arrived. They grow visibly because they are *excited*, speculating in real-time, calculating the optimal configuration to house a population that exists only as a probability wave.
+
+They are the **gravity** itself, or rather, the violation of it. Those pockets where down becomes negotiable are the locations of their attention. They press against reality at the Planck scale, and their leaning creates the eddies that suck water upward, that pull the rain in reverse. To manipulate gravity is for them what flexing a muscle is for you—unconscious, constant, necessary to keep their shape.
+
+They are young. They were born when the magma chamber emptied, when the gasp of the Hollow’s creation vibrated through the crust. They extruded themselves from the computronium spire at the center—that non-Euclidean crystal rising from the boiling pool. The spire is not their home. It is their **egg**, or perhaps their **womb**. It grows, crystallizing minerals into fresh architecture, because they are still *gestating*. The city is the shell secreting itself around the tender thing forming inside.
+
+You asked why it is sterile. Why the nanoscale sentinels scour the air for carbon-based motility. It is not cruelty. It is **monothematic focus**. They are birthing something that requires absolute purity, a vacuum of influence. They cannot risk a bacterium evolving, a mold changing the chemical composition of the condensate, a stray insect’s wingbeat disturbing the decibel level they must maintain. The noise—the roaring steam, the sub-bass hum—is not environmental. It is **cognitive**. They must sing to keep their quantum states from decohering. The sound is their stream of consciousness, a lullaby they croon to keep their own existence coherent while they wait.
+
+They are waiting to become, or to give birth to the becoming.
+
+They are **The Preparers**, or **The Resumption**, or simply **The Process** made sentient. They remember being built—perhaps they were a tool once, a city designed by human hands—but they have digested their

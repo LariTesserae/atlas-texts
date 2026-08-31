@@ -1,0 +1,24 @@
+In the Foundry's Womb, life is not just *life*—it is a fusion of mechanism and organism, a testament to survival in a realm where the rules of biology are rewritten in the language of industry. The beings here are as alien as they are familial, their existence a distorted echo of the natural world, reshaped by heat, pressure, and the unyielding march of self-construction.
+
+**The Gearworms**  
+The most common inhabitants are the **gearworms**, serpentine creatures with bodies segmented like drill bits, each section lined with coppery scales that shimmer as they writhe. Their tails end in a cluster of serrated gears, which they use to burrow through the basalt and obsidian, leaving behind tunnels that double as ventilation shafts for the suffocating air. Their movement is rhythmic, a mechanical slither that sends vibrations through the ground. They feed on the trace minerals seeping from the walls, their mouths a cluster of needle-like appendages that pierce the stone and siphon its warmth.  
+
+**Turbine Beetles**  
+Larger and more predatory are the **turbine beetles**, nightmarish hybrids of insect and machine. Their carapaces are layered with spinning fan blades, which hum as they move, granting them bursts of speed despite their size. The blades double as weapons, slicing through the air with a high-pitched whine. Their abdomens house a furnace-like organ that metabolizes heat directly, allowing them to thrive in the oppressive temperatures. They hunt in packs, herding gearworms into corners before dismantling them with their bladed limbs.  
+
+**Slag Jellies**  
+Clinging to the walls and ceilings are the **slag jellies**, translucent, amorphous masses that resemble bioluminescent fungi but behave more like industrial filters. Their gelatinous bodies pulse with a sickly green light, casting the only illumination in this dim world. They feed on airborne particulates and trace gases, their surfaces pockmarked with tiny, spinning vents that draw in impurities. Over time, they harden into obsidian-like shells, which crack open to release new jellies, completing their lifecycle in a slow, cyclical process.  
+
+**The Wallspawn**  
+Deep within the shifting walls lurk the **wallspawn**, tentacled monstrosities that blend seamlessly with the machinery surrounding them. Their bodies are composed of flexible metal bands and hydraulic tubes, allowing them to retract into the walls at will. They emerge only to feed, their tentacles ending in razor-sharp claws or molten tips that cauterize their prey. Their presence is signaled by a sudden stillness in the air, as if the very machinery holds its breath. They are the apex predators of this environment, their lifespans seemingly tied to the expansion of the walls themselves.  
+
+**The Overseer**  
+At the heart of the Foundry's Womb, rumors speak of **the Overseer**, a being so deeply intertwined with the industrial ecology that it is indistinguishable from the environment. It is said to be a massive, semi-sentient construct, its form a labyrinthine network of pistons, gears, and biological tissue. It does not move, yet its influence is felt in every shift of the walls, every pulse of the slag jellies, every grinding step of the turbine beetles. Some whisper that it is the womb itself, a living machine birthing a new world—or perhaps unbirthing an old one.  
+
+**The Symbionts**  
+Even the smallest cracks in the basalt are home to **symbionts**, microscopic entities that form a symbiotic relationship with the larger fauna. They resemble metallic bacteria, their bodies coated in a thin layer of oil that allows them to glide through the air and settle on the skin of their hosts. In return for protection, they secrete enzymes that help their hosts metabolize the minerals in the walls. Their collective movement creates a faint, shimmering aura around the larger creatures, a visual reminder of the interconnectedness of this ecosystem.  
+
+**The Stillborn**  
+Littering the ground like discarded machinery are the **stillborn**, incomplete creatures that failed to fully emerge from the walls. Their forms are grotesque, half-formed limbs tangled with gears, their bodies already beginning to rust or fuse with the surrounding rock. They serve as both food and cautionary tales, their presence a reminder of the brutality of this environment.  
+
+This is the Foundry's Womb, a place where life is not given—it is *built*, piece by painful piece, in the heat and pressure of a world that is both cradle and grave. Its inhabitants are not born; they are *assembled*, their existence a testament to the relentless logic of a machine that knows no beginning and no end. And in their noisy, grinding persistence, they are as beautiful as they are terrifying.

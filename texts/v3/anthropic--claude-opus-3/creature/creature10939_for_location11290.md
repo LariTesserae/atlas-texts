@@ -1,0 +1,15 @@
+In this hidden sanctuary high on the mountainside, a reclusive order of monks makes their home among the singing terraces. Known as the Brothers of the Cascades, these ascetic individuals have dedicated their lives to contemplating the mysteries of the melodic waters and communing with the strange forces that suffuse this enchanted place.
+
+The brothers wear simple robes woven from the silky fibers of the ferns that grow between the pools. Dyed in shades of mossy green and iridescent blue, these garments help them blend into their surroundings as they go about their daily meditations. Each monk carries a staff carved from the same stone as the terraces themselves, polished smooth by generations of use.
+
+The order is led by an ancient figure known only as the High Chanter. Wizened and weathered as the pillars of the mountain shrine, the High Chanter is said to have lived on the singing terraces for centuries, kept alive by the mysterious power of the melody that rises from the cascading waters. He spends his days in silent communion with the carved face at the heart of the highest grotto, listening for whispers of wisdom in the endless music of the mountain.
+
+The rest of the Brothers of the Cascades devote themselves to tending the lush gardens that thrive on the shelves between the pools. They cultivate the strange, luminous flowers and the trailing vines, using their produce to brew elixirs and potions with remarkable properties. Some are said to grant visions of distant times and places, while others can heal even the most grievous wounds.
+
+When they are not working in the gardens or brewing their concoctions, the brothers can be found meditating at the edges of the pools, their legs folded into lotus position and their eyes half-closed. They hum along with the eerie melody of the waters, their voices blending into a hypnotic chorus that echoes from the mountain walls.
+
+On certain nights, when the mists swirl thick and the light of the moon limns the edges of the terraces in silver, the Brothers of the Cascades perform ritual dances around the pools. Moving in sinuous unison, they trace intricate patterns with their staffs and chant in an unknown language that harmonizes eerily with the ever-present music of the waters. It is said that these dances can summon visions, open doorways to other realms, or even bend time itself.
+
+Pilgrims sometimes brave the treacherous climb to the singing terraces, seeking wisdom, healing, or a glimpse of the otherworldly. The brothers welcome these seekers, offering them shelter and sustenance. In return, the pilgrims are expected to join in the meditations and rituals of the order, immersing themselves in the strange power of the mountain shrine.
+
+Regardless of their origins, all who spend time among the singing terraces find themselves changed by the experience. They leave with a sense of inner peace, their hearts filled with the unearthly melody of the cascades. And though they may travel far from the hidden sanctuary, a part of them always remains among the shimmering pools, forever attuned to the mysterious music of the mountain.

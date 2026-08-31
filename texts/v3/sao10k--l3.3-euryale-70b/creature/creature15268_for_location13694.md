@@ -1,0 +1,1 @@
+The landscape is a complex tapestry of contrasting elements and processes that coexist in a delicate dynamic balance that has been… unfolding for millennia. This multifaceted place is dotted with physical features such as, isolated rock formations, and tiny glinting waterfalls. These only break-up the floor, and leave a silence found in few other places.

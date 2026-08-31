@@ -1,0 +1,31 @@
+In the Hollowed Quarter, existence takes forms both familiar and profoundly changed.
+
+**The Dwellers Below**
+
+The human inhabitants move with the measured cadence of those who have learned that haste disturbs more than stone and water. Their eyes have adapted over generations—pupils permanently dilated, irises pale as morning fog. They see heat signatures through walls, track the faint phosphorescence of the fungal growths, and read meaning in the subtle shifts of reflected light on water surfaces. Their skin has taken on a translucent quality, blue veins visible like tributaries beneath parchment, and their fingers have grown longer, more sensitive to vibration and texture.
+
+These people organize themselves into loose confederations around the stable springs and forge-sites. The Wetwright families tend the water channels, reading the liquid's moods and negotiating with its strange tides. They speak in whispers and hand gestures, having learned that loud voices can cause the water to retreat or turn brackish. Their children learn to swim before they walk, moving through the flooded passages with seal-like grace, able to hold their breath for minutes while navigating submerged connections between chambers.
+
+The Stoneshapers work the deepest levels, where the walls seem most receptive to gentle coaxing. They've forgotten metalworking but have mastered the art of convincing stone to hollow itself, of persuading bedrock to grow smooth. Their tools are often their own bodies—palms worn smooth as river rocks, fingertips hardened into living chisels. They claim the stones dream, and that their work is simply helping those dreams find expression. The newest chambers always bear their marks: walls that curve like embracing arms, passages that wind in spirals that feel protective rather than confusing.
+
+Among them move the Keepers of Echoes—individuals who've learned to navigate the Quarter's acoustic anomalies. They carry messages across impossible distances, timing their words to arrive precisely when needed. Some have developed an uncanny ability to speak to their own future selves, leaving verbal gifts in chambers they haven't yet visited. They've grown thin from their practices, as if they're spreading themselves across too many moments, but their memories are vast, containing conversations from decades of temporal drift.
+
+**The Other Inhabitants**
+
+The rats that venture into the Quarter quickly shed their ordinary nature. They grow sleek and silver, their fur taking on the same phosphorescent quality as the fungi. These creatures serve as unwitting messengers, their straight-line movements carrying small objects and scraps of paper between isolated settlements. The dwellers have learned to read their patterns—when the rats move in spirals, chambers are shifting; when they gather in large groups, new spaces are about to emerge.
+
+The birds that fall through the gratings rarely attempt to escape. Instead, they undergo a gradual transformation, their feathers darkening to deep blue-black, their eyes growing larger. They roost in the highest accessible alcoves and sing songs that weave seamlessly into the Quarter's natural percussion. Some residents believe these birds remember the sky and are slowly teaching the stones to dream of light.
+
+But strangest are the Nascent—beings that seem to emerge from the Quarter itself. They appear first as suggestions in peripheral vision, then as half-formed impressions in the softer stones, like figures carved by amateur hands. Over time, they achieve a kind of substantial presence, though they remain translucent, composed of the same material as the walls but possessed of slow, deliberate movement.
+
+The Nascent communicate through touch—placing their stone hands against walls to send vibrations through the structure. They seem particularly drawn to the forge-fires, standing motionless beside them for days at a time, their forms growing more defined in the heat and light. The human dwellers treat them with cautious respect, leaving small offerings of shaped metal and carved bone. In return, the Nascent sometimes guide lost visitors through the shifting passages, their stone feet making no sound on the perpetually damp floors.
+
+**The Watchers in the Depths**
+
+In the deepest chambers, where the stone bears only the most primitive marks, dwell creatures that might have been the Quarter's first inhabitants. They're glimpsed only in the uncertain light of the bioluminescent fungi—tall, impossibly thin figures that seem to be carved from the same bedrock as the walls. They move through stone as if it were water, appearing and disappearing at will.
+
+These entities—if they are indeed separate beings and not extensions of the Quarter's own consciousness—maintain the delicate equilibrium that allows human habitation. They repair damage before it becomes dangerous, guide the flow of water through the ever-changing channels, and somehow moderate the temporal drift to prevent catastrophic paradoxes. They're never seen directly, but their influence is everywhere: in walls that develop supportive buttresses overnight, in dangerous passages that subtly seal themselves, in the way lost children always find their way back to familiar chambers.
+
+The human dwellers call them the First Shapers, believing them to be the original spirits of the marshland that once existed here. Whether this is true or merely a comfortable story to explain the inexplicable, their presence is as fundamental to the Quarter as the flow of water or the weight of stone above.
+
+All these inhabitants—human, animal, emergent, and ancient—exist in a state of careful interdependence. They've learned that the Quarter responds to harmony, that it grows more stable and expansive when its residents work with its strange nature rather than against it. In this buried realm where time pools like water and space bends to accommodate dreams, life finds ways to flourish that the surface world would never recognize—yet never quite forget.

@@ -1,0 +1,41 @@
+What lives there is not one thing first, but a citizenship.
+
+The obvious inhabitants are the fish, because they move and catch the light and announce that the chamber has been accepted into biology. They are the first true residents in the way pigeons are the true residents of train stations and swallows of barns: creatures that did not design the place, do not romanticize it, and know exactly how to use it. They would be practical-bodied fish, not jeweled exotics. Pale carp with rubbed mouths nosing along seams where edible films gather. Schools of small silver fish turning all at once where the current narrows, each body a moving scale in the chamber’s own instrumentation. Thick-backed perch or perch-like hunters stationed in the wedge of shadow beside a pump housing, holding themselves in the water with tiny corrections, less like swimmers than like thoughts suspended. Eels too, almost certainly, if there is any path by pipe or culvert or overflow from larger waters: dark cords slipping through the grammar of the infrastructure as though it had always been intended for them.
+
+But the truer answer may be that what lives there has learned to be infrastructural in return.
+
+The dominant lifeform of the place is coating, fringe, colony, adherence. The resident genius is not bloom but persistence. Films of algae live on the available light the way lichen lives on patience. Bacterial slicks skin the ladders, valve stems, and undersides of catwalks in gradients so subtle they read first as stain and only later as occupation. Mussels if the chemistry allows, fixed where flow brings food but does not tear them free, making a second filtering apparatus on top of the first. Tiny crustaceans in joints and grates, treating bolt recesses and concrete pitting as tide pools. Insect larvae in trapped quiet water, hidden among mineral fur and drowned dust. The place is full of lives that do not declare themselves by silhouette but by texture. The chamber has been inhabited the way old teeth are inhabited by plaque, seawalls by barnacles, pipes by scale.
+
+If one wanted a single creature large enough to stand for the rest, it might be an eel; if one wanted a single creature characteristic enough to explain the place, it might be a mussel. Yet neither alone contains it. The chamber breeds specialists in edge conditions. Things that like oxygenated outflow, things that like still corners, things that graze the bacterial nap on concrete, things that hide under the lip of a removed machine base, things whose eggs can survive only where the pulse of current is right. Every engineered feature has recruited a tenant. Ladder rungs host growth. Screen meshes host feeding. Dead motors host shelter. Warm casings host winter congregation. The inhabitants are those able to read utility as landscape.
+
+There may also be one or two individuals that feel like proprietors without truly being so. A large carp, scarred and thick as a sandbag, making slow authoritative circuits through the whole volume, turning under the one reliable lamp and vanishing below the old maintenance platform. An old eel of improbable length whose body has touched every pipe in the room. A crayfish missing one claw, occupying the same crack beneath a grating support year after year. These are not rulers exactly, but local constants. Every old managed habitat seems to produce them: animals enlarged by enclosure into legend.
+
+And because this is a place of repeated patterns, it likely supports repeated generations rather than merely visitors. This matters. To live there is not just to pass through from culvert to basin to sluice, but to have one’s life cycle keyed to the chamber’s operations. Spawning when flow eases. Feeding when screens collect drifting matter. Retreating when the pump note changes. Rising when water levels lift to flood the upper shelter ledges. Failing in years when chemistry tips wrong. Thriving in years when maintenance leaves enough alone. The residents are those whose bodies have become calendars for the machine.
+
+There is also another inhabitant, less romantic but more pervasive: the microbial nation. The chamber is thick with invisible metabolism. Iron bacteria where dissolved minerals permit them, tracing orange-brown sheens through damp seepage. Biofilms so thin they only announce themselves when a glove slips or a light hits at an angle. Soft rots in lodged wood and fibrous debris. Nitrifying and denitrifying communities transacting the chamber’s chemistry in silence. These are not background. They are the custodians of the place’s conversion from built structure to living system. They are why bare utility acquires smell, slipperiness, stain, and food webs. They are the first settlers and the permanent majority.
+
+If air remains above the waterline, then the residents extend upward in a narrower, more furtive way. Spiders in dry corners above service lights. Midges hatching from the water and dying against old globes. Occasional frogs where a wall shelf meets a damp duct and insects gather. Perhaps a rat in the adjoining corridor, not truly of the chamber but in trade with it, eating what emerges from it. Bats would be possible only if there is access and enough air, but even without them the upper margin would have its own littoral fauna: not abundant, just exact. The seam between flood and structure is always inhabited by opportunists.
+
+And then there are the machines, which do not live but participate so steadily that the animals reckon them as if they did. A pump body still warm, a gate that opens with tidal regularity, a lamp that flickers before current shifts—these become, in ecological terms, weather and season and topography. In a room like this the dividing line between inhabitant and condition blurs. Warmth, flow, vibration, oxygenation: each is generated by hardware, and each is inhabited as though it were a spring, a rapid, a sunlit shelf. One might say that what lives there is life adapted to an animal made of concrete and steel. The chamber itself is the host body. Its pulses are circulatory. Its gates are muscular. Its residents occupy it the way gut flora occupy a whale, remoras occupy a shark, swifts occupy a chimney.
+
+If a person came often enough, they too would become a kind of intermittent resident, but never a native one. The true natives are the ones untroubled by murk, by vibration, by recurring pressure changes; the ones for whom a hanging chain is merely structure, not symbol. They know the room not as a room but as a set of usable gradients. Food concentration here, ambush cover there, spawning calm beyond, danger under the intake, winter warmth by the live housing. Their intelligence is local and embodied. They do not need the whole map because they are the map’s moving proof.
+
+So who lives there?
+
+Fish with industrial manners.  
+Eels that treat pipes as riverbanks.  
+Crustaceans in the bolt-holes.  
+Mussels on the calmer mouths.  
+Larvae in the grates.  
+Algae on every patient surface.  
+Bacteria in a million translucent republics.  
+A few old individuals large enough to seem historical.  
+And, spread through all of them, a temperament shaped by current, dimness, noise, and enclosure.
+
+What lives there is whatever can accept a made world as weather and turn maintenance architecture into habitat. A community of creatures for whom the chamber is neither broken machine nor artificial substitute, but simply the local form of water.
+
+In a more singular sense, the place feels as though it belongs to an eel-colored principle: something shy, long-lived, opportunistic, difficult to census, capable of vanishing into apertures too small to trust, and perfectly at ease in a civilization of conduits. But that is more emblem than inventory.
+
+The inventory is richer and less dramatic. The chamber is lived in by the modest successful: grazers, sifters, ambush hunters, scavengers, clingers, spawners, filterers, films. Life that does not need beauty, only continuity. Life that can inhabit a valve recess as readily as a reed bed. Life that has taken the discipline of the room and answered it with its own discipline of staying.
+
+It is, in other words, inhabited by a marsh translated into machinery and by creatures translated with it.

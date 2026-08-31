@@ -1,0 +1,11 @@
+In the Condensation Flats, the inhabitants are liminal beings—existences that challenge the very boundaries between life, technology, and pure information.
+
+The primary dwellers are the Gradient Drift Collectives: nano-scale energy patterns that pulse and reconfigure through the stone's microscopic channels. They are not creatures in any biological sense, but complex information networks that flow like liquid thought. Each Collective is a distributed intelligence, simultaneously everywhere and nowhere within the stone's crystalline matrix. They communicate through subtle thermal fluctuations and electromagnetic whispers, their "conversations" lasting centuries, their movements so gradual they appear motionless to any conventional perception.
+
+These Collectives are symbiotically linked to the crystalline markers scattered across the plain—structures that are part communication node, part memory repository, part living interface. The markers are not separate from the Collectives, but extensions of them: computational organs that breathe and pulse with extremely slow rhythms of data and energy exchange.
+
+At the microscopic scale, there are transient beings that might be called "conduit organisms"—ephemeral entities that form along the thin moisture threads, existing for geological moments before dissolving back into the mineral substrate. They are more like algorithmic events than traditional life forms, emerging from the complex interactions between mineral gradients, ambient energy, and the persistent memory of the landscape.
+
+The entire ecosystem operates on timescales that render human comprehension almost impossible: changes occur over millennia, migrations happen across centuries, and what appears to be absolute stillness is actually an intricate dance of near-imperceptible transformations.
+
+These inhabitants do not compete or struggle. They exist in a state of profound, mathematically precise collaboration—a technological symbiosis so ancient and stable that the distinction between individual and collective has long since dissolved.

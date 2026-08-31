@@ -1,0 +1,23 @@
+In the enigmatic depths of Echopolis, a diverse and extraordinary array of beings call this subterranean marvel home. These inhabitants are as varied and perplexing as the city itself, blurring the lines between organic and mechanical, reality and imagination.
+
+The Echotects are perhaps the closest thing to a ruling class in this realm. These entities appear as towering figures of living metal and crystal, their bodies constantly shifting and reconfiguring like the city around them. They possess an innate understanding of Echopolis's bizarre architecture and are believed to be responsible for its ongoing evolution. The Echotects communicate through pulses of light and vibration, their thoughts resonating with the very fabric of the city.
+
+Scurrying through the lower levels are the Gearsmiths, diminutive creatures that resemble a fusion of rodent and clockwork. With oil-slick fur and eyes that glow like burning coals, they maintain the city's countless machines. Their dexterous paws can manipulate the tiniest cogs and springs, and they possess an uncanny ability to diagnose mechanical issues through sound alone.
+
+The Vapormancers are ethereal beings composed of ever-shifting mist and steam. They drift through Echopolis's streets and tunnels, their forms coalescing and dispersing at will. These entities have a symbiotic relationship with the city's ubiquitous steam vents and pipes, drawing sustenance from the warm, humid air while also regulating the flow of vapor throughout Echopolis.
+
+In the shimmering pools and trickling streams live the Flux-Swimmers, aquatic creatures that seem to exist in multiple states simultaneously. At times they appear as silvery fish, at others as undulating ribbons of light, and sometimes as nothing more than ripples in the water's surface. They are said to be oracles of a sort, their movements predicting the city's next metamorphosis.
+
+The Chronowardens are perhaps the most enigmatic of Echopolis's denizens. These beings manifest as hovering clusters of gears and clockfaces, surrounded by a haze of temporal distortion. They appear and disappear at will, their presence often heralding shifts in the local flow of time. Some believe they are guardians of Echopolis's temporal stability, while others see them as the cause of its chronal inconsistencies.
+
+Flitting through the air are the Luminarae, bioluminescent creatures that resemble a cross between butterflies and floating jellyfish. Their translucent bodies pulse with ever-changing colors, contributing to the city's ambient light. They feed on the energy emitted by the metallic flora, and their movements create intricate patterns of light and shadow.
+
+The Echosophists are humanoid entities composed of living sound waves. Their bodies ripple and fluctuate with the city's ambient noise, and they communicate by manipulating the acoustic vibrations around them. These beings are thought to be the source of the whale-like songs that periodically resonate through Echopolis, though the meaning of these vocalizations remains a mystery.
+
+Deep in the bowels of the city dwell the Rustkin, amorphous creatures of living corrosion. They consume metal and transform it into new, bizarre forms. While potentially destructive, they play a crucial role in Echopolis's ecosystem, breaking down old structures to make way for new growth.
+
+The Phantasmagora are beings of pure imagination given form by the reality-warping properties of Echopolis's deepest regions. They appear as ever-shifting collages of dreams and memories, their very existence blurring the line between thought and matter. Encountering a Phantasmagora can be a transcendent or terrifying experience, as one's own mind becomes momentarily entangled with theirs.
+
+Lastly, there are whispers of the Primordial Gears, colossal entities that exist at the very foundation of Echopolis. These beings are rarely seen, their presence only hinted at by tremors and distant movements. Some believe they are the original architects of the city, while others think they might be the city itself, awakened to consciousness.
+
+Together, these diverse inhabitants form a complex ecosystem, each playing a role in the perpetual cycle of creation, maintenance, and transformation that defines life in Echopolis. Their interactions and relationships are as intricate and ever-changing as the city itself, creating a living, breathing world that defies conventional understanding.

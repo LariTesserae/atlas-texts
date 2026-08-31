@@ -1,0 +1,27 @@
+The first thing you notice is that the noise has a source. It is not merely the ambient vibration of the air, but the frantic industry of **The Lithophages**.
+
+They are the primary citizens of this jagged purgatory, the small, chittering swarm that blankets the obsidian floor. To call them merely insects does them a disservice; they are bio-mineralogical anomalies, possessing an exoskeleton of slick, iridescent chitin that seems to absorb the gloom and reflect it back as an oil-sheen of teal and magenta. They are shaped like uneven, flattened teardrops, evolved specifically to squeeze into the razor-thin fissures of the glassy rock.
+
+Their legs are a nightmare of geometry—multiple pairs of hooked, serrated limbs that allow them to grip the vertical faces of the cliffs without slipping on the perpetual sheen of condensation. They are the only things that can move across the "zero history" landscape without being sliced to ribbons. You watch as a swarm of them descends on a fresh spire of rock that has just been extruded by the Monolith. They do not walk so much as they flow over the sharp edges, their hard shells clicking and scraping against the stone, creating a rhythmic, grinding percussion that underpins the room’s bass thrum.
+
+They are architects of entropy. Where the Monolith builds, the Lithophages refine. They feed on the mineral leachate and the raw, unstable energy radiating from the newborn stone, their mouths—small, grinding mandibles hidden beneath facial plates—scraping away the most dangerous, razor-sharp protrusions. They consume the glass and excrete a fine, metallic sand that accumulates in the crevices, the very first soil of this new world. They are hostile, territorial, and seemingly infinite; if you stand still too long, they begin to scale your boots, testing the texture of your gear with delicate, needle-like proboscises, wondering if you are part of the architecture to be dismantled.
+
+Sharing the air with them are **The Prism-Wings**.
+
+Higher up, in the space between the dripping cliffs and the glowing fog, fly things that look like thrown knives. They are sleek, delta-shaped predators with four wings made of perfectly transparent, cellophane-thin membrane. When they catch the violet light of the coral-plants or the white beams of the Monolith, they flare into brilliance, invisible until the light hits them. They do not chatter; they hunt in silence. You see one dive, a streak of refraction, snatching a Lithophage from the wet rock. There is a wet *crunch*, a flicker of rainbow wings, and it is gone again. They are the sleek, deadly counterpoint to the industrious clutter of the ground, living solely to keep the swarm in check.
+
+But it is the inhabitants of the hovering silver structures that command a different kind of dread.
+
+Inside those single-room hovels, suspended on magnetic repulsion, live **The Curators**.
+
+They are humanoid, but only in the sense that a sketch is humanoid. They are tall, impossibly thin, and grey-skinned, their bodies seemingly stretched by the low gravity and the high pressure of the atmosphere. They wear tattered, seamless suits of a fabric that looks like liquid mercury, now dulled by the constant humidity. Their eyes are covered by dark, smooth visors that display flickering streams of data—readouts from the Monolith that they are obsessed with.
+
+They are a dying race, the leftovers of the crew that once commanded this engine of creation. They have been here too long. The humidity has bloated their joints; the ozone has stained their lungs. They move with a slow, painful deliberation, floating slightly in their doorways, their voices rasping and hollow when they speak to one another across the gloom. They are no longer building; they are only maintaining. You can see them inside the open doors, standing over holographic tables that glitch and spark, their long, spindly fingers twitching as they try to adjust equations that no longer make sense.
+
+They are terrified of the Lithophages. You see one Curator shoo a swarm away from the landing gear of its habitat with a device that emits a high-frequency whine, driving the creatures back into the dark. They are the prisoners of their own station, trapped in a room that is too small, growing a world that has no use for them.
+
+Finally, there is the silent life in the walls.
+
+**The Violet Moss** is not merely a plant. It is a colony organism, a single, massive consciousness smeared across the vertical faces of the cliff in patches of bioluminescent velvet. It pulses in time with the Monolith’s light beams. It does not eat soil; it eats the waste heat of the machine. If you stare at a patch of moss long enough, you realize the light isn't just glowing; it is transmitting. The moss is a biological hard drive, recording the history of this place—the hum of the bass, the temperature of the air, the frequency of the screams. It creeps into the open doors of the Curators' hovels, slowly overgrowing the holographic schematics, digesting the technology, reclaiming the high-tech past for the organic future.
+
+This is the ecosystem of the unfinished room: the swarming, stone-eating drones; the silent, refracting hunters; the dying, grey masters of a broken engine; and the patient, glowing mind in the walls, waiting for the gods to leave so it can finally take over.

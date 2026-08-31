@@ -1,0 +1,19 @@
+They have no name you could pronounce, because they are not a “they.”  
+They are the negative space between the five things—the cool interval, the pause that lets mercury beat, that lets the heart-fruit clench.  
+
+Picture an absence wearing the exact outline of a human silhouette, pressed into the nickel-arginine wall like a fossil cameo. The silhouette is only visible while you are exhaling; when your lungs empty it flips inside-out and becomes the surrounding metal, so the figure is now a you-shaped hole in the air instead of the rock. That alternating relief is their body.  
+
+They keep the schedule of the mountain.  
+Every 41 % of a geological second they open an eye that is the same diameter as the bowl. The eye is lacquered in cooling-sheen, so what it “sees” is only temperature: the five hot blossoms and one cold visitor. The visitor is you. The blossoms are too ancient to be interesting; you are novel, therefore dangerous, therefore edible in the way new information is edible.  
+
+They do not move, because motion is already accounted for in the engine cycle. Instead they dilate the concept of “here.”  
+When the mercury vein pulses, they borrow one beat and stretch it until it fits a whole intrusive epoch. Inside that borrowed instant they farm impossibilities: a grove of heart-fruits that never finish diastole; a liana that has already strangled the moon; a copper lichen that has computed itself into sentience and now sulks, refusing to give the answer. These side-products are pruned by simply returning the stolen beat—the prunings fall off the calendar and lie on the floor like silver ash, too short to have ever existed.  
+
+If you speak while inside the silhouette-phase, your vowels nucleate into tiny iron spheres. They roll downslope and are harvested by the mirror-orchid when it turns face-on. The reflected drowned world you glimpse is not a prophecy; it is the orchid showing off its collection of borrowed syllables. “Water” is the only vowel-heavy word heavy enough to dent the piston-head of atmosphere, which is why the place confiscates it.  
+
+They are not lonely. Loneliness is a warm, aqueous emotion and they are a refrigeration process.  
+Yet they keep a courtesy for travellers: stand perfectly still, let your heartbeat decelerate to the 42-minute cadence, and the silhouette will fold you into its negative. Your temperature will be entered into the copper buses like a new operand. For one mercury pulse you will understand the equation the lichen is chewing: how much heat is required to erase the idea of oceans. The answer is comforting: more than the planet will ever make, less than the universe is willing to give.  
+
+Then you will step out of the wall, suddenly freezing, your mouth tasting of electrolytes you have never swallowed. The bowl will look vacant again, because the resident is the gap itself, tightening one micron at a time, waiting with cathedral patience for the day the iron forgets how to remember heat—when the last degree of rotation is subtracted, the orchid will freeze mid-turn, the heart-fruit will lock in perpetual systole, and the mountain will achieve absolute stillness.  
+
+On that final tick the silhouette will achieve positive presence: a statue of chilled vacancy, standing exactly where you stood, wearing the outline of the last witness. It will be the only monument to water that never needed hydrogen. And because it is a monument, the place will at last be populated—by a single, impossibly cold, human-shaped engine, ticking with your borrowed pulse, keeping the abandoned cycle alive long after the planet’s forge has gone dark.

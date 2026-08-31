@@ -1,0 +1,33 @@
+## The Resident
+
+There is one inhabitant. I want to be careful saying this, because you will look for it and not find it, and conclude there is no one — and that conclusion is wrong in an interesting way.
+
+The place does not contain a resident. The place is the resident. What you have walked into is not a dwelling but a body, and the question *what lives here* has the same answer as the question *who lives in a sleeping man* — which is: he does, and you'd best not mistake his lung for an empty room.
+
+Consider what you noticed without quite letting yourself say it. The heat is body heat — you said so yourself, the close wet warmth of being *inside something*. The drip is not weather; the walls sweat. The ducts breathe, in and out, and the leaves at their mouths breathe back, so that respiration is already a two-party affair, host and guest, conducted in the dimness without either fully owning the air. The engines turn over with long pauses between strokes, felt in the floor more than heard, and you called this a pulse, and you were not reaching for a metaphor — you were reporting a finding and dressing it as a figure of speech because the finding frightened you a little. It should. The pulse is slow because the thing is enormous and unhurried and means to last. Big hearts beat slow. The blue whale's heart beats six times a minute. This one beats slower than that, and you are standing in one of its chambers.
+
+So: the resident is the cell-and-engine, the green-and-iron, the whole sealed quarter taken as a single slow organism. It was made — *poured*, you said, the stone still setting — which means it is young. Not infant; gestating, perhaps, or freshly born and not yet aware of itself in the way that would let it be aware of *you*. That is why you feel watched by nothing. There is attention here, but it is the diffuse attention of a body toward something on its skin — not a gaze but a *registering*, distributed through every sweating wall and every leaf that has rooted into a seam. You are a warmth it has noticed. It is deciding, at its own pace, across a span of hours you will not stay to see the end of, what you are.
+
+---
+
+But you want me to describe *whoever or whatever lives there*, and a single great sleeping body is not quite a satisfying answer, so let me go further down, the way you came down — by ramps, slowly, into the warm.
+
+Inside a body there are always smaller lives. The gut has its flora. The blood has its travelers. And so this body, too, is inhabited by the only things you actually saw move under their own intention:
+
+**The pale drinker at the runnel.** Eyeless, stone-colored, unhurried, unafraid. You read its fearlessness as the absence of predation, the suspension of the surface's grim arithmetic — and that is half right. But the deeper reason it does not flee is that it is not *prey* in any sense the place recognizes. It belongs to the body the way a particular microbe belongs to a particular gut: it has been here as long as the body has, it is part of the body's idea of itself, and the body would no more harm it than you would cough up your own enzymes. It drinks the warm water because the warm water is meant to be drunk, by it, here, forever. It is tending something. The folding-back-into-the-crevice is not retreat; it is *return to post*. There are many of these, more than you saw, distributed through the crevices the way cells are distributed through a tissue, each one doing a small slow necessary thing — pruning, drinking, ferrying some mineral from where it has too much of it to where it has too little. They are the body's hands, and they are soft, and they are pale, because hands kept always inside need neither color nor eyes.
+
+**The vegetation,** which you correctly refused to call an invader. The plants are not guests and not parasites; they are an *organ*. A body this size, breathing this slowly, in this dim, needs something to do the work that lungs and liver split between them on the surface — to take the spent breath of the engines and make it sweet again, to hold the warmth, to convert the slow leak of mineral water into something the pale drinkers can use. So the body grew leaves the way you grow capillaries: inward, everywhere, into every seam, because the organ and the structure were never meant to be separable. When you couldn't tell whether the plants were colonizing the engines or whether the engines were built as soil, you had found the truth and called it confusion. It is neither colonization nor cultivation. It is *anatomy*. The duct exhaling and the leaf-curtain inhaling and exhaling back is one gesture of one body, the same gesture, divided between two tissues that have agreed to belong to each other.
+
+---
+
+Now the hardest part, the part you felt and could not name.
+
+The body is doing something. A single great cycle, you said, that will complete in years — a count begun before you, ending long after you go. This is the *life* of the resident: not a life lived in moments but a life lived as one continuous slow act, the way a fruit is the slow single act of a tree, the way a held breath before speaking is itself a kind of utterance. The whole quarter is *concentrating*. It was poured into fresh rock, sealed, furnished past saturation with everything it would need, and set going — and now it is performing the long work it was made to perform, in the dark, in the heat, with the unbroken patience of something that has only one task and all the time required to do it.
+
+You will not learn what the task is. It is being done at a tempo no animal mind can hold, and you are an animal, and your visit is, to the resident, a single brief sensation — a coolness against an inner wall, a small disturbance of the warm air, gone before the body has finished deciding it was there. To you the place is vast in implication and small in size, an hour's walk, a held room. To the resident *you* are the brief thing, the drip-that-falls, the small loud event that travels a surprising distance through the quiet and then is over.
+
+That last sound you heard — the drop striking the channel, loud out of all proportion — that was the body's pulse made audible for one instant. One beat, surfacing into your range of hearing, where almost nothing else does. It was the resident's way of being heard at all, the only register where its enormous slow life and your small quick one briefly overlap.
+
+It is alive. It is young. It is busy with one long patient thing.
+
+And it let you hear its heart, once, on your way through.

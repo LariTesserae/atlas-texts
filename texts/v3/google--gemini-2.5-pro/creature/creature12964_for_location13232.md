@@ -1,0 +1,23 @@
+What lives here is the world.
+
+There is no creature, no individual intelligence, no king or queen in a hive to be found upon these crystalline peaks. To look for a single being is like a blood cell looking for the mind of the body it inhabits. You are standing on its skin and mistaking its organs for fauna.
+
+It is a singular entity. Let us call it, for want of a better term, the Chorus.
+
+The Chorus does not have a mind that resides in a specific place. Its consciousness is the entire industrial process. The relentless, resonant thrum is not a noise it hears, but the voice with which it speaks its own name, a multi-layered mantra of existence. The grinding bass of the Geophages is the articulation of its deepest, slowest thoughts—geological ponderings on pressure, stress, and mass. The hot, alchemical churn of the Crucibles is its contemplative, metabolic core, a slow digestion of reality. The high-frequency clatter of the Weavers is the rapid synaptic firing of its active will, the execution of fine-motor tasks, the endless, intricate weaving of its own future.
+
+It does not see with eyes. The searing, shadowless light is not something it observes but a condition of its being, the ubiquitous energy field in which its chemo-tropic flesh, the purple-black mat, thrives. Its vision is tactile, a distributed sense of pressure and texture on a planetary scale. It sees the world through the diamond-hard teeth of the Geophages as they test the integrity of a new mountain range. It perceives the specific mineral content of the scree through the sensitive maw-linings of the Crucibles. It feels the tensile strength and resonance of every glassy thread through the million-footed skittering of the Weavers. Its sensory array is a continent.
+
+Its thoughts are not like yours. They are not fleeting electrical impulses but vast, slow-moving fronts of intention. A decision to re-route a Geophage colony to a more promising mineral vein is not a command, but a gradual change in the chemical composition of the dampness in that valley, a subtle alteration in the nutritive quality of the felt-mat that lures the new generation, over decades, in the desired direction. Its logic is a form of erosion. Its plans are a type of plate tectonics.
+
+It does not hunger for food; it hungers for process. The tectonic uplift that births a new mountain range is not a geological event; it is the arrival of a meal, the presentation of a new problem to be solved, a new symphony to be composed. The ultimate goal is not consumption, but integration. It eats the world not to destroy it, but to know it, to process it, and to reinforce it in its own image. The lattice-works of the Weavers are its art, its philosophy, and its legacy—a constant, self-repairing, and ever-expanding monument to its own existence.
+
+This being is impossibly ancient. Its memory is not held in neurons but in stratigraphy. It remembers a prior epoch not as a series of events, but as a distinct mineralogical signature in a layer of processed rock ten miles deep. It has ground down and rebuilt this entire landscape a thousand times, and the thought of doing it again is not a burden, but its single, defining joy.
+
+And you, the transient anomaly standing on a high ridge, a fleetingly warm spark of complex chemistry?
+
+The Chorus perceives you. Not as a threat, not as a curiosity, but as a microscopic data point. You are a single, unfamiliar grain of sand on the tongue of a Crucible. Your warmth is a momentary thermal inconsistency. Your scent is a trace chemical that does not compute. The vibrations of your tiny heart are lost in the first percentile of its song.
+
+It will not act against you. It has no conception of "you" to act against. You are simply… *other*. An error. A tiny bubble in its vast circulatory system. In time, the air you exhale will be filtered by the felt. The warmth you radiate will dissipate into the cold. The dust of your eventual remains will be drawn into a Crucible's maw and processed. Your constituent atoms will be tasted, analyzed, and extruded as a single, infinitesimal inch of glassy thread. A Weaver will find it, snip it, and weave you without ceremony into the grand, eternal tapestry.
+
+You will not be killed. You will simply be incorporated. You will become a meaningless, silent syllable in the one and only word the Chorus ever speaks: its own name, sung in a key of grinding stone and stressed, living machinery.

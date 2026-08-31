@@ -1,0 +1,41 @@
+No one lives here the way something lives in a house.
+
+Nothing here *occupies* this place. Everything here *is* the place, piled on top of itself.
+
+At first you don't see inhabitants at all. You see movement that you mistook for the forest moving. Then your eyes learn the trick - that every leaf is an animal pretending to be a leaf, every shadow has legs, and every stillness is holding its breath.
+
+They are not large. Largeness doesn't work here. There is no room for it between the basalt knives and the thatch of roots, and there is no need for it when food is a film on every surface. The things that live here live small, live many, live close enough to touch each other at all times.
+
+Start with what lives on the ground, because the ground is not ground.
+
+Lift any one of those waxy, shield-sized leaves and you will find the mat underneath is not soil but animal. Pale, shrimp-like things the length of your finger flick sideways through the wet leaf-litter, translucent as condensation, carrying their eggs under their tails. They never see open water. They were born in the brown water trapped in a cupped leaf, they die in the same leaf when it finally falls and is eaten. Under them, mites like moving dust. Over them, beetles.
+
+The beetles are the cattle and the lanterns. Big as your fist, some as big as two fists, their backs domed and wet and black, spotted with amber light-organs that they can shutter at will. They move slowly because they can afford to - nothing eats them quickly, their chitin is ridged and pitted like the basalt itself and tastes of bitter stone. In long, silent processions they climb the trunks of the tree-ferns, grazing biofilm and fungal fur off the bark, their lights sweeping the dark in slow arcs. Behind them comes everything else to pick up what they dislodge.
+
+Up a layer, where the air is air.
+
+The amphibians own the sound. You thought it was insects and you were half right, but the drilling, sawing roar that lives in your molars *is* insects - clouds of them, gnats and needle-flies and things with no name, hatching and dying in the same hour. The amphibians are the pop and the croak beneath it. They sit in every condensation cup, in every seep, in the hollow knuckles of rock. Some are no bigger than your thumbnail, their throat sacs inflating to luminous white balloons twice their body size. Some are as long as your forearm, flattened and the color of wet moss, with eyes like polished jet that never blink, pressed into the rock face so perfectly you only see them when their throats pulse. None of them have ever needed a pond. Their skin drinks the air. They lay their eggs in the drip. You can watch a tadpole complete its entire life in the water held by a single curled leaf.
+
+The gliders live between. They are the closest thing to a mammal this basin has made yet - small, furnace-warm bodies covered in short, damp velvet, big hands and bigger eyes. They don't walk so much as throw themselves. From a fern frond to a vine to a fungal barrel, membranes stretched between wrist and ankle catching the heavy air for half a second before they snag with needle claws. They chitter constantly, not to each other but to echolocate the clutter, because eyes alone aren't enough in the shingle-dark. They steal. They steal thorns and use them. You will see one hang by its hind feet, hold a pale, soft fruit in its forepaws, and work a black thorn like an awl, piercing the rind over and over until it can worry the skin open. When it drops the thorn, something else will pick it up within minutes.
+
+And then the clever ones. Not one clever species. A habit of cleverness that has leaked.
+
+The soot-black ants, each as long as your thumb-joint, glossy and always wet, are engineers without architects. Watch them work a leaf for an hour. They cut - not chew, *cut* - perfect coins from the waxy canopy leaves with their scissored mandibles. They carry the discs above their heads like shields in a line down the trunk, into a crevice in the basalt where their brood sleeps in white piles. There they masticate the leaf into a grey paper and daub it with their own saliva into baffles and gutters and tiny aqueducts. They are not building a nest. They are building plumbing. They angle their paper to catch the night rain that falls from nowhere, to funnel each fat condensation drop away from the larvae or toward them, as needed. If you breathe too hard on their work they will disassemble it and start again somewhere else.
+
+Higher up, the four-winged things. They look like birds until they open their wings and you see hands - two fingers and a thumb at the leading edge of each forewing, the claws black with sap. They are feathered but not with feathers, more like shredded leaves. They pry. They will land on a trunk, tilt their head to listen for the grub inside, then snap a twig with a practiced twist, strip it, and use the splintered end as a lever to peel bark back in one clean sheet. If the stick breaks they drop it and make another. No nest is decorated, no tool is kept long. Use and discard. Use and discard. The forest floor is littered with their one-time tools, which become homes for something else before morning.
+
+And the mimics. The mantis that was a leaf. It hangs among the real leaves with veins that light up faintly amber when you brush it, until you get too close and it unfolds - not much larger, but suddenly *wrong*, all angles and eyes, its forelimbs opening like a bear trap lined with thorns. It doesn't chase. It waits for the general frenzy to bring food to it. Everything here is an ambush or a procession. Nothing pursues far because there is nowhere far to pursue through.
+
+None of them are alone. That is the rule you feel before you understand it. You never find one beetle. You find a road of them. You never hear one frog. You hear a wall of sound that is thousands of throats deciding to call at once so no predator can find one. You never see one fungus, you see a barrel that fruited at dusk and by midnight is a crawling mass of larvae, slugs, gnats, and gliders all eating it, eating each other, carrying its spores away on their legs. If you stare at one square yard for ten minutes you will see it colonized, stripped, abandoned, and re-colonized. Generation times are measured in days. Death is not an event here; it is a texture, like the damp.
+
+They all drink without drinking. They lick leaves. They press their bellies to moss. They tilt pale, translucent leaves to catch the drip and funnel it to their mouths. They have no need to go to water because water comes to them, drop by drop, all night, patting on their backs.
+
+They see by the light they make. The forest is dim, never dark. The veins in the shrub leaves glow when touched. The fungi breathe green-white. The beetles shutter their spots to signal. The slime mold maps itself in cold blue across the rock, flowing, breaking, rejoining - a brain with no head. Eyes here are huge, or they are not eyes at all but antennae, feathery and constantly tasting the heavy air.
+
+If a human lived here, they would not live long. They would be too loud, too large, too dry. They would try to make a clearing and the green would close it before they finished. But something *like* a person is already here, smeared thin across a hundred species - the understanding that a sharp edge is better than a dull one, that a drop can be guided, that a leaf can be both roof and food and signal. No fire. No stone stacked on stone. No word. Just that constant, busy, borrowing intelligence that never sleeps because the night never ends.
+
+Stay still long enough and one of them will decide you are terrain.
+
+A glider will land on your boot and try your lace as a vine. An ant will test the edge of your sleeve with its mandibles, not to bite, but to see if the weave will cut into a good disc. A mite will cross the back of your hand and be gone before you decide if you felt it.
+
+You are not being watched. You are being incorporated, drop by drop, the way the condensation falls.

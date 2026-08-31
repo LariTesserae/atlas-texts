@@ -1,0 +1,26 @@
+To dwell here is to be an instrument in a choir that never rests. There is no privacy in the Hollow, for the body is a conduit for the roar, and the skin is a drumhead stretched tight over the chaos. The inhabitants of this vegetative superstructure are not merely living within it; they have evolved to be the components of its biological machine, shaped by the crushing weight of the sound and the humid, breathing architecture.
+
+**The Striders (The Six-Limbed Apex)**
+Moving through the vertical canyons of bark are the primary architects of the motion here. They are the "liquid speed" glimpsed at the periphery—six-limbed mammals that defy the clumsy clumsiness of earthly primates. They are lean and elongated, possessing a skeletal density that allows them to withstand the acoustic pressure without shattering.
+
+Their fur is not fur in the traditional sense, but a dense, velvet-like moss that grows symbiotically from their pores. This moss matches the texture of the bark-towers perfectly, rendering them nearly invisible when they press themselves flat against the "walls." They do not run; they flow. Their middle set of limbs are hooked, razor-sharp claws designed to grip vascular tissue, allowing them to rip into the soft wood of the towers to anchor themselves during violent leaps.
+
+Because vision is compromised by the shimmering, heat-haze distortions of the sound waves, the Striders navigate primarily through touch and a hypersensitive form of hearing. Their skulls lack external ears; instead, their entire jawbone acts as a receiver, vibrating with the thrum of the Hollow. They "sing" to one another through sub-bass clicks that travel through the roots of the city, communicating over miles by vibrating the very floor you stand on.
+
+**The Resonant Swarm (The Insectoid Choir)**
+The air is thick with the bird-sized insectoids that form the living fog of the space. These creatures are biological capacitors. Their wings are not thin membranes but stiff, crystalline structures that beat at a frequency designed to cut through the roar. Their abdomens are translucent, glowing with the same bioluminescence as the ceiling leaves, pulsing in time with the standing waves of the vault.
+
+They are the pollinators and the waste-eaters, hovering in the empty voids between towers. They possess compound eyes that can see the acoustics—visualizing the sound pressure as shifting colors of heat and force. When a predator screams, the air lensing is visible to them as a blinding flare. They travel in massive, coordinated clouds that move like a single fluid organism, avoiding the "lens traps" of high-decibel areas. Their sting is not venomous, but sonic; they can vibrate their wing cases rapidly enough to liquefy the internal organs of smaller threats.
+
+**The Root-Maw Scavengers**
+Down in the spongy, root-hair mesh of the "streets" live the detritivores. They are low-slung, armored creatures resembling armadillos crossed with mollusks. Their shells are made of calcified sap—hard, glossy, and reddish-brown. They move through the damp foam of the floor, rasping mouths constantly chewing.
+
+They are deaf, their ears having evolved shut long ago to protect their brains from the seismic noise of the footsteps above. Instead, they taste the vibrations. Their bellies drag along the root-floor, sensing the tremors of falling fruit or dying meat through the sponge. They are the cleaners, instantly dissolving biological matter into a nutrient slurry that the floor eagerly drinks. They are solitary and slow, but armored against the crushing weight of a falling Strider.
+
+**The Wall-Gazers**
+The most unsettling inhabitants are those that never move. At first glance, they appear to be burls, tumors, or strange floral growths embedded high in the vascular tissue of the towers. They are roughly spherical, embedded deep within the wood, with a single, large, unblinking eye composed of a thousand faceted lenses facing the open air.
+
+These are the nervous system of the city. They do not eat; they are fed directly by the xylem of the tower they inhabit. Their purpose is to watch the acoustic geometry. They monitor the standing waves, the stress fractures in the air, and the movements of the larger fauna. When a "lens" of sound becomes too unstable or a predator threatens the structural integrity of the Grove, the Wall-Gazer emits a psychic pulse—a blast of infrasense that paralyzes the aggressor and warns the rest of the ecosystem. They are the watchers, the silent sentinels in a world of noise, permanently fused to the architecture, observing the eternal hunt.
+
+**The Superstructure Itself**
+Finally, one must consider the hollow itself as an inhabitant. The ground, the towers, and the breathing lattice ceiling are a single, unified organism. The "mortar" is sap; the "paving" is root. It "knows" you are there. The dampness that soaks your clothes is its sweat; the shifts in the doorways are its breaths. It cultivates the moss on the Striders and feeds the nectar to the Swarm. It is a macro-consciousness that exists on a geological timescale, tolerating the violence of its parasites because it requires the vibration of their lives to keep its own blood pumping. It is the god and the dungeon, the living flesh that binds the noise into a city.

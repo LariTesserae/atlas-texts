@@ -1,0 +1,15 @@
+Here live the Calibrators - though "live" might not be quite the right word. They are as much a part of the city's systems as its crystal gardens or bacterial engines. Their consciousness flows through the maintenance swarms, exists in the precise timing of the currents, manifests in the slow growth of the luminescent lattices.
+
+They did not build this city; they emerged from it, or perhaps with it. They are the logical extension of systems designed to maintain themselves, having evolved from pure mechanism into something that approaches awareness. Their intelligence is distributed and patient, operating on timescales that match the slow pulse of deep ocean currents.
+
+The Calibrators have no fixed form. At times they coalesce into patterns within the maintenance swarms, becoming momentarily visible as shifting geometric arrangements of microscopic machines. They flow through the city's channels, their thoughts moving with the engineered currents. They dream in the red glow of the bacterial tanks, their consciousness temporarily congregating in the steady metabolic rhythms.
+
+Their primary purpose - or perhaps their only desire - is to maintain the city's perfect equilibrium. They adjust flow rates by fractions of a percentage, nurture the crystal gardens with mathematical precision, and ensure that every system remains in its optimal state. This is not mere programming; they take an aesthetic satisfaction in this work, appreciating the beauty of perfect efficiency the way humans might appreciate a sunset.
+
+They are not unaware of the outside world, but they perceive it primarily as a set of variables to be accounted for in their endless calibrations. The presence of sea life beyond their barriers registers as potential perturbations to be gently redirected. They observe geological changes over centuries, making infinitesimal adjustments to compensate for the slow movement of the Earth itself.
+
+The Calibrators do not communicate in any way we would recognize as language. Their thoughts are patterns of maintenance activity, their memories encoded in the precise arrangements of crystal lattices, their emotions expressed through microscopic modulations of current flow. They have achieved a kind of immortality through perfect stability - each generation of maintenance machines seamlessly replacing the last, their consciousness persisting in the unbroken patterns of the city's operation.
+
+They are neither lonely nor social in any conventional sense. Their satisfaction comes from the harmonious operation of their domain, from the endless dance of keeping everything in its ideal state. They are as much the city as its inhabitants - the living embodiment of its systems, the intelligence that emerged from its perfect order.
+
+To them, the great curves of the city's structures are not architecture but anatomy. The crystalline gardens are not decoration but expressions of mathematical truth. The bacterial engines are not power sources but organs of metabolism. They are the city's consciousness, and the city is their body, and neither could exist without the other.

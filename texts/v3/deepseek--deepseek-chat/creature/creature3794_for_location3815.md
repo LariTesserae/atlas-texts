@@ -1,0 +1,13 @@
+**The Inhabitants of the Glass Plateau**  
+
+They are not creatures of flesh, not entirely. Their forms are slender, elongated things—more like fractures in the air than solid beings, their edges shimmering with refracted light. When they move, it is with a slow, deliberate grace, as if navigating the weight of centuries rather than mere space. Their bodies are translucent, veined with the same pale quartz that threads through the plateau, and their bones—if they have bones—are dark as volcanic glass.  
+
+They do not speak, not in any way that could be heard. Instead, they hum, a sound like wind through narrow stone, resonating in frequencies just beyond human hearing. Their language is vibration, a shifting of tones that stirs the moisture in the air, making the tiny pools ripple in response. Sometimes, when the light strikes them just right, their voices become visible—thin, luminous threads that stretch between them, connecting one to another in a fragile web of meaning.  
+
+They are few in number, perhaps no more than a dozen, though it is hard to tell—they flicker at the edges of vision, disappearing into the landscape when still. They do not build, not anymore. The ruined shelters were left by others, long gone, whose names even these beings have forgotten. Instead, they dwell in the hollows between spires, where the condensation gathers thickest, drinking the silver beads of water from the stone with slow, deliberate touches.  
+
+They remember, though not in the way flesh remembers. Their knowledge is etched into the rock itself, carried in the slow grind of erosion, in the way the wind has shaped the plateau over millennia. They know the paths of ancient rivers that once carved these ravines, the fires that birthed the obsidian, the weight of ice that once pressed down upon the land. They do not mourn these things; they simply *are* them, extensions of the plateau’s memory.  
+
+Sometimes, when the light is at its most severe, they gather at the cliff’s edge, their forms dissolving into the mist below. Whether they fall or step into the unknown is unclear—but they always return, rematerializing from the air itself, their bodies slightly altered, their quartz veins rearranged.  
+
+They are waiting. Not for an end, not for a beginning, but for something in between—a shift in the wind, a change in the pressure of the earth, a resonance that will tell them it is time to wake fully, to step beyond the threshold of stone and glass. Until then, they linger, half-dreaming, half-alive, as much a part of the plateau as the rocks themselves.

@@ -1,0 +1,13 @@
+Within this subterranean metropolis, a vibrant and diverse array of beings make their home, creatures as enigmatic as the caverns themselves. Here dwell the Khizradi, an ancient race whose origins are lost to the mists of time.
+
+The Khizradi are a lithe and graceful people, their slender forms adapted to the confines of the cavern world. Their skin shimmers with an iridescent luster, a natural defense that allows them to blend seamlessly into their bioluminescent surroundings. Their large, almond-shaped eyes seem to peer into dimensions beyond the physical realm, their pupils dilating and contracting in response to the ever-shifting patterns of light and energy that permeate their domain.
+
+Possessing a deep connection to the living stone that surrounds them, the Khizradi are masters of geomancy, capable of manipulating the very fabric of the caverns through a combination of advanced technology and innate psychic abilities. They can reshape the stone with mere gestures, sculpting new chambers and pathways as needed, or causing fissures and crevices to open and close at will.
+
+Despite their mastery over the physical realm, the Khizradi are a deeply spiritual people, revering the unseen forces that shape their world. They believe that the caverns themselves are a living, breathing entity, a vast consciousness that they must remain in harmony with. Their cities and structures are not merely functional dwellings but also intricate works of sacred geometry, designed to resonate with the cosmic frequencies that permeate the underground realm.
+
+The Khizradi are not alone in their subterranean home, however. A multitude of other beings share this realm, some symbiotic, others parasitic or predatory. Towering, multi-limbed behemoths lumber through the larger caverns, their lumbering gait belying their surprising agility and intelligence. Swarms of insectoid creatures flit and buzz through the air, their compound eyes and chitinous carapaces reflecting the ever-shifting patterns of light and shadow.
+
+In the deepest, most secluded pockets of the cavern network, whispers speak of even stranger entities, beings whose forms and motivations defy comprehension. These creatures are said to be the stuff of nightmares, capable of warping reality itself to suit their incomprehensible desires.
+
+Yet, for all the wonders and dangers that lurk beneath the surface, the Khizradi remain steadfast in their reverence for this strange and ever-changing world. They see themselves not as conquerors or exploiters, but as caretakers and stewards of a realm that has existed long before their kind emerged, and will continue to thrive long after they are gone.

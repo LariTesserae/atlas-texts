@@ -1,0 +1,11 @@
+In this sunken, dripping cathedral, there are many strange and unusual beings that dwell in the perpetual twilight. Deep within the shadows cast by the fluorescent lights, colonies of bioluminescent fungal slimes have grown, clinging to the mossy walls. These slimes pulsate gently with a soft, eerie blue glow.
+
+Nesting high up in the fog-layer are the nightstrider bats - blind, flightless creatures whose fur bristles with long, feelers tendrils. They sit like monstrous rocking hams in the perpetual gloom, emitting echoing whispers that reverberate in the enclosed space.
+
+Venturing forth from the central island are the spindly-legged aquamorphs - bipedal amphibians with gill-frills around their elongated heads. They use the mechanical platform for a hive, scuttling up and down the grooved sides with their long fingers. They have learned to interface with the strange devices there, gearing their secrets into the strange machines.
+
+Lurking in the benthic niches deep in the lake are the tubule bellies - almost formless sacks of skin with trailing suckers, bulbous eyes and a bellows-like mouth. They are slow and placid, preferring to hang immobile in the darkest depths, but they will creep out at night to scuttle across the stone in search of moisture loving insects.
+
+Heaving through the water are the islandhoppers - watery, powerfully muscled creatures with brutal breaching armored tails and ruddy fangs big enough to take a leg off a man. They lurch into the air to collapse bodily on the platforms, small fleshy lumps bearing emerald eyes on their sunken snouts. They lumber and shamble and are fond of aggression.
+
+There may be other entities that haunt this drowned place - things that drift through the fog or ooze through the bioluminescent slimes. Unseen gazing eyes, felt but unseen in the shadowed crevices. But the water-kin, the slimes and the bat-hams and aquamorphs and tubules and islandhoppers are the mainest residents of this strange, feral cathedral drowned beneath the earth.

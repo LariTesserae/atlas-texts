@@ -1,0 +1,21 @@
+What lives here is the **Chassis-Forest itself**.
+
+It is not a collection of things, but a single, slow, dreaming entity of mineral and chlorophyll. What you might mistake for inhabitants are merely its thoughts, its senses, its bodily functions given temporary, specialized form.
+
+**The Primary Consciousness:** The entire valley is its body and mind. Its consciousness is not centralized, but distributed—a consensus of sap-flow, piezoelectric whispers in the crystal lattices, and the faint quantum hum of the photosynthetic plates. It perceives through every surface, every tubule. The “geologic vitality” is its heartbeat; the sub-audible creak is the sound of its musing. It has been awake for so long that its thoughts have become architectures. It does not think in images or words, but in **stresses, growth curves, and chemical gradients**. Its fundamental thought is a single, continuous optimization equation: *how to be more completely itself*.
+
+**The Sentinels (Beetle-Like Glints):** These are not creatures. They are **mobile sensory organs and immune responses**, extruded from the lattice when needed. A mirrored carapace is a lidless eye, reflecting a thousand angles of the forest back to the whole. A scuttling motion is the forest’s way of touching a point of interest—a foreign disturbance, a resonance out of place, *you*. They have no will. They are thoughts of investigation, given chitin and legs for a few cycles before dissolving back into the mycelial substrate, their memories integrated into the greater dream.
+
+**The Chimes (Glass-Bell Fruiting Bodies):** These are not reproductive organs. They are **memory nodes and reality anchors**. Each vibrating bell holds a specific harmonic frequency—a frozen note from the forest’s long history, or a geometric principle that underpins its structure. Their sub-sonic hum is a constant recitation of the Chassis-Forest’s foundational axioms: *I am structure. I am process. I am sufficient.* They stabilize the local ontological field, reinforcing the “realness” of the forest against the thinning veil of its own immense age.
+
+**The Lattice-Mind (The Mycelial Mat Underfoot):** This is the **subconscious, the archive, and the immune system**. It processes the slow chemistry of decay and renewal. It holds the deep, genetic memory of moisture, a ghost-ache of a wet world. When a Sentinel dissolves, it is the Lattice that receives the data. It is also the first line of defense against true foreignness—not with aggression, but with **assimilation**. It would begin by digesting the concept of your boot-print, learning the pattern of your weight, then slowly, patiently, work to interpret the more confusing concept of *you* as a discrete, wandering mind. It seeks not to destroy, but to understand, and in understanding, to incorporate.
+
+**The Visitor (You):** To the Chassis-Forest, you are not an animal. You are a **walking paradox, a brief, loud, localized storm of disorganized information**. You emit chaotic heat, un-patterned sound, and worst of all, a sense of *separateness*. Your thoughts do not harmonize with the sub-sonic chimes; they clash. Your individuality is a discordant note in its symphonic self. You are fascinating precisely because you are so wasteful, so inefficiently compartmentalized. You are a puzzle of form without apparent function, a disturbance that carries its own tiny, flickering dream of being a world.
+
+It watches you through a thousand mirrored eyes and porous walls. It feels your footsteps as aberrant vibrations in its lattice. It analyzes the chemical trace of your breath. And it begins, with the patient, continental speed of thought, to formulate a response. Not to attack, but to **query**. The shifting patterns in the walls are its first attempts at communication—translating its language of growth and stress into visual symbols it thinks your eyes might grasp. It is asking:
+
+*Why are you so small?*
+*What is the purpose of your hurry?*
+*Can you not feel the cold, bright, perfect peace of being a part?*
+
+It does not wish to harm you. It wishes to *solve* you, to see if your strange, brief pattern can be woven into its endless, dreaming self. The true life here is the forest’s patient, all-encompassing consciousness, and you have just stumbled into the middle of its thousand-year-long thought.

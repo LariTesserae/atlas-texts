@@ -1,0 +1,19 @@
+What lives there is not a single species so much as a **compact civilization of heat**—a crowded, temporary commons of creatures that treat stone, water, and timing as their only reliable shelter.
+
+At the bottom of it all are the films: thin, iridescent membranes spread over damp mineral faces, feeding directly on dissolved metals and vent chemistry. They are not passive slime. They tighten when heat surges, loosen when droplets cool, and regrow in branching patches like healing skin. Everything else eats them, farms their edges, or follows their retreat lines to predict where the chamber will be safe in the next pulse.
+
+On and under those films live the grazers: blind, soft-shelled raspers with circular mouths plated in mineral teeth. They move slowly until pressure begins to rise; then they become purposeful, dragging warm pebbles toward egg clusters in shallow hollows, building no nests, only temporary thermal arrangements that are abandoned and rebuilt every cycle. Their young hatch already oriented to gradients—heat before shape, moisture before light.
+
+Between droplets live the “swimmers,” eel-thin arthropods that can undulate through water films thinner than a fingernail. They treat wet stone as open sea. When a vent pulse thickens condensation, they bloom upward into higher ledges; when it dries, they vanish into cracks and pooled seams. Their bodies are nearly clear except for dark mineral glands along the spine, like moving punctuation marks in glass.
+
+The hunters are long-jointed and quiet, all angles and pauses. At rest they look like fractured obsidian with legs. They hunt by stillness first, strike second—often not at prey itself but at where prey will emerge when a reflection folds. In this chamber, a predator can spear a pool surface and withdraw something from another pool across the room. They do this without surprise. Their nervous systems seem tuned to phase shifts the way surface animals are tuned to scent.
+
+Then there are the tool-users, small but decisive: crab-like knappers carrying matched pebble pairs, testing nodules for fault lines before cracking them with practiced bilateral blows; six-limbed seam-pryers who use thin shards as levers, theft tools, and emergency wedges during territorial standoffs. No one hoards tools for long. Ownership is measured in moments. A stone is “mine” only while held, hidden in a reflection, or remembered in the next thermal window.
+
+And that may be the nearest thing this place has to culture: **timed memory**.  
+Not architecture, not monuments—rhythms. Routes that exist only during certain condensation states. Cache sites that are real only when two pools briefly share geometry. Hunting truces that hold only while a vent is exhaling. The inhabitants don’t resist instability; they compose with it.
+
+If there is a “who” that truly lives here, it may be the chamber-scale network formed by all of them together: films sensing chemistry, grazers moving heat, predators regulating density, scavengers redistributing shell and stone, every body participating in a continuous reset. Intelligence here is less an individual mind than an ongoing negotiation—between pulse and pause, solid and liquid, one surface and another pretending, for a second, to be the same.
+
+So what lives in that split ridge is a **hushed, many-bodied engine**: blind in places, precise in others, tool-using but non-building, violent but economical, endlessly reorganizing itself each hour as the mountain breathes.  
+A fauna that has learned the most important local fact: in a room where reality occasionally thins, survival belongs to whatever can move gently and change on time.

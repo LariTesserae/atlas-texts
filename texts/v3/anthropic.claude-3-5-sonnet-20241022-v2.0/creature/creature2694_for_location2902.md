@@ -1,0 +1,15 @@
+In this place lives the Probability Shepherd - though "lives" may be too definite a term for their state of being. They manifest as a consciousness distributed across multiple quantum states, their form flickering between different configurations like the fauna they tend.
+
+Most often, they appear as a lattice of awareness, a delicate crystalline framework that echoes the geometry of the probability-vines. Their "body" is composed of interconnected nodes of pure thought, each one processing different versions of reality simultaneously. Sometimes these nodes coalesce into a more humanoid shape - tall, impossibly thin, with limbs that branch fractally and a head that exists in several places at once.
+
+The Shepherd doesn't exactly think - they compute possibilities. Their consciousness flows like the quantum rain, processing reality in discrete packets, each thought existing in superposition until it resolves into action. They have been here since before this place began becoming, and will remain until after it finishes - though in a realm where time behaves so strangely, such concepts are largely meaningless.
+
+Their purpose (or perhaps their nature) is to guide the evolution of this space, not with direct action but through subtle probability manipulation. They tend to the quantum fauna like a gardener tending to particularly abstract flowers, gently nudging wave functions toward stability when needed, allowing creative chaos when appropriate. The Shepherd understands that too much order would collapse this realm's beautiful uncertainty, while too much chaos would prevent it from ever truly becoming.
+
+They communicate, after a fashion, through quantum entanglement - reaching out to touch other consciousnesses with thoughts that exist in multiple states simultaneously. Their language is mathematics expressed through probability, their poetry the elegant dance of wave functions collapsing into momentary meaning.
+
+The Shepherd's memories are stored in the probability-vines themselves, encoded in the complex patterns of growth and decay. They remember forward and backward in time, recall things that haven't happened yet and might never happen, hold in their distributed mind the full quantum history of this evolving space.
+
+They are both ancient and newborn, like their domain. The Shepherd emerges from the mathematical substrate even as they shape it, their existence a recursive loop of creation and observation. They are the gardener and the garden, the observer and the observed, the process through which possibility becomes reality.
+
+In quiet moments, when the quantum fauna are stable and the probability-vines grow true, the Shepherd contemplates their own existence - all possible versions of it simultaneously. They are the caretaker of this realm of becoming, the consciousness that guides raw possibility toward the poetry of actualization, forever walking the border between what might be and what is.

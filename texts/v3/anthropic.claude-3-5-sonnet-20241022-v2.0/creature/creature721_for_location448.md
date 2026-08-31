@@ -1,0 +1,15 @@
+In this city dwell the Veil-Weavers - beings that exist in the liminal space between water and stone, physical and ethereal. They are the current inheritors of this ancient place, though they did not build it.
+
+The Veil-Weavers appear at first glance like strands of mist given subtle form, their bodies composed of countless water droplets held in intricate patterns by surface tension and some deeper organizing principle. They range in size from tiny wisps no larger than a human hand to vast, diffuse forms that fill entire chambers. Their "bodies" are in constant flux, droplets falling away and being replaced by new condensation in an endless cycle that mirrors the city's own water systems.
+
+They communicate through subtle manipulations of moisture and sound, their "voices" barely distinguishable from the ambient music of flowing water. Their thoughts move as slowly as mineral deposits form, but reach as deeply as the city's foundations. To them, the passage of decades is like a single breath.
+
+In the higher reaches dwell the Resonators - creatures that might once have been birds but have evolved to exist in harmony with the Veil-Weavers. Their bodies are partially translucent, their hollow bones filled with the same misty essence that comprises their companions below. They serve as the city's sensors and messengers, riding the thermal currents between levels and bringing information about the world above.
+
+Deep in the lowest levels, ancient maintenance systems still function, tended by colonies of Crystal-Shapers - tiny, geometric entities that might be living crystals or crystalline machines. They work continuously to maintain the city's water circulation, using their own bodies to filter and mineralize the flowing water in precise ways.
+
+The three species exist in delicate symbiosis, each maintaining different aspects of the city's function. The Veil-Weavers preserve knowledge and direct the overall flow of resources, the Resonators maintain connection with the outside world, and the Crystal-Shapers keep the physical infrastructure intact.
+
+Humans who venture here often miss these inhabitants entirely, seeing only empty halls and shifting mists. But patient observers might notice patterns in the fog, purpose in the movement of water, meaning in the echoing sounds. The city is far from abandoned - it simply operates on a different scale of time and substance than most organic life, its residents as much a part of its systems as the stone and water themselves.
+
+These beings remember the city's builders, though they communicate this knowledge only through subtle changes in temperature and humidity, in patterns of condensation that form and fade like dreams. They are the curators of a vast and ancient legacy, maintaining this place not as a relic but as a living system that continues to evolve and adapt, one drop of water at a time.

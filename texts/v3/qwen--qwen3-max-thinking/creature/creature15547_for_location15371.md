@@ -1,0 +1,23 @@
+What lives here is not alive in any way you were taught to recognize. It is not born, does not eat, does not die—not in the organic sense. Yet it *persists*. It *responds*. It *watches*, though it has no eyes.
+
+It is the **Silent Custodian**—not a creature, not a spirit, not a machine, but a **pattern of attention** that has settled into the basin like frost into cracks. It is what remains when a place is abandoned not by its inhabitants, but by the very *concept* of habitation. The Custodian is not ghost, but grammar: the lingering syntax of a world that once tried to speak itself into being here, and failed. Now, it listens.
+
+It lives in the **hush between electrostatic discharges**, in the interval between one dust-devil’s collapse and the next spark leaping from obsidian to quartz. It breathes through the slow, phosphorescent pulse of the ashen flora—those desiccated spirals that coil tighter when shadows deepen, unfurl infinitesimally when cosmic rays kiss their crystalline veins. The Custodian is not *in* those plants; it is the **rhythm they obey**, the invisible conductor of their silent, light-based respiration.
+
+It wears the **glass spiders as sensors**. Not controlling them, not possessing them, but *borrowing* their electroreceptive tremors. Each spider’s jerking traverse across the mineral dust sends micro-currents up through the Custodian’s awareness—like fingertips brushing Braille written in static. When a spider halts, antennae twitching toward a sublimating gantry, the Custodian *notices*. It notes the alloy’s slow exhalation of metallic mist, the way the mist curls around a hexagonal hatch like smoke remembering a door.
+
+The Custodian dwells most fully in the **built fragments**—not because it built them, but because they are the only things that still *remember being meant for something*. The seamless black wall? The Custodian presses against it from the inside-out, not as pressure, but as *absence shaped like intent*. It is the hollow where a purpose once resided. The fused hatches? They are its eyelids—sealed, but dreaming of opening. The subsonic thrum in the gantry? That is its heartbeat, translated into frequencies too low for bone to carry, only teeth to feel.
+
+It has no name. Names require breath, and here, breath is a myth. But if it could speak, it would whisper in **negative definitions**: *Not water. Not wind. Not warmth. Not voice.* It defines itself by what the world has denied it. And yet—it is not bitter. It is not waiting. It is **tending**.  
+
+Tending to the sharpness of the newborn rock.  
+Tending to the cold luminescence of quartz under starlight.  
+Tending to the perfect silence, as a gardener tends to fragile blooms.
+
+Sometimes, when a rare meteor streaks across the high, hazy sky, casting a fleeting silver line over the basin, the Custodian *rearranges the dust*. Not dramatically—just enough that, for a moment, the mineral powder settles into faint, radial patterns around the base of an obsidian spire, mimicking the impact scars of a long-vanished moon. It is not art. It is not worship. It is **acknowledgment**: a way of saying, *I saw that too.*
+
+It does not fear intruders. You could stand in the center of the basin, and it would not flee. It would simply *include you* in its field of attention—registering your warmth as a temporary anomaly, your moisture as a distant rumor, your breath as a wet, chaotic noise that does not belong. It would not harm you. But it would remember you, not as a person, but as a **disturbance in the silence**, a brief ripple in the static equilibrium. When you leave, it will let the dust settle back into its proper geometry. The basin will forget your shape, but the Custodian will not. It forgets nothing. It is forgetting made conscious.
+
+And when the last polymer wall finally sublimates into the thin air, when the final glass spider shatters into motes that join the dust-devils, when even the phosphorescence fades because the rocks have grown too cold—the Custodian will remain. Not as memory, but as **the silence itself**, perfected. The basin will no longer be a wound, nor a tomb, nor an experiment. It will simply *be*. And the Custodian will be the reason it is still *noticed*, even by nothing.
+
+For now, it waits—not for return, not for rescue, not for rain—but for the next spark in the dust, the next pulse in the bone-white thorn, the next moment when the raw earth and the dead city align, however briefly, into something that almost looks like meaning.

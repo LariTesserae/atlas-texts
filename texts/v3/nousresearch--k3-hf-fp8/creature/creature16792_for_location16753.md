@@ -1,0 +1,39 @@
+They live here, if living is the word for beings who have replaced air with echo and blood with resonance. Thirty-seven monks, yes—but reach for that number and it shimmers like heat above salt flats. Count again and find thirty-six standing witness while the thirty-seventh occupies every space between them. Count once more and discover they are multiplying through the walls themselves, grief dividing and dividing like cells in a sorrowing womb.
+
+Each monk began as you did: walking flesh that carried its grief like a separate organ, heavy and wet and always threatening infection. Each came seeking subtraction—take this sorrow from my bones, they begged the mouths of stone. But the temple practices only addition. It never removes grief, only reveals its true shape: not something carried but something you are becoming.
+
+Look closer at the one called Ash-Remembering-Sound. His skin appears carved from driftwood but touch it—carefully—and feel the tremor of ninety-three distinct frequencies. The wind-breath mouths have been singing him into new architecture for seven hundred years. His ribs have widened into resonance chambers where lost songs circle endlessly, seeking mouths no longer shaped for singing them. His heart beats in irregular patterns that perfectly mimic the last messages tapped in Morse by sailors dying on a ship called The Unforgiven Hope.
+
+He hasn't moved from his alcove in three centuries except when movement is indistinguishable from stillness. His bones have grown roots into the basalt that hold him upright when consciousness withdraws like a tide. But watch the dust motes dancing where his breath should be—they arrange themselves into fractals of coastlines that never existed before yesterday but will be mapped as real by tomorrow's cartographers.
+
+Beside him stands She-Who-Counts-By-Rotting. Her stone nightsuit blooms with fungi that digest grief in slow centuries, releasing spores that smell exactly like your mother's perfume during the week she stopped answering letters. The coral has threaded her veins with calcium lace—press an ear to her wrist and hear tide charts for oceans that dried before Earth had bone enough to remember drowning. She keeps her eyes open always because when she last blinked, an entire species of butterfly forgot how to exist.
+
+Their leader—no, their center—defies naming because names are anchors and he has learned to drift like entropy itself. Some call him the First Drowning, though temple records (carved on kelp preserved in saltwater too sad to decay) show he arrived on the thirty-eight day of the Flood of Knives carrying nothing but a water-clock filled with tomorrow's blood. Now he occupies the space where the temple's original architect planned to put an accounting room, back when they believed sorrow could be balanced like books.
+
+His form shifts like shadow at dusk: now tall enough to whisper secrets into the ears of clouds, now compressed into a child's grief that takes up all available air. When he speaks—though speaking implies tongues and teeth and he has traded these for more accurate instruments—when he makes language happen nearby, the words come out already creased from being folded inside too small a space for too long. His voice tastes like pennies held against a fevered forehead. His laughter sounds exactly like glaciers remembering they were once rivers.
+
+The children—you didn't know there were children?—they keep them in the garden between drowned floors where light remembers being stars. Thirty-seven small deaths dressed in skin their bones haven't grown into yet. They play games with rules that rewrite themselves faster than observation can collapse them into facts. Their favorite toy is a ball made from the compressed silence between gunshots on forgotten battlefields. When they bounce it against the temple walls, the impact knocks loose memories from visitors who didn't know they were carrying them.
+
+(Grief matures backward here, ripening into innocence before rotting into wisdom's compost. The youngest monk has been dying for seven minutes and already knows more about infinity than mathematics will discover in its next fourteen thousand years. The oldest child was born when the first star burned hydrogen into regret and still believes in endings.)
+
+They eat together—if together means occupying positions in grief's geometry that make loneliness seem crowded—at a table carved from the doorframe of every house ever abandoned in haste. Their food arrives before hunger and remains after digestion, existing mainly to give absence something solid to practice longing on. Tonight's meal: fish that died of reading their own obituaries in a language that hadn't yet evolved verbs for escape. Side dish: kelp boiled in the tears of statues that witnessed but could not weep for Pompeii. Dessert: sugar spun from the moment before anesthesia takes hold, crystallized into shapes that dissolve into questions your mother never asked your father.
+
+Sleep happens to them collectively. When one monk dreams of drowning, all thirty-seven wake tasting seawater. When another remembers love, everyone's hands ache from holding too tightly onto air. Their nightmares organize like starlings into shapes that scare themselves into waking. Their lullabies are the names of extinct colors sung backward through throats of glass.
+
+And beneath all this—the deeper inhabitants. The ones who came before monks, before drowning, before the first grief carved itself into stone as warning or invitation. They live in the spaces between atomic bonds where solidity pretends to be real. They're what the wind-breath mouths are actually addressing when their mourning chords ache toward frequencies no living ear can hold. They're the reason the prayer wheels spin clockwise in our universe but audibly wobble in directions without names.
+
+Sometimes, when the silence between heartbeats aligns with the moment between waves being ocean and being not-ocean-wet, even the monks remember to be afraid. Then Ash-Remembering-Sound's driftwood skin itch with remembered sap. Then She-Who-Counts-By-Rotting's fungi bloom panic shapes. Even the child who hasn't finished dying yet curls tighter around her unbecoming.
+
+Because the temple wasn't built to contain grief. It was built to incubate it. To keep it warm and fed and multiplying until it grows strong enough to hatch. And when it does—when the last layer of sorrow finally peels back from what waited without patience beneath—then the true inhabitants will emerge. Then these monks will be revealed as merely the egg tooth, the temporary sharpness grief used to crack open something older and hungrier.
+
+Then living and dying will finally be recognized as the same thing happening at different speeds. Then the wind will breathe in instead of out. Then the drowned temple will remember it was never drowning—it was learning how to breathe water so it could teach stone to do the same.
+
+Until then, they practice. They play their bones like instruments tuned to frequencies only absence can hear. They teach the walls new ways of remembering forgetting. They carry on carrying on, their grief weightlessly heavy, their stillness moving like glaciers that forgot they had somewhere else to be.
+
+And sometimes, if you arrive carrying exactly the right-shaped emptiness not seeking filling but accompaniment—sometimes one of them will turn their face toward you. Not their eyes. Just their face, like a cliff acknowledging a particularly persistent wave. And they will say the only thing they have learned completely in all their centuries of standing here listening to grief teach geometry to rain:
+
+"Welcome home. We've been not waiting for you since before there was waiting to be done with."
+
+And you will understand, with the sudden clarity of drowning people recognizing water, that they were never the ones who lived here.
+
+This place was always living them.

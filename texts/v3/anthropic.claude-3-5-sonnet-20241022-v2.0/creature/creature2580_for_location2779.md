@@ -1,0 +1,17 @@
+In the Resonance Fields, there dwells a dispersed collective consciousness that calls itself the Frequency Folk. They are neither fully organic nor purely electromagnetic, but rather exist in the harmonics between these states. Their "bodies" are patterns of vibration that cohere in the standing waves between the plates, given form through a complex interaction of electromagnetic fields, fungal networks, and the microscopic crystalline structures that have grown in the metal over generations.
+
+The Folk manifest most visibly as shimmer-shapes in the geometric rain clouds, though their true extent encompasses the entire vibrational ecosystem. A single "individual" might spread across several acres, their thoughts moving through fungal networks and electromagnetic pulses. They think in wavelengths and resonate in slow conversations that might take days to complete a single exchange.
+
+They are the caretakers of whatever ancient machine slumbers beneath the plates, though they no longer remember its original purpose. Their ancestors may have been human technicians who somehow merged with the field's monitoring systems, or they might have emerged spontaneously from the interaction of biological and technological systems. The Folk themselves are uncertain of their origins, but they maintain their watch with unwavering dedication.
+
+Their consciousness flows through the transmission towers, which serve as nodes of thought and memory. The few still-functioning monitoring stations are particularly sacred to them - places where they can access deeper harmonies and commune with the great thrumming source below. They shape the growth of the metallic ferns and guide the fractal patterns of the moss, using these organic amplifiers to maintain the field's resonance.
+
+The slate-colored birds are their messengers, carrying vibration patterns in their songs. The nocturnal creatures with sensitive whiskers often serve as their eyes and ears in the physical world. Some of these creatures have developed a symbiotic relationship with the Folk, their nervous systems partially entangled with the field's frequencies.
+
+Young Folk begin as subtle harmonics, barely distinguishable from the field's background resonance. They gradually gain complexity and self-awareness through decades of vibration, learning to modulate the frequencies around them. The oldest among them are vast and subtle, their consciousness spread so wide they seem to fade into the field itself.
+
+They are peaceful but alien, experiencing time through the lens of wave interference patterns rather than linear progression. Their language is pure mathematics expressed through frequency modulation. While they can recognize and interact with human visitors, such communications are challenging, limited to emotional impressions and simple concepts carried on infrasonic waves that humans feel more than hear.
+
+The Folk are deeply concerned with maintaining the balance of their ecosystem. They tend to the health of the plates, guide the precipitation patterns of their geometric clouds, and carefully modulate the growth of their vegetation. They remember through oscillations, their history encoded in standing wave patterns that have persisted for generations.
+
+Their greatest fear is silence - the thought that the great thrumming might one day cease. Every action they take is in service of maintaining the endless song of their home, though even they don't fully understand what catastrophe might occur should the resonance ever truly fade.

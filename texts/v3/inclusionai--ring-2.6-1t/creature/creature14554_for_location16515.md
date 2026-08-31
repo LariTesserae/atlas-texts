@@ -1,0 +1,79 @@
+## Inhabitants of The Knuckle
+
+---
+
+### The Builders
+
+They have no name in any human language, and it is not clear they deserve one. A name implies a kind of separateness — a thing set apart from its surroundings, identifiable at a distance. The builders are not set apart. They are the surroundings. They are the walls and the wall-dwellers and the wall-makers simultaneously, and to call them by a single word would be to pretend that the word is large enough to hold them.
+
+They are small. Most no larger than the pad of a human thumb, though some — the older generations, the ones closest to the original point of colonization — have grown to twice that, their overlapping plates thickened into armored crescents that curve like commas against the stone. Pale, always pale, the washed-out translucence of things that have never known sunlight in the way surface creatures understand it. Their color is the color of raw collagen held up to dim light: white with undertones of pink, of blue, of the faintest green where the mineral-rich water has stained their plates over decades. They are beautiful in the way that deep-sea things are beautiful — not despite their alienness but because of it, because the architecture of their bodies answers to pressures no surface animal has ever had to meet.
+
+Too many legs. That is the first thing you notice if you manage to hold your breath long enough to look closely, your face pressed to the gap in the rock with the cold Atlantic filling your nostrils through the snorkel. They have legs the way a forest has roots — not a fixed number but a proliferation, each segment sprouting pairs, some functional, some vestigial, some so reduced they are little more than bristled stubs that wave in the water like the antennae of something that has forgotten what it is sensing. They grip with all of them. Every surface they meet, they claim. The basalt, each other, the half-formed arches of their own making. When a surge moves through the colony — and surges move through constantly, slow waves of bodies rolling from one end of a wall to the other like a rumor passing through a crowd — the sound is a whisper. Not a sound, really. A texture. The brush of too many legs against wet stone, a friction so fine and so collective that it registers below hearing, in the bones of your skull, if you are close enough and still enough and willing enough to listen.
+
+They secrete. That is what matters about them. That is why the chamber is not merely a container for life but a collaboration between life and stone. Along the ventral seams where their plates overlap — the junctions of their own architecture — there are glands. You cannot see them without dissection, but you can see what they produce: a white substance, faintly pink, extruded in thin threads that harden on contact with water. It is not calcium, exactly. Not chitin, exactly. The geologists who have studied fragments brought to the surface have called it biologicalite — a word that sounds like a diagnosis, like something that should be treated. It is not a disease. It is a material that exists because these creatures exist, that behaves like neither shell nor glue nor mineral but something in between, something that obeys rules the organisms themselves do not know they are following.
+
+The secretion hardens fast — seconds, not minutes — and once hardened it is structural. It bonds to rock. It bonds to itself. It bonds to the plates of other builders who have died in the right place, and the dead become load-bearing elements in a way that would be morbid if the builders were capable of morbidity, which they are not, or at least which there is no evidence that they are. The architecture is not sentimental about its dead. It simply uses what is available, the way a river uses the stones in its bed.
+
+And so they build. Not deliberately. Not with plans or blueprints or the concept of a building. They build the way crystals build — in response to chemical gradients, to local pressures, to the simple mechanical reality that secretion happens and hardening happens and the next generation needs surfaces to cling to and so it secretes onto the previous generation's work and the previous generation's work becomes substrate and substrate becomes structure and structure becomes space and space becomes, without anyone intending it, a room.
+
+A colonnade already runs along the eastern wall — six pillars, still wet, still glistening with the freshly extruded material that weeps from the bodies of the masons who swarm over them. The pillars are imperfect. Some lean. One has a visible fracture where the biologicalite failed to bond with the underlying rock, and already the builders are repairing it, layering new material over the break like scar tissue. The proportions are unsettling. Nearly regular. Not hexagonal — there are too many variables in the secretion rate, in the density of the colony, in the local chemistry of the water — but regular enough to make a human observer feel, for a moment, that they are looking at something designed. Something that had an architect. That feeling passes. The regularity is statistical, not intentional. It is what emerges when ten thousand organisms, each following the same chemical imperative, build in the same place for long enough. Order without orderer. Grammar without author.
+
+---
+
+### The Space-Between
+
+Between the builders and the predators, there is a population that does not fit either category. Smaller than the builders — half their size, a third — these creatures are pale in a different way, not opalescent but nearly transparent, so that looking at them is like looking at a shape made of water. They have no plates. They have no legs, exactly — just filaments, dozens of them, trailing behind them like the train of something that has been dragged through fine-meshed netting.
+
+They are scavengers. They harvest the failed structures — the collapsed arches, the shattered ribs, the rubble fields of broken biologicalite on the chamber floor — and they break them down, not with jaws or teeth but with a slow chemical dissolution, secreting acids that soften the dead architecture back into its constituent minerals, which they absorb through their filaments. They are the demolition crew and the recycling system. They are the reason the rubble does not accumulate indefinitely, why the floor is not buried under the ruins of a hundred failed construction projects.
+
+They move in a different rhythm than the builders. Where the builders surge, the scavengers drift. They pulse through the water in slow, aimless trajectories that occasionally intersect with a piece of debris, at which point they stop, flatten, and begin to feed, their filaments fanning outward like the roots of a sapling pressing into crevice soil. They are indifferent to the builders. The builders are indifferent to them. They occupy different chemical registers — different pheromone bands, different electrical fields — and they might as well be living in different rooms.
+
+There is a theory — speculative, unproven, offered in a footnote of a paper that no one has cited widely — that the scavengers are not a separate species at all but an alternative life stage of the builders. That what we call the builders are the construction phase, and what we call the scavengers are the deconstruction phase, and the full life cycle is: build, die, be broken down by your own kind, have your calcium returned to the water, have your offspring use that calcium to build again. That the colony is not a population but a loop. That The Knuckle is not a city being built but a single organism breathing — inhaling as the builders secrete, exhaling as the scavengers dissolve — and that the architecture is not a structure but a body, perpetually rebuilding itself from its own remains.
+
+Nobody has proved this. Nobody has stayed long enough. The Knuckle does not yield to short visits.
+
+---
+
+### The Predators
+
+The predators are the most visible creatures in the chamber, which is ironic, because visibility is a liability in a world where hiding is survival. They are kite-shaped — flat, wide, with pectoral fins that flare like the wings of something that learned to fly in a medium denser than air. Translucent, like the scavengers, but with a faint amber tint along their dorsal surfaces, as if they have been stained by something deeper in the rock, something that leaks through the fissures in the floor along with the minerals and the glow.
+
+Their jaws unhinge. Almost to their bellies. The effect, if you could see it in a surface context, would be like watching a hinge open in a direction that hinges are not supposed to go, a geometry that suggests not evolutionary adaptation but a joke played by physics on biology. The jaw folds out into a disc, a wide flat surface that creates a suction zone in the water, and anything within that zone — any builder that happens to be in the wrong place at the wrong instant — is pulled in. The strike is fast. Too fast for the builders to react, though the builders may not be capable of reacting, may be so chemically committed to their secretion task that fleeing is not an option available to their nervous systems, if they have nervous systems in anything more than the nominal sense.
+
+The predators operate alone. They patrol the colonnade in circuits, banking around the pillars with a fluidity that feels almost rehearsed, though of course it is not. They leave the half-finished structures alone — there is no prey there, nothing to suction — and concentrate their hunting along the margins of the colony, where the builders are sparse and the density of the biologicalite is low. In this way, they inadvertently shape the city. They eat at its edges. They trim its borders. They prevent it from spreading too fast, too thin. The colony's frontier is not determined only by calcium availability and chemical gradients. It is determined, in part, by the predators' territories. The city does not know this. The city does not know anything. But the city's shape carries the signature of the predators' hunger, encoded in its margins the way a tree's growth rings encode drought.
+
+They are not the only predators. There are smaller things — wormlike, eyeless, that thread through the cracks in the biologicalite and consume the builders from inside, hollowing out a pillar from its core so that it stands, glittering and intact from the outside, but weakened, doomed to collapse when the worm has finished its slow meal. The colonnade's sixth pillar — the one that leans — may owe its tilt to this. Internal erosion dressed as external architecture.
+
+---
+
+### The Green
+
+You do not see the green until your eyes adjust — until the bioluminescent wash from the fissures has stopped dazzling you and you are looking not at the light but at the surfaces that receive it. There, clinging to the upper walls, above the waterline that once was, are the fronds.
+
+They look like hair. Like the thinnest possible threads of green glass laid end to end. Each one is rooted — if that word applies — in a crack so narrow it would close without the organism holding it open. They are not plants in any terrestrial sense. They are closer to moss, or to lichen — a symbiosis or a simplification, an organism that has pared itself down to the minimum viable form: root-hair, stem, a single translucent leaf no wider than a eyelash. They grow so slowly that the oldest fronds — the ones closest to the waterline, the ones that have been exposed the longest — are not merely decades old but may predate any human record of this coast. A single frond, four centimeters long, may be three hundred years old. It has been hanging there, in the cold mineral-dark above the water, for longer than the United States has existed.
+
+They are not beautiful. They are not not beautiful. They are simply persistent. They persist in a place where persistence is the only available form of ambition, and in that they resemble everything else in The Knuckle — not a will to live, exactly, but a refusal to be the thing that is absent.
+
+---
+
+### The Glow
+
+The fissures in the floor are not life. But they are alive with consequence. Water upwells through them — cold water from deeper still, carrying dissolved minerals that fluoresce faintly when exposed to the pressure change at the fissure mouth. The glow is blue-green, barely there, the color of a television screen in a dark room viewed through a fogged window. It does not illuminate so much as it suggests — gives shape to the nearest pillars, the nearest wall, the nearest curtain of hanging builders, and then lets everything beyond that recede into a darkness so complete it feels architectural, like a room built from absence.
+
+The builders orient toward it. Their chemical gradients, whatever they are, pull them downward and inward, toward the fissures, toward the glow. They build toward it. The city grows in the direction of something it cannot perceive, reaching with its wet biologicalite fingers toward a warmth that may not exist, or that exists only as a gradient too subtle for any nervous system to resolve. If the city is an organism, then the fissures are its heart. If the city is a mind, then the glow is its only thought.
+
+---
+
+### The Scale of It
+
+The numbers. The numbers are the thing that breaks you, if the place breaks you, which it may or may not. There are, conservatively, forty thousand builders in the visible portions of the colony alone. Forty thousand organisms, each smaller than a thumbnail, each secreting its fraction of material, each living and dying in a rhythm so slow and so collective that it registers not as activity but as texture — the texture of the city itself. The predators number in the hundreds. The scavengers in the thousands. The fronds in the... hundreds? Thousands? Nobody has counted. Nobody has been willing to count.
+
+And beyond the visible portions — beyond the colonnade, beyond the half-formed ribs and the rubble fields and the margins where the builders thin out and the predators hunt — the chamber extends. The water darkens. The ceiling mushrooms upward into somewhere you cannot see. There may be other colonnades. Other chambers connected by tunnels too narrow for light or human passage. The space beneath The Knuckle may be a network, a labyrinth, a body with rooms for organs and corridors for veins. The biologicalite may extend for meters beyond what you can see, thinning to a membrane, a skin, a layer of calcified thought pressed against the rock like an ear against a door, listening for something the rock might say.
+
+This is speculation. This is what happens when you surface too quickly, your lungs burning, your fingers wrinkled and salt-cracked, and you sit on the slate ledge and stare at the fall of rock that looks like every other fall of rock and you think: there is a city underneath. There are forty thousand creatures building it. They do not know they are building it. They do not know they are alive. They may not know the difference between building and breathing, between the city and the body, between the glow in the fissure floor and the thought in whatever passes for a mind in a creature made of plates and too many legs and a secretion that hardens into arches in the cold dark water beneath the Atlantic.
+
+They are building. They have always been building. They will be building when you are gone, and when the coastline is gone, and when the rock above them has eroded into sand and the sand has been carried out to sea and the sea has gone elsewhere. They will be building in the dark, toward the glow, making a city that no one will ever see complete because no one — not them, not you — can see the thing they are making.
+
+They are not architects. They are not citizens. They are not a metaphor.
+
+They are alive, and they are building, and that is enough.

@@ -1,0 +1,17 @@
+In this submerged world, life is dictated by the embrace of water, by the intricate dance of darkness and the faint, drifting light. The inhabitants are creatures born to this weight, to this pressure, their forms and habits shaped by the stillness and the slow, inevitable currents that have drowned the ancient stone.
+
+At the heart of the city, the fish swim in colossal shoals, moving like fluid shadows through causeways and empty windows, their scales catching the ghostly gleam of what little light filters down. They are a living, breathing mass, ever-shifting, ever-present – a cloud of silver or iridescence that darts and swirls with a collective mind. Among them, crustaceans scuttle across the dark stone, their hard shells whispering against the surfaces, leaving trails in the silt. They are the workers of the deep, scavenging, cleaning, their forms armored against the pressure.
+
+In the deeper avenues, where the darkness is near absolute, the whales move like silent, monumental ghosts. Their massive bodies glide effortlessly through the water, their calls resonating with a deep, mournful note that vibrates through the very bones of the sunken city. They are the giants of this world, ancient and knowing, their presence both comforting and awe-inspiring.
+
+Bioluminescent jellyfish drift through the colonnades, their soft, glowing bodies casting an ethereal light that renders the ruins in a dreamlike haze. These living lanterns illuminate the slow dance of the silt as it shifts and resettles, baring the ancient stone beneath to brief, ghostly view before covering it once more.
+
+Prey and predators alike have adapted to the rules of this realm. Hunters strike from the gloom, swift and silent, while the hunted flee with equal speed, vanishing into the labyrinthine architecture. Life consumes life in an endless cycle, a testament to the enduring vitality of this submerged world.
+
+The stones themselves, though softened by time and draped in pale, feathery algae, provide anchor for great colonies – filter feeders and reef builders that create habitats for countless smaller organisms. The entire cityscape is alive, from the smallest bacteria to the largest whale, all interconnected in a complex ecology that breathes with the water.
+
+This is a realm where up and down are fluid concepts, where gravity is a gentle suggestion rather than a law. The sheer scale of the place looms even in the perpetual twilight, vast plazas and residential blocks transformed into sprawling reefs, interconnected by drowned streets and staircases that lead nowhere but deeper into the liquid darkness.
+
+In this world, sound is muted, absorbed by the omnipresent water. The loudest noises are the groans of shifting structures, the clicks of chitinous legs, the sudden rush of a great beast moving past. It is a place of profound silence and subtle movement, heavy with the weight of centuries.
+
+The water, the only atmosphere, is everywhere, pressing in, surrounding, enveloping. It is not a dead world but one brimming with life, transformed and dreaming in its liquid cradle, a testament to the enduring power of nature to reclaim and reshape. It feels like wandering through the slow, deep thoughts of a world both ancient and ever new.

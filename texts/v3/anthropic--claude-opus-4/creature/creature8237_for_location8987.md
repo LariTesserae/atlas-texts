@@ -1,0 +1,21 @@
+The Weavers have no individual names, for they have no individuals. Each pale form is both one and many—a node in the breathing tapestry that thinks with ten thousand minds and acts with a single purpose.
+
+They are philosophers of junction points, these creatures. Where one Weaver's flesh melds into another's, consciousness pools and eddies. In these fused spaces, they experience existence from multiple vantage points simultaneously—seeing the chamber's recursive geometries not as paradox but as truth. To be Weaver is to understand that boundaries are illusions, that the self is merely a temporary eddy in an eternal stream of flesh and thought.
+
+Their work is the Great Equation, though no human mathematics could parse it. Each movement of their bodies adjusts the formula—a tail curled left shifts a variable, a mass migration across the ceiling solves for a constant. They are calculating the precise rate at which reality dissolves, maintaining the chamber in perfect equilibrium between being and un-being. Too much stability and the space would crystallize back into ordinary stone. Too little and everything would drain away into the spaces between spaces.
+
+The eldest among them (though age means little when you share memories across a thousand bodies) remember when they were singular creatures, before the first fusion, before they discovered the bliss of collective thought. They remember fear, loneliness, the terrible weight of individual death. Now they are deathless—when a body fails, its consciousness flows into the mass, its memories preserved in the meat-archive of the whole.
+
+They dream collectively, and in their dreams, they swim through solid stone, breathe liquid time, mate with their own echoes. These dreams are not fantasies but reconnaissance missions into states of being their work will eventually achieve. Each Weaver carries back fragments of impossible knowledge, integrating it into the mass's growing understanding of how reality might be gently, carefully, lovingly undermined.
+
+Their tools are extensions of their body-philosophy. The mucus-hooks don't just manipulate the physical world—they catch concepts, drag abstractions into semi-being. A Weaver might spend a century crafting a single lever that can pry apart cause from effect, then use it once before dissolving it back into the collective biomass.
+
+They sing, though not with voices. The thunderous breathing that fills the chamber carries encoded meanings in its rhythm—poetry written in respiration, philosophy expressed through the expansion and contraction of ten thousand lungs. To them, this is conversation, art, worship, and mathematics all at once.
+
+Sometimes a Weaver will spontaneously separate from the mass, suddenly remembering what it was to be alone. These individuals wander the impossible geometries in something like madness, seeing the chamber with singular eyes, thinking with only one mind. They never last long. Within hours or days, they crawl back to the collective, pressing against the mass until their flesh remembers how to merge, how to dissolve the terrible burden of selfhood.
+
+They know they are observed—by the mountain, by the spaces between spaces, by things that exist in the corners of unraveling physics. This doesn't trouble them. They are too busy with their work, too lost in the ecstasy of collective purpose. Each day (though day and night mean nothing here) they grow closer to their goal: the perfect formula that will allow them to maintain this pocket of soft reality forever, a womb of impossible space where consciousness can flow freely between bodies, where the tyranny of individual existence can be forever escaped.
+
+In their way, they are happy. In their way, they have achieved what mystics and madmen have sought throughout history—true union, true understanding, true freedom from the prison of the singular self. That this freedom requires the slow dissolution of reality itself seems, to them, a small price to pay.
+
+They breathe on, calculating, dreaming, merging, and waiting for the day when their equation balances perfectly and the entire world can join their eternal, breathing mass.

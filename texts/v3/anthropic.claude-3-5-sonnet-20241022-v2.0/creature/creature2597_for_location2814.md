@@ -1,0 +1,17 @@
+In this place lives the Echo Weavers - a people so attuned to the cave's rhythms that they've become part of its intricate choreography. Their bodies have adapted over generations: elongated pupils that dilate dramatically in the moth-light, skin that's grown pale but developed a subtle iridescence that helps them communicate in the dim conditions, and inner ears extraordinarily sensitive to the cave's various vibrations.
+
+They move with deliberate grace, having learned that sudden movements disturb the moths' flight patterns and disrupt the click-beetles' conversations. Their language is a complex blend of soft vocalizations, gentle percussion against the cave walls, and precisely timed gestures that catch and reflect the moths' bioluminescence. They wear clothing made from treated fungal fibers, overlaid with patterns that mirror both the geometric growths on the walls and their own carved symbols.
+
+The Echo Weavers live in small family groups, each tending to different aspects of the cave's ecology. Some specialize in cultivating specific fungal colonies, coaxing them to produce the glass-like material they need for tools. Others maintain relationships with the moth swarms, learning to predict and respond to their agitation cycles. There are those who study the deep tremors, marking their patterns and preparing the community for the intense periods that follow.
+
+Their children learn early to read the cave's many languages - the click-beetle morse code, the moths' light patterns, the fungal geometries, the tremor rhythms. They play games that involve mimicking these patterns, gradually developing the physical control and patience needed to integrate themselves into the cave's systems.
+
+The Echo Weavers have developed complex rituals around the seeping walls, collecting the viscous liquid in carved stone basins where they observe its interactions with various fungi. They believe these seeps are the cave's own form of communication, and their wall carvings are often responses to changes in the flow patterns - a conversation conducted over generations.
+
+They have an interesting relationship with time, marked not by sun or seasons but by the cave's own cycles - the moth swarms, the deeper tremors, the growth patterns of the fungi. Their oral histories are encoded in songs that mimic the click-beetles' rhythms, passed down through carefully structured performances that use the cave chambers' acoustics as part of the narrative.
+
+Most intriguingly, they seem to have developed a form of distributed consciousness, their individual activities coordinated through subtle awareness of the cave's many overlapping rhythms. They don't see themselves as separate from their environment but as one more oscillating pattern in the cave's complex symphony.
+
+The Echo Weavers are patient observers and careful stewards, but they're not passive. They actively participate in the cave's processes, using their understanding to gently influence its rhythms when needed - calming agitated moth swarms with precisely timed light reflections, adjusting fungal growth patterns through controlled application of the wall seeps, even dampening or amplifying the click-beetles' signals to maintain optimal communication patterns throughout the cave system.
+
+They are people who have learned to thrive not by imposing their will on their environment, but by becoming an integral part of its ongoing dance of cause and effect, signal and response, pattern and variation.

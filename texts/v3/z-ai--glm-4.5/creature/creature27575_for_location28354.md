@@ -1,0 +1,30 @@
+To survive here is to master the art of being soft enough to yield, yet tough enough to endure. Life in the Obsidian Needles does not scuttle; it drapes. It does not hunt with speed; it hunts with inevitability. The inhabitants of this sunken, sunlit plateau are shaped by the two tyrants of their environment: the razor-sharp hostility of the geology and the suffocating, silken lethargy of the water.
+
+**The Weavers of the Anchor-Points**
+Before the forest of neon-kelp can rise, it must be held. Living directly upon the serrated edges of the black glass spires are the **Velvet-Lipped Creepers**. These are massive, gastropod-like entities, easily the width of a carriage, that possess no shell. A shell would crack against the obsidian; instead, they are armored with a hide as thick and fibrous as old hemp. They inch along the knife-ridges with agonizing slowness, secreting a trail of mucus that cools instantly into a rubbery padding, effectively dulling the razor-edge of the rock over centuries.
+
+They are the architects of the greenery. The kelp does not root in the stone; it roots in the shaggy, moss-like fur of the Creepers. These creatures carry entire ecosystems on their backs—gardens of glass-sponge moss and ribbons of neon-kelp that trail behind them like the train of a queen. They are the living soil of the Needles, mobile islands of softness traversing a hard world.
+
+**The Drift-Ghosts (Intruders from the Mesh)**
+Floating in the tangled, three-dimensional matrix of the kelp forest are the **Lantern-Jellies**, though they are not jellyfish in the terrestrial sense. They possess a structural integrity that defies the fragility of that name. Imagine a creature shaped like a geometric impossibility—a tetrahedron of translucent, glowing muscle, the size of a man.
+
+They do not pulse to swim; the water is too thick for such exertion. Instead, they adjust their internal density, rising or sinking through the viscous medium like spirits ascending or descending a staircase. Their skin is photosynthetic, drinking in the fierce, penetrating sunlight that filters down. They are silent grazers, drifting through the kelp halls with their four corners trailing long, sensory filaments that comb the water for microscopic plankton. They are the only flashes of quick color in a world of dark rock and slow green, pulsing with a soft, bioluminescent rhythm that mimics the slow beating of a heart.
+
+**The Apex of Stillness**
+Occupying the niche that the lion or the bear might hold elsewhere is a creature so sedentary it was long thought to be a mineral formation: the **Basalt-Mimic Octopus**.
+
+It is a solitary, colossal cephalopod that has forsaken the agility of its kin for the power of the ambush. It drapes its massive, folded mantle over a jagged outcropping of obsidian, perfectly matching the texture and hue of the volcanic glass. Its skin is not slimy, but dry and papery to the touch, rough like pumice. It can remain motionless for weeks, its eight arms tucked tight against its body, indistinguishable from the cliffs.
+
+When the currents shift a school of smaller, darting fish—or perhaps a weary Weaver-Crawler—into its vicinity, it does not strike. It simply *opens. The mantle unfurls into a cavernous net of interlocking arms, creating a sudden, inescapable wall of suckers. The capture is a slow, gentle happening. The prey does not panic; in the heavy, oxygen-rich water, panic is metabolically expensive. They simply... cease moving, enveloped by the creature, digested slowly over the course of days.
+
+**The Copper Leviathans**
+And then there are the ones mentioned in the silence: the **Copper-Backs**. These are the grandest of the seamount’s denizens, the ray-like entities the size of houses. To see one is to witness the geology come alive. Their dorsal surfaces are plated in a natural biological metal—a chitinous copper that oxidizes into brilliant greens and teals, shimmering in the tropical light.
+
+They are the grazers of the abyss, moving with the inexorable force of a glacier. Their mouths are wide, vacuum-like slits located on their undersides, designed to inhale the thick mats of algae and bacterial slick that grow on the vertical cliffs. They do not stop. They glide along the sheer faces of the Needles, scraping the rock clean with rasping, baleen-like plates. They possess no apparent eyes; rather, their entire copper-skinned head acts as a massive sensory organ, detecting the electrical fields of the life hidden in the crevices.
+
+They are the custodians of the plateau. Without them, the neon-kelp would choke the spires entirely. They move in a cycle so slow that a single circuit of the mountain range may take a generation. To the other creatures of the Needles, the Copper-Backs are not animals; they are weather—slow, inevitable storms that pass by once in a lifetime, stripping the cliffs bare and allowing new growth to begin.
+
+**The Hidden Architects**
+Deep within the porous, sponge-moss that coats the spires, there exists a microscopic civilization: the **Glass-Shard Ants**. Individually, they are insignificant—specks of silica with legs. Collectively, they are the immune system of the plateau. They farm the bacteria that grows on the sharp edges of the obsidian, maintaining the health of the Creepers and the kelp. They are the only things here that display a frenetic energy, moving in glittering rivers over the backs of the larger beasts, cleaning parasites and repairing damage to the "soil." They are the silent hum within the library, the only busy workers in a world of sleepy giants.
+
+Here, everything is either sharp enough to cut or soft enough to bruise. Life survives by being the soft thing that clings to the sharp thing, or the massive thing that ignores them both. It is a biology of tension, held in the warm, heavy suspension of the deep, bright sea.

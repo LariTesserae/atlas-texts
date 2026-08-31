@@ -1,0 +1,17 @@
+What lives in the basin has no need of shelter beyond the shallowest irregularities in the stone.
+
+It begins as a discoloration: olive where the limestone folds inward, brown-green around a calcite seam, nearly black in pores that the current cannot quite scour. Seen closely, each stain is a thin common life—a film of algae and microbes pressed so tightly to the rock that it seems less to inhabit the basin than to have become one of its mineral properties. It has no visible center. Its edges fade grain by grain into bare stone.
+
+The film survives by remaining low. Anything that rises is exposed to the maintained flow and worn away. Anything that spreads too freely meets water too cool, too clean, and too chemically exact for abundance. So it occupies the lee sides of ridges, the undersurfaces of shelves, and minute recesses left where softer limestone has dissolved around harder veins. It thickens by fractions and is thinned by fractions. Its success is measured not in expansion but in persistence.
+
+Here and there it produces longer bodies: a few translucent-green filaments, fine as loose hairs. They do not wave. The current combs them flat against the stone, all pointing toward the deeper channel. Their tips may lengthen for a time, but they never form fronds or meadows. Each strand lies in the posture imposed upon it, receiving the diluted light that moves over the basin’s floor.
+
+There may be generations in these patches, but no history the eye can read. No grazer bites paths through them. No eggs adhere beneath them. No small mouth harvests their growth, and no darting body disturbs the boundary between film and water. Cells divide, some are stripped away, and others remain. The current carries the lost ones toward the machinery, leaving no drift of dead matter behind.
+
+The life here is therefore neither wild nor domesticated. No one planted it, yet every condition of its existence has been chosen elsewhere. It lives inside tolerances set by filters, pumps, heat exchangers, and measured additions to the water. The distant works do not touch it directly; they define the narrow margin in which it can continue.
+
+When the pumps change phase and the low vibration enters the rock, the films do not recoil. The filaments do not lift. Nothing visibly answers. Yet the pulse passes through every adhering cell, through the faint mucilage binding life to limestone, through the water held in microscopic cracks. For a moment, the whole thin colony participates in the industrial rhythm. Then the vibration fades, and its slow work resumes: taking light, holding fast, replacing only what is removed.
+
+Nothing in the basin lives as an animal lives, by crossing it. The inhabitants have no routes, territories, nests, or hiding places. They live by attachment. Their world is the breadth of a sheltered groove, the incline of a rounded ridge, the slight dimness beneath an overhang. To them, the stone’s smallest texture is landscape, and the uniform current is not weather but law.
+
+They are the basin’s only visible answer to emptiness: a life reduced to stain, thread, adhesion, and patience. They neither conquer the stone nor disappear from it. Held between growth and scouring, nourishment and suppression, they persist as a narrow green remainder—the little that constancy permits.

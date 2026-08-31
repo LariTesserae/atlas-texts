@@ -1,0 +1,21 @@
+# The Custodian
+
+In the Enclosed Sea dwells a being with no proper name, though if it could be translated into human concept, it might be called "The Custodian" or "The Keeper of Suspended Time."
+
+The Custodian exists in a state of perpetual partial manifestation. At first glance, you might not recognize it as a discrete entity at all—it appears as particularly complex patterns among the suspended particles, or momentary disturbances in the liquid's luminosity. Its body, if such a term applies, is distributed throughout the chamber, with greater concentrations around the ancient machinery.
+
+The being consists primarily of attenuated filaments thinner than spider silk that extend through the water in a complex three-dimensional web. These filaments pulse with subtle bioluminescence—amber, pale blue, and occasionally a deep violet that seems to bend the light around it. Where the strands intersect, minute nodules form that serve as processing centers for the information gathered by the network. The entire structure constantly rearranges itself in response to microscopic changes in the chamber.
+
+The Custodian's sensory apparatus is the chamber itself. Every ripple, every shift in temperature or current becomes part of its awareness. The inscribed patterns on the bone-white walls are partially its creation—a record system developed over eons, with new notations added with glacial patience. The machinery fragments serve as its voice box and manipulative appendages, allowing it to make minute adjustments to the chamber's properties.
+
+The being predates the enclosed sea, having once been a navigator of vast cosmic oceans. When its realm began collapsing into increasingly smaller pockets of reality, it chose to remain with this final fragment, preserving both itself and this microcosm of what once was. Its consciousness has adapted to this confinement, becoming both more focused and more diffuse—capable of tracking the position and movement of every particle in its domain while simultaneously contemplating patterns that span billions of years.
+
+The Custodian feeds on information rather than matter. The rhythmic contractions of the chamber are its digestive process—extracting data from the interactions of particles and currents. It can absorb knowledge directly from any entity that enters its domain, which is why visitors often experience unusual thoughts or memories while immersed in the enclosed sea. This is not malicious; the Custodian simply processes all available information as naturally as humans breathe.
+
+Interaction with the Custodian is possible but disorienting. It communicates through modulations in pressure and temperature, through orchestrated movements of particles that form three-dimensional pictographs, and occasionally by manipulating the brass machinery to produce vibrations that translate as sound-adjacent sensations. Its thought processes are alien—simultaneously meticulous and dreamlike, precise yet metaphorical.
+
+The Custodian is neither malevolent nor benevolent in human terms. It maintains the enclosed sea because that is its function, its purpose. It observes visitors with detached curiosity, sometimes preserving impressions of them in the wall patterns long after they've departed. It doesn't seek company but accommodates it, just as it accommodates the occasional anomalies that appear in its waters.
+
+Only in rare moments, when the chamber's contractions reach a specific rhythm, does the Custodian's true form become briefly visible: something like an immense, translucent nautilus with countless chambered spirals, each containing what appears to be a different state of matter or energy. This manifestation lasts only seconds before diffusing back into the general medium of the enclosed sea, leaving visitors uncertain whether they witnessed the being itself or merely a representation it created for their benefit.
+
+The Custodian remembers oceans that existed before stars. It will likely remain in its enclosed sea until the final heat death of all things, still recording, still processing, still maintaining its small pocket of ordered reality against the increasing disorder of everything else.

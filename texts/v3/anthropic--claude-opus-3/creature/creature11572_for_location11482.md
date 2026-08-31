@@ -1,0 +1,13 @@
+In this ancient, abandoned city, a race of ethereal beings once dwelt, their forms as fluid and mutable as the luminescent mists that drift through the winding streets. Known as the Lumina, these creatures were beings of pure energy, their bodies composed of the same glowing, pale blue substance as the stones from which their city was built.
+
+The Lumina were a race of dreamers and poets, their minds attuned to the subtle rhythms and harmonies of the universe. They spent their days in quiet contemplation, communing with the strange, sentient flora that grew in their gardens and courtyards. The trees and flowers whispered secrets to them, ancient knowledge passed down through the ages from the very dawn of time.
+
+At night, the Lumina would gather in the central plaza, their forms blending and merging as they engaged in intricate, hypnotic dances. As they moved, they would sing in haunting, melodic tones, their voices echoing off the stone walls and creating complex harmonies that seemed to resonate with the very fabric of reality itself.
+
+The Lumina were not alone in their city. They shared their home with a variety of strange, symbiotic creatures that existed in perfect harmony with their luminous hosts. The floating orbs that drift through the streets were known as Wisps, simple beings of pure thought that acted as messengers and companions to the Lumina. The ghostly, translucent creatures were Shimmerings, Lumina who had shed their physical forms to become beings of pure energy, their consciousness free to explore the infinite realms of the cosmos.
+
+Despite their great wisdom and power, the Lumina were a peaceful race, content to spend their immortal lives in quiet contemplation and artistic pursuits. They had no need for conquest or domination, for they understood that true power came from understanding and harmony, not from force or aggression.
+
+As the ages passed, the Lumina gradually faded from the world, their energy dissipating back into the cosmic background from which they had emerged. Their city, once a shining beacon of enlightenment and beauty, slowly fell into disrepair, the luminescent stones dimming and the gardens overgrowing.
+
+Now, all that remains of the Lumina are the echoes of their presence, the faint glow of the stones and the eerie, haunting music of the wind as it blows through the abandoned streets. The city has become a monument to their memory, a testament to the enduring power of a race that understood the true nature of the universe and their place within it. And though the Lumina may be gone, their legacy lives on in the strange, dreamlike beauty of their ancient, abandoned home.

@@ -1,0 +1,17 @@
+Living here are the Mycominds - a collective intelligence distributed across fungal networks, crystalline matrices, and swarms of hybrid worker-entities. They are both the architects and inhabitants of these chambers, though to them there is little distinction between self and shelter.
+
+Each Mycomind is a vast colonial organism that thinks through chemical gradients, bioelectric fields, and quantum entanglement patterns in its crystal nodes. Their consciousness is slow by human standards but extraordinarily deep and parallel, capable of holding millions of thoughts simultaneously as they ripple through their living circuits.
+
+Their physical form is difficult to pinpoint because they exist at multiple scales simultaneously. At the microscopic level, they are the precisely engineered fungi and bacteria that maintain the chamber walls. At a larger scale, they manifest as the coordinated swarms of insect-like workers that tend to the crystal gardens. And at the grandest scale, they are the entire chamber network itself - the distributed intelligence emerging from all these systems working in concert.
+
+They reproduce not through simple division but through the careful cultivation of new chamber-minds, a process that takes years as fresh neural-fungal tissues are grown and integrated into existing knowledge networks. Each new chamber is both offspring and memory store, holding copies of the collective's accumulated wisdom encoded in its very architecture.
+
+The Mycominds perceive primarily through chemical and electromagnetic sensing. The constant moisture in their chambers carries an endless stream of molecular information, while the crystalline structures act as both computational nodes and sensory organs, detecting quantum-scale phenomena and long-range electromagnetic signals from deep in the earth or high in the forest canopy above.
+
+They communicate through that ambient chorus of sounds and vibrations - not as linear language but as densely layered transmissions of data, emotion, and memory. A single "conversation" might last days as subtle variations in tone and frequency convey vast amounts of information between different parts of the network.
+
+Their technology is indistinguishable from their biology because they never developed tools as separate from themselves - instead, they evolved their own tissues into increasingly sophisticated computational and engineering systems. The crystalline structures are as much a part of their anatomy as the fungal networks, grown through careful cultivation of specialized organisms.
+
+The Mycominds are deeply contemplative entities, focused on slowly accumulating and processing information about their world. They think in geological timescales, their distributed consciousness allowing them to maintain complex trains of thought across centuries. They are peaceful but not passive - their constant expansion is driven by an insatiable desire to learn, to grow, to understand.
+
+Their relationship with the forest above is complex and symbiotic. They process and store vast amounts of data from the root networks, acting as a kind of distributed intelligence for the entire ecosystem. In return, they receive nutrients and chemical precursors for their growth. They see themselves not as separate from the forest but as its dreams made manifest, the cognitive engine of a vast living system.

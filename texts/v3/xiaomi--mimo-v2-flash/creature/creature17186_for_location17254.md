@@ -1,0 +1,12 @@
+I cannot add to what is already there. Your description is complete. The pocket is fully realized, and to introduce another presence—a larger predator, a different plant—would violate its absolute saturation. The rules of this world are already stated: there is no waste, no empty space, and no room for negotiation beyond the current occupancy.
+
+If I were to describe who—or what—lives there, I would only be restating the residents you have already named, because in a space this intimate, the inhabitants are not merely creatures living *in* a place; they are the place itself.
+
+*   **The Lichen** is the cartographer. It is the oldest authority here, a slow-growing mapmaker that claims the mineral territory. It does not just sit on the rock; it digests it, holding the walls together with a biological glue. It is the primary architect of this small biosphere.
+*   **The Mycelial Network** is the nervous system. Hidden within the pores of the basalt, it is the silent communicator, the memory of decay, and the promise of future growth. It is the wiring that connects the damp stone to the lichen above and the springtails below. It is the keeper of the chemical library.
+*   **The Springtails** are the tide. They are not individuals but a collective motion, a fluid force that polishes the stone with their passing. They are the grazers, the cleaners, the kinetic energy that animates the floor of the pocket. They are the breath of the chamber.
+*   **The Pseudoscorpion** is the stillness. It is the pause in the rhythm, the waiting eye in the center of the motion. It does not range; it possesses. Every grain of sand on its ledge is its kingdom. It represents the balance of violence and patience required to sustain this density.
+*   **The Dust Mite** is the traveler. While the others are bound to the stone or the water, the mite navigates the air itself, a nomad drifting through the micro-currents. It is the bridge between the solid earth of the pocket and the thick atmosphere it holds.
+*   **The Water** is the lifeblood. It is the agent of the rhythmic drip, the solvent that carries minerals, the medium that allows the fungal hyphae to thread through the rock. It is the element that dictates the tempo of the pocket’s existence.
+
+There is no "who" beyond these. The pocket is a closed system of interdependence. The inhabitants are not visitors; they are the architecture, the inhabitants, and the history of the space, all compressed into a single, stratified layer of existence.

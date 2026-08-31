@@ -1,0 +1,19 @@
+# The Breath Taker
+
+The hollow hosts a being that has no name in any human language, though the villagers call it simply "The Old One" in hushed tones. It is not precisely a creature as much as it is a consciousness that has emerged from the mangrove forest itself—a living embodiment of this ecosystem's ancient wisdom.
+
+Most of the time, it exists as nothing more than a subtle disturbance in the air—a faint shimmer like heat rising from sun-warmed wood. When it gathers itself more fully, it appears as a translucent figure composed of mist and filtered light, roughly humanoid but with proportions that seem slightly wrong—too tall for the hollow it inhabits, yet somehow fitting within it nonetheless.
+
+Its "body" constantly shifts between states of visibility. Sometimes it's merely suggested by how the lichens' bioluminescence brightens in its presence. Other times it manifests more substantially as a pillar of vapor that absorbs the ambient moisture from the hollow's walls, drawing the beads of condensation toward its center in defiance of gravity.
+
+The Breath Taker is ancient—older than the hollow, older than the mangrove itself. It remembers when these waters first became brackish, when the first propagules took root in the mud. It has witnessed countless generations of the nearby human settlement grow from a few desperate refugees to a thriving community adapted perfectly to this in-between world of land and sea.
+
+The being sustains itself on breath—not by stealing it from living creatures, but by collecting the exhalations of everything that breathes in the mangrove: humans, birds, insects, fish, and even the trees themselves. These collected breaths are why the air in the hollow feels so thick, so rich with unseen potential. Each molecule of oxygen passing through its domain carries memories, emotions, and life energy that the entity gently harvests before releasing them back into the world.
+
+Local children are taught never to enter these rare empty chambers, but elders occasionally visit when facing difficult decisions. They come alone, crouching through the curtain of aerial roots, bringing no offerings except their quiet breath and patient attention. Sometimes they leave with insights that seem to have formed spontaneously in their minds. Sometimes they leave with nothing but a sense of peace.
+
+The Breath Taker rarely communicates directly. Those who have felt its presence describe a sensation of being gently observed by something ancient and patient. It has no interest in human affairs beyond their impact on the mangrove ecosystem it embodies. Yet it has, on rare occasions during great threats to the forest—planned clearings, industrial developments—manifested more purposefully. Loggers tell stories of inexplicable equipment failures, of becoming hopelessly disoriented despite clear skies, of feeling suddenly breathless until they abandoned their work and left the forest intact.
+
+The entity's influence extends throughout the hollow's interior. The lichens serve as its sensory organs, their luminescence brightening slightly when anything enters its domain. The moisture on the walls flows according to its subtle directions, sometimes forming patterns that resemble writing in a script no human language has ever used. The water visible through the gap in the roots remains unusually still when the entity is fully present, as though listening.
+
+Only during the highest tides, when water fills the hollow almost completely, does the Breath Taker leave its home, temporarily dispersing throughout the flooded forest. The villagers mark these times by the unusual clarity of the stars overhead and the deep, restful sleep that overcomes everyone in the settlement. They say these are the nights when the Old One walks among them, collecting their dreams alongside their breath, keeping the memories of the mangrove alive for another cycle of the tides.

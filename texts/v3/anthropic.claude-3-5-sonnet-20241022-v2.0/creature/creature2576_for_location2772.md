@@ -1,0 +1,19 @@
+The Mountain City harbors a remarkable blend of peoples who have evolved to thrive in its vertical world:
+
+The Steam-Shapers are perhaps the most distinctive - humans whose bodies have adapted over generations to the constant moisture and thin air. Their skin has a faintly bluish cast that deepens in the cold, and their lungs are extraordinarily efficient. They tend to be lean and long-limbed, moving with deliberate grace along precarious pathways. Their eyes are adapted to seeing through mist, giving them an uncanny ability to gauge distances in poor visibility. They maintain the vast network of pipes and valves that channel the mountain's breath, and their knowledge of the steam systems is both technical and intuitive.
+
+Living alongside them are the Bridge-Walkers, who specialize in maintaining and traversing the city's countless spans. They have an almost supernatural sense of balance and can read the wind's patterns in their bones. Many have developed a symbiotic relationship with the local hawks, sharing food and nesting spaces. Their children learn to walk on swaying cables before solid ground.
+
+The Deep-Dwellers inhabit the lower levels, where the heat and moisture are most intense. Their culture revolves around the underground reservoirs and the ancient machinery that harnesses their power. They've developed complex social rituals around the public baths, and their skin has evolved to resist the constant dampness. Many have a natural resistance to the minerals present in the deep water, which they credit to their practice of drinking small amounts of the raw thermal water from childhood.
+
+The Heights-Born occupy the uppermost reaches, where the air is thinnest. Their bodies process oxygen with remarkable efficiency, and they've developed larger chest cavities over generations. They're known for their soft speaking voices - sound carries differently at altitude - and their intricate sign language used during storms. They work closely with the astronomical instruments and weather stations, developing an almost mystical connection to the mountain's meteorological moods.
+
+Moving between all these groups are the Lift-Tenders, who operate and maintain the steam-powered elevators. They've developed an entire subculture around the rhythm of ascent and descent, with songs timed to the motion of the lifts and complex social rules about who rides when and with whom.
+
+The city also hosts a significant population of what locals call the Small Folk - various species of adapted rodents and small mammals that have developed complex social structures within the city walls. They're considered semi-sacred by many residents, as their behavior often predicts weather changes and structural issues before instruments can detect them.
+
+A unique species of bioluminescent moss grows in the deeper crevices, cultivated by specialized gardeners. This moss not only provides emergency lighting during storms but has developed a subtle form of communication through patterns of glowing, which some residents claim to be able to interpret.
+
+The various human groups are neither entirely separate nor fully integrated - they maintain distinct cultural identities while engaging in complex networks of trade and cooperation. Intermarriage between groups is common, leading to individuals who combine adaptations in unique ways. Their shared identity as citizens of the Mountain City transcends their differences, united by their dependence on and devotion to the living mountain that hosts them.
+
+All these inhabitants share a deep awareness of their precarious existence and a profound respect for the mountain's power. Their customs, technologies, and very bodies have evolved to maintain a delicate balance between human ambition and natural constraints, creating a civilization as unique as the environment that shaped it.

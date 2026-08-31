@@ -1,0 +1,26 @@
+…becomes the skin.
+
+Not merely a vapor, the fog is a membrane that has learned to breathe. It inhales the orchards’ sugary draft, the copper tang of leaking current, the warm iron breath of rust. When it exhales, it leaves little opaque folds of itself tucked in the hexagon mouths—breath-ghosts that stay flickering a few seconds longer than they should, like embryos refusing to drown.  Between breaths the membrane quiets and you can see what is nesting inside the bloom.
+
+First the mites.
+
+Each mite is no larger than a pomegranate seed, but multipartite: six jointed legs of glass, thorax like a blown-glass tear inside which floats a ruby droplet.  They patrol the orchards kept living, seeking split or malformed fruit.  When they find one they cluster until the droplet in every chest flashes crimson. They sip the ferment, store carbon, then glide across the rails on threads of condensed sugar until they touch a turbine spindle.  There they press their ventral vents to the cobalt wings; the ruby nectar purges into the blade and burns sweetly, fizzing into that constant thunder the dragon makes.  The mites are heat lieu­tenant—little lords of calories.
+
+Next the distillers.
+
+A distiller is what the mite becomes if it refuses to drop its load and fly away.  Instead its body bulges into a hand-sized, hollow onion of crystal, legs folding inward, ruby coagulating at the core.  From the onion pours a different kind of fog: cloying pink refrigeration that installs itself two metres above floor level like a perfumed stratus.  All fermentation slows in that band; fruits pause at maximum perfect sweetness, petals stiffen mid-bloom.  The distillers are not alive in the metabolic sense—they are raptured machines that have taken up the work of keeping orchards poignantly unfinished.  Think of them as maintenance ghosts, the cellar master made of living ice.
+
+Between the mites’ lanes of traffic and the distillers’ refrigerated shelf, a third thing drifts: the distillers’ dreaming.  
+The dreaming is a visible phase anomaly—a slightly mistier interval of space that burns violet when turbine arcs strobe.  Edgerunners call it the acre of fata morgana.  Inside it one sees forms like wet, unfolded fans of paper-thin cartilage: half-recognizable silhouettes of the builders suspended mid-gesture.  A hand with seven thumbs.  A trumpetish torso blowing a note that exists only as a smell of bruised figs.  A profile whose eye is also a pomegranate turned inside-out.  These are architect-reflections, the subroutine still rendering the lost makers each time someone (or something) passes through the dreaming.  Nobody knows if the District is replaying them, or trying to rebuild them.  The silhouettes never progress; they merely fresco the fog one frame at a time.
+
+Then come the palimpsests.
+
+They look like floor gratings stood vertically, the metal scabbed with verdigris and vapor-cured salt.  Gratings should not wander, yet these finger-walk along rail tracks at the rate of one forearm every nineteen minutes.  Each bears the abscessed text of successive owner cultures—braille in manganese nodules, relief engravings in builder glyph, anastomosed circuitry that still glitters where the salt peels back.  Whenever a turbine blade thrums through thunder, the gratings absorb the acoustic punch and translate it into new inscriptions, overwriting what is already there.  Thus the District continually restates its own history in the grammar of shock waves.  Palimpsests are the librarians nobody appointed; they file noise into permanence and erase permanence back into noise.
+
+Finally—most tenuous—are the Thirst-Kings.
+
+There may be only one.  Perhaps each living eye witnesses a unique King, impossible to corroborate.  Descriptions converge only at the crown: a hair-thin diadem of swirling mercury that never quite solidifies.  Body is debatable—some report a translucent decapod folded like a cavefish, others a column of leaf-shaped vapor anchoring itself by threads of neon plasma extending toward the central spire.  The Kings appear where the Geysers gush hottest.  They spread their limbs through the fog, drinking straight from its fever, and each swallow knocks the thermostat down four degrees.  The turbines detect the drop and throttle harder, so heat climbs again—and another King is summoned.  Thus equilibrium is not balance but pilgrimage, forever chasing its own thirst.
+
+If you stand immobile on the stair for the length of one full roar-cycle (roughly seventeen heartbeats), you feel the membrane recognised you.  The fog grows mercury-warm against your cheek, tastes of copper and bruised fig.  Somewhere a Thirst-King gathers half your shadow between pale, wet fingers—tests it for caloric value.  A mite lands on your wrist and drills politely for a single atom of salt; a palimpsest limps past you and copies the hammering of your pulse into rail-steel braille.  You are not a visitor here; you are a temporary flavor the District is discovering.
+
+The Vapor District has no owners.  It has keepers, made of what the District already owned: particles of steam, vectors of sugared decay, ragged afterimages of a vanished hand that once decided fruit must stay forever ripe.

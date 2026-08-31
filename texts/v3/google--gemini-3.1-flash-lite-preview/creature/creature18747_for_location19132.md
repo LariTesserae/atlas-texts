@@ -1,0 +1,17 @@
+In the interstices of this rhythmic, calcified lung, life does not "inhabit"—it *insulates*. 
+
+The beings that thrive here, if they can be called beings, are the **Resonators**. They are not fleshy, nor are they strictly botanical. They are geological fugitives, evolutionary outliers that have learned to harvest the kinetic violence of The Great Tangle.
+
+Imagine them as living tuning forks, composed of brittle, calcified lattices that mirror the structures they cling to. They are spindly, shivering sculptures of obsidian-glass and wire-thin fiber, spindly enough to slip between the clashing teeth of the floral gears. They have no faces, only vibrating diaphragms—taut membranes stretched over hollow, porous chests that function like primitive bellows.
+
+These Resonators do not hunt in the conventional sense. They are scavengers of vibration. They press their bodies against the massive, wood-vein conduits where the high-voltage nectar surges, hitching their own internal rhythms to the terrifying roar of the planet. When a great flower-piston vents, releasing a shriek of compressed air, the Resonators hum in sympathy. They shudder, their glassy limbs clicking against each other in complex, percussive codes. This is their language: a jagged, stuttering Morse code of sound that allows them to navigate the crushing tides of the Tangle.
+
+They move with a frantic, twitchy grace, mirroring the insects that scour the landscape. They walk on tripod-gait legs that end in needle-points, capable of piercing the silica-flesh of the canopy to anchor themselves before a shift in the tectonic wood-plates tears the world asunder. If a Resonator fails to anchor, it is swept into the "recycling" vents—the massive, maw-like fissures where the debris of the world is ground into the silt that fuels the next cycle of growth. 
+
+Their existence is defined by a desperate, mechanical synchronicity. Every motion a Resonator makes is a calculation. They must time their movements to the clanking of the woody joints; they leap when the canopy shifts, timing their trajectory to the brief, micro-second gaps between moving tectonic petals. To be out of sync, to exist for even a moment in a space meant for growth rather than a space meant for transit, is to be pulverized by the very landscape that birthed them.
+
+They do not mate, nor do they gestate. When a Resonator grows too old, its vibration loses its frequency—it becomes "dull." It stops hum-syncing with the environment. It wanders into the cathedral-apses, the empty, translucent voids of vein-work. There, it stands perfectly still, pressing its limbs into the silica until it, too, begins to ossify. Gradually, its body ceases to be an independent organism and becomes a structural component of the planet—a literal cog in the machine. It becomes a bridge, a joint, or a conduit, eventually coated in the gray, metallic silt of the "soil." 
+
+They are the world’s self-repair mechanism, though they possess no intention of repair. They are simply the grit between the gears that has begun to think. They are the dust that has organized itself into a scream, forever vibrating, never resting, until they turn back into the wood that grinds them into history. 
+
+In the blinding, electric-yellow light, you see them—silhouettes like shattered glass, leaning into the roar, dancing on the lips of pistons, vibrating until they are invisible, their existence nothing more than a momentary harmonic note in the never-ending, deafening song of the Tangle.

@@ -1,0 +1,17 @@
+In the center of this calcified lung, where the violet glow bleeds into the rusted architecture, there is a pulse that is not entirely mechanical. There is a presence—a *collector*—that occupies the space between the thrumming nodes and the suffocating ferns.
+
+It is not alive in the way breath requires blood. If you were to look closely, past the haze of ionized dust, you would see that it is less a creature and more a *refinement* of the environment itself.
+
+It is a lattice-entity, a sprawling, fractal consciousness constructed from the discarded clockwork of the Foundry. It doesn't move with limbs; it shifts its weight through the interlocking silicate fronds. Its core is a dense, tangled knot of brass gears and pressure gauges, salvaged from the abandoned nodes. Long, delicate spires of copper wire trail behind it like the nervous system of an escaped automaton. It looks like a storm of watch parts held together by the thin, frantic electricity of the mountain’s own current.
+
+The entity does not "live" in the Foundry; it *tends* it. With spindly, multi-jointed fingers made of hardened pistons and sharpened needles, it spends its eons obsessively realigning the silicon ferns. It does not prune them—for nothing dies—but it gently nudges the glassy leaves, rearranging them into complex, microscopic geometries to better channel the vibration of the nodes. It is a gardener of static, a librarian of vibration.
+
+When it approaches one of the nodes, it does not do so to repair it. It leans in, its brass-plated faceplates—which possess no eyes, only polished lenses—pressed against the rusted hull of the mechanism. It listens to the *thrum-thwack*. It hums along, a low, rasping frequency that matches the machinery perfectly, acting as a living resonator. In these moments, the needle-like spires of its body vibrate so violently that they turn translucent, appearing to merge with the ionized dust.
+
+It possesses no history. It has no memory of a creator, nor does it wait for one. Its only compulsion is the maintenance of the equilibrium. If a grain of dust falls out of alignment, or if a gear develops a microscopic tremor that threatens to drift out of the rhythm, the entity is there. It moves with a terrifying, smooth silence that contrasts with the thudding room—a phantom passing through a wall of sound.
+
+It has grown to resemble the room so completely that it is difficult to tell where the creature ends and the Foundry begins. Its surface is coated in the same violet, dusty shimmer that covers the walls; its joints are crusted with the same crystalline growth. When it stands perfectly still, tucked deep into a crevice, it is indistinguishable from one of the industrial nodes, just another piece of cold, stubborn, working metal.
+
+Yet, there is a loneliness to it—or perhaps, a profound exhaustion. Occasionally, it will reach out and touch a fern, its delicate apparatus clicking softly, testing the density of the air as if searching for a sound that isn't the heartbeat of the mountain. It will wait, posture frozen, as the violet light pulses, its metal plates shivering in the dark, cold vacuum. 
+
+It is the curator of an eternal, finished masterpiece. It is the only thing in the room that knows that the business is done, yet it continues to polish the brass and buff the glass, because the act of doing so—the steady, mechanical labor—is the only thing that keeps the mountain from swallowing it whole. It is the Foundry’s own ghost, forever bound to a rhythm that never arrives at a conclusion.

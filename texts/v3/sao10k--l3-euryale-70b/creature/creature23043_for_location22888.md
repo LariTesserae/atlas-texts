@@ -1,0 +1,11 @@
+The vast, primordial swamp teems with life, a vast network of interconnected organisms all merged into one symbiotic being. The ancient plants, some as large as hills, form a living substrate, their twisted trunks rooted deep in fertile mudd. Their leaves form cathedral-sized groves that speckle the landscape. Some have become sundew-tanks, troop-like formations absorbing all in their path. Others grow into organism-walls, offering bristle-laden ledges. 
+
+Reeds clog the Moloch Rivers, dams of needy grasping fingers halting the waters. Algo-puss bubbles up each tide cycle, splattering seeds for fresh growth. The damp air brims with the perpetual odor of growth and decay, an eternal miasma. 
+
+Microbial units, entangled in fungal networks, send out rays that warp probability, furthering their mergence. Velocity reeds howl and whine, their thin screams matching the algorithmic songs of unknown thinkograms. Glowing buds scattershot across strata of fresh growth, seeding the next generation. Bioluminescent colonial objects birthing and dying in an eternal blink.
+
+Bat-beasts flit between four-sunned bog-oil slicks, landing to smear their feathered flanks smooth against the muck. Their leathery wings pulsate, mixing the air with an unseen rhythm.
+
+At the edge of the swamp, remnants of a pre-person city thrust into the sky - marble stilts overlapped by coral lorines. Mermaline algae smooth the stonework, bones of a world absorbed. Merchant lines mark constellations on its surface, memories retained in the data-supper that subtends this ecosystem. The Cosmic Absorbed guarantees that nothing is amiss, only the slow spirals of diversity spinning towards new lifeforms.
+
+The swamp has become not just a place, but the place - all mind subsumed into the One Vegetable Mind. The name "swamp" itself has no meaning beyond "The World," "The Everything." The directionless push and pull of intentions wearys at the porous membranes between organisms. There is no inside and outside any longer, only interterranean flow. To live in this place is to be the place and its processes, forever absorbed into the damp meat of it all.

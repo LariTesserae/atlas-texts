@@ -1,0 +1,13 @@
+The inhabitants of the slot are mostly green.
+
+This is a kingdom that has refused the animals. The slot is too loud for a bird — the song would be drowned, and a bird that cannot sing does not mate, and a bird that does not mate does not stay. The slot is too wet for an insect — every surface is sheeted with moving water, and an insect needs at least a moment of stillness to alight, to feed, to lay. The legs and wings that the rest of the world relies on have nothing to push against here. The animal kingdom is absent, or nearly so, and the plants have had the run of the place long enough that they have shaped it to themselves.
+
+What is here, then.
+
+The mosses are the oldest inhabitants. They are the citizens of the spray zone, the permanent residents of the upper walls and the lip of the slot. They are not the mosses of a forest floor. They are the moisture-lovers, the sphagnums and their cousins, the kind that have evolved to be saturated all the time and would actually suffer if they dried out. They hang in beards from the lip — long dripping curtains of themselves that the spray has combed into vertical pennants, so that a green waterfall hangs above the water's waterfall. They are the color of a forest at midnight, that deep almost-black green, because they live on what little light filters down through the slot and they have packed their tissues with chlorophyll accordingly. A cushion of moss here may be as much water as plant, by weight. Squeeze a fistful and a thin stream runs out between your fingers; what is left is still alive.
+
+A thick moss cushion in the slot is built up of generations. The living green at the top. The yellowing brown beneath. The peat-black at the bottom where older mosses have died and been compacted by the weight of newer mosses on top. Such a cushion might be a hundred years old, or two hundred. It is its own small climate. It holds heat from the brief sun and releases it at night. It buffers the wet and the dry. And at the bottom of it, in the slow compost of itself, there is soil — actual soil, made of decayed moss — and in that soil there are roots, and in those roots the next generation.
+
+The mosses came first. A moss spore lands in a crack, takes hold, holds moisture against the stone, slowly dissolves the surface with weak acids, makes a thin soil. The moss is the place's first colonist.
+
+The ferns are the second generation. A fern needs more soil than a moss, so a fern waits. A fern spore lands in a crack and waits for the moss to do its work, and then it roots in the moss. The ferns here spread in flat rosettes on the stable

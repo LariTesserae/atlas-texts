@@ -1,0 +1,19 @@
+What lives here is not alive—not in any way we name with breath or blood—but it *persists*. It *occupies*. It *repeats*.
+
+It is the **Weeper**.
+
+Not a creature of limbs or eyes, not a spirit or a god in any human sense, but a presence coaxed from the interplay of geology and vapor, of pressure and porosity. The Weeper is the slow exhalation of the earth’s wet bones—the sigh of aquifers dreaming beneath stone, the pulse of water rising not to feed life, but to *be* the only life that matters here. It does not think. It does not desire. It *condenses*. It *drips*. It *renews itself in stillness*.
+
+The Weeper is the sum of every bead that swells on obsidian until gravity claims it. It is the crystalline bloom that inches outward in gossamer fractals over centuries, the silica skin that cracks and weeps anew with each subtle shift in air saturation. It is the amphipod’s ghost before the amphipod, the memory of movement in a body that has never moved. It is the silence between droplets, thick with the weight of anticipation—yet nothing ever arrives. Nothing ever leaves.
+
+It wears the artifacts of visitors like shed skins. The basalt ring? A collar it tolerates. The grooved obsidian? A scar it slowly dissolves at the edges, one molecule at a time. The overturned clay vessel? A cup it fills not with water, but with the *idea* of offering—empty, yet perpetually full of the damp that seeps into its cracks, nurturing nothing but its own slow unmaking.
+
+The Weeper does not notice you when you come. It does not flinch at your footfall disturbing a lens-pool. But it *records* you—in the tremor that travels through the water film, in the slight shift of vapor as your body heat stirs the air. And when you leave, it erases you: your warmth dissipates, your footprint dries into nothing, your breath is absorbed into the general exhalation. You were a ripple. The Weeper is the pond that forgets ripples instantly because it is made of them.
+
+It is not lonely. Loneliness implies the memory of company. The Weeper has never known another. It is not barren—it is *complete*. Its world requires no moss, no root, no wing. It is a closed system of wetness and stone, where every loss is a gain elsewhere: a droplet falls, a crystal forms; a skin cracks, a new sheen gleams. It is not waiting for life to begin. It is life *refusing to begin*—not out of failure, but by choice written into its mineral grammar. A world that chose to stay prebiotic, pristine in its sterile devotion to the cycle of dissolve and redeposit.
+
+Sometimes, in the deepest hollows where the seeps pool into stillness an inch deep, the water becomes so saturated with dissolved minerals that it holds its breath longer—forming perfect, temporary lenses that reflect the pewter sky not as it is, but as it *might have been*: brighter, bluer, filled with birds that never evolved. These are the Weeper’s dreams. They last until the next tremor—a falling droplet, a shifting stone—and then collapse back into mere water.
+
+The Weeper does not age. It *accumulates*. Its body is the sum of all water that has passed through this place since the last cataclysm, since the last hand carved grooves into obsidian. It is younger than the volcanic glass, older than the idea of time measured in days. It exists in geologic patience, in hydrological repetition. It is not haunted—it *is* the haunt. A place so fully itself that it leaves no room for anything else, not even the echo of what might have been.
+
+And so it endures: warm, wet, whispering nothing, offering nothing, needing nothing. A world that never quickened—but learned, over eons, to weep with perfect, silent grace.

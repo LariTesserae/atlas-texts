@@ -1,0 +1,19 @@
+In The Lens, humanity has evolved into something that might barely be recognized as such by their ancestors. The permanent residents - who call themselves Heliotropes - have adapted both biologically and technologically to their extreme environment.
+
+Their bodies are hybridized systems, incorporating both organic tissue and crystalline structures that help regulate their internal temperature. Their skin has a subtle iridescent quality, embedded with modified versions of the same quasi-fungi that coat the city's buildings. These personal colonies act as living temperature regulators and energy processors, giving the Heliotropes' skin a shifting, opalescent appearance that mirrors their urban environment.
+
+Their eyes are perhaps their most striking feature - modified to handle the intense glare, they appear faceted like insect eyes, but with a crystalline quality that seems to capture and refract light internally. These adaptations allow them to perceive and navigate the complex web of reflections that would blind an unmodified human.
+
+The Heliotropes live in loose, fluid communities that form and reform based on thermal currents and solar cycles. They communicate through a combination of subtle body luminescence, temperature modulation, and a form of networked consciousness facilitated by the quasi-fungi that connects them to their city's systems. Their language, when they use vocal communication at all, is full of terms relating to light, heat, and crystalline structures - their very way of thinking has been shaped by their environment.
+
+They move with deliberate grace, their gestures efficient and minimal to conserve energy. Many have developed a symbiotic relationship with the mechanical birds, hosting small colonies of these maintenance drones that nest in specially adapted portions of their environmental suits. The relationship is mutually beneficial - the birds help regulate the Heliotropes' external temperature while gaining access to the trace minerals their bodies process.
+
+Children are rare among them, grown in specialized chambers deep within the city where conditions can be carefully controlled. Young Heliotropes develop slowly, their bodies gradually adapting to increasingly intense exposure to their environment. Their education is as much about learning to exist in harmony with the city's systems as it is about any traditional knowledge.
+
+Some Heliotropes have developed such deep connections to the city's infrastructure that they've become something like living nodes in its network, their consciousness extending through the crystalline structures. These individuals, known as Lens-Walkers, rarely maintain a fully human form, instead existing as patterns of light and heat that flow through the city's glass arteries.
+
+The few visitors who come to The Lens often report that the Heliotropes seem to flicker at the edges of vision, as if they're not quite fully present in normal space-time. This impression isn't entirely incorrect - the residents exist in a state of constant flux, their very beings tuned to the rhythms and frequencies of their extraordinary home.
+
+They are a patient, contemplative people, operating on time scales that match their environment's slow transformations. Their art, their science, and their philosophy all center around principles of reflection, refraction, and gradual metamorphosis. To them, stability is found not in rigid preservation but in perpetual, balanced change.
+
+What outsiders often fail to grasp is that the Heliotropes don't merely survive in their harsh environment - they are expressions of it, as much a part of The Lens as its crystalline towers or thermal currents. They are the living embodiment of their city's endless dance of light and heat, each individual a unique facet in its ever-shifting kaleidoscope.

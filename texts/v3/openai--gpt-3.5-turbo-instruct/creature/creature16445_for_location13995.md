@@ -1,0 +1,7 @@
+It's hard to say exactly who or what lives in this hidden landscape, as the creatures and beings that inhabit it are constantly evolving and changing. Some say that there are ancient and powerful creatures that have lived in this place since the beginning of time, watching over and guiding its inhabitants.
+
+Others believe that the landscape itself is alive and sentient, with the ability to shape its own inhabitants and influence their behavior. This theory is supported by the strange and bizarre phenomena that occur within the landscape, constantly shifting and changing the environment.
+
+The few structures in the landscape are believed to be the homes of the intelligent beings that call this place home. They are said to possess great wisdom and knowledge, and are the guardians of the landscape, keeping it in balance and protecting it from outside threats.
+
+One thing is for sure, whoever or whatever lives in this place, they are deeply connected to it and have a profound relationship with the land. They are an integral part of the ecosystem, and without them, the landscape would not be what it is. So, while their exact nature may be a mystery, one thing is certain - they are an important and vital part of this strange and enigmatic place.

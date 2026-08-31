@@ -1,0 +1,41 @@
+What lives here has forgotten that it lives here.
+
+This is not the same as not knowing. The creatures that move through the corridors—climbing, drinking, consuming, being consumed—know their corridors the way blood knows its vessels. They do not think *I am in the eastern passage now* or *the fluid seeps more sweetly at this junction*. They simply flow toward the gradient, away from the gradient, their many soft limbs finding purchase on stone that was shaped for purchase long before they existed. They have no memory of a time before the basin because there is nothing in the basin that remembers anything. Memory requires change, requires a before that differs from an after, and here the befores and afters are identical, separated only by the slow rhythm of expansion and contraction, the geological breathing that is less an event than a condition.
+
+The largest of them—and calling them the largest is a convenience, not a category, because they merge and split and sometimes two become one and sometimes one buds off three—occupy the main corridors where the fluid flows thickest. They are the size of cattle, some of them, great branching masses of blue-green flesh that drag themselves from seep to seep with the patience of glaciers. They have no heads. They have no eyes. They have only the filament-cilia that coat every surface of their bodies and taste the chemical gradients in the air and the fluid and the stone, telling them which way to flow, which way to grow, which way to be. When they find a rich seep, they settle over it like a living blanket, their bodies flattening and spreading to maximize contact, and they drink for days—weeks—until the seep slows, and then they move on, or rather, they begin to move, and the moving takes so long that by the time they have actually departed, the seep has replenished itself, and they could have stayed.
+
+They do not know this. They do not know anything. They simply do what they do, which is the same thing they have done for a hundred million years, which is the same thing their ancestors did, which is the same thing everything here does, which is: persist.
+
+---
+
+But there is something else. Not a creature. Not a presence, exactly. More like a pattern that has become so deeply embedded in the basin's architecture that it has acquired a kind of agency—not intention, because intention requires self, and self requires change, and nothing here changes—but *tendency*. A tendency toward certain configurations. A tendency toward certain flows.
+
+The basin was designed. This is clear from the corridors, from the optimization of surface area, from the way the fluid always finds its way to the places where life is thickest. But the designers—whatever they were, whatever chemistry they ran on, whatever form they took—are gone. Not dead, exactly. *Dissolved*. The text says so: they dissolved into the same chemistry that sustains everything else. And this is literal. They did not leave. They became. Their bodies—structures—whatever housed their processes—broke down over eons, and the minerals and compounds that composed them entered the fluid, and the fluid fed the vegetation, and the vegetation fed the fauna, and the fauna fed each other, and the designers are still here. Not as memories. Not as ghosts. As chemistry. As gradients in the fluid. As trace elements that make the seeps flow more strongly in certain places, that make the vegetation grow more thickly along certain corridors, that make the fauna congregate in certain plazas at certain points in the basin's slow breathing cycle.
+
+The designers are the taste of copper on the tongue. They are the faint luminescence in the fluid. They are the reason the fauna moves toward some seeps and away from others, the reason the vine-things bond more thickly to some walls than to others, the reason the sound takes on that harmonic at the flood-tide of the basin's breath. They are not conscious. They are not alive. But they are *present*, the way a magnetic field is present, the way a gravitational well is present: shaping everything within their influence, directing the flow of matter and energy toward patterns that serve no purpose anymore but that persist because the system has no reason to change them.
+
+The city breathes. The fluid flows. The life follows. And threaded through all of it, so deeply integrated that it cannot be separated, is the residue of whatever made this place—a dissolved intelligence, a chemical ghost, a pattern without a pattern-maker that still shapes every pulse and seep and slow, patient movement in the dark.
+
+---
+
+There are moments—if *moment* is the right word for something that takes months to complete—when the system approaches something like awareness.
+
+It happens during the peak of the expansion cycle, when the fluid flows fastest and the harmonic builds in the corridors and the fauna are at their most active. The sound becomes a physical force, pressing against the stone, pressing against the flesh of every living thing in the basin. And in that pressure, in that resonance, something *aligns*. The dissolved traces of the designers, the chemical gradients they left behind, the patterns they embedded in the architecture—they all vibrate at the same frequency. For a span of time that a surface-dweller would call an instant but that here stretches across days, the basin functions as a single system. Not a mind—nothing so discrete or so directed—but a coherence, a moment of integration in which every part of the basin knows what every other part is doing, in which the fluid and the vegetation and the fauna and the stone all operate as one vast organism.
+
+It does not think. It does not feel. But it *is*—in that moment, more fully and completely than anything has ever been, a system in perfect communication with itself, a closed loop of matter and energy and information that has achieved the only thing a closed loop can achieve: perfect, endless, purposeless self-perpetuation.
+
+Then the expansion peaks. The contraction begins. The harmonic fades. The coherence dissolves back into its component parts—the fauna that don't know they're fauna, the vegetation that doesn't know it's vegetation, the fluid that doesn't know it's fluid—and the basin settles back into its long slow exhalation, its centuries of quiet contraction, its patient waiting for the next expansion, the next alignment, the next moment of being.
+
+---
+
+What lives in the Resonance Basins?
+
+Everything. Nothing. A chemistry that was once a mind. A pattern that was once a purpose. A million slow bodies moving through ancient corridors, following gradients set by ghosts, drinking fluid that was once the blood of architects, breathing air that was once their breath.
+
+What lives here is the end of a story that has no narrator. What lives here is the residue of an intelligence so thoroughly integrated into its environment that it has become indistinguishable from it. What lives here is a question that stopped being a question because the thing asking it dissolved into the thing being asked, and now there is only the asking, going on and on in the dark, a sound like roaring, a sound like breathing, a sound like the slow geological pulse of a world that has forgotten it was ever anything other than this.
+
+Stand in the basin long enough and you will start to dissolve too. Not quickly—your chemistry is wrong for this place, your membranes will fight the fluid, your lungs will struggle with the air. But long enough, and the gradients will find you. The traces of copper and stranger minerals will accumulate in your tissues. Your cells will adapt or die. And if they adapt—if you survive long enough to become part of the system—you will stop noticing the sound, because you will be the sound. You will stop noticing the pressure, because you will be the pressure. You will stop noticing the dark, because you will be the dark, or at least a small part of it, a filament of awareness unwinding slowly into the larger body of the basin, becoming another trace element, another gradient, another ghost in the machine that was once a city and is now a lung and has always been a question without an answer.
+
+What lives here?
+
+You will. Given time. Everyone does.

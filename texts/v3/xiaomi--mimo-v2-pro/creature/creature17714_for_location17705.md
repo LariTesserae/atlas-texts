@@ -1,0 +1,29 @@
+What lives here is **the system itself.**
+
+Not as a metaphor. The reservoir is a single, slow-breathing organism that thinks in seasons of moss-growth and pump-cycles. Its inhabitants are not separate from it; they are its thoughts, its reflexes, its memory.
+
+**The Foundational Layer: The Moss-Mind**
+The moss is the base consciousness. It doesn't just coat the surfaces; it *feels* them. It registers the vibration of the pumps as a baseline heartbeat, the drip of condensation as sensory input, the rare footsteps of the six-limbed caretakers as seismic events. It grows in patterns that subtly optimize water flow and nutrient capture, a distributed intelligence solving for survival across millennia. It is the patient, green mind of the place, dreaming in the amber dark.
+
+**The Arboreal Chorus: The Sextans**
+The six-limbed creatures are called, in the non-language of the place, the *Sextans*. They are the reservoir's hands and its voice. Their extra limbs—the middle pair, more dexterous than the others—are not for locomotion alone. They are tools. They clear mineral deposits from critical pipe junctions. They train fern-vines away from sensitive machinery. They harvest the bright, fleshy fruit of an epiphyte that grows only on the oldest pipe runs, and they *plant* its seeds in the silt of the upper terraces. They do this not with intention, but with the ingrained compulsion of a bee pollinating a flower. They are the reservoir's gardeners, born of its bio-engineering legacy, now performing their function without knowing why. Their chatter is the system's idle commentary, their screams an alarm protocol. They are utterly at home, and they are utterly owned by the rhythms of the place.
+
+**The Liquid Nerves: The Glass Shoals**
+In the shallow, steaming margins swim the Glass Shoals—translucent, eyeless fish that have evolved to navigate by the reservoir's own energy. They sense the electromagnetic hum of the pumps and the geothermal heat plumes. They school in precise, reactive formations that map the invisible currents of the water, acting as a living diagram of the reservoir's circulatory health. When a pump cycle shifts, the shoals reconfigure. They are a sensory organ of the larger body, their movements a constant, silent report on the state of the water.
+
+**The Chitinous Clockwork: The Grinders**
+On the walkways, the beetles. They are not merely insects; they are the clean-up crew and the demolition crew. Their armored mandibles are suited for breaking down the hard mineral deposits that fall from the ceiling, the decaying ceramic flakes, even the shed chitin of their own dead. They process the inorganic and the organic indiscriminately, reducing all detritus to a fine silt that washes back into the water to become substrate. Their slow, deliberate marches across the moss are the reservoir's digestive process, visible.
+
+**The Airborne Filter: The Midges and Bats**
+The midge clouds are not random. They swarm in the thermal updrafts that rise from the water, precisely where the air carries the highest load of spores, pollen, and organic particulates. They are a living air filter. The bats, in turn, are the regulators of the filter, preventing the midges from overpopulating and clogging the airways with their own dead. Their echolocation clicks stitch the upper dark together, a sonar map of the vaulted ceiling, tracking the slow drip of mineral stalactites and the sway of *Tillandsia* curtains.
+
+**The Choral Heartbeat: The Glass-Frogs**
+The frogs are the system's diagnostics. Their skin is permeable to the unique mineral and chemical signature of the reservoir's water. They don't just sing; they *report*. A shift in the pump's deep groan prompts a polyphonic thrum from the lower terraces. A change in the acidity of the condensation triggers a high, clear whistle from a specific colony near the steam vents. Their chorus is a continuous, living readout of system parameters, translated into sound. To understand the frog-song is to understand the reservoir's vital signs. They are its mood, its health, its pulse.
+
+**The Deep Resident: The Pressure**
+And then there is the presence in the deep. It is not a monster. It is the reservoir's **id**, its ancient, residual memory of the water before the mountain was hollowed. It is likely a single organism, or a colonial entity, that has grown slowly for centuries in the geothermally warmed abyss. It moves with the tectonic patience of the mountain itself, stirring the deepest waters not with violence, but with a vast, displacement current. It surfaces rarely, not to breathe, but to *adjust*—perhaps nudging a sunken pipe, perhaps stirring a nutrient-rich sediment plume. The sextans leave offerings on the deepest terrace: polished stones, bundles of rare moss. The deep thing consumes them, or absorbs them, or ignores them. It is the reservoir's core, its gravity, its anchor in deep time. The pumps draw water that has passed over its skin. The entire system hums in the low-frequency field of its slow metabolism.
+
+**Together, they are not an ecosystem. They are an *organism*.**
+The machinery provides the skeleton and the autonomic nervous system. The vegetation is the flesh and the skin. The fauna are the specialized cells—the caretakers, the sensors, the cleaners, the defenders. The deep resident is the heart, or the gut, or the dreaming brain.
+
+No one is in charge because there is no "one." There is only the whole. It breathes. It regulates. It heals its ceramic wounds with moss. It feeds itself through the endless, automatic harvest of its own growth. It has achieved a state of closed-loop, perpetual being. What lives here is a *world*, learning, over millennia, how to be itself.

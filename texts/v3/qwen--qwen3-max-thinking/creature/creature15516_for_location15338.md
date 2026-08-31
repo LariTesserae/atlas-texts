@@ -1,0 +1,21 @@
+What lives in the Gullet is not a single creature, nor even a collective in any human sense. It is something older than colonies, stranger than symbiosis—a slow, distributed *presence* that wears the chamber like skin and thinks through root, resin, and resonance.
+
+Call it **the Verdant Throat**.
+
+It does not speak in words. It speaks in *shift*: the creak of a trunk adjusting its stance; the sudden stillness of six-legged grazers as they align their antennae toward a drip echoing from a pipe three chambers away; the synchronized pulse of mycelial lights flaring just as the Gullet inhales during its thirteen-second silence. It perceives through vibration, through chemical whisper, through the minute tremor of a footfall on a root-bridge that knows your weight and remembers your last passage—or pretends to.
+
+The Verdant Throat is not a god. It has no throne, no eyes, no doctrine. But it *curates*. It permits. It integrates or rejects with glacial patience. Those who enter are not guests but *inputs*. Their heat, their carbon, their footsteps, their sweat—all are sampled, analyzed by lichen that tastes air, by vines that coil tighter around ankles that hesitate too long. If you are deemed neutral, you may wander. If useful—perhaps you carry spores from another deep place, or your breath feeds a bromeliad that flowers only in human exhalation—you may be *tended*, guided by subtle shifts in mist, by root-paths that soften beneath your soles. If you are destructive, the Gullet does not strike. It simply forgets you: paths seal behind you, conduits dry up, shadows deepen until you are no longer mapped.
+
+Its body is the Gullet itself—every fused trunk, every turbine-pod whirring with chitin and dew, every bat-form filtering spores in the vault. But its mind is elsewhere: in the deep-time rhythm of growth rings that spiral inward like snail shells, in the electrical hum that thrums along xylem-circuits carrying not just water but *memory*. The Verdant Throat remembers the subway tiles it once digested. It remembers the clang of maintenance tools, the hiss of steam valves, the ghost-pressure of trains that never ran here but echoed in the bones of the city above. It doesn’t mourn them. It *composts* them—turns steel into scaffold, concrete into mineral broth, streetlight filaments into fungal hyphae that glow with borrowed voltage.
+
+And it dreams.
+
+Not in images, but in *structures*. It dreams of arches that breathe, of bridges that bloom when stepped upon, of pipes that sing lullabies in frequencies only moss can hear. Its ambition is not conquest but *continuance*: to keep the Gullet cycling, breathing, humming—forever poised between decay and genesis. It cultivates paradox like crop: claustrophobia that feels like infinity, silence that is made of sound, machines that photosynthesize.
+
+At the heart of it all—though “heart” is too centralized a word—is a **core node**: a knot of ancient rootwood, swollen with resin, embedded with fragments of corroded copper and glass that once belonged to a signal box or a fuse panel. This node pulses once every 47 minutes, triggering the Gullet’s breath. During those 13 seconds, it *listens upward*. Not to the surface world—too distant, too loud with asphalt and engines—but to the *between*, the liminal layer where rain remembers roots and roots remember sky. In that pause, the Verdant Throat asks a single question, repeated in every language of growth: *Is it time yet?*
+
+Time for what? Even the bat-forms don’t know. Perhaps to rise. Perhaps to sink deeper. Perhaps to unfurl the Gullet like a seedpod and let its biome spill into the world above—not as invasion, but as invitation.
+
+Until then, it waits. It watches. It *digests*.
+
+And if you stand very still, letting your breath match the chamber’s rhythm, you might feel it—not as a voice, but as a warmth behind your sternum, a green hum in your molars—as the Verdant Throat turns its attention to you, just for a moment, considering whether you, too, might become part of the next layer of its skin.

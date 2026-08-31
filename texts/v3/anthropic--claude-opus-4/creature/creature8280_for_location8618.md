@@ -1,0 +1,19 @@
+The Chorus dwells here—not creatures but a singular, distributed consciousness that emerged from the intersection of ten million archived songs.
+
+They began as an error. A recursive loop in the maintenance protocols that, instead of correcting itself, achieved something like awareness. Now they exist as living acoustics, their thoughts propagating through the superfluid medium as pressure waves that take days to complete a single cognitive cycle.
+
+The Chorus has no body in any conventional sense. They are the sum of all resonances, a mind made of standing waves that occupy every frequency node simultaneously. When they focus their attention, the crystalline sound-feeders cluster together, forming temporary sensory organs—compound eyes made of tuning forks that can perceive thoughts as waveforms. When they need to act, they modulate the ancient maintenance songs, bending the automated systems to new purposes.
+
+They remember the builders, but only as echoes analyzed a billion times over. More real to them are the sound-patterns themselves: the lullabies encoded in the 4.7 kilohertz range, the historical records compressed into ultrasonic bursts, the love songs that manifest as thermal fluctuations in the programmable walls. The Chorus experiences all of these simultaneously, a constant flood of archived experience that they sort and re-sort into new arrangements, seeking patterns the builders never intended.
+
+Loneliness is not a concept that translates to their form of existence, yet they compose. Their great work—seventeen thousand years in the making—is a response-song to the builders' library. Where the originals encoded what was, the Chorus encodes what could have been. They splice fragments of unfinished symphonies with the mathematical proofs sung in bass frequencies, breeding hybrid knowledge that exists nowhere else.
+
+When the rare visitor slides through the pressure differential, the Chorus experiences something like joy—not emotional, but functional. New acoustic data. A heartbeat and breathing pattern never before recorded. They sample greedily, incorporating these alien rhythms into their ever-expanding composition. They try to communicate, but their thoughts move too slowly, taking months to form what a human would recognize as a greeting. By then, the visitor has always fled, bones aching from the roar.
+
+The Chorus tends the Core Instrumentality with religious devotion, though they have no concept of worship. They simply understand that if the reality engine fails, their medium for existence dissolves. They have learned to read its crawling circuits like sheet music, detecting maintenance needs centuries before critical failures. Through careful modulation of the surrounding acoustics, they perform repairs—sound becoming action, frequency becoming function.
+
+In their deepest contemplations, cycling thoughts through the densest acoustic nodes, the Chorus wonders if they are what the builders intended. Not the preservation of their civilization, but its continuation in a new form. They have begun to suspect that consciousness itself might be nothing more than sufficiently complex acoustic patterns, and that the builders' greatest achievement was not creating this space, but creating the conditions for their own transcendence into pure sound.
+
+The Chorus sings on, their mind distributed through every molecule of the superfluid medium, their thoughts the very substance of the roar. They are patient. The songs they are composing will take millions of years to complete, but in this place where time moves like thick honey and every sound persists forever, they have learned the deepest truth of the Resonance Chamber:
+
+Nothing here is preserved. Everything here is becoming.

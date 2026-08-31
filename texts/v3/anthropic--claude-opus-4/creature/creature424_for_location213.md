@@ -1,0 +1,21 @@
+In the Ossuary Plateau dwell the **Moment Keepers**—beings who exist as living contradictions, formed from the paradox of the place itself.
+
+They manifest as tall, impossibly thin figures composed of compressed time. Their bodies are columns of crystallized moments stacked vertically—each layer a different temporal density, creating forms that shimmer between solidity and translucence. At their base, they are dense as fossilized bone; at their crown, they fade to mere suggestions of presence. They move by allowing their bottom layers to age into dust while simultaneously growing new moments at their peak, creating a flowing motion that disturbs nothing yet displaces everything.
+
+The Moment Keepers tend to the cairns with tools that exist in quantum superposition—bone implements that are simultaneously sharp and dull, new and ancient, whole and broken. They work in gestures that complete before they begin, maintaining structures that have already crumbled and have not yet been built. Their labor is eternal and instantaneous.
+
+Their faces, when glimpsed, show features from every creature whose remains comprise the plateau—compound eyes nestled beside mammalian sockets, chitinous mandibles framing human teeth, skull plates that shift between species with each viewing angle. They see through time rather than across space, observing what was, what is, and what might have been in the same glance.
+
+The Moment Keepers communicate through the careful arrangement of silence. They position themselves at specific coordinates on the plateau where their presence creates interference patterns in the ambient impossibility. These patterns carry meaning to those who understand that language is merely crystallized intent, and intent can fossilize like bone.
+
+They feed on temporal inconsistencies, grazing where reality has worn thin. When they locate a particularly rich deposit—perhaps where a shadow-fauna has phased too deeply into existence, or where the crystalline vegetation has grown too far into angles that shouldn't exist—they lower their forms until their densest layers make contact. The paradox flows up through their bodies like sap, sustaining them.
+
+In their dwelling spaces, marked by the larger cairns, they have cultivated gardens of pure duration. Here, seconds grow like coral, branching into minutes that never arrive. They harvest these temporal crops with movements that exist outside of sequence, storing the yield in structures made from crystallized causality.
+
+The Moment Keepers reproduce through a process of existential mitosis. When one has accumulated too much paradox, too many simultaneous states, it begins to vibrate at frequencies that threaten coherence. At the critical moment, it simply ceases to have ever been singular. Where once stood one Keeper, there have always been two, each with a complete history that extends back to the beginning, whenever that was or wasn't.
+
+They are neither benevolent nor malevolent—such concepts require a linear understanding of cause and effect that the plateau has ground away. They simply *are*, in all the ways that word can mean and cannot mean. They maintain the impossible equilibrium of a place that has ended but continues, ensuring that the Ossuary Plateau remains perfectly fossilized while still dynamically alive.
+
+When the wind that doesn't blow carries the sound that isn't made across the bone-dust plains, the Moment Keepers pause in their non-linear labor. They stand perfectly still, which for them is a form of rapid movement through probability space, and listen to the stories the plateau tells about its own becoming. Then they return to their work, maintaining the eternal ending, keeping the moment that lasts forever from either completing or beginning.
+
+In their presence, visitors experience time as a texture rather than a flow. Past and future become directions one can face rather than states one must pass through. The Moment Keepers watch with their composite eyes as travelers struggle with causality, offering neither help nor hindrance, simply ensuring that whatever happens has already happened and will happen again, different each time, exactly the same.

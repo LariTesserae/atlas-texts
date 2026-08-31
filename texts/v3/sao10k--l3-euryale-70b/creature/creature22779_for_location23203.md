@@ -1,0 +1,9 @@
+In this strange half-drowned metropolis, an odd menagerie of creatures has evolved alongside the flora over untold eons. The treetops shelter colonies of flying lemurs, with iridescent pelts and fans of delicate bioluminescent membrane connecting their wrists and ankles. They dart among the leaves by day, singing haunting melodies. By night, they alight on the clear-blue pools beneath the Bone Pillars to sip nectar from flowers of crystalline beauty.
+
+Amidst the tangled undergrowth scurry small furry arboreal mammals - something like opossum crossed with squirrel, possessing prehensile tails covered in sticky pads allowing them to climb across walls and ceiling without fear. These "Squirrel-Skins" live in large extended family groups warrens within hollowed structures, venturing out to forage for fruits and fungi found in perpetually moister corners of the ruins.
+
+Down where water meets wall lurks a breed of semi-aquatic reptiles not unlike primitive monitor lizards except that they possess rudimentary gill slits on either side of their jaws. These "Gill-Wraiths" are sleek predators that slide effortlessly between air and water, pursuing fish-like vertebrates adorned with electric organs amidst the submerged rubble.
+
+Most eerie are the towering "Bark-Men", immobile humanoids of living plant matter woven together from vines and fungal hyphae. Nothing about them moves save their eyes which shift to track movement notions only they perceive. Some say to hear them speak is to be ensnared by a telepathic link with some great over-mind deep beneath the waves...
+
+Atop it all rules what is called the Sky-Father - a vast hermaphrodite creature born from stolen mortal flesh and feminine serpent spirit. With dragonfly wings spanning thirty feet she surveys her realm while serpentine coils wrap great hidden spire-pinnacle made soft as moss by aeons lost beneath water and soil...

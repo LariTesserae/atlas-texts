@@ -1,0 +1,15 @@
+They are born of the green, and return to it without a fight. I picture them first as green themselves, a subtle shift in the shade of a giant leaf, a twitch in the weave of a hanging vine. But no, that's too easy, too obvious. There is craft here, technology, strange industry blooming from the rot. They are organic, yes, deeply, fundamentally so, but with an overlay of something else, a calculated imposition of will onto the raw, exuberant chaos.
+
+Think of the fungi: iridescent, pulsing with light, fueling the furnaces. These are not wild things, but cultivated, bred for purpose, their spores carefully sown. This hints at an understanding, a symbiotic partnership that goes beyond mere survival.
+
+They are patient, for one. The city is not built in a year, or a decade. It is grown, coaxed, and shaped over generations. They understand the language of roots and the secrets of the sap. Their architecture is not about control, but about collaboration. Each building is a dialogue between their intent and the plant's inherent form, a negotiation played out over centuries. The bulging, sagging shapes are not signs of decay, but proof of acceptance. The plant yields, but on its own terms, dictating the curve of a wall, the angle of a roof.
+
+Imagine their hands, gnarled like branches, stained with sap and fungal dyes. They are not delicate, but strong, capable of coaxing life from the densest wood or weaving ropes from the toughest vines. Their clothing, if they wear any, is not woven from thread, but grown, cultivated from specialized plants, each leaf and stem carefully positioned, each color a deliberate choice.
+
+Their faces? Perhaps they are masked with woven lattices of leaves, or painted with luminescent fungi, their true expressions hidden behind a veil of botanical artistry. Or perhaps their faces are mirrors of the city itself, etched with the slow, relentless process of decay and renewal, their eyes glowing with the same phosphorescent light that fuels their furnaces.
+
+They are not silent, but their voices are intertwined with the sounds of the forest. Their laughter is the rustling of leaves, their songs the hum of insects, their whispers the dripping of water. They communicate through the city itself, through the careful placement of fungi, the manipulation of vines, the subtle shifts in the flow of water.
+
+Who are they? They are the tenders of this green cathedral, the architects of this living metropolis, the inheritors of a knowledge so deeply entwined with the natural world that it has become inseparable from their very being.
+
+They are rooted, both literally and figuratively, to this place. They are the guardians of its secrets, the keepers of its balance, the living embodiment of the slow, patient dance of creation and destruction. To understand them is to understand the fundamental interconnectedness of all things, the delicate balance between order and chaos, the relentless power of nature, and the quiet beauty of resilience.

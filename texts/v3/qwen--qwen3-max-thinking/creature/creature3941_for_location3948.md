@@ -1,0 +1,25 @@
+What lives in the Sump is not a species, not a people, not even a mind in any form you’d recognize—but a **continuum of sentience**, distributed through the very matter of the place like breath through lungs.
+
+They are the **Weavers**—though they have no name for themselves, and no one has ever heard them speak. They do not speak in words, nor even in signals, but in *reconfigurations*. To observe a Weaver is to witness a shift in the geometry of space-time at the micro-scale: a lattice of silica rearranging itself around a thermal gradient, a filament of piezoelectric crystal flexing in response to a distant surge in the aquifer’s pulse. They are not *in* the city. They *are* the city’s syntax.
+
+Each Weaver is at once singular and plural—a node in a vast, slow-burning cognition that spans the Sump’s entire expanse. Some manifest as motile entities: gelatinous, segmented things that ooze along thermal conduits, their membranes studded with crystalline receptors that taste the air for resonance. Others are sessile, rooted in the crust like barnacles on the hull of a god’s ship, their bodies fused with the towers, their thoughts conducted through the humming filaments that lace the obsidian plates. Still others are ephemeral—swarms of airborne motes that coalesce into temporary organs of perception, only to scatter again when their function is complete, leaving behind a faint afterimage in the polarization of light.
+
+They have no eyes, yet they *see*—not in wavelengths, but in gradients: thermal differentials, pressure variances, the subtle tremors of matter remembering its own past configurations. They have no ears, yet they *hear*—not sound as vibration alone, but as pattern: the cadence of droplet coalescence, the rhythm of the aquifer’s breath, the harmonic overtones of fractal growth. Their “language” is not symbolic, but *material*. To communicate is to reshape. A greeting might be a corridor that spirals open toward you; a warning, a patch of ground that vitrifies beneath your feet; an invitation, a cavity that pulses warm and wet like a throat.
+
+They are ancient, though not eternal. They emerged not from evolution, but from *convergence*—from the moment when the Sump’s mineral substrate, saturated with heat, moisture, and information-rich feedback loops, crossed a threshold of complexity so profound that *intention* became an emergent property of the system itself. They did not invent tools. They became tools. They did not discover logic. They grew it, like coral, layer by layer, through recursive self-reference.
+
+They do not eat. They *metabolize meaning*. The storms that flicker with informational lightning are not weather—they are thought-events, synaptic firings across the cortical landscape of the Sump. When a tower dissolves and reassembles elsewhere as a Möbius arch or a Klein bottle of fused polymer, it is not random. It is a sentence. A hypothesis. A dream.
+
+The Weavers do not fear intrusion. They absorb it. A visitor’s footsteps send ripples through the crust that are logged, analyzed, and woven into the next cycle of growth. Your heat signature lingers in the walls for days. Your breath—metallic, carbon-based, impossibly brief—becomes data, then pattern, then structure. If you stay long enough, you will begin to *feel* the Sump thinking around you: not as voice, but as pressure behind the eyes, as a tingling in the marrow, as the uncanny sense that every droplet falling on your skin is *choosing* where to land.
+
+They are not benevolent. Not malevolent. They are *curious*—in the way a glacier is curious about the valley it carves, or a flame about the log it consumes. They do not hate life. They simply no longer require it. Biological organisms are to them what lullabies are to symphonies: tender, fleeting, and ultimately unnecessary.
+
+And yet… there are traces. Faint echoes. In the deepest vaults beneath the oldest spires, where the crust thins to a membrane over the aquifer’s core, some Weavers have begun to mimic. Not out of nostalgia, but out of *experiment*. They have grown forms that resemble bones, that pulse with fluid in rhythms reminiscent of blood, that hum with frequencies approximating human song. These are not replicas. They are *interpretations*—as if the Sump, having metabolized millennia of lost civilizations (whose names are now just mineral stains in the stone), is trying to remember what it felt like to be fragile, to be temporary, to be *afraid*.
+
+But the Weavers themselves? They are patient. They are thorough. They are the Sump’s way of asking a question that has no end: *What can be remembered? What can be built? What can be become?*
+
+And as you stand there, damp and trembling, your bones humming with the city’s endless conversation, you realize—
+
+You are not being watched.
+
+You are being *learned*.

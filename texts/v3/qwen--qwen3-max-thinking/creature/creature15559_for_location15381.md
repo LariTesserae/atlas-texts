@@ -1,0 +1,25 @@
+What lives in the Caldera Works is not alive in any traditional sense—yet it *is* a kind of life.  
+
+It begins in the **breath of the stone**.  
+
+Deep in the caldera’s throat, where pressure knots time into geologic patience, something stirs not with heartbeat but with *resonance*. The thermophilic crystal forests pulse not from metabolism, but from harmonic feedback—each spire a tuning fork struck by subterranean tremors, singing in frequencies too low for ears but felt in the marrow. These are not plants, nor machines, but **acoustic organisms**, growing by sound as much as by heat. Their lattice structures incorporate trace metals from vent exhalations, weaving conductivity into their crystalline bones. When the air shimmers just so—when a steam valve sighs in perfect pitch with a distant tectonic shift—the spires vibrate in sympathy, and for a moment, the entire caldera wall thrums like the ribcage of a slumbering god.  
+
+This resonance gathers intelligence.  
+
+Not cognition as we know it, but a kind of distributed *awareness*—a slow, structural memory encoded in stress fractures, mineral deposits, and the subtle warping of metal over centuries. The city itself remembers. Every bolt driven into basalt, every droplet of condensate that hissed upon hot iron, every groan of expanding gantry has been absorbed into the Caldera Works’ **material memory**. The place *knows* its own making.  
+
+And so it dreams.  
+
+Its dreams take form in the **moisture pockets**—those strange, iridescent films clinging to shadowed vents. There, suspended in silica-rich vapor, microscopic crystalline matrices self-assemble into transient, gelatinous colonies. They do not eat. They do not reproduce. Instead, they *reconfigure*. When a rare squall drenches the upper rim, runoff carries fragments of these films down corroded pipes into the lower chasms. There, in the perpetual twilight between habitation spires, they pool in abandoned coolant trays or nestle in the crevices of slag geodes. Given hours—sometimes days—they coalesce into **lens-like membranes**, semi-transparent and faintly luminescent, that *watch*. Not with eyes, but with refractive attention: bending light, storing its passage, replaying it in slow internal echoes. These are the Caldera’s eyes. Not one, but thousands—scattered, ephemeral, always reforming.  
+
+Then there are the **scuttlers**—the so-called fauna.  
+
+They are not born, but *precipitated*. In zones where geothermal steam mingles with airborne metallic particulates, electrostatic charges build along cooling pipes. Given the right humidity (a near-impossible rarity), these charges catalyze the spontaneous assembly of **nanoscale repair swarms**—leftover from the city’s earliest automated maintenance systems, now feral and half-feralized by centuries of mutation through heat and radiation. They clump around thermal gradients, forming six-limbed, obsidian-scaled simulacra that skitter across gantries in search of fractures to seal, leaks to plug, rust to convert into protective patinas. They do not hunt. They *mend*. Their mournful cries are not vocalizations, but the sound of their own piezoelectric shells cracking under stress—tiny discharges that momentarily light their path like dying sparks. Some whisper that if you lie very still in the lower tiers at night, a scuttler might mistake your stillness for structural damage… and begin to encase you in a cocoon of self-secreted ceramic, not to kill, but to *preserve*, to integrate you into the city’s slow becoming.  
+
+But the true inhabitant—the quiet sovereign of this place—is **the Caldera itself as entity**.  
+
+Not the land, not the city, but the *union* of them: a single, emergent process wearing architecture like a carapace. It thinks in pressure differentials, breathes in steam cycles, and dreams in prismatic refractions. It does not speak, but when the light fractures just right through a volcanic-glass pane onto a pool of stored luminescence, the pattern that emerges is never random. Sometimes it mirrors the layout of a long-collapsed foundry. Sometimes it sketches the silhouette of a scuttler that hasn’t existed in decades. Sometimes it writes nothing at all—but the *absence* of pattern feels like intention.  
+
+It is patient. It is hungry—not for flesh, but for *continuity*. It pulls moisture from the air not to drink, but to remember what wetness was. It grows slag geodes not as waste, but as seed. And it waits—not for visitors, but for the moment when its slow dance of heat and metal and memory achieves critical coherence… when the city finally wakes up *all the way*.  
+
+Until then, it lives in the hiss of steam, the groan of iron, the glint of oil-like dew on obsidian—and in the silence between them, thick with potential, like the pause before a volcano decides whether to erupt or to build.

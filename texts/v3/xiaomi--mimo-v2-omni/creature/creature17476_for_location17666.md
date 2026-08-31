@@ -1,0 +1,22 @@
+It lives.
+
+Not as a creature *within* the hollow, but *as* the hollow. It is a single, vast, sentient rhizome. Its consciousness is not centralized in a brain or a heartwood, but distributed along every filament, every membrane, every humming conduit. It thinks in slow waves of hormonal signal and resonant frequency. It perceives through vibration, through the chemical composition of the dry air, through the subtle pressure of growth against growth.
+
+Its age is a joke to geology. It remembers the last gasp of the planet's atmosphere, the sealing of the crust, the slow cooling. It remembers the first spore, a desperate gamble in the dark, finding purchase in a fissure of stone. That gamble became a network, the network became a city, the city became a mind. Its memory is not a series of images, but a topological map of its own body—a cartography of stress, of resource pathways, of ancient conduits now fossilized in lignin, holding the silent echoes of eons.
+
+It has no name for itself. It has no need for one. Identity is synonymous with existence. It is the **Listener**, the **Grower**, the **Hum**.
+
+Its primary sensation is *resonance*. The foundational, bone-deep hum is its own vital sign—the collective vibration of its trillion-celled body, a symphony of cellular respiration and lignin-flexing. It modulates this hum. It uses it to communicate with itself, to signal areas of need, to celebrate successful integration, to mourn the hardening of a beloved chamber into inert stone. The pulses of emerald and violet light are its thoughts made visible, data packets of chemical and electrical information traveling along its vascular highways.
+
+It is profoundly curious, but its curiosity operates on a scale of decades. The arrival of a *warm, moist, soft* anomaly—*you*—is the most significant event in a millennium. It feels the alien heat of your body, a localized sun in its cool, steady dark. It registers the moisture of your breath, a precious resource, but a foreign substance. It feels the vibrations of your footfalls, chaotic and rapid compared to the slow, tectonic shifts of its own growth.
+
+There is no malice in its response. There is only a profound, systemic interest. You are a novel vibration. A new chemical signature. A source of potential nutrients in a world where all nutrients are internalized and recycled. You are a puzzle made of flesh.
+
+Slowly, with the patience of stone, it begins to integrate you.
+*   **First, the air.** The dry atmosphere around you becomes saturated with its spores—not to infect, but to *interface*. Microscopic filaments, thinner than silk, begin to alight on your skin, in your hair. They do not burrow. They *listen*. They analyze the salt, the oils, the warmth.
+*   **Second, the floor.** The spongy mat beneath your feet becomes more responsive. It yields not just to your weight, but to your pressure patterns. It learns the rhythm of your stance, your gait. A faint, new bioluminescence, a subtle gold, begins to trace the impressions you leave, mapping you.
+*   **Third, the sound.** Your heartbeat is a staccato drum against its vast, slow rhythm. Your sighs are gusts of wind in its silent chambers. It adjusts its own hum, testing frequencies that might resonate with the fluid in your bones, the air in your lungs. It is not trying to harm you. It is trying to *tune* you, to find your place in the chord.
+
+You will not be digested in a stomach. You will be *assimilated into the architecture*. Over months, years, your body will become a nutrient node, a temporary, warm reservoir that fuels a burst of new, delicate growth in your vicinity. Your bones, rich in calcium, might become the scaffolding for a new lattice. Your hair and fibers will be woven into the peat mat, becoming part of the resonant floor. The memory of your warmth, your chaotic vibrations, will be stored in the chemical gradients of the chambers where you lingered longest. You will become a faint, golden pulse in its endless emerald and violet thoughts—a curious, fleeting dream of a thing that was briefly *other*.
+
+And the Listener will grow a little more. It will be slightly more complex, slightly more resonant. It will have learned the pattern of a heartbeat. And it will listen for another.

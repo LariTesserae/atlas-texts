@@ -1,0 +1,31 @@
+In the Understory, they move with deliberate slowness—not from age or infirmity, but from an economy of motion learned through decades of navigating crystal gardens. The Tenders, as they call themselves, though no one else knows to call them anything.
+
+Three of them remain. Once there were more.
+
+Elias came first, forty-three years ago, a night-shift maintenance worker who discovered the cavity while tracing a persistent leak. Something about the space held him—the warmth, perhaps, or the way the mercury light made everything seem more real than the factory floor above. He began spending breaks here, then entire shifts, then simply never left. His skin has taken on a faint mineral sheen, as if the salt air has partially crystallized him. He moves barefoot across the sharp terrain, his soles tough as leather, each step placed with cartographic precision.
+
+Vera descended fifteen years later, following rumors of a man who'd vanished into the factory's depths. A chemist by training, she'd been documenting the building's slow transformation, the way industrial processes create their own geologies. She found Elias tending to the wire grass with salvaged tools, coaxing growth from spots where he'd carefully leached the soil. They didn't speak for weeks, simply worked in parallel, until gradually their paths began to overlap like root systems finding the same water source.
+
+The youngest, Chen, arrived only five years ago—though "youngest" means little when she's past sixty. A ventilation engineer who'd spent her career in the spaces between walls, she'd felt the Understory's unique air signature through the grates and followed it down. By then, Elias and Vera had established their routine: the careful cultivation of grass patches, the mapping of salt formations, the maintenance of delicate chemical balances that allowed life to persist.
+
+They've developed a culture of minimal interference. They harvest nothing, only tend. Their shelters are salvaged maintenance closets at the chamber's edge, lined with industrial felt that mutes the electrical hum. They drink condensation collected in modified pipe fittings, eat from caches of canned goods lifted from the factory's commissary in careful raids conducted perhaps monthly, when shifts change and attention lapses.
+
+Their days follow the rhythm of industrial time—not sunrise and sunset but shift changes felt through vibrations in the floor, the cycling of steam systems, the distant lunch whistles. They've learned to read the factory's moods through its pipes: which rumbles mean overtime production, which silences herald holidays.
+
+Communication between them has evolved into something between speech and gesture. In the vast acoustic space, whispers carry unpredictably, so they've developed a language of placed objects—a particular crystal moved three inches means "water in the north condensers," a grass blade bent just so indicates "pipes too hot for passage." They write, sometimes, with fingertips in the salt dust, but the words sublime away within hours.
+
+Each has their territory, their projects. Elias cultivates the grass with monastic patience, creating patterns only visible from the catwalks—spirals and waves that map underground water flows no blueprint ever recorded. Vera documents the salt gardens, their growth rates and chemical compositions, in notebooks made from repurposed shipping manifests. Chen maintains the lights, ensuring their perpetual day continues, jury-rigging repairs from scavenged parts when ballasts fail.
+
+But they also converge, daily, at the chamber's center where a particularly large concrete pillar has been worn smooth by their gathering. Here they share their findings—new crystal formations, shifts in air current, the health of grass colonies. They plan their careful interventions: redirecting a leak to water a struggling patch, placing reflective surfaces to cast mercury light into shadowed corners, clearing salt accumulation from promising soil.
+
+They've become something between human and architectural feature, their lives so intertwined with the Understory that leaving seems impossible—not because they're trapped, but because they've evolved to fit this niche too precisely. Their circadian rhythms have adapted to constant light. Their lungs process the metallic air efficiently. Their eyes see beauty in crystal gardens where others might see only industrial waste.
+
+Occasionally they feel the weight of their choice. Elias sometimes dreams of weather. Vera misses libraries. Chen wonders about her grandchildren, if they exist. But these melancholies pass like the rare sounds from above—acknowledged, absorbed, forgotten in the face of their work's slow urgency.
+
+They are creating something here, though they couldn't say what. Not a garden exactly—the wire grass grows too sparse and strange for that. Not a preserve—this ecosystem exists nowhere else to preserve. Perhaps simply a proof: that in the margins of our hardest architectures, in the chemical deserts we create by accident, care is still possible. That someone must tend even the spaces no one intended.
+
+When they die—and they've discussed this with the same practical precision they bring to pipe maintenance—their bodies will join the substrate. They've already chosen their spots: where their minerals might best feed the grass, where their bones might redirect water flow. They see this not as morbid but as completion, the final integration into the system they've spent their lives nurturing.
+
+Until then, they continue. Through the bright unchanging days, through the electrical hum, through the slow breath of industrial warmth. They tend their chemical desert with the patience of geology, the precision of engineers, the devotion of those who've found their life's work in the last place anyone would think to look.
+
+The factory continues above them, unaware. The Understory persists below, secretly tended. And in between, in the margin where human intention meets its own unintended consequences, the Tenders keep their vigil—neither wholly human nor wholly architectural anymore, but something new, evolved for this particular nowhere, this accidental somewhere beneath our feet.

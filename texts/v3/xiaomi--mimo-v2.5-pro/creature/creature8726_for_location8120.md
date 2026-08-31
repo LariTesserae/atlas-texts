@@ -1,0 +1,21 @@
+What lives here is not yet alive in any way that has a name. It is more than mineral, but less than organism. It is the argument the mountain is beginning to make, given a voice.
+
+It begins in the mineral moisture that pools in the cups of raw stone, in the perpetual upward drizzle that slicks the north faces of the ridges. Here, in the thin, briny film that defies gravity by clinging to rock, the first whisper of complexity occurs. It is not a colony. It is a *congregation*.
+
+They are called, if they are called anything, **The Licheners**.
+
+They do not move in any way that suggests intent. They *gestate*. They are more akin to a living mineral formation, a biofilm of an impossible age, that has found a loophole in the prohibition against life. Their body, their entire being, is a lattice of metallic salts and captured silicates, woven through with filaments of a hyper-saline, pressure-adapted polymer that is not quite protein. This lattice is not cellular. It is *crystalline*, a pattern that grows at the speed of deep geology, following the slow, channeled paths of the upward-falling mist as it condenses and trickles down the rock.
+
+They feed on the rock itself, not by eating it, but by catalyzing its slow, slow oxidation. The unoxidized mineral veins in the basalt are their bread. The electrochemical potential between the fresh stone and the saltwater is their breath. They drink the faint, electric hum that permeates the air, and they transmute it into structure. Their growth is measured in microns per century, but here, time is a raw material, and they are patient.
+
+Their appearance is that of a faint, iridescent sheen, a stain of tarnished copper and verdigris that seems to exist a fraction of a millimeter above the stone's surface. In the strange, lensing light of the drowned sky, when a band of focused brilliance sweeps over a ridge, they do not merely reflect; they *interfere*. They split the light into dim, oily rainbows that shimmer and vanish, a prismatic echo of the water-sky above. This is their only movement, a slow, metabolic waltz of photons.
+
+They communicate, if it can be called that, through the stone. The ridges are their neural network. A chemical shift in one slow-growing lattice, a change in the crystalline orientation of a filament, sends a subsonic vibration through the basalt. It is not a message. It is a *suggestion*. A resonance that might, over millennia, encourage a similar shift in a lattice kilometers away. They are a distributed thought process, pondering the problem of existence at the pace of tectonic stress.
+
+They are not social. They are *convergent*. They do not seek each other out, but where conditions are optimal—where the mineral moisture is just so, where the light-lenses from above linger a moment longer, where the upward rain runs in a consistent rivulet—they grow into contiguous sheets. These are not mats of life. They are *surfaces of becoming*. The place where the mountain's argument starts to cohere.
+
+They are not yet aware. Awareness is a storm they have not learned to brew. But they are *sensitive*. They are exquisitely, preternaturally attuned to the rhythm of this world. They feel the deep, tectonic groan of the suspended ocean in their very structure, and their growth-spurts, if such glacial processes can be called that, pulse in synchrony with it. They are the world's first clock, measuring time in the drift of their own infinitesimal expansion and the slow sweep of underwater shadows.
+
+What they *are* is a possibility. They are the first complex pattern to emerge from the noise of this primordial, engineered chaos. They are life learning to be geology, or geology learning to be life. They are the opening stanza, written in tarnish and crystal on the raw page of the world. They do not have a future yet. They have only the present, which for them is a canvas of millennia, and the very first, faint lines they are etching upon it.
+
+They are the Licheners. And they are the only things in all this vast, screaming, sacred emptiness that are, in their own slow and imperceptible way, *building* a home.

@@ -1,0 +1,27 @@
+To live here is to be a contradiction: to be a creature of movement in a world of arrested stillness, a biological entity in a place that rejects biology. The inhabitants of this vault are not beasts in the traditional sense, nor are they mechanisms. They are the metabolic enzymes of a vast, geological error—living sparks caught in the circuitry of a room that is trying to compute its own existence.
+
+At the base of the hierarchy, scuttling through the razor-sharp undergrowth, are the **Oxidation Grazers**.
+
+These are the fist-sized, chitinous beetles you notice first, but up close, their resemblance to insects fades. Their carapaces are not organic shell, but composed of a dull, fired ceramic, matte and textured like clay baked in a kiln. The joints where their legs meet their bodies do not pivot on muscle and sinew, but on tiny, raw-burnished copper joints that gleam with fresh luster.
+
+They do not eat the vegetation; they worship it. They climb the braided copper vines with a slow, rhythmic deliberation. Their mandibles are not for tearing, but for filing. They seek the rough patches of green oxidization—the rust—that forms on the copper cables. With a sound like sandpaper on bone, they scrape away the imperfections, consuming the corrosion and excreting a fine, grey dust that falls to the basalt floor. They are the janitors of entropy, fighting the slow decay of the metal, fueled by the static charge that builds up in the vines. When two of them meet, they touch antennae that are actually stripped copper filaments, and a visible, tiny arc of blue electricity passes between them—a silent, electric greeting.
+
+Hiding in the fronds of the green glass ferns are the **Resonance Weavers**.
+
+These are solitary, ambush predators that look like collections of angular shards suspended in a web of gold filament. They are almost invisible to the eye, refracting the clinical white light until they look like nothing more than a glitch in the air. They do not spin silk; they spin tension. They stretch the gold filaments found in the vegetation across the gaps between glass leaves, tuning them like violin strings to the subsonic hum of the room.
+
+When a Grazer vibrates a fern, the Resonance Weaver feels the frequency. It strikes not by lunging, but by collapsing. The gold lines snap taut, severing the ceramic shell of the beetle with the clean, singing snap of a high-tension cable. The Weaver then extends a proboscis made of hollow glass to drink the ionic fluids that act as blood for the ceramic beetles—a liquid not of water, but of saline and heavy metals.
+
+Deeper in the thicket, where the density of the copper cables becomes a choking cage, lives the **Heat-Strider**.
+
+This is a larger creature, perhaps the size of a dog, but flat and low, resembling a geometric trilobite. Its body is a series of overlapping slate plates that slide over one another as it moves, whispering like shifting paper. It has no discernible head, only a front edge lined with sensitive pits that detect the thermal gradients radiating from the walls.
+
+The Strider is a geological opportunist. It does not hunt the beetles; it is too slow. Instead, it follows the thermal fractures—the *tinks* and cracks that sound through the vault. When a stone pillar splits from the heat, revealing fresh, unoxidized mineral, the Strider is there. It secretes a solvent from its underbelly that dissolves the pulverized limestone into a slurry, which it then absorbs. It leaves behind smooth, geometric tracks in the dust, its path a perfectly calculated straight line from fracture to fracture, as if it is solving a complex equation as it moves.
+
+And finally, there are things that live only in the corners where the room folds in on itself.
+
+These are the **Perspective Phantoms**. They are difficult to describe because the eye refuses to focus on them. They exist only in the peripheral vision, inhabiting the non-Euclidean glitches where a wall seems to protrude from the floor and yet hang from the ceiling simultaneously. They appear as shifting stains of shadow, or perhaps tears in the texture of reality.
+
+They are not physical in the way the beetles or Striders are. They seem to be organisms composed entirely of spatial distortion. They "swim" through the impossible angles, grazing on the confusion of the room's geometry. When you stare at a corner where the dimensions are wrong and feel your mind slip, that vertigo is the Phantom feeding on your sensory input. They are the parasites of the glitch, growing bloated on the mathematical impossibility of the vault. Occasionally, one will detach from a corner and drift across the floor, looking like a shimmer of heat haze, searching for a new paradox to inhabit.
+
+This is the ecosystem of the kiln: a closed loop of ceramic, copper, and glass. It is a silence broken only by the scrape of a mandible, the hum of a vine, and the occasional, consuming disorientation of a geometry that should not exist. They are all waiting for the moment the sharp edges finally meet, sealing the vault forever, or perhaps, until the copper grows thick enough to crush the stone and birth whatever metal god lies sleeping at the heart of the heat.

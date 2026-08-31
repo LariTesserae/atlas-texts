@@ -1,0 +1,13 @@
+In this ancient, subterranean city, a myriad of bizarre and wondrous creatures have adapted to life in the perpetual twilight. Among the most prominent inhabitants are the Pale Ones, a race of ghostly humanoids who have evolved to thrive in this sunless realm.
+
+The Pale Ones are tall and slender, their translucent skin a shimmering, opalescent white that seems to glow softly in the dim light. Their bodies are smooth and hairless, with long, delicate limbs that move with an eerie grace. Most striking are their eyes - large, almond-shaped, and entirely black, reflecting the faint bioluminescence of their surroundings like pools of liquid night.
+
+These ethereal beings are perfectly adapted to their environment. Their elongated fingers and toes, tipped with small, sharp claws, allow them to easily navigate the crumbling architecture and scale the vine-choked walls. They communicate through a complex language of soft clicks, trills, and haunting, melodic vocalizations that blend seamlessly with the ceaseless chorus of the city.
+
+The Pale Ones are a highly intelligent and sophisticated species, with a rich culture and history that spans countless generations. They dwell in the most intact of the ancient structures, which they have modified and maintained over the ages. Within these enclaves, they create intricate art, craft delicate tools and ornaments, and engage in esoteric rituals and ceremonies that honor their deep connection to their timeless home.
+
+Despite their eerie appearance, the Pale Ones are not aggressive or hostile. They are cautious and secretive, preferring to observe intruders from the shadows with their unblinking, obsidian eyes. However, if approached with respect and patience, they may choose to engage, sharing their ancient wisdom and knowledge of the city's labyrinthine depths.
+
+In many ways, the Pale Ones are a reflection of their surreal, dreamlike world - haunting, enigmatic, and utterly alien, yet possessing a strange, otherworldly beauty. They are the guardians and caretakers of this timeless realm, ensuring that the delicate balance of life and decay remains unbroken, even as the ages slip by like shadows in the unending twilight.
+
+As they move silently through the crumbling streets and echoing chambers, their pale forms flickering in the faint, eerie light, the Pale Ones embody the very essence of this ancient, subterranean city - a testament to the enduring power of life, adaptation, and the ceaseless flow of time in the depths of the earth.

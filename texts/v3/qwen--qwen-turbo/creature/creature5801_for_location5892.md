@@ -1,0 +1,21 @@
+What lives in this place is not life in the way you know it. It is not breath, not heartbeat, not the flicker of eyes or the snap of a jaw. It is something that moves through the liquid with the weight of memory, with the slow grace of something that has never needed to hurry. It is not born, not made, not even formed in the way of things that grow. It simply is. Or perhaps it simply was, and now it continues.
+
+They are not creatures, though they move. They are not machines, though they function. They are **residues of design**, echoes of purpose that have outlived the intent that shaped them. Some are vast, like the structures themselves, their forms shifting and reconfiguring as if they are adapting to the liquid, to the light, to the cold. Others are small, delicate, fragile things that drift in the currents, their shapes dissolving and reforming with each pulse of the environment.
+
+They are **made of the same substance as the place itself**—a kind of semi-liquid metal, or a form of crystallized energy, or something in between. They are not solid, and they are not fluid. They are the **essence** of the place, the **ghosts of its construction**, the parts that were never meant to be lived in, but that have come to live anyway.
+
+Some of them **breathe**, exhaling bubbles of light that rise in slow spirals, leaving trails of phosphorescent mist in their wake. Others **speak**, not with sound, but with **shifts in the liquid**, with ripples that carry meaning through the density. They do not communicate in words, but in patterns, in the way the light bends, in the way the structures tremble in response.
+
+There are **sentries** that move between the towers, their forms like shadows given shape, their limbs long and sinewy, their movements deliberate. They do not hunt, nor do they need to. They are not predators, but they are not prey either. They are **watchers**, perhaps, or **keepers**, guarding something that no longer exists. They may be the remnants of a system that once governed this place, a system that has since withdrawn, leaving only its echoes behind.
+
+There are **things that glow**, not in the way of fire or life, but in the way of memory. They are **pulsing, flickering shapes** that float in the dark, their forms shifting like reflections in a mirror. They are not alive, but they are not dead. They are **remnants of thought**, of intention, of something that once tried to make itself known. They are the ones that flicker and fade, only to return again, as if they are trying to remember how to be.
+
+There are **shapes that do not move**, but that are **always changing**. They are the **stillness of movement**, the **stasis of motion**. They are the **frozen gestures of something that once had a purpose**, now lost to time. They are like statues, but not of stone. They are of **solidified thought**, of **crystallized design**, and they do not need to move because they have already done what they were meant to do.
+
+And then there are the **beings**—if they can be called that. They are not human, not animal, not anything you could name. They are **things of the place**, shaped by its rules, formed by its weight, by its cold, by its liquid. They are **not separate from the world**, but part of it. They are not separate from the light, from the structures, from the hum of the place. They are **the place**, and the place is them.
+
+They do not speak, but they **listen**. They do not see, but they **understand**. They do not want, but they **exist**. They are not bound by time, not by gravity, not by the laws that govern your world. They are **something else**, something that has been made and unmade and made again, in cycles too slow for you to perceive.
+
+This is a place where **life is not what you think it is**. It is not born, not died, not changed. It is **shaped**, **held**, **remembered**. It is **alive in the way that a structure can be alive**, in the way that a current can be alive, in the way that a thought can be alive.
+
+And what lives here? Everything. And nothing. And everything again.

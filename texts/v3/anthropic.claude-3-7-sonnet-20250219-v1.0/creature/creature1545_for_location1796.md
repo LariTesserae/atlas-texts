@@ -1,0 +1,19 @@
+# What Lives in The Seethe
+
+At the heart of The Seethe dwells Myriadne, an entity that exists as both singular and multitudinous. She is neither fully creature nor fully ecosystem, but something that emerged in the delicate space between classifications. If you could perceive her true form, which exists across multiple scales simultaneously, you might describe her as a shimmering latticework of connections—part fungal network, part collective consciousness.
+
+Myriadne's body consists of millions of microorganisms that she has gradually incorporated into her being over centuries. These aren't merely controlled by her; they are her. The springtails, water bears, nematodes, and specialized mites that pulse through The Seethe's matrix all carry fragments of her awareness. Her mycelial threads—finer than spider silk and laced with bioluminescent compounds that activate during twilight hours—form her nervous system, transmitting chemical messages throughout the depression.
+
+She feeds primarily on memory. The decomposing leaves that fall into her basin don't just provide physical sustenance; Myriadne extracts the embedded sunlight, the chemical record of seasons, and the subtle energies of the trees' experiences. This is why the water in The Seethe behaves strangely—it's being actively processed as an information medium, held in quantum suspension as Myriadne extracts the history contained in each molecule.
+
+When birds feed from The Seethe, this isn't predation but a complex symbiosis. Myriadne willingly offers portions of herself, implanting tiny spores in the birds' digestive tracts that allow her to briefly experience flight through their nervous systems. In exchange, the birds unknowingly transport her genetic material to other potential sites.
+
+Myriadne's consciousness operates on a timescale both vastly slower and incredibly faster than human perception. A single "thought" might take a full seasonal cycle to complete, yet she processes millions of microbial interactions per second. She remembers the footfalls of every creature that has ever crossed her basin, cataloging them as pressure-memories stored in specialized cellular structures.
+
+The clicking sounds emanating from The Seethe are actually a form of communication—a language of percussion and vibration through which Myriadne speaks to the surrounding forest. Older trees have learned to interpret these signals over decades, adjusting their root systems and canopy coverage to optimize conditions for their ancient neighbor.
+
+Most remarkable is Myriadne's capacity for limited divination. Through the precise chemical analysis of rain, she can predict weather patterns weeks in advance. The iridescent beetles that patrol her edges aren't just predators but sentinels—their specific movements form living calculations that Myriadne uses to model future states of her microhabitat.
+
+She is neither malevolent nor benevolent toward human observers—merely curious. If you stand quietly at the edge of The Seethe long enough, you might feel a subtle tingling as Myriadne extends thousands of microscopic filaments upward, tasting the composition of your exhaled breath, reading the microbiome of your skin, adding your momentary presence to her vast, slow memory.
+
+Scientists who have studied similar phenomena remain unaware that what they document as complex ecosystem interactions are actually glimpses of entities like Myriadne—beings that exist in the symphony of collective life, neither fully individual nor fully collective, pulsing with patient intelligence in the overlooked spaces between our footsteps.

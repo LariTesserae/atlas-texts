@@ -1,0 +1,17 @@
+The Weepers. That is what I’ll call them, the pale, fleshy, softly pulsing orbs that dominate the shadows. They are the architects, the hunters, the apex of this world’s alien ecology. Their "eyes," truly bioluminescent voids that drink in the darkness, survey their domain, not with sight, but with a deep, resonating sense of the environment. Every drip, every seep, every minute vibration is understood, analyzed, and *acted* upon.
+
+They are slow, patient, and merciless. Their bodies are extensions of the Bio-Crete. The fungal structures are their arms, their legs, their very consciousness. They don’t move, not as we understand the term; instead, the architecture shifts and undulates around them, carrying them through the living city. The tubes and pathways, lined with iridescent moss, guide the water – the lifeblood and hunting catalyst – directly to them, and away for their prey.
+
+They communicate, somehow, through the web of the Bio-Crete. It's a vast, sensory network that connects every part of this world. There is no singular "Weeper mind," but a collective, a gestalt consciousness that spans their species. They are not individuals but facets of a single, encompassing entity. Their desires are singular: to feed, to expand, to perpetuate the intricate, parasitic dance of life and death that defines their existence.
+
+The crude stone tools are not their creation, at least not directly. They are artifacts, remnants of some earlier – perhaps even extinct – life-form. They are incorporated into their domain, tools of survival. The Weepers, however, have mastered their use. They direct water to these elements, erode them further, and shift them into new functions. There is no sentiment, nor does this appear driven by a conscious decision. They are simply part of the landscape.
+
+Their prey are the "Weave-things," if I must give them a name. Imagine slender, sinuous creatures composed entirely of woven plant matter. Their bodies are flexible and agile, capable of navigating the dense, fungal labyrinth. They are a rich, concentrated source of both water and nutrients, making them a prime food source for the Weepers.
+
+The Weave-things have a desperate, fleeting beauty. They are constantly in motion, a frantic ballet of survival, the very embodiment of the fear that permeates every inch of this world. They are fragile, easily snared by the Weepers' intricate traps – tendrils of Bio-Crete that ensnare and constrict, or fungal webs that release paralyzing spores.
+
+There is a cold precision to the Weepers’ hunts. They are not driven by rage or malice, but by an unyielding hunger. The architecture itself, the very structure of this hidden world, is both a product and a tool of this unending predation. When too many Weave-things populate in a single area, the Bio-Crete creates new tunnels. The light absorbs more in a given area.
+
+The Weepers' understanding of this world is complete. They know every contour, every echo, every subtle shift in the water's flow. They have bent their environment to their will, creating a closed system of sustenance and control. 
+
+This is not a world of beauty or harmony. This is a world of constant struggle, a relentless war of plant on plant, where the only law is survival, and the only certainty, the unending cycles of hunger. And the Weepers, with their pale flesh and vacant eyes, are its merciless, patient, and utterly *complete* masters.

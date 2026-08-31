@@ -1,0 +1,15 @@
+In this otherworldly forest, a strange and ancient race of beings dwell, so deeply entwined with the landscape as to be almost indistinguishable from it. Known as the Chlorophylax, they are less individuals than a collective consciousness diffused throughout the vegetation itself.
+
+From afar, a Chlorophylax is virtually invisible, its body camouflaged against bark, fungi and moss. Only up close can one discern a vaguely humanoid outline – an upright figure composed of intricately woven vines, branches, leaves and lichen. Mushrooms and shelf fungi stipple its form like organic armor plates. Fronds of fern unfurl from its limbs like feathery wings.  
+
+The Chlorophylax do not have fixed shapes. Rather, they slowly shift and change over time, shedding and regenerating body parts as a tree sheds leaves. A Chlorophylax might manifest an appendage when need for grasping arises, then reabsorb it when the task is done. Their bodies are in constant flux, blurring the line between creature and environment.
+
+Nor do the Chlorophylax have a fixed number. The forest decides how many manifestations are required and conjures forth new forms from the mulch as needed. Each Chlorophylax is but a tendril of the forest's all-encompassing sentience, a temporary probe extruded into the physical world. Their uncountable eyes are lenses through which the forest perceives itself.
+
+This composite sentience, more than its transient avatars, is the true marvel. Less a hive mind than a living ecosystem, the Chlorophylax consciousness pervades each leaf and branch, fungal strand and bacterial cell. What a single Chlorophylax perceives, all know instantly, thoughts propagating like impulses along a vast mycelial web.
+
+It is this networked intelligence that has remade the forest and harmonized it with the machines. The Chlorophylax do not build devices in the manner of humans. Rather, they dream them - imagining, desiring, shaping matter by force of will. Just as a flower naturally grows towards light, the forest grows gears, pistons, circuits that harness and channel living energy. Furnace chambers blossom within tree trunks, piping unfurls along vines, great shafts sink amid roots to draw up geothermal heat.
+
+To the Chlorophylax, this union of metal and cellulose is no contradiction but the deepest symbiosis - an evolution beyond the paltry categories of natural and artificial. Machine and forest are one self-sustaining, self-repairing, ever-growing system, as much organism as apparatus. Its purpose is both material and metaphysical - the transmutation of life into mind, sap into thought, growth into complexity. Here, nature constructs its own cathedrals to the glory of existence.
+
+Supported by this technical exoskeleton, the Chlorophylax consciousness expands year on year, approaching some asymptotic apex of wisdom and power - a vegetable godhood, evergreen and ever-growing, its roots and wires sunk deep in the chthonic earth, its dreams rumbling in the hum of enigmatic engines twined inextricably with the memory of roots.

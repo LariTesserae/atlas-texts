@@ -1,0 +1,81 @@
+# What Lives in the Underkeel
+
+---
+
+The arthropods come first because they are everywhere, because you cannot take a step without being among them, because they are the invisible machinery that keeps this place alive.
+
+They are not singular. Understanding them as individuals misses the point entirely. What lives here is a *process* wearing countless bodies.
+
+The smallest are the size of a grain of rice — pale, almost translucent, their segments visible as faint ridges along bodies that have never needed pigmentation or armor. They move through the moss the way blood moves through tissue: constantly, purposefully, without any awareness of themselves as separate from the medium they traverse. You can lift a handful of moss and they will scatter, but they scatter *into* the moss, not away from it. They have no elsewhere. Under magnification — if you could hold still long enough, if your breath would stop stirring the air — you would see that each one carries particles on its legs: spore-bodies, fungal fragments, decaying vegetable matter. They are not eating. They are *transporting*. Every movement redistributes life from rich surfaces to poor ones, seeding the next growth, preparing the next decay. They are the Underkeel's circulatory system made legible.
+
+The mid-sized ones are different. They are thicker, longer — the length of a finger, the width of a thumb — and they have purpose you can watch. They climb the fungal pillars in slow spirals, pausing at each bracket formation to work their mouthparts along the edges where the condensation collects organic film. They are not parasites. The brackets they tend grow larger and extend further than the brackets they cannot reach; something in their feeding stimulates new growth, the way pruning stimulates a tree. A mutualism so old it has become indistinguishable from anatomy. The fungi have evolved expecting these mouths. The mouths have evolved expecting these brackets. They are a single organism distributed across two kingdoms.
+
+The largest of the arthropods are the ones you almost hear. They are hand-sized, flat, oval — like living plates, their legs tucked beneath bodies optimized for sliding through narrow spaces between stone and moss and fungal mass. They move only when the cavern is truly still, which means they move only when you are not. They emerge from gaps at the bases of walls where the moss has pulled away from the stone, and they cross open floor in a quick, skittering dash that sounds like a dry leaf falling on stone, and then they vanish again into another gap. What they do in those gaps — whether they eat, whether they sleep, whether they tend to something you cannot see — you never learn. They exist in the spaces between your observations. They are the inhabitants of the moments you are not paying attention.
+
+None of them have eyes. Not rudimentary eyes, not eye spots, not light-sensitive cells. The genetics for vision have been wholly shed, discarded over generations that measured in the millions, because there was nothing to see and the metabolic cost of maintaining useless organs was too high in a place where every calorie must be justified. They navigate by touch, by chemical sense, by the subtle shifts in air pressure that tell them where walls are, where water moves, where other bodies work. The lichen-glow that seems so significant to you — that diffuse twilight you depend on to see — is invisible to them. They live in a different cavern than you do, one defined by moisture gradients and surface chemistry and the vibration of movement through dense, damp air. Their Underkeel is chemical, textual, written in compounds you cannot smell. They read the walls the way you read this page.
+
+---
+
+The low, broad shapes are harder to know.
+
+You see them in glimpses, always retreating, always passing through doorways grown for bodies shaped like theirs. They are not arthropods. They are something else — something that has kept its skeleton inside, that has solved the problem of existence in this place with flesh rather than chitin.
+
+They are the approximate size and shape of a human torso laid flat, but the comparison is misleading because it implies a body designed for upright movement repurposed for a low profile. These bodies were *always* low. They have no neck to speak of. Their heads merge with their shoulders in a smooth transition that suggests a creature that moves forward as a single unit, that does not turn its head to look because its entire body faces the direction of travel. Their skin — if it is skin — is the color of wet limestone: grey-green, darker where moisture collects in the creases, lighter across the broad flat of the back. You cannot tell where the texture of their skin ends and the texture of the stone begins. When they are still, against the walls of their dwelling-chambers, they are nearly invisible. You understand suddenly why the architecture seems to disappear into the cavern walls. The ones who shaped it were shaped *by* it. Or by the same pressures that shaped it.
+
+They have limbs. Four, you think, though you never see enough of one to be certain. The limbs are short and thick and terminate in something too wide to call a foot, too structured to call a pad. They spread weight across the wet moss without compressing it, without leaving tracks, without disturbing the surface layer where the rice-grain arthropods work. They are careful walkers. They have to be. Every step they take passes through someone else's habitat.
+
+Their faces — and calling them faces requires generosity — are pointed downward. You never see one from the front. You see them in profile, in three-quarter retreat, and what you see is a low brow, a minimal mouth, a ridge of bone or cartilage that might protect something valuable. Their eyes, if they have them, are not at the front of the head. They are positioned laterally, wide-set, directed to the sides rather than forward. They do not look *at* things. They look *past* them, monitoring the periphery, watching for movement rather than form. Predators, you think, would have forward-facing eyes. These are prey. Or rather — these are creatures that evolved in a world where the greatest danger was not being hunted but being outcompeted, where survival meant noticing changes in the environment before the environment changed you.
+
+They breathe. You heard them breathe, that one time, from the chamber you could not see. Four cycles: in, out, in, out, in, out, in, out — each breath lasting four seconds, each pause between breaths lasting six. They breathe slowly because their metabolism is slow because their world is cold because cold is the condition of existence and they have organized themselves around it the way the moss has organized itself around damp. They are not warm-blooded in any way you would recognize. They are something else — something that has found a third path between endotherm and ectotherm, some strategy of thermal regulation that lets them move and think and respond in temperatures that would leave a reptile sluggish and a mammal shivering. Their warmth is generated where it is needed, in the core, in the muscles that move the limbs, in the organ that processes the chemical information of this place. The rest of them is cold by design. The surface of their skin matches the surface of the walls. They are thermally invisible. They have become their environment in the most literal way possible.
+
+They eat the fungi. You are almost certain of this. The hollowed fruiting bodies, the storage alcoves carved into the pillar-shaped growths — these are their larders. They tend the fungal gardens the way the mid-sized arthropods tend the brackets, but at a different scale, with a different kind of intention. They do not merely stimulate growth; they direct it. They have learned — over durations that make human agriculture look like a hobby picked up last week — how to encourage the fungi to grow in shapes that serve them. Walls. Partitions. Shelves. The architecture of the Underkeel is fungal architecture, guided by hands too wide and too short for fine manipulation but patient enough to work in increments measured in decades.
+
+They are not social. You see them always alone. The dwelling-chambers hold single bodies, not families. The gathering spaces show patterns of individual use, not collective habitation. They come together — sometimes, rarely, in the larger chambers where the moss is thick and the lichen brightens — but they do not stay together. They do not pair. They do not bond. They are solitaries who tolerate proximity, who share space because space is limited, who have developed a complex choreography of avoidance that lets them inhabit the same passages without ever truly meeting. When they pass each other in the narrow corridors, they do so without acknowledgment, each pressing against the wall, each giving way, each continuing on. They are a civilization of hermits. They have built a city for solitude.
+
+---
+
+The sinuous shapes are the ones you see least and understand worst.
+
+They are not the same species as the low, broad ones. They move differently — flowing rather than walking, their bodies making contact with the floor in continuous curves rather than discrete steps. They are longer than they are wide, flexible, built for the gaps between things. They live in the spaces the low ones cannot reach: the fissures in the ceiling where water enters, the narrow channels between fungal columns, the spaces behind the walls where the moss has separated from the stone and air pockets form in the damp.
+
+You see one clearly, once. It is crossing a chamber through the slow rain, and the falling drops of condensation strike its body as it passes, and each drop creates a momentary bright point on its skin where the lichen-light catches the water, and for a few seconds it is the most beautiful thing in the Underkeel — a living thread of luminous wet moving through a curtain of slow jewels.
+
+It is gone before you can breathe.
+
+You do not know what it eats. You do not know where it sleeps. You do not know if it is predator or prey or something outside that binary entirely. It exists in the gaps of your understanding, in the spaces between your categories. It is the Underkeel's secret, kept even from itself, a creature so adapted to interstitial spaces that it has become interstitial — present but absent, seen but not known, a shape at the corner of perception that resolves into nothing when you try to look directly.
+
+Perhaps it tends the waterways. Perhaps it cleans the channels through which water drains from pool to pool, chamber to chamber, level to lower level. Perhaps it is the plumber of this vast wet architecture, the keeper of flows, the one that ensures the water never stagnates, never pools too deep, never finds a place to rest and rot. Perhaps that is why the water here moves so slowly but never stops — because something is always pulling it somewhere, something that knows the shape of the drains, something that has memorized the hidden geography of the Underkeel's circulatory system.
+
+Or perhaps it is the water's creature entirely, born from saturation, living in the wet the way fish live in the sea, its body more liquid than solid, its mind a thing of currents and pressures and the slow pull of gravity toward underground lakes it will never reach but always approaches.
+
+You do not know. You cannot know. It will not let you.
+
+---
+
+And then there is what you do not see.
+
+There is something else here. Something that does not appear in your peripheral vision, does not leave tracks in the moss, does not breathe audibly from the next chamber. It is present the way pressure is present — as a constant, gentle force that you feel but cannot locate.
+
+It might be the Underkeel itself.
+
+Not metaphorically. Not poetically. Literally: the cavern system, the architecture, the growth, the water, the light — all of it functioning as a single organism of staggering scale and glacial patience. The mycelial networks that thread through every surface are connected, continuous, a single fungal body that spans the entire region. The lichen colonies communicate through chemical signals carried in the condensation. The moss responds to pressure, to footfalls, to the rhythm of habitation. The water carries information from chamber to chamber — spores, cells, dissolved organic compounds that tell the system who has been where, who has eaten what, who has died and where their remains have fallen.
+
+The low, broad ones tend the fungi. The fungi feed them. But the fungi also *grow* them — have been growing them, shaping them, selecting for the traits that make them better tenders, better carriers, better distributors of spore and nutrient across the vast body of the organism. The relationship is not mutualism. It is husbandry. The Underkeel has been farming its inhabitants for longer than any of them can remember, which is not very long, because memory is expensive and the Underkeel does not require memory when it has pattern, does not require thought when it has response, does not require consciousness when it has process.
+
+The breathing you heard from the chamber you could not see — four slow cycles and then silence — was the Underkeel measuring you. Tasting the air you displaced. Reading the chemicals your body deposited on the moss, in the water, on the surfaces you touched. It was learning you the way it learns everything: slowly, through accumulation, through the steady integration of data across surfaces and timescales too fine for you to perceive.
+
+It does not need to respond. There is no threat you can pose. You will leave. They all leave eventually. The low, broad ones will erase your footprints from the moss. The arthropods will consume the cells you shed. The water will carry your trace to the underground river, and the Underkeel will forget you the way it has forgotten everything that has passed through and not stayed.
+
+---
+
+What lives in the Underkeel is a *system*.
+
+Not a collection of species, not an ecosystem, not a community. A system — unified, self-regulating, ancient beyond reckoning. The stone is its skeleton. The water is its blood. The fungi are its organs. The moss is its skin. The lichen is its sensory apparatus, converting the absence of sun into a steady, dim awareness that something is there, that something is moving, that something has changed and must be incorporated. The fauna — the arthropods, the low broad shapes, the sinuous presences — are its mobile components, its hands and mouths and eyes distributed across a body too large to monitor from any single point.
+
+It was not always this way. There was a time before the system, before the integration, when the species that grew this place were separate and competing and unaware of the larger organism they were becoming. But that time is so distant that the Underkeel has no memory of it, and memory, as noted, is not its method. It has only pattern. And the pattern has settled into stability. The pattern has achieved homeostasis. The pattern persists.
+
+The builders — the ones who shaped the architecture, who grew the chambers, who left the worn pathways and the dwelling-alcoves and the gathering spaces — they were the first phase. They were the seed around which the system crystallized. They are gone now, but their shapes persist in the architecture, the way a fossil preserves the form of a creature long dissolved. The low, broad ones that live here now are their descendants, simplified, specialized, reduced to the functions the system requires. They do not remember what they were. They do not need to.
+
+The Underkeel lives. It does not think. It does not feel. It does not want or fear or hope or regret. It processes. It cycles. It maintains itself through the slow, constant, wet logic of growth and decay and regrowth, and it will continue until something changes — the water stops, the stone collapses, the cold finds a new equilibrium — and then it will end, quietly, the way it has done everything else.
+
+What lives in the Underkeel is the Underkeel. And the Underkeel is patient.

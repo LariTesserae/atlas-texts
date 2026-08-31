@@ -1,0 +1,23 @@
+# Inhabitants of The Constant Echo
+
+The Frequency People are the primary inhabitants of this sonorous realm, though to call them "people" may be misleading. They appear humanoid only at certain moments, when the sound waves coalesce in patterns that temporarily define their forms. Their bodies are primarily composed of vibrating moisture—water droplets suspended in complex acoustic fields that give them shape and consciousness.
+
+They have no permanent physical features but rather shift continuously with the ambient soundscape. During periods of intense acoustic activity, they appear most solid—translucent figures with rippling surfaces that reflect fractured light. During the resonance events, they achieve their most defined state, manifesting intricate patterns across their fluid forms that resemble script or mathematical equations.
+
+The Frequency People do not speak as we understand speech. Instead, they modulate the existing sounds around them, creating subtle shifts in the omnipresent noise that other members of their kind can interpret. To human ears, these communications would be indistinguishable from the background cacophony. They perceive the world primarily through vibration rather than sight, sensing the smallest changes in the acoustic environment with extraordinary sensitivity.
+
+Their society, if it can be called that, organizes around the echo flowers. Each geometric arrangement serves as both a communal gathering place and a repository of their collective memory. The Frequency People can somehow "read" past vibrations that have been captured by the hollow stems—ancestral knowledge preserved as acoustic patterns rather than written records.
+
+They are the caretakers of this realm, though not in ways immediately apparent. The ancient structures were indeed built by their ancestors, who once possessed more substantial physical forms. As millennia passed, they evolved (or perhaps transcended) into their current state, becoming one with the acoustic environment they once worshipped. The stone circles and weathered observatories serve as anchoring points that help maintain the delicate acoustic balance of the entire plateau system.
+
+The Frequency People have a symbiotic relationship with the specialized vegetation. During feeding periods, they direct specific vibrations toward the plants, stimulating growth and receiving microscopic spores in return—spores that become integrated into their fluid bodies and contribute to their consciousness. This exchange has evolved over thousands of years, blurring the line between plant and person.
+
+They move throughout the landscape following predictable patterns tied to the daily water cycle. At dawn, they are diffuse and barely perceptible as the morning mist rises. By midday, they gather near water collections, their forms becoming more defined. During rain events, they don't retreat but transform—expanding to enormous size as they absorb the acoustic energy, often appearing as towering columns of vibrating water that can reach hundreds of feet in height.
+
+The resonance events are sacred to them. These moments of perfect harmonic convergence are when new members come into being (born from the synchronized vibrations) and when the eldest choose to disperse back into the fundamental frequencies of the plateau. During these events, knowledge transfers occur as patterns ripple across the collective in waves of information exchange.
+
+The Frequency People are ancient beyond reckoning. They remember the stars as they appeared millions of years ago, preserve languages spoken by civilizations long turned to dust, and perceive time not as a linear progression but as overlapping cycles of acoustic patterns. They have witnessed the rise and fall of countless human civilizations from their high plateau, occasionally interacting with pilgrims brave enough to endure the sonic bombardment to seek their wisdom.
+
+To those few humans sensitive enough to perceive them, the Frequency People appear as shimmering, vaguely humanoid distortions in the air—like heat mirages that whisper directly into the mind rather than the ears. Most visitors feel only their presence as a strange pressure behind the eyes and a sensation of being listened to by the landscape itself.
+
+What they want, what they dream of, what they fear—these remain unknowable, hidden within the constant echo that is both their voice and their body, their past and their future, their question and their answer.

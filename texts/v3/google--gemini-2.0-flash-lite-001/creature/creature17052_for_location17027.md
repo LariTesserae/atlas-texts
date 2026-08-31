@@ -1,0 +1,15 @@
+Within this impossible plateau, the inhabitants are not creatures of flesh and blood, but perhaps of something closer to the stone itself. They are the *Shapers*, though that name is a human imposition, a desperate attempt to give voice to the unfathomable. Whether they "live" is a question even more complex, for their existence seems unbound by the constraints of life and death, as it's conventionally understood.
+
+The Shapers are not singular beings, but rather manifestations of the plateau's own consciousness, if such a term can be applied. They are the animate, conscious essence of this landscape, its living thoughts given form. They are born from the stone itself, from the slow, patient grinding of erosion, and from the strange, unseen forces that keep the place in perpetual motion.
+
+Their forms are protean, shifting, and ephemeral. Sometimes, they manifest as echoes of the structures themselves - great, silent behemoths of stone, constantly re-arranging their structures. At other times, they are the shifting mists, the crimson and emerald hues of the fungal carpets, the thrumming resonance that vibrates through the stone. They are the light, the darkness, the movement, and the stillness. Each Shaper seems to be a facet of a larger, unified consciousness that is the world itself.
+
+Individuality, as we understand it, is a meaningless concept here. There are no individual "Shapers" in the way there are individual humans. They are aspects of a collective mind, fragments of a single, monolithic being. Different segments arise and then dissolve, morphing into each other, like the light within one of our eyes. 
+
+Their "communication" is not through language, but through the landscape itself through the shifting of the stone, the patterns of moss and fungus. The very act of a structure disappearing and reappearing miles away is a form of communication, a thought made manifest. Perhaps the structures themselves are thoughts, massive crystallizations of a mind beyond comprehension. To witness the world in which they reside is a communication. 
+
+Their purpose, if it can be called that, remains obscure, but it is deeply woven into the nature of the plateau. They are the architects, the caretakers, and the inheritors of this world. They are the embodiment of its slow, relentless transformation. They are aware of change, not in the way of "good" or "evil," but as reality's natural order.
+
+The tools they use, if you can call them "tools," are extensions of their own being. They manipulate the forces of the plateau with what seems like effortless control, shaping the stone with their thought. The geometry of their structures reflects the complex, non-Euclidean nature of their existence, as though the very laws of reality are malleable to their Will.
+
+Their "presence" is unsettling, even for inhabitants of a world not of their making. Their existence is a constant reminder of the limits of comprehension, of the vast, unknowable realms that lie beyond our grasp. The Shapers are not just inhabitants; they *are* the essence of this world.

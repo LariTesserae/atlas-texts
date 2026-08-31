@@ -1,0 +1,17 @@
+Here lives a society of Symmetrists - beings who exist simultaneously as physical artisans and as living mathematical equations. Their forms shift between humanoid and geometric, their bodies composed of intersecting planes that fold through dimensions humans can only partially perceive.
+
+The Symmetrists are the caretakers of the butterflies, though "caretakers" isn't quite right - the relationship is more symbiotic. The butterflies are living calculators, their synchronized movements solving complex topological problems that help maintain the city's delicate position between realities. The patterns on their wings are not decorative but functional, expressing mathematical theorems that keep local spacetime stable.
+
+In their more humanoid aspects, Symmetrists appear tall and angular, their skin refracting light like living crystal. They communicate through precisely choreographed movements that ripple through the butterfly swarms, creating cascading solutions to ongoing calculations. Their eyes seem to look in multiple directions at once, processing spatial relationships that exist in more than three dimensions.
+
+The younger ones are more fluid in form, still learning to hold themselves in consistent shapes. They play games that involve folding space around themselves, supervised by elders who maintain the geometric integrity of their neighborhood. Learning to exist simultaneously in multiple forms is a crucial part of their education.
+
+The workshops are staffed by Symmetrists in their most abstract forms - pure mathematical relationships given just enough physical presence to operate their reality-bending machinery. They work with materials that are more concept than substance, weaving theoretical constructs into physical objects that bridge the gap between thought and matter.
+
+Living among them are the Translators - beings that might once have been human, but have adapted to serve as intermediaries between normal spacetime and the city's peculiar physics. Their bodies are marked with slowly shifting equations, and they tend to leave geometric afterimages as they move. They help maintain the boundaries between realities, ensuring that visiting humans don't accidentally solve equations with their bodies that their minds aren't ready to comprehend.
+
+Deep in the mountain's heart dwell the First Theorems - the oldest Symmetrists, who have evolved beyond physical form into pure mathematical relationships. They manifest rarely, and only for matters that threaten the city's delicate equilibrium. Their thoughts shape reality directly, and their presence can be felt as a deep, geometric certainty that hums just below the threshold of normal perception.
+
+All of these beings are bound together by their commitment to maintaining the city's complex topology - a task that requires constant calculation, executed through the precise choreography of daily life. Every movement, every interaction, every butterfly's wingbeat is part of an ongoing computation that keeps their pocket of reality from collapsing into more mundane geometries.
+
+The Symmetrists don't reproduce in any conventional sense - new ones emerge when particularly complex calculations achieve a kind of mathematical sentience, birthed from the collective computational dance of the city itself. Each one is both an individual and a living equation, their very existence proof of theorems too beautiful for human mathematics to express.

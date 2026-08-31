@@ -1,0 +1,27 @@
+In the Hollow Cities of the Unfinished Heights, there are the Threshold Keepers.
+
+They arrived—or emerged, or condensed—sometime after the builders departed but before the mountains learned their final shapes. At first glance, they might be mistaken for tall, thin humans wrapped in layers of translucent fabric. But watch longer, and the truth becomes apparent: they are colonies, assemblages, communities unto themselves.
+
+Each Keeper is composed of thousands of paper-thin organisms, like living pages that flutter and resettle constantly around a core that might be mineral, might be ice, might be crystallized time itself. These sheet-beings have the texture of new limestone—soft, chalky, leaving traces of themselves on whatever they touch. They communicate through alignment, their component parts shifting to form temporary organs of perception or manipulation as needed.
+
+The Keepers move through the empty cities with deliberate slowness, tending to tasks whose purpose remains opaque. They repair bridges not to cross them but to maintain the possibility of crossing. They clear debris from doorways that lead nowhere anyone goes. They trace the carved water channels with appendages that form and dissolve, ensuring the flow continues even when no one drinks.
+
+Their relationship with the architecture is intimate and strange. They know every stone, every shift in the gradually deforming walls. When a building settles another degree out of true, the Keepers are there, not to correct it but to witness, to record the change in the positioning of their constituent parts. They are living libraries of the city's slow transformation.
+
+But they are not alone. In the deepest foundations, where worked stone meets raw mountain, live the Miners of Potential. These creatures—if creatures they are—exist partially in the rock itself. Their bodies, when they choose to have bodies, are networks of mineral veins that pulse with a metabolism too slow for ordinary perception. They feed on the interfaces between states of matter, thriving where solid becomes liquid, where crystal transforms to clay.
+
+The Miners sing, though their songs are felt rather than heard—vibrations that travel through stone and bone alike. These songs speak of futures the mountains might choose, of cities the emptiness might become. The Keepers above listen with their whole beings, their paper-thin components resonating with frequencies that would shatter glass if glass could survive at these heights.
+
+In the perpetual mists drift the Unfinished Ones. Neither fully formed nor entirely formless, they are like sketches of beings that haven't decided what to become. Sometimes they coalesce enough to leave footprints in the moisture that beads every surface. Sometimes they disperse until they're indistinguishable from fog. They feed on indecision itself, growing more substantial in places where the city can't decide if it's structure or stone, weaker where definitions are sharp.
+
+The Unfinished Ones remember the builders—not as history but as possibility. In their partial forms, echoes of the original inhabitants sometimes surface: a hand that holds a phantom tool, a mouth that shapes wordless songs, eyes that look for something that might return or might never have existed. They cluster in the workshops and homes, trying on abandoned purposes like clothing that doesn't quite fit.
+
+Between all these beings move the Chronicler Motes—microscopic witnesses that exist in the water itself. Every drop that condenses from the strange air, every rivulet that runs through the carved channels, carries millions of these observers. They experience the city as flows and pools, mapping it in terms of gradient and surface tension. When water evaporates, they enter the air, carrying information between the Keepers, the Miners, and the Unfinished.
+
+Together, these inhabitants form an ecosystem of waiting. The Keepers maintain, the Miners dream, the Unfinished rehearse, and the Motes connect. They are not keeping the city for the builders' return—they understand that what left will not come back. Instead, they are keeping the city for what it might become, for who might evolve to fill it, perhaps even for themselves to finish becoming.
+
+On certain nights, when the phosphorescent minerals glow brightest and the mists part just enough to reveal the star-crowded sky, all the inhabitants seem to pause in their various activities. The Keepers still their constantly shifting forms. The Miners cease their vibrational songs. The Unfinished achieve, momentarily, definition. In these moments, the city feels on the verge of something—a transformation, a revelation, a completion.
+
+But morning always comes with its dim light and returning mists, and the patient work resumes. The mountains continue their birth. The city continues its slow deformation. And its strange inhabitants continue their watch, their maintenance, their gradual becoming in a place that is itself learning how to be.
+
+They are not ghosts haunting ruins. They are midwives to a birth measured in geological time, inhabitants of a threshold that may last millennia. They tend the hollow cities not as graveyards but as nurseries, knowing that in the marriage of patient stone and persistent life, something unprecedented is slowly, slowly taking shape.

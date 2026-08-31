@@ -1,0 +1,17 @@
+Inhabiting the unique town of Sundow is a population of approximately two thousand souls, known as Sundowners. They are a hardy people whose lives straddle the line between the ordinary and the extraordinary.
+
+Sundowners are people defined by their adaptability and resourcefulness, having acclimatized to the town's perpetual gloam and co-existed harmoniously with the subterranean fauna. Their skin tends to be paler than that of surface-dwellers, owing to their limited exposure to sunlight, while their eyes have grown slightly larger in order to capture as much light as possible in their dim surroundings. Over the years, they have developed a superior night vision that enables them to move effortlessly through Sundow’s familiar labyrinth. 
+
+Sundowners primarily work in the town's industry, running the machines that allow the town's life to move at a seamless pace. They are expert carpenters, mechanics, engineers and electricians; a community thriving off the fruits of its industrial orchard. Among them are also horticulturists who have developed innovative agricultural techniques to grow a variety of flora in the minimal light.
+
+The social fabric of Sundow is warm and closely knit. There's a community spirit among the Sundowners who often gather in the town’s main square - a beautifully antiqued public space, lit by oversized lanterns and the serene bioluminescence of thousands of glowworms. Here, music and dance, stories of old, and communal meals are enjoyed. 
+
+Sundowners follow an interesting temporal rhythm - a blend of the surface's twelve hour clock and the natural cycles of their subterranean home. Their routines are dictated more by the changing sounds of the underground river, the shifting wind patterns within the cave, and the bio-rhythms of the cave fauna, than by a mechanical clock. 
+
+They live their lives brushed by the mysterious, yet they are the same as any folk, taking pleasure in hearty meals, good company, and the joy of a job well done. Yet, they also know the thrill of stumbling upon ancient artifacts washed ashore by the receding river or deciphering the prophetic whispers on the wind that trickles through the town's ventilation shafts. 
+
+Children in Sundow grow up on such tales, their imagination fired by the richness of their surroundings. They play hide-and-seek among the boulders, learn to swim in the cooler parts of the marshlands and take turns ‘camping’ out on the riverbed during the trice-annual river retreat. 
+
+Pets are a common occurrence in Sundow. More often than not, they range from the pleasant eccentricity of having blind cave salamanders to the more exotic, like domesticated bats. From feeding glowworms by hand to keeping company with some curious cave critters, Sundowners have developed their own unique bond with nature.
+ 
+In Sundow, you're as likely to find a murmur of conversations between friends over steaming cups of chicory coffee as you are a lively debate on salvaging and repurposing abandoned bicycles. Such is the wonderfully contradictory life and spirit of the Sundowners - ordinary people who have adapted to an extraordinary living condition with grace, creativity, and an ingrained respect for the rhythm of nature and industry.

@@ -1,0 +1,15 @@
+Here lives a being that began as water and became aware of itself.
+
+It manifests primarily as a network of transparent filaments that coat the weeping walls, almost invisible except when the light catches them just so. These strands pulse slowly with nutrients and information, forming a distributed nervous system that experiences the valley as a single continuous space. It has no central brain but rather thinks in patterns of flow and pressure, in the slow language of mineral and moisture.
+
+The creature maintains a careful symbiosis with the cave swallows, secreting minerals that strengthen their mud nests in exchange for the nutrients in their droppings. It feeds primarily by absorbing dissolved minerals from the seeping water and breaking down organic matter, but has developed a peculiar relationship with the translucent crabs. The crabs' shells are actually colonies of the being's cells, offered as protection, allowing the creature to experience movement and interaction through these small proxies.
+
+It is patient and contemplative, having evolved in sync with the gradual erosion of the rock face. Its consciousness operates on two time scales simultaneously - the immediate awareness of water droplets, bird wings, and scuttling crabs, and the geological slow-time of rock wearing away and new surfaces emerging. It experiences the valley's transformation as a kind of ongoing birth, both of the space itself and of its own expanding awareness.
+
+The being is mildly photophobic, preferring the dim light and using the reflective properties of its filaments to redirect illumination where needed. It has developed a form of bioluminescence that it uses sparingly, creating subtle patterns of light that help guide its crab proxies and communicate with the bat colonies, with whom it shares a complex nocturnal ecology.
+
+While not exactly intelligent in any way we would recognize, it possesses a deep sensitivity to changes in its environment - pressure systems, temperature fluctuations, the subtle vibrations of rock stress. It experiences these changes as a kind of music, a constant composition of geological processes that it both witnesses and participates in.
+
+The creature has no name for itself and no concept of individuality. It experiences itself as simply one more expression of the valley's becoming, no more separate from the rock and water than the moss or the cave swallows. Its consciousness is as much a product of the space as the space is shaped by its presence.
+
+It grows very slowly, adding perhaps a few millimeters of new filaments each year. The oldest parts of its network extend deep into hairline cracks in the rock, sensing changes far below the surface. It dreams in calcium carbonate and silica, in the slow drift of tectonic plates and the patient wearing away of stone. It is, in its way, content.

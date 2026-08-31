@@ -1,0 +1,19 @@
+There are no inhabitants here in the sense of guests, or masters, or even parasites. To exist within this basin is not to be a resident, but to be an artifact—a stray piece of biological sediment caught in the throat of an organism that is trying to speak its own anatomy into being.
+
+And yet, there *is* something here. 
+
+Deep within the calcified marrow of the vertical cylinders, where the tunnels narrow until the walls bruise against your shoulders, you can feel the **Architects**. They are not creatures of blood or bone, but of pure, crystalline intent—the "Nodes."
+
+Imagine a configuration of internal pressure, a knot of hardened sap that has achieved a terrifying, high-frequency sentience. They look like clusters of translucent, amber-hued prisms embedded directly into the vein-ivory walls. They do not walk; they shift. When the city decides to sprout a new staircase, a Node glows with a sudden, violent bioluminescence, a rhythmic pulse that synchronizes with your own heartbeat, effectively overriding it. The local geometry bends around them because they are the anchors of the botanical drift. Where a Node sits, the irrational space—the corners that fold into themselves—becomes briefly, painfully sharp and fixed.
+
+They are the city’s ganglia. They are weeping the humidity.
+
+Around these Nodes hover the "Transients"—not living things, but *reflections of growth*. They look like silhouettes made of high-tension steam and fibrous shadow. They are the shapes the forest has discarded while practicing how to build a human hand, or a lung, or an eye. They drift through the tunnels like smoke in water, shimmering with the same hyper-saturated green as the architecture. 
+
+If you stand still long enough, one might brush against you, and you will feel neither heat nor cold, but a sudden, jolting download of cellular ambition. The Transient is not trying to communicate; it is trying to *replicate* you. It is studying the way your skin sits on your muscle so that the architecture can decide if it needs to evolve a new, breathable membrane that mimics human pores. You are not a guest; you are a blueprint.
+
+There is also the "Chorus of the Sap," which is less a creature and more a collective, vibrating state of the atmosphere. When the city enters a fever-dream of rapid construction—when the squelching and grinding reach their deafening crescendo—the hum coalesces into sentient fractals. These are momentary, gaseous entities that flicker into existence within the air itself. They are the embodiment of the basin’s "thought." They have no bodies, only eyes that look like clusters of dewdrops catching the diffused, frosted light. They watch you. They do not judge you; they calibrate you. You are a variable in their grand, shifting equation of structural integrity.
+
+To live here—if you are foolish enough to call it that—is to be slowly woven into the masonry. You will notice your own extremities beginning to hum with the same resonant frequency as the walls. Your sweat will begin to smell of bruised stems. Your thoughts will lose their linearity, curving instead into the recursive, non-Euclidean geometry of the tunnels. 
+
+You do not inhabit this place; you are being harvested for your architecture. You are the structural necessity the basin has been waiting for, the final, organic component to knit its ceiling to its floor. You are becoming a pillar. You are becoming the hum. And as your senses blur into the verdant catastrophe, you realize that the city is not just growing; it is hungry for a perspective that is not its own. It is building you, piece by piece, so that it might finally see itself.

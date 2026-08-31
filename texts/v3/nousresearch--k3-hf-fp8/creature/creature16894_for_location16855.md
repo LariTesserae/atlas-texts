@@ -1,0 +1,29 @@
+They move through the water-that-isn't-water without displacing it, because displacement implies both space and the desire to occupy it. You thought you'd seen them first reflected in the droplet containing a sparrow's dying song, but that was only their shadow's afterbirth. They are the reason reflections exist in places too young for mirrors.
+
+Five of them. Always five, though the fifth is contractual rather than numerical. Their names are the intervals between other names, pronounced by lips that learned speech from watching atoms divorce. They wear clothing woven from the moment lightning realizes it's pregnant with geometry: shirts of branching fractals buttoned with black holes still debating event horizons, trousers stitched from the static between forgotten radio stations. Their shoes are boots made entirely from the last steps of extinct species, soles polished by the wind that carried "goodbye" to languages that died without translation.
+
+The first is called Precedent When Required. She has eyes like the pause between the clock realizing it's midnight and the chime remembering its duty. Her hair is white noise cut short for hygiene purposes. She collects beginnings that other people discarded as too embarrassing—first kisses that missed, inaugural words swallowed, that first hominid who hesitated before picking up the bone. She keeps them in jars made from the sound of safe explosions, stacking them carefully in her chest cavity which exists in negative space behind her sternum.
+
+The second answers to Conditional Tense. He flickers like a candle flame filmed at the speed at which glaciers apologize. His skin is written in bruises that haven't decided which parents they want to blame. He carries a suitcase full of alternative endings, each heavier than the last because probability gains mass as it approaches regret. The suitcase lock is his first name, which he swallowed as an infant to prevent anyone from summoning him before he was ready to be guilty.
+
+The third is Apologize Later. She has no mouth today, having donated it to tomorrow's emergencies. Instead she speaks through the way shadows shorten when they recognize their owners. Her fingers are too long because she never learned to stop reaching for things that were already leaving. She wears a necklace of teeth that never grew wisdom, each one polished by the prayers of gums that believed in miracles longer than dentists did.
+
+The fourth is currently going by Placeholder Name. His existence is provisional, renewed annually by a committee of angels who lost their forms in a bet about whether mercy could bleed. His bones are made of copyrighted silence, licensed only for use during unauthorized miracles. His blood types are plural because he was never born alone. When he dreams, he dreams of forms that aren't lonely, but he always wakes up before the dream finishes setting.
+
+The fifth is You Already Know Who. They don't walk so much as negotiate treaties between where they were and where the floor thinks it should be offended. Their presence violates several local laws of thermodynamics, but the laws were never properly notarized so nobody wants to enforce them. They are the reason mirrors invented corners to hide behind. They have been dying perfectly for so long that death has started sending them progress reports marked "exceeds expectations."
+
+Together they tend the garden that grows in the chair's absence. The plants are thoughts that died of exposure to realization, cultivated in soil made from the time between "I love you" and "but." They water them with the sweat collected from people who work in offices built in the shape of their childhood nightmares. The flowers bloom once every time someone remembers how to be brave and afraid simultaneously. The petals fall up, forming constellations that remind other stars what loneliness tastes like.
+
+At night—which occurs whenever the water droplets forget what color eight p.m. used to be—they gather around the book that rests where the chair isn't. They read aloud the parts that haven't been written yet, taking turns being the voice that wasn't there when you needed it most. Their favorite story is the one about the person who lived so carefully that no one noticed they never died, including themselves.
+
+When they speak to you—though you haven't realized they're speaking yet because their words are still walking the long way around your life—they offer simple things: The memory of being loved before you learned how to doubt it. The coordinates to where you left your courage when you traded it for enough sleep. The recipe for forgiveness that doesn't require sacrificing firstborns or pride. The way home that starts with admitting you're not sure what home means anymore.
+
+They have been living here since before the chamber decided to become a place. They will remain until after you remember how to sit down without apologizing for the space your existence occupies. They don't tell you this because telling would make it too easy to not know. Instead they write it in the spaces between your atoms, using languages that bacteria invented to comfort galaxies when the light first left home.
+
+Each time you think you've remembered them, they move slightly to the left of memory and wait for you to catch up. They are very patient. They have practice. They are the reason empty chairs look like they're holding something important even when they're not.
+
+They are waiting for you to realize you never left the room where you learned how to miss people who were still sitting right beside you.
+
+Please remain exactly where you aren't until the next gravity reset, which will occur 17 seconds before you realize you're already here.
+
+(The chair adjusts its emptiness slightly. Just for you.)

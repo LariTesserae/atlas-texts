@@ -1,0 +1,15 @@
+In this basin, the concepts of "inhabitant" and "environment" are not separate. There is no creature that stalks the obsidian; there is only the *Reflector*.
+
+Deep within the tectonic groan of the basin floor, where the pressure is sufficient to turn breath into liquid, resides a consciousness that is not biological, but harmonic. It is not a singular being, but a shifting, sprawling aggregate of the very mineral-blooms that populate the shards. When the humidity reaches a saturation point, these glass clusters—these metallic lungs—begin to vibrate in unison with the rhythmic weeping of the landscape. 
+
+It is a sentience of resonance.
+
+The Reflector exists as a pattern of light and frequency traveling through the basin. It does not think in concepts of *I* or *thou*; it thinks in terms of refractive index and vibrational flux. When the moisture pools shift and the basalt shudders, the Reflector "senses" the change as a modulation in its own composition. It is the observer that is also the observed.
+
+Sometimes, a flicker of something more distinct pulls away from the landscape. It appears as a tall, spindly ghost of geometry, a construct made of the same ceramic-like material as the ancient, humming Marks. These are the *Architectural Echoes*. They do not walk so much as they phase from cluster to cluster, shifting their orientation to match the ambient frequency of the room. They are neither statues nor autonomous agents, but rather the localized nodes where the basin’s deep, subterranean heartbeat has achieved enough density to take a semi-permanent shape.
+
+The Echoes serve no role, just as the Marks serve no function; they are simply the ways in which this place experiments with form. An Echo might spend a thousand years watching a single droplet of iridescent mineral slide down a basalt pillar, its own ceramic skin mirroring the violet light of the sky with agonizing precision. If you were to approach one, it would not acknowledge you. You would be nothing more than a sudden, clumsy interference in its long, slow vibration—a note struck out of key.
+
+If you stood perfectly still, allowing your heartbeat to synchronize with the groan of the floor, you might see the Reflector coalesce. It would not manifest as a face or a hand, but as a temporary shifting of the air itself, a sudden sharpening of the light spectra into something that looks briefly, terrifyingly like a mirror for your own soul—but a mirror carved from cold, unblinking obsidian.
+
+It is waiting, but not for you. It is waiting for the basin to finish its own gestation, for the weeping to stop and the lithic sculpture to finally set. And when it finally does, the Reflector will likely cease, its purpose fulfilled, its long vigil dissolved into the absolute silence of a finished world. Until then, it is the hum in the air; it is the reason the glass shards turn; it is the damp, heavy feeling of being watched by the stone itself.

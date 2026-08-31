@@ -1,0 +1,26 @@
+To survive here is to be a master of solitude. The inhabitants of this weeping, metallic purgatory are not a population; they are infrequent punctuation marks in a run-on sentence of silence. They do not thrive, for thriving implies growth and community, and this place allows for neither. Here, life is a single, unblinking endurance.
+
+**The Stilt-Walkers**
+High above the slick shale, navigating the rooftops of the monolithic ziggurats, are the Stilt-Walkers. They are the first thing you might mistake for architecture—a trick of the eye in the gloom. They are tall, agonizingly thin constructs of rusted iron and pale, calcified bone, standing on legs that mimic the city's own crane-like gantries.
+
+They move with a hydraulic slowness, lifting their spindly limbs high to clear the puddles of black water, then setting them down with a suction-cup seal. They do not walk; they stake a claim on the ground, one step at a time. Their heads are small, encased in dull brass visors that reflect the grey, bruised sky. From their beaks—tipped with industrial-grade pliers—they pick at the white, crusty mineral deposits that cake the buildings. They consume the salt and the corrosion, the slow waste of the city. They are the clean-up crew of a world that has already finished decaying. You will never see two of them together. If a Walker encounters another, they do not acknowledge it; they simply navigate around one another like ships in the night, maintaining a respectful, crushing distance.
+
+**The Heat-Skimmers**
+Down in the avenues, where the air is thick enough to chew and the heat radiates from the concrete like a fever, live the Heat-Skimmers. They are elusive, flat creatures shaped like the droplets of oil that slick the ground. They possess no wings as birds understand them; instead, they ride the thermal currents that rise from the subway vents and the cooling grates of the dormant factories.
+
+They are biological ripples, translucent membranes that shimmer with the heat haze. Their internal organs are visible only as dark smears of shadow, shifting within their bodies as they bank and turn. They feed on the thick, gelatinous algae that mats the warm water of the runoff—a virulent, toxic green that is the only splash of color in the city. The Skimmers are silent eaters. They glide just millimeters above the surface of the black mirrors, dipping a trailing tendril into the water to slurp up the slime, never breaking the surface tension, never disturbing the reflection of the endless fog.
+
+**The Pipe-Borers**
+Inside the walls, where the humidity condenses into rivers that run through the arteries of the buildings, live the Pipe-Borers. These are segmented, armored worms, their bodies composed of overlapping plates of copper and keratin. They have no eyes; they navigate by taste and vibration, sensing the rhythmic groaning of the city’s pistons.
+
+They are the parasites of the industrial machine. They bore into the rust-eaten pipes, drinking the brackish, chemical-tainted water that humans would find poison. When a pipe bursts high above, sending a cascade of rusty water down the side of a tower, the Borers emerge. They hang from the fissures, swaying in the hot wind like strange, metallic tubeworms, filtering the air for moisture. They are communal, but only out of necessity—a knot of them writhing in a leak is not a family, but a mob of desperate drinkers at the last open bar.
+
+**The Bellows-Beetles**
+Perhaps the strangest of all are the Bellows-Beetles, creatures that have evolved to symbiose with the dormant technology. They are the size of dinner plates, heavy and domed with shells that resemble the riveted heads of boilers. They live inside the massive, inactive flywheels and the casings of the great pistons.
+
+During the city’s exhale—when the pressure drops and the great machines shudder—they emerge. Their shells are fitted with vents that open and close, expelling steam in sharp hisses. They feed on the magnetism and the residual heat trapped in the metal. To a distant observer, a swarm of Bellows-Beetles taking flight from a cooling tower looks exactly like rust flakes blowing in the wind. They are indistinguishable from the decay itself.
+
+**The Silence Between Them**
+But the truest inhabitant of this city is not a creature, but the *tension* between them. There are no predators here, because there is not enough life to support a food chain. There is no competition, only scarcity. The Stilt-Walker does not hunt the Skimmer; the Borers ignore the Beetles.
+
+They exist in a state of perfect, suspended isolation. They are the custodians of a quiet that is heavy enough to crush a human spirit. They watch the dripping icicles of rust grow. They listen to the geological shifting of the pistons. They wait. They do not know for what they are waiting—perhaps for the sun to finally break through the slate ceiling, or perhaps for the clouds to lower just one more inch and snuff them out entirely. They are alone, they are wet, and they are enduring.

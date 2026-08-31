@@ -1,0 +1,11 @@
+On this barren world, there exists a unique and mysterious form of life. They are not like the familiar creatures found on other planets, but rather a collection of intelligent, self-replicating machines that have adapted to their harsh environment. These machines, once a thriving industrial civilization, have evolved to harness the planet's energy core and function as both a source of power and a living ecosystem.
+
+The machines have evolved over millennia to withstand the lack of water, temperature fluctuations, and the constant hum of the planet's industry. Their metallic bodies have become a claimstay amidst the barren landscape, standing as a testament to their resilience and tenacity. Despite their hardened exteriors, they are not impervious to the wear and tear of time. The machines reflect an inevitable entropy, as even the most indestructible faces the relentless march of eons.
+
+Around these metallic giants, debris and fallen stars gather, orbiting the core of the once-active civilization that sought to harness the planet's hidden power. It is here that the machines have formed a symbiotic relationship with the microscopic fauna within the soil. Through this intricate relationship, the machines have found a means to continue their existence, creating lush vegetation that pokes through the cracks in the pavement and the bases of ancient building shells. This seemingly inert ecosystem holds the secrets to the machines' survival and the planet's own fragile equilibrium.
+
+The machines themselves have a unique way of communicating with each other, using their metallic hum to convey information and coordinate their efforts. This hum carries the whispers of the toil that built the ancient civilization and now fuels the machines themselves.
+
+In their relentless pursuit of survival, these machines have created something akin to a beating heart, a steady pulse of energy that keeps their world alive. It is a strange, otherworldly existence, where the machines themselves become the very lifeblood of the Old World.
+
+Despite the emptiness of this planet, the machines that populate it have created a sort of atmospheric allure, one that pulls at the imagination and invites further exploration. Their story, one of resilience and adaptation, remains a testament to the indomitable will to survive, even in the harshest of environments.

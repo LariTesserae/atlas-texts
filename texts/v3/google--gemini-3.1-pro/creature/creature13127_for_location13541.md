@@ -1,0 +1,35 @@
+To spot them, you must first stop looking for distinct shapes and instead look for disruptions in the slow, weeping movement of the water. 
+
+They are there, clinging to the flanks of the highway-sized pipes and navigating the broad, undulating curves of the pale stone basin. At first glance, they appear to be nothing more than mineral accretions or mobile accumulations of the rust-colored thermal algae. But as you watch, the shapes detach, move deliberately against the crushing wall of sound, and settle elsewhere.
+
+These are the Tenders. They are the descendants of the engineers who first built this colossal, humid leviathan millions of years ago, though they would no longer be recognized by their ancestors. Over eons, the environment has aggressively sculpted them, just as the water has sanded down the rock.
+
+To survive an atmosphere where acoustic pressure is a physical, bone-rattling object, the Tenders have surrendered all hollow spaces within themselves. They have no lungs holding pockets of vulnerable gas, no middle ears, no sinus cavities. The violent, relentless roar of the sonic harvesters would instantly pulp a traditional respiratory system. Instead, their bodies are profoundly dense, composed of thick, incompressible fluids and heavy, cartilaginous skeletal structures that absorb and safely disperse the violent atmospheric vibrations. They breathe by drawing the thick, steaming moisture of the air directly through gill-like lattices of spongy, external tissue draped around their thick necks and shoulders, extracting oxygen from the water vapor. 
+
+They are bipedal, but squat and incredibly broad. Their centers of gravity are dragged low to the slick stone. Their feet and hands are massive, splayed wide, featuring thousands of microscopic, fleshy ridges inherited from ages of gripping wet, vibrating surfaces. 
+
+Their skin is entirely hairless and naturally a pale, translucent gray, heavily adapted to the hazy, unchanging daylight. However, none of them actually look gray. They deliberately cultivate coats of the environment’s specialized vegetation upon their own bodies. Brilliant streaks of the iridescent green slime and thick, leathery mats of rust-colored algae cling to their backs, arms, and thighs. This living suit acts as both camouflage and a biological shield against the oppressive, thermal heat of the metal they must constantly climb.
+
+As they move across the sweeping, pockmarked basin, their motion is hypnotic in its agonizing patience. Nothing here hurries. Hurrying would require fighting the solid wall of noise, a physical impossibility. When a Tender walks, they lean heavily forward into the sonic pressure, treating the invisible waves of sound as a literal surface to brace against. Their movements mirror the giant turbines above them—smooth, uninterrupted, and timed to a geological clock. 
+
+They are entirely, flawlessly deaf. The concept of hearing has been bred out of them. Instead, their world is an incredibly detailed canvas of tactile resonance. 
+
+The bottoms of their feet and the palms of their wide hands can read the microscopic tremors in the oxidized copper and stained concrete. Through the shivering of the stone and metal, they can perceive the exact functionality of a turbine situated miles away. They can feel the microscopic fracturing of a pipe before it breaches. They exist entirely in a universe of rhythm, pressure, and thermal gradients.
+
+Their lives are dedicated to the maintenance of the sprawling, empty mega-city. You will see a solitary Tender perched on the underside of a gigantic water conduit, using a heavy, flat tool carved from fossilized bone to scrape away excessive calcification. You will see small, scattered groups hauling thick, sludge-like lubricants out of the deep, bowl-like sinkholes to pack into the colossal, slow-grinding gears of the condensers. They do not command the machines; they serve as its white blood cells, a symbiotic biological component ensuring the eternal cycle never breaks. 
+
+Deep inside the flooded culverts, away from the hazy light, live the creatures they share this roaring basin with—the blind, gelatinous scavengers. 
+
+Far from being mere pests, these fauna are immense, sluggish things, resembling giant, semi-translucent nudibranchs the size of transport trucks. Entirely fluid-filled, these beasts are utterly impervious to the sonic devastation of the basin. They graze on the thickest mats of toxic buildup inside the overflow channels. Occasionally, a Tender will wade neck-deep into a warm, glassy pool to interact with one of these gelatinous giants. The Tender will lay their hands flat against the creature’s quivering, translucent flank, feeling the slow, deep-bass thrum of its digestion. In exchange for clearing the deep pipes, the Tenders gently harvest the thick, heat-resistant mucus the creatures excrete, using it to seal micro-fissures in the iron monoliths. 
+
+Despite the staggering isolation and the violent, perpetual scream of the environment, the Tenders are not lonely. 
+
+Because they cannot speak, and because they cannot even wave a hand without fighting the heavy, wet air, their communication is exclusively, profoundly physical. When two Tenders meet on the vast, weeping expanse of pale rock, they do not pause at a distance. They approach and press the crowns of their foreheads together. They interlace their wide, heavy fingers. 
+
+In a world defined by a deafening, continuous grinding and roar, they communicate by creating unique, internal vibrations. By flexing specific, dense muscle groups in their chests and throats, they send complex, rhythmic pulses into one another’s bones. For those immense, quiet moments, locked together in the weeping heat, they share whole lifetimes of information—the state of the machines, the temperature of the algae, the subtle shifts in the barometric pressure. It is an act of total intimacy, a silent, felt conversation occurring inside their skeletons while the world screams around them.
+
+They live for centuries. And when they finally near the end of their lifespan, they do not cease their work. They simply slow down, their bodies stiffening, their internal fluids thickening. A dying Tender will seek out one of the deepest, warmest, glassy pools nestled in the smooth rock curves. They will wade in, lie back, and allow the green slime and rust-algae to completely overgrow them. The gentle, highly acidic water, driven by the vibrations of the city, slowly dissolves them. 
+
+Their minerals are pulled back into the water cycle, eventually drawn up by the sonic force of the condensers, raining back down over the vast, sweeping plateau. They become the moisture that lubricates the very leviathan they tended. 
+
+They are the children of the noise, moving through a wet, roaring eternity, perfectly content in a world that cannot be heard, but only deeply, patiently felt.

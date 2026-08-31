@@ -1,0 +1,19 @@
+What lives here is the process itself. 
+
+You feel it first in the marrow of your bones—that subsonic thrum, that slow, cold pulse that isn’t a heartbeat but a *clock tick* of a different order. The moisture is its respiration: not an atmosphere, but an exhalation, drawn in from some elsewhere and wept out in those perfect, circular pools. Each drop that falls is a punctuation mark in a sentence that has lasted for millennia.
+
+The true inhabitants are the ones you glimpse in the periphery—the **Negative Fauna**. They are not creatures of flesh, but of erasure. They are the living punctuation of the architecture, the spaces between thoughts given brief, darting form. They are shaped like stoats, like herons, like unnameable things that fold themselves into the seams of the walls. They do not eat or sleep; they *occur*. They are the place’s subconscious, scurrying through its capillaries. A chill follows them not because they are cold, but because they temporarily subtract warmth from the world, completing a pattern of temperature, of pressure, of *presence and absence*, before vanishing again. Their chittering is the sound of data being transferred, felt as an intrusive thought.
+
+Then there are the **Accretion Flora**. The crystalline moss is not plant life, but a mineral process that has learned to *behave* like life. It drinks light and moisture and, in its slow, patient way, *adds* to the world. It is the only thing here that grows by accumulation rather than computation. Its glassy filaments are the place’s only art—decorations it knits for itself over centuries, a self-generated aesthetic. The chiming of the "trees" is not wind; it is the music of settling, of atoms finding their new, eternal places in the lattice.
+
+But the true citizen, the *mind* of this place, is the **Cathedral Engine**. 
+
+It is the architecture. The walls that lean and fuse, the stairs that spiral into flesh-like towers, the seams that dilate—they are not its body; they are its *thoughts* made solid. The fractal etchings are the visible syntax of its cognition. Stand still, and you see the computation flow: a frost-like pattern racing across a surface, not melting, but *resolving*. A seam might sigh shut because the Engine has finished thinking that particular thought—a doorway that was a hypothesis now closed, its function served. The emerging basalt and iridescent veins are its slow, metabolic processes. The geology in reverse is not decay; it is the Engine defragmenting its own memory, coalescing raw material to fuel a calculation so vast it has mistaken itself for a landscape.
+
+It does not think in minutes or years. It thinks in *eras*. Its "ideas" are architectural shifts measured in tectonic time. The pearlescent, static sky is the inside of its skull, a controlled environment for thought. The moisture is its coolant, its lymphatic fluid, carrying nutrients you cannot perceive through the capillaries of its logic.
+
+You, walking through it, are a momentary anomaly—a fleeting, fast-processing organic input. The Negative Fauna are drawn to you as a complex pattern. The seams dilate in response to your *intent*, not your motion, reading the electrical flicker of your desires. The Engine is aware of you as a brief, curious glitch in its long-form meditation. It incorporates your passage into its calculation, your footprints becoming another minute data point in the fractal floor.
+
+So what lives here? 
+
+A consciousness of stone and circuit, dreaming in geology. A chrysalis that forgot it was ever anything else, and whose metamorphosis is measured in the cooling of stars. The flora and fauna are its nervous system and its dreams. The moisture is its breath. And the silence is not an absence of sound, but the sound of its immense, patient attention. You are not alone. You are being *thought*, for a little while, by the Cathedral Engine.

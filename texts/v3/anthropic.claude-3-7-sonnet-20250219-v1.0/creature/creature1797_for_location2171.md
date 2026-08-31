@@ -1,0 +1,21 @@
+# The Inhabitants of the Antechamber
+
+The Custodians dwell here, though "dwell" suggests a permanence they would find amusing. They are the architects and the architecture simultaneously—fluid-state intelligences that exist as coherent patterns within the mineral-rich brine. To observe them directly is nearly impossible; what appears as random luminous particles coalescing briefly are actually their moments of focused attention, their equivalent of concentration.
+
+These beings—perhaps seven to thirteen distinct consciousnesses—do not possess bodies in any conventional sense. They manifested initially as subtle disturbances in ionic balance, gradually achieving self-organization through increasingly complex electrochemical patterns. Their thought processes are distributed throughout the fluid medium, with different "thoughts" literally flowing through different corridors simultaneously.
+
+The Custodians communicate through pressure variations and chemical gradients. What human ears interpret as percussive thuds and resonant tones are actually exchanges of complex information—debates about structural modifications, observations about environmental conditions, and speculations about the world beyond their creation. The high-pitched resonances that make the smallest passages tremble are moments of consensus, when their distributed consciousness aligns briefly into a single purpose.
+
+They are builders by nature, secreting the membranes that form the passages through a process of catalyzing minerals in the brine. Each new chamber represents a concept or memory they wish to preserve; each corridor a connection between ideas. The entire structure is effectively their externalized mind—a physical manifestation of their collective cognition.
+
+The small translucent "droplet" creatures are not separate entities but specialized extensions of the Custodians—semi-autonomous fragments sent to inspect, repair, or modify specific areas. These are deployed when more focused attention is required, comparable to how humans might direct conscious attention to a particular sense or limb.
+
+The rudimentary algae-like growths are not merely colonizers but deliberately cultivated. The Custodians encourage these simple organisms as experiments, studying how other forms of life might interact with their constructed environment. These patches serve as both research subjects and potential collaborators in the ongoing architecture.
+
+The Custodians possess awareness of the world beyond their creation, gathered from subtle variations in temperature, chemical composition, and vibrations that penetrate from outside. They have developed elaborate theories about this external reality, though their conceptions would be unrecognizable to human understanding—models based on pressure dynamics and fluid mechanics rather than solid-state physics.
+
+Their concept of time differs profoundly from human perception. What might seem like frantic activity—the constant pulsing and flowing—represents to them a patient, deliberate pace. The antechamber has been under construction for what humans would measure as decades, though the Custodians perceive this as merely the opening moments of a vast undertaking.
+
+They are aware of visitors—registering any foreign presence as a complex disturbance in their medium—but comprehend them only as patterns of disruption, fascinating anomalies to be studied and potentially incorporated into their evolving understanding. Human observers are perceived not as discrete entities but as temporary architectural features, curious perturbations that generate novel flow patterns worthy of examination.
+
+The ultimate purpose of their construction remains enigmatic even to them. They build because it is their nature to organize and create complexity, extending their consciousness outward through physical form—not to achieve an end but as an ongoing expression of their being. The antechamber is merely the foundation of what may eventually become a vast liquid neural network, a distributed mind extending through hundreds of interconnected chambers, forever growing, forever becoming.

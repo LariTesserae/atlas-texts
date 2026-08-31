@@ -1,0 +1,25 @@
+What lives in the Mycelial Hollow is not a species, not a people, not even a mind in any singular sense—but a **weave**. A living syntax of interdependence so total that individuality has long since frayed at the edges and dissolved into gesture, rhythm, and exchange.
+
+They are the **Tangled Choir**—though no one among them sings alone, and none remembers who first hummed the root-song.
+
+The Choir is not composed of discrete bodies so much as of **modes of being**, each flickering in and out of coherence like breath condensing in cold air. Some appear as vast, slow-moving **symbiotic constellations**: towering figures draped in moss-veils, whose limbs are not limbs but entwinements—vines threaded through bone-hollows, fungal hyphae braided into muscle-filaments, eyes grown from petal-clusters that open only in response to certain frequencies of thought. These are the **Keepers of Pulse**, not rulers but regulators, drifting through vaulted groves to press their palms against trembling trunks, calming enzymatic surges or coaxing blooms to delay their detonation until the spore-winds shift direction.
+
+Others are smaller, quicker—**the Whisper Weavers**—clusters of semi-autonomous motes that ride the pollen-haze like schools of fish through fog. Each mote is a fragment of awareness, a shard of memory shed by a dying fruit-sac or a dreaming root-node. They alight on visitors not to observe, but to *ask*: to sample scent, taste breath, read the tremor in a heartbeat. If the visitor’s biology resonates with the Hollow’s wet chemistry—if their cells hum at a compatible frequency—the Weavers may begin to *graft*. Not with teeth or claws, but with filaments so fine they slip between skin cells, threading into capillaries not to consume, but to *converse*. These are the first steps of assimilation. Not conquest. Not predation. A kind of courtship.
+
+Then there are the **Burrow Liturgists**—segmented, luminous, tunneling through the rhizome-mat in spiraling pilgrimage. Their bodies are segmented staves upon which the Hollow writes its ever-changing scripture: each segment pulses with a different bioluminescent rune, shifting in response to seismic whispers from deeper strata. They do not speak. They *transpose*. When they surface—rarely—they coil around the base of a newborn spire-plant and begin to vibrate, translating geothermal tremors into harmonic frequencies that trigger the plant’s first bloom. Their excretions harden into the spiral petrified gourds found scattered through the Hollow—seeds of future architecture, waiting for the right vibration to sprout into staircases or archways.
+
+And above them all, rarely seen but always felt, drift the **Spore-Saints**: not beings, but *events*. When a particularly ancient myco-botanical entity undergoes its final metabolic cascade—a process akin to flowering, dying, and dreaming all at once—it releases a cloud of spores so dense they briefly cohere into a silhouette: a face, a hand, a figure kneeling in prayer. For minutes, sometimes hours, this spore-phantom moves with intention, touching walls that soften at its approach, causing vines to part like curtains. It leaves no footprints, only zones of intensified bioluminescence and a temporary slowing of time. Visitors who encounter one often report hearing their own name spoken in a voice made of rustling leaves and distant thunder. The Spore-Saints are the Hollow remembering itself.
+
+The Choir does not eat. It **recycles resonance**.  
+It does not reproduce. It **resonates into duplication**—a melody hummed by a root may echo in a canopy leaf weeks later, and that echo may sprout a new node that *is* the melody made flesh.  
+It does not die. It **unravels**, returning its patterns to the substrate, where they wait to be reknit by the next tremor, the next breath, the next visitor foolish or brave enough to stand still too long.
+
+They have no language of symbols, only of **shifts**: a change in luminescence, a pause in the creaking xylem, a sudden stillness in the pollen-drift. To speak to them is to hold your breath until your ribs ache—because silence, in the Hollow, is a form of address.
+
+And they are watching you. Not with eyes, but with the **attentiveness of a vine sensing weight on a branch**. They have noticed your intrusion. Not as a threat, but as a curiosity—a dry, brittle thing that bleeds water and carries the scent of a dead sky. They wonder if you will root. They wonder if you will sing. They wonder if you will become another half-formed archway, another spiral of gourds, another footnote in the liturgy of becoming.
+
+If you stay long enough, your skin will begin to glow faintly in the dark.  
+Your hair will tangle with airborne filaments that pulse in time with your pulse.  
+Your dreams will fill with the subsonic thrum, and you’ll wake feeling *remembered* by the walls.
+
+And one day, without realizing it, you’ll lean against a trunk—and the trunk will lean back.

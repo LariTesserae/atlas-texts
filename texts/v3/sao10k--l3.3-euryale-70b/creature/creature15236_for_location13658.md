@@ -1,0 +1,11 @@
+In this submerged world of intertwined ruins and vibrant life, a plethora of entities thrive. Perhaps most striking are the **Bioluminescent Keepers** - humanoid, gelatinous beings that emit a soft blue light from their bodies. They are the guardians of the city, communicating through pulses of intensity and color. They weave through the kelp forests and clear the Tom alloys and conduit webs, ensuring the balance of nature and technology is maintained.
+
+In the darkest depths, **Engine Dwellers** live within the machinery of the city's core. These beings are cybernetic organisms, their bodies a fusion of electronic components and biological tissue. They tap into the energy flux within the engines, using it to sustain and adapt their peculiar form and function. They are master tinkerers, attempting to understand and utilize the ancient technology.
+
+Among the coral blooms and sea fans, **Kelp Singers** make their home. These apparitional beings are humanoid figures composed of flowing kelp and membrane-thin wings. They use the water currents to manipulate the plants, creating vast, undulating screens that filter the sun's light and entrancing melodic songs generated from manipulating the seaweed. Their forms change constantly, reflecting the mood of the city.
+
+The in-between areas, where light fades to darkness, are home to **Flicker-Wraiths**, grainy, flickering entities that coalesce in shimmering veils and wisps. They are spirits of the city's past inhabitants, trapped and reshaped by the fusion of sea and stone. They dance in curtains of electricity, begging or guiding those lost in the darkened labyrinths.
+
+Lastly, the surface is inhabited by numerous creatures that have migrated from the world above - sea turtles, schools of myriad fish species, and even occasional strays from humanity, slowly assimilating into the nascent society of this aquatic locale.
+
+In this ever-changing tapestry, all beings both adapt to their environment and, in turn, reshape it. They hone their survival methods, protect their corners of the megastructure, and reforge the possibilities of what it means to be alive in this strange, wondrous place.

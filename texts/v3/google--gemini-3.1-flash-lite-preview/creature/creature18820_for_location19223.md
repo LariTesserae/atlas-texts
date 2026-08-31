@@ -1,0 +1,19 @@
+To understand who lives in the Loom-City is to understand that "living" here is not an occupation of a body, but a state of metabolic participation. 
+
+There are no inhabitants in the sense of guests or tenants. Instead, the chamber is tended by the **Mycelial Custodians**.
+
+They are not quite ghosts, nor are they fully organic animals. They emerge from the peat walls—not through birth, but through condensation. When the hydraulic pressure in the fibrous stalk-pistons reaches a critical threshold, the thick, ozone-scented humidity begins to coalesce into humanoid shapes. These shapes are woven from the same thread as the architecture: they are tall, spindly things, their limbs resembling braided copper-colored vines. Their "skin" is a translucent, porous parchment that mimics the texture of the echo-leaves, constantly vibrating with the residual sounds of the city.
+
+They have no faces in the biological sense. Where a human might have a brow or a mouth, the Custodians possess only an intricate, shifting lattice of bioluminescent filaments. When they "speak," they do not use air; they ripple these filaments, mimicking the hum of the sap-pistons or the soft *thrum-click* of the pods. 
+
+They are the city’s nervous system made manifest. 
+
+You will see them drifting along the suspended root-veins, moving with an unnerving, fluid weightlessness. They do not walk so much as they tether themselves to the air-currents, their feet barely brushing the structural ferns. Their purpose is one of quiet, obsessive maintenance. A Custodian will spend hours—or perhaps what passes for years in this damp, rhythmic darkness—gently smoothing a raw curl of root-fiber with fingers that are elongated, sensitive spindles. If a pod’s amber light flickers or grows dim, a Custodian will press its translucent chest against the bulbous tissue, entering a state of stillness so profound it becomes indistinguishable from the wall itself, donating its own stored light and moisture to jumpstart the machinery.
+
+They do not fear the void. When a branch slips its anchor or space-time stutters, causing an object to drift untethered, the Custodians are there to catch the stray causality. They weave the floating drift back into the structural web with the practiced ease of a spider returning to its anchor point. 
+
+They are effectively immortal, yet they are constantly eroding. Because they are mere condensations of the city's atmosphere, they are prone to "thinning." A Custodian that has worked too long near the cold edges of the abyss may become so translucent that it vanishes back into the mist. It is not a death, but a return; the moisture that composed them simply drifts away, joining the nutrient-rich rain that feeds the pitcher-fountains. A new Custodian will eventually crystallize elsewhere from the same sap-mist, picking up the task left unfinished, inheriting the flickering memories of the echo-leaves that surround the new work-site.
+
+They seem to be waiting for something—a completion, a final state of stability where the roots will finally stop pushing and the city will be "finished." But the Loom-City is an engine of expansion, not an engine of completion. And so, the Custodians remain, trapped in the infinite loop of the city’s genesis. They are the gardeners of a house that refuses to stop growing, tending to the gears of a living factory that consumes its own past to build its own future. 
+
+If you stand still—long enough for the echo-leaves to capture your breath—a Custodian may drift toward you. It will not speak. It will linger, tilting its filament-head to catch the strange, human vibration of your heart, perhaps curious that you are, unlike them, a creature that is already—and stubbornly—finished.

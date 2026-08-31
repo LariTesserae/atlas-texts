@@ -1,0 +1,17 @@
+The inhabitants of Chloropolis are a unique hybrid species, born from the symbiosis of humans and plants. These beings, known as the Chlorosapiens, embody the very essence of their verdant metropolis.
+
+Physically, Chlorosapiens appear as a seamless blend of human and plant. Their skin has a subtle green tint, with a texture reminiscent of smooth bark or leaves. Hair is replaced by a crown of delicate, colorful fronds that change hue with their moods and the seasons. Their eyes are large and almond-shaped, with irises that resemble the intricate patterns found in cross-sections of tree trunks.
+
+Chlorosapiens possess a remarkable ability to photosynthesize, drawing a significant portion of their energy directly from sunlight. This adaptation allows them to require less solid food, though they still consume fruits, nuts, and other plant matter to supplement their diet. Their bodies are incredibly flexible, able to twist and bend in ways that would be impossible for ordinary humans, allowing them to navigate the living architecture of their city with ease.
+
+Communication among Chlorosapiens occurs on multiple levels. They speak a melodic language that incorporates elements of birdsong and the rustle of leaves, but they also communicate through a complex network of pheromones and subtle changes in the color and movement of their frond-like hair. This multi-sensory language allows for nuanced expression and a deep connection to their environment.
+
+Chlorosapien society is highly communal and egalitarian. Leadership roles are fluid, with individuals taking on responsibilities based on the needs of the moment and their personal strengths. There is a strong emphasis on harmony – both with each other and with the living city they inhabit. Conflict resolution often involves group meditation in specially cultivated garden chambers, where the calming influence of certain plants helps soothe tensions.
+
+The lifespan of a Chlorosapien is difficult to determine, as they don't age in a conventional sense. Instead, they go through cycles of growth and renewal, much like the seasons. In their later years, Chlorosapiens may choose to "root" themselves, becoming one with the city's living architecture and contributing their accumulated wisdom to the collective consciousness of Chloropolis.
+
+Chlorosapiens are deeply attuned to the rhythms of nature and possess an innate ability to communicate with plants. This skill is honed through years of training, allowing the most adept among them to shape the growth of the city itself. These botanist-architects are highly respected in Chlorosapien society, seen as vital to the continued health and expansion of their urban ecosystem.
+
+Despite their plant-like qualities, Chlorosapiens are warm-blooded and bear live young. Childbirth is a communal event, with the entire neighborhood gathering to welcome new life. Infants are nurtured in special nursery pods, living flowers that provide all the nutrients and care a young Chlorosapien needs.
+
+The Chlorosapiens view themselves not as masters of their environment, but as an integral part of it. Their technology, culture, and very bodies are a testament to the potential of true symbiosis between sentient life and the natural world. In Chloropolis, the line between city and citizen, between nature and nurture, has been beautifully, irrevocably blurred.

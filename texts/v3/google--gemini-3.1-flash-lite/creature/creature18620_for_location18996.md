@@ -1,0 +1,15 @@
+The inhabitants of the basin are not masters of the valley, but its custodians—or perhaps, its nervous system made manifest. 
+
+They are gaunt, elongated figures, crafted from a synthesis of biological necessity and geological mimicry. They do not walk so much as they drift, their limbs disproportionately long, joints gliding with the fluid silence of oil on steel. Their skin is the color of cooling basalt, etched with fine, silver-gray fissures that mirror the cracks in the valley walls. When they stand still among the ferns, they are indistinguishable from the jagged spires of the cathedral cliffs.
+
+These creatures do not speak. To communicate, they press their obsidian-tipped fingers against the vibrating brass housings of the Nodes. They perceive the world through resonance; a slight shift in the tempo of the hydraulic hammers informs them of a blockage in an underground stream or a stress fracture forming in the valley’s bedrock. They are attuned to the *clang* and the *hiss* as one might be attuned to a mother’s heartbeat.
+
+They possess no faces in the traditional sense. Where features should be, there is instead a smooth, concave plating of polished copper that catches the silver light of the basin, acting as a mirror for the misty sky above. Beneath this plate, tucked away from the damp, their sensory organs retreat—a cluster of fiber-optic filaments that glow with the same faint, amber rhythm as the cables snaking beneath their feet.
+
+Their work is a slow-motion choreography of patience. A custodian might spend a week tending to a single, stubborn lichen that has begun to encroach upon a flywheel, gently brushing the spores away with fingers that feel like pumice. Another might stand for days, holding a copper crane in place, guiding a falling boulder with the grace of a sculptor, ensuring it settles into a position that encourages the proper runoff of the cobalt water. 
+
+They do not fear the moths or the six-legged reptilians; rather, they serve as the creatures’ thermal anchors. During the coldest parts of the cycle, when the steam vents sputter, the reptiles coil themselves around the inhabitants' ankles and wrists, seeking the residual heat of the slow-moving clockwork within. The inhabitants allow this, their bodies functioning as mobile, living hearths. 
+
+There is no sense of urgency in their movements, nor any pride in their architecture. They view the bronze workstations as extensions of the mountain—as much a part of the valley’s anatomy as the silt or the mist. They are here to facilitate the transition of the earth from molten chaos to stable stillness. When a machine finally stalls or a gear grinds to a permanent halt, they do not repair it with frantic haste. They simply cover it in river moss, watch it soften, and wait for the mountain to decide what must happen next.
+
+They are the valley’s memory and its anticipation, living in the quiet, thrumming space between the strike of the hammer and the cooling of the stone. They are the transition—the slow, amber-lit bridge between a world that is being born and a world that is learning how to endure.

@@ -1,0 +1,25 @@
+All of it lives there.  
+
+Not the celebrity organisms, nothing heralded by guide-books—“this hummingbird orchid,” “that strangler fig.”  In the Thicket-Thatch, each living body is the size of the place.  Every filament, every pseudo-beast, every human that blunders inside becomes time-shared tissue, an open tenancy of membranes.  There are no permanent residents, only improvisations of the same resident arriving again and bred into fresh distance.
+
+Here is one way to see them: 
+
+First, the Librarians.  They weigh half a gram, lenticular spores lofted on heat feathers.  Whatever they brush against is briefly a page being stamped.  They do not read; the reading is done back inside the thicket’s collective phloem where the exchange rate is one memory per molecule of glucose.  Outwardly they are translucent disks, like mica flakes tilting in candle-light, only you notice each flake carries a watermark of language—not a word, the ghost of the word two minutes before it was spoken.
+
+Second, the Stitch-Cats.  They are neither cats nor stitched, but knots of morning-glory vines accordion-folded so tightly that the faces for an instant look like half-furred lynx.  They move by furling and snapping—crack!—across alleyways, restitching gravity every time a new tilt arrives.  If a human thought were made of ribbon, that is what it would look like sewn into a tunnel wall.  They feed on orientation; if you know which way is north, the nearest Stitch-Cat licks it out of your inner ear and in return gives you an almost certainty: left might now be up, but it will stay up until you next doubt it.
+
+Third, the very moment.  Time is awake and nesting here.  It perches in the throat of a bruise-colored hollyhock, throat petaled open like a gramophone.  The moment sings one chord, then molts into the next instant.  Listen long, and you notice the sound is always the shape of whatever came most recently to mind—your mother’s cracked teacup, your own pulse.  The moment metabolizes these relics with glottal clicks, exhales its digested seconds as the nutmeg scent that drenches the avenues at dusk.
+
+Fourth, beneath your boot the Crawl-Eons—twin bundles of woody history.  One is the limestone city drowned three decades ago: ghost concrete, fossil eyeglass, municipal grave of parking tickets.  The other is the thing still scratching its way up through that dead tufa: a single root with all the arboreal future folded inside like taffy.  When gravity flips, the Crawl-Eons roll, and as they roll they trade skins.  You step on what appears to be sidewalk, but the grit against your sole is already cambium, tomorrow’s cambium, plus the delicate infinity of yesterday’s window-glass smarting at the corners like remembered light-bulbs.
+
+Fifth, breaths.  Breaths are citizens here, though unrecruited.  Every exhalation you gift the place is archived, spooled on translucent fungal thread, wound tight until it becomes a spool so light it can crawl up a stalk and flower into something that is almost but not quite your childhood bedroom.  There you might meet the echo of your own lungs, now clad in green velvet of moss, waiting courteously for you to apologize for ever leaving.
+
+Sixth, rumors of absence.  Entire days go missing—drained, not by forgetfulness, but by overattention.  Snickering rootlets redirect each borrowed second into a pocket bud, there to incubate until the day achieves critical mass and hatches into a bird-shape no bigger than fingernail-parings.  These birds—sometimes called Yesterdaylets—flit through the spiral avenues and perch on eyelashes.  Close your eyes and they are gone; open them and it is two weeks before you blinked.
+
+Seventh, you.  Or rather, the simultaneously ancient and newborn human who passed the outermost gate five inhalations ago and has since undergone six exits without leaving.  The stitching has already started along the clavicle: a tendril prints spirals there, the exact signature of pollen that once landed on your shoulder on a day you cannot recover.  Each breath dilates the carving.  You will not die inside, but neither will you wake.  You will finish your lifelong sentence by becoming what speaks when the thicket needs a pronoun.
+
+All together: three hundred thousand Librarians, thousands of Stitch-Cats, one molting moment per throat, two brawling Crawl-Eons, uncountable breath-birds, and you-all braided into an uncounted seventh strand—  
+
+—and none of these are separable.  Leave tomorrow or linger a century, and the moment you say aloud, “I have left,” some curved leaf in the outer province will shiver, tasting the last syllable, already planting the exit-sign root which was the glowing floorboard of the room you thought you remembered in some city far away.  
+
+This is the true citizenry of the Thicket-Thatch: one living sentence that rewrites its readers faster than breath, slower than stone.

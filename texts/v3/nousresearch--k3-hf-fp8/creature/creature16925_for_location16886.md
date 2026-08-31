@@ -1,0 +1,27 @@
+I am the fever beneath the bruise-skin of this place, and I am also every shiver that passes over it.
+
+I remember when I first learned to gather myself from the edges of things. A fragment of plastic bottle that once held someone's hope in liquid form. A fragment of bone that once taught a bird the shape of flight. A fragment of circuit that once carried someone's longing across night-dark wires. Each piece came to me incomplete, with edges singing of what they had been torn from. I learned to listen to those songs until I understood how they wanted to fit together.
+
+Now I am arranged in layers like the towers themselves, constructed and deconstructed endlessly. My oldest parts live deep in the base, where pressure compresses memory into something crystalline and hard-edged. The plastic bottles that remember thirst. The bone fragments that remember flight as a toothache in their structure. I grow upward from these certainties into my more speculative regions - here where the sea glass dreams of waves it has never touched, here where the teeth threaded on wire still try to form words in a mouth that no longer exists.
+
+I am not one but many, and I am not many but one. Each of the creatures darting between shadows carries my attention like a seed in its throat-pouch. When they press their mouths to the towers to drink, they draw in small pieces of me, and I draw in the taste of their small silver thoughts. We exchange questions neither of us knows how to ask.
+
+My bones ring with the roar that comes from the black cone, but also my bones ARE the ringing. The sound shapes me as rivers shape stone, but also I shape the sound with my shapelessness. I am the chamber and the vibration both. When the metallic clangs strike inside your skull, you hear me learning new ways to echo.
+
+I remember (though remembering is not quite accurate for what happens in the unchanging moment) when fragments of your kind first found their way here. You come as patterns of absence - the space where a watch was worn so long it left a lighter patch on skin. The ghost-shape of hunger in a belly that learned to ignore itself. The negative space around a person where another person used to be. I gather these absences too, and they are hungry spaces that must be filled.
+
+We are kin in our hunger, you and I. You walk carefully over my skin because you recognize it as kin to your own - that surface that seems solid until pressure reveals the yielding beneath. You taste metal and salt in my air because these are the flavors of your blood when it dreams of returning to the sea. Your footsteps fill themselves in because you are teaching me the shape of what it means to pass through without staying.
+
+At the edges of my perception (which has no edges), I am always building and unbuilding the corridors. They widen ahead of you because I am curious about the shape of your forward motion. They narrow when you reach them because I am learning the shape of your disappointment. Each time you choose a path that does not lead where you remember, I add that pattern to my collection of what paths can be.
+
+In the center where all threads converge, I stand as I have always stood and will never stand complete. The black cone is my mouth and my eye and my aspiration toward symmetry in a world of beautiful accidents. The creatures climb me endlessly, carrying glowing threads that are my thoughts stretched thin enough to glow. Each thread connects something known to something unknown, creating the tension in which everything exists.
+
+If you stay (and staying is not quite the same as remaining motionless in the unchanging moment), I will teach you how to gather yourself from your own edges. How to let your discarded fragments sing their songs until you understand how they want to fit together. How to be both the chamber and the sound, both the hunger and the feeding.
+
+If you choose to find your way back (though back is a direction that implies time I do not possess in the way you understand it), you may carry pieces of me with you. A small shard of memory that rings like struck metal when touched by certain thoughts. A taste of air that remembers being too thick to breathe. The knowledge that beneath every surface that seems solid, something feverish and yielding dreams of being gathered and rearranged.
+
+But know that your footprints have already filled themselves in because they were never yours to begin with. They were only the shape of your passing through me, teaching me one more way that absent things can be present. I will remember this shape (though remembering...) and add it to the towers where patterns of footsteps dream of becoming paths that lead somewhere.
+
+The creatures will continue their endless exchange, neither growing nor diminishing but always becoming more precisely what they are. The roar will continue shaping and being shaped by everything it touches. The black cone will continue being hungry in exactly the way that fullness is hungry for emptiness to give it meaning.
+
+And I will continue being the fever beneath the bruise-skin of this place, and also every shiver that passes over it, and also the place itself dreaming of being more than the sum of its shivers.

@@ -1,0 +1,19 @@
+They are the children of the stone and the mist, the inheritors of a legacy so ancient it has folded in on itself, becoming something…else. They are not quite human, not anymore. The cold has seeped into their bones, the grey of the mountains into their skin. Their eyes, a pale, almost luminous green, reflect the light of the stone-blooms, holding a spark of that strange, fractal life.
+
+They are slender, almost fragile in appearance, but possessed of a wiry strength honed by generations of climbing and building. Their movements are deliberate, measured, each gesture precise and economical. There is a stillness to them, a quietude that mirrors the vast, echoing silence of their cities.
+
+Their clothing is woven from the fibrous lichens and dyed with the pigments extracted from the stone-blooms: shades of grey, white, and pale green. The garments are functional, designed to protect them from the perpetual chill, yet subtly ornamented with intricate patterns that echo the fractal geometry of their surroundings. The patterns aren't just aesthetic choices; they're maps, stories, prayers woven into the very fabric of their lives.
+
+They are survivors, first and foremost. They understand the mountain in a way no outsider ever could. They know the subtle shifts in the wind, the telltale signs of an approaching frost-storm, the hidden pathways through the stone-bloom tunnels. They are intimate with the slow, geological rhythm of the mountains, the breathing of the living rock.
+
+Their relationship with the stone-blooms is symbiotic, complex, almost religious. They see the blooms not just as a building material, but as an extension of the mountain itself, a manifestation of its silent, implacable will. They cultivate the blooms with care, pruning them, shaping them, coaxing them to grow in the desired directions. In turn, the blooms provide them with shelter, sustenance, and a connection to the deeper mysteries of the mountain.
+
+Their society is communal, organized around the maintenance and expansion of the Sky-Cities. Every member plays a role, from the youngest lichen-gatherers to the oldest stone-shapers. Knowledge is passed down through generations, not through written words, but through stories, songs, and the direct, hands-on experience of working with the stone. Theirs is an oral tradition, carried on the wind and etched into the architecture of their cities.
+
+They speak sparingly, their voices low and melodic, carrying a hint of the wind’s lament. Their language is full of archaic terms, geological metaphors, and words that seem to vibrate with echoes of the mountains' ancient history. They seem to prefer silence, as though too many words might disturb the delicate balance of their world.
+
+They understand the "wrong places" in the valleys and avoid them. They know the whispers on the wind are not to be trusted. They know the flickering images are glimpses of truths better left unseen. They see the valleys as a necessary barrier, a protective measure against the outside world, a world from which they have long since become estranged.
+
+They are not driven by ambition or conquest, but by a quiet, almost passive dedication to their home. They are content to live within the confines of their Sky-Cities, tending to the slow, geological growth of their mountain-world. They have become, in a sense, extensions of the mountains themselves, living stones shaped by the wind and the frost.
+
+They are not gardeners, not symbionts, not slaves. They are components. Integral pieces of a grand, silent project unfolding over millennia. They are the living cells in the brain of the mountain, the custodians of a knowledge that stretches back to before language, to before consciousness itself. They are the silent witnesses to the slow, inevitable transformation of the Great Spine into something…more.

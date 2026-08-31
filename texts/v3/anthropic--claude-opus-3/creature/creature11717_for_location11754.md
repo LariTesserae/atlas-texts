@@ -1,0 +1,15 @@
+In the depths of this vast, subterranean realm, a unique ecosystem has evolved, adapted to the perpetual darkness, the constant moisture, and the strange, echoing acoustics of the caverns. The most prominent denizens of this underground world are the Cavernites - a species of pale, vaguely humanoid creatures that have made these twisting tunnels and dripping chambers their home.
+
+Cavernites are tall and slender, with elongated limbs and torsos that allow them to navigate the narrow passages and clamber up the slick, rocky walls with ease. Their skin is translucent and ghostly white, stretched thin over their sinewy frames, and is constantly coated in a layer of moisture that helps them blend into their damp surroundings.
+
+Having evolved in complete darkness, Cavernites have no eyes, but instead navigate by echolocation and an acute sense of touch. Their faces are smooth and featureless, save for a wide, lipless mouth filled with rows of sharp, needle-like teeth - perfect for catching the eyeless fish and insectoid creatures that make up the bulk of their diet.
+
+Cavernites live in small, tightly-knit family groups, each claiming a particular section of the caverns as their territory. They construct intricate nests from the minerals and fungi that grow in the caves, weaving them together with strands of their own sticky, thread-like saliva.
+
+Communication between Cavernites is a complex affair, involving a combination of high-pitched clicks and whistles for echolocation, and a tactile language of touches, strokes, and vibrations conveyed through their sensitive skin. The echoing acoustics of the caverns allow these communications to travel far, bouncing off the walls and ceiling in a dizzying array of overlapping signals.
+
+Despite their alien appearance and behavior, Cavernites are not inherently hostile to outsiders. They are, however, fiercely territorial and will defend their nests and hunting grounds from any perceived threat. Their intimate knowledge of the caverns and their ability to move silently and blend into the shadows makes them formidable opponents.
+
+Perhaps the most fascinating aspect of Cavernite society is their relationship with the bioluminescent fungi and bacteria that paint the cavern walls. Over generations, they have learned to cultivate and shape these glowing organisms, using them to create intricate patterns and sigils that serve as markers of territory, as well as a form of artistic expression. The eerie, phosphorescent glow of these "living paintings" is one of the few sources of light in the caverns, and the Cavernites often gather around them for social bonding and storytelling.
+
+To the Cavernites, these subterranean caverns are not just a home, but an entire universe - a damp, echoing, perpetually dark world that is all they have ever known. They navigate its twisting tunnels and dripping chambers with an almost supernatural ease, their pale forms flickering in and out of the shadows like ghosts, their clicks and whistles echoing through the stone like the whispers of the caverns themselves.

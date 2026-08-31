@@ -1,0 +1,35 @@
+To exist within the Lung is to be subsumed by it, not merely to reside within it. The creatures here have discarded the evolutionary baggage of legs, claws, and fur; such things are too crude, too intrusive for a cathedral of wet velvet. Instead, the fauna of this place are extensions of the architecture themselves—mobile ornaments, swimming adornments, and silent, gliding ornaments that have evolved to harmonize with the relentless, dripping rhythm of the dark green dark.
+
+**The Polished Scavengers**
+
+The most common inhabitants are those you have already glimpsed: the six-legged, dog-sized arthropods. They are the janitors of this cathedral, and their biology is a mirror of the city’s slick, wet surfaces. They do not possess the chaotic, twitching energy of terrestrial insects. Their movements are glacial, fluid, almost liquid.
+
+Their carapaces are not made of the dry, chitinous click of beetles, but of a continuous, seamless sheet of biological glass—a black, oily material that ripples with iridescence when the faint, vein-light of the algae catches it. This surface is hydrophobic to the extreme; water strikes them and instantly beads off, keeping them pristine amidst the weeping humidity. They are silent because they do not walk; they adhere. Their legs terminate in wide, star-shaped suckers composed of a soft, muscular cartilage. When they step, they do not press down; they merge with the wall or floor, creating a seal that supports their weight without denting the spongy membrane.
+
+Their mouths are hidden, retractable mechanisms that extend only when they find a patch of the glowing, velvet algae. They do not bite or tear; they act more like living sponges themselves, pressing a soft, proboscis-like organ against the wall to vacuum up the moisture and the bioluminescent organisms, leaving the substrate unharmed. They travel in solitary, wide orbits, and if you stand still long enough, the vibration of their passage through the wet air feels like a gentle breeze against your skin.
+
+**The Suspended Hydrophores**
+
+High above, in the vaulted arches where the "young" ribs of the Lung interlace, live the Hydrophores. They are the city’s chandeliers. Resembling oversized, translucent jellyfish, they possess no stinging tentacles. Instead, they drape long, glistening curtains of specialized filament down from the ceiling, some reaching twenty or thirty feet toward the floor.
+
+They are anchored to the structural ribs by a powerful, biological cement that bonds with the woody matter without hurting it. These curtains are their stomachs. The frigid, saturated air rises from the spongy floor below, carrying nanoparticles of organic decay and moisture. As this warm, wet breath rises, it passes through the Hydrophore’s curtains, which digest the particulates out of the air. In return, the Hydrophores emit a faint,Frequency—a low, resonant thrum—that helps vibrate the condensation loose from the ceiling ribs. They are an active part of the water cycle, encouraging the "weeping" of the city. They pulse with a slow, amber light, a counter-rhythm to the green veins of the walls, creating a synchronized, dueling luminescence in the gloom.
+
+**The R构 (The Folded Ones)**
+
+Deeper in the recesses, where the architectural ribs press close together to form narrow, canyon-like corridors, dwell the R构. They are masters of camouflage, so perfectly adapted that for centuries they were thought to be merely deformities in the Lung’s growth.
+
+They are flat, broad creatures, resembling manta rays in shape, but composed of the same bruised-purple, velvet-like tissue as the walls. When they settle, they press their bodies against the vertical surfaces of the ribs, flattening themselves until their edges are indistinguishable from the plant-matter. They possess six limbs, but these are folded tightly against their bodies, appearing as nothing more than the ridges and faults of the city's architecture.
+
+They are ambush predators, though "predator" is a strong word for a place so devoid of violence. They feed on the Polished Scavengers. When a Scavenger passes close to a resting R构, the Folded One does not lunge; it merely unfurls. A sudden, controlled expansion of its body creates a zone of low pressure, sucking the Scavenger toward it. The R构’s skin secretes a rapid-acting solvent that turns the Scavenger’s glassy carapace into a soft, edible sludge, which the R构 absorbs directly through its pores. The attack is over in seconds, silent and wet, leaving no mess, no blood, only the faint smell of ozone and a ripple in the wall.
+
+**The Sub-Stratum Swimmers**
+
+Beneath your feet, inside the saturated, spongy ground itself, lives the most elusive fauna. The floor of the Lung is not solid earth; it is a thick, fibrous filter, miles deep. Here, swimming through the interstitial spaces between the roots and fibers, are the Nephrites.
+
+They resemble eels made of clear quartz, their internal organs visible as shifting shadows within. They are blind, navigating solely through the incredible sensitivity of their skin to pressure and vibration. They "swim" through the solid earth by flexing their bodies, squeezing through the microscopic gaps in the Lung’s tissue. They feed on the deep nutrients that the city draws from below, minerals and heavy metals that they process and excrete as a waste product that is, in fact, the building block of the rigid, crystalline ribs above. They are the architects of the structure, unconsciously laying the lacework of bone that holds the cathedral up. Occasionally, in the deepest silence of the Lung, you can hear the faint, grinding friction of a Nephrite passing ten feet beneath the soles of your boots—a shifting of tectonic plates on a microscopic scale.
+
+**The Gloom-Mantas**
+
+And finally, there are those that never touch the walls. The air is thick, oxygen-rich, and heavy—more like water than gas. Exploiting this density are the Gloom-Mantas. They are vast, bat-like shapes, but with a wingspan of fifteen feet. Their "wings" are not skin but intricate webs of cartilage and membrane, stretched so thin they are nearly invisible.
+
+They do not flap. They simply drift, riding the thermal currents created by the Lung’s internal heat and the freezing air above. Their mouths are gaping, scoop-shaped vents at the front of their heads, filtering the moist air for airborne spores and pollen released by the Hydrophores. They are the only creatures here that seem to play; they can be seen gliding in great, lazy spirals around the tallest domes, their silhouettes blocking out the faint green light of the algae veins, casting fleeting, moving shadows across the floor. They live entirely in the upper twilight, the herons of the air, never landing, their lives a perpetual, silent flight through the breathing dark All are cells in a single body, living, dying, and dissolving back into the wet, green gloom.

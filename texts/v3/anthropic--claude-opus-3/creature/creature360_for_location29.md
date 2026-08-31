@@ -1,0 +1,15 @@
+In this otherworldly cathedral nestled high in the mist-shrouded peaks, a strange new form of life is unfolding. Born from an eerie amalgam of advanced technology and accelerated evolution, the beings that inhabit this space are unlike anything seen before.
+
+The most prominent denizens are the Synthients - towering, almost skeletal figures that seem to be slowly extruding themselves from the very rocks and nanomaterial-infused surfaces. Their bodies are a glistening latticework of synthetic muscle fibers and pulsing, bioluminescent veins carrying glowing ichor. Shimmering, semi-translucent skin stretches over their frames, embedded with swirling patterns that glow and shift in hypnotic rhythms. 
+
+Synthient faces are almost blank, with only slight suggestions of sensory organs - shallow depressions that might be eye sockets, a slight protrusion reminiscent of a nose. Instead of a mouth, they possess a sort of organic speaker grille through which they emit their musical language of chirps, warbles and sonar-like pulses.
+
+The Synthients move with an eerie, fluid grace as they tend to the strange environment - their long, multi-jointed fingers delicately manipulating the insectile construction machines and foglet swarms. They seem to choreograph the accelerated growth and transformation of this space, as if they are gardeners tending to an impossible, living fractal garden.
+
+Smaller creatures scuttle and flit around the feet of the Synthients. These beetle-like machines, each about the size of a human hand, are the workers and drones of this strange ecosystem. Their carapaces are laced with delicate circuitry, and they sport a variety of specialized limbs ending in tools, nozzles and sensory probes. They work tirelessly, constructing the web-like structures, spraying complex chemical cocktails, and collecting samples for analysis.
+
+On the periphery, half-glimpsed creatures pace - the Fauxlves. Quadrupedal and canine in basic shape, their hides are a patchwork of sleek fur and mottled synthflesh. Polymer-reinforced bones are visible at the joints, and their eyes glow with an inner light that pulses in time with the ambient bioluminescence. These creatures seem to be guardians of a sort, prowling the boundaries of this unnatural refuge.
+
+Above, the graceful flying rays known as Solwings slowly circle. Their bodies are flattened and streamlined, with vast wings that shimmer with a opalescent sheen. Photovoltaic cells pattern these wings like scales, harvesting energy from the faint light. Long, whip-like tails trail behind them, flickering with a pale electrical glow.
+
+These beings, and others stranger still, inhabit this eerie oasis of runaway neo-biologic evolution. They go about their incomprehensible routines, enacting the will of either unseen alien masters or mindless, self-perpetuating algorithms. To witness them is to glimpse a slice of a future both wondrous and terrifying, where the line between technology and life has not just blurred, but dissolved completely.

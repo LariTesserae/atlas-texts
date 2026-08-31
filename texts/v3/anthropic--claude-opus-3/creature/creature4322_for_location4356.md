@@ -1,0 +1,13 @@
+In this enchanted pocket world high above the rainforest floor, a clan of diminutive humanoids makes their home. Known as the Verdani, these tiny beings are so attuned to the natural world that they seem almost like extensions of the forest itself.
+
+The Verdani average just six inches in height, their slender bodies perfectly adapted for life among the branches and vines. Their skin ranges from bark-like browns and grays to vibrant greens, often dappled or striated like the leaves and flowers around them. This coloration serves as natural camouflage, allowing them to blend seamlessly into their surroundings.
+
+Delicate, iridescent wings sprout from their shoulders, not unlike those of a dragonfly or butterfly. These wings allow the Verdani to flit and glide effortlessly through their treetop domain. They are as much creatures of the air as they are of the forest.
+
+The Verdani live in small family groups, making their homes within the knotholes and hollow spaces of the great trees. They are skilled weavers, fashioning intricate hammocks, bridges, and vine-ladders to navigate their lofty realm. Their crafts utilize leaves, flower petals, spider silk and other natural materials, so expertly integrated that they're nearly indistinguishable from the forest itself.
+
+These tiny people are guardians and caretakers of their environment. They tend to the health of the plants, nurturing seedlings, removing parasites, and even pollinating flowers themselves in an intricate symbiosis. The Verdani communicate with the many creatures of the pocket world, from the tiniest insects to the colorful tree frogs and birds, maintaining a delicate balance.
+
+The Verdani are deeply attuned to the life-force of the forest, which they refer to as "The Green Pulse". They draw sustenance and subtle energy from their connection to this pervasive essence. The greatest among them, the Elders and Tenders, can subtly influence the growth patterns of the plants, shaping the very environment over time.
+
+While the Verdani are generally peaceful and shy, they are fiercely protective of their domain. They employ ingenious natural traps and illusions to deter intruders, and if pressed, can summon swarms of stinging insects or spur the very vines to entangle threats. However, to those pure of heart and respectful of nature, the Verdani may just reveal themselves, sharing glimpses of the wonders and ancient secrets of their emerald realm suspended between earth and sky.

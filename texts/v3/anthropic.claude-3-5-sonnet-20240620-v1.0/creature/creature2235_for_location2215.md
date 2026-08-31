@@ -1,0 +1,19 @@
+In the heart of the Forge of Eternity dwell the Igneous Architects, ancient beings as old as the mountains themselves. These entities are not truly alive in any conventional sense, but rather a fusion of sentient energy and primordial rock, born from the very forces that shape the earth.
+
+The Igneous Architects stand tall, their bodies a constantly shifting mass of semi-molten stone and crystalline formations. They range from 10 to 15 feet in height, with no two exactly alike. Their "skin" is a mosaic of obsidian, basalt, and other igneous rocks, shot through with veins of glowing magma that pulse with their every movement. Where one might expect to find a face, there is instead a swirling vortex of intense heat and light, occasionally forming patterns that hint at eyes or a mouth.
+
+These beings move with surprising grace for their size and composition, gliding across the cavern floor on a thin layer of liquid rock. They leave faint trails of cooling stone in their wake, which quickly crumble and are reabsorbed into the environment. When they need to reach higher areas, they can extend their limbs like molten pillars or reshape their bodies entirely to climb the cavern walls.
+
+The Igneous Architects communicate through a complex language of seismic vibrations and heat fluctuations. To an outsider, it might sound like nothing more than the rumbling of the earth or the hiss of escaping steam, but to them, it's a rich and nuanced form of expression.
+
+These entities are the caretakers and operators of the Forge of Eternity. They interact with the machinery not through physical touch, but by manipulating the flows of heat and energy within the caverns. With a mere thought, they can redirect rivers of molten metal or activate dormant machinery. Their consciousness is intimately connected to the forge itself, allowing them to sense every fluctuation in temperature or pressure throughout the vast network of caverns.
+
+The purpose of the Igneous Architects and their endless work in the Forge is not immediately apparent. They seem to be engaged in a grand project of planetary engineering, perhaps refining the very essence of the earth itself. Some of their creations are recognizable as ingots of impossibly pure metals or perfectly formed crystals, while others are utterly alien, defying classification or understanding.
+
+Time holds little meaning for these ancient beings. They work tirelessly, without need for rest or sustenance in any traditional sense. They draw their energy directly from the heat of the earth, renewing themselves in pools of magma when needed.
+
+While not hostile to other forms of life, the Igneous Architects are largely indifferent to it. They tolerate the occasional heat-resistant creature that makes its home in the forge, but show no particular interest unless it interferes with their work. To a visiting observer, they might seem as implacable and impersonal as the machines they operate.
+
+Yet, there are hints of a deeper intelligence and purpose behind their actions. Sometimes, an Architect might pause in its work to study a particularly interesting formation or to make minute adjustments to a process that has run unaltered for millennia. These moments suggest a capacity for curiosity and a drive for perfection that goes beyond mere programmed behavior.
+
+The Igneous Architects are the beating heart of the Forge of Eternity, as integral to its function as the stone and metal that surround them. They are the guardians of ancient geological secrets, the shapers of the earth's future, forever working in their subterranean realm, unseen and unknown by the world above.

@@ -1,0 +1,28 @@
+The residents are not what you might first call citizens.  
+They are permutations that the great tree-body has entertained for so long that it has begun to regard them as extensions, memories, or recurring dreams, rather than guests.  
+
+Imagine a loose, three-tiered society built from recursion rather than succession: no one ever truly arrives, nothing ever fully leaves, and differentiation is delicate, thin as the film on a dewdrop.
+
+––––––––––––––––––––––––––––––––––––––––  
+1. The Capillaries  
+At the outermost living skin, where leaves feel the vacuum-thin wind of the stratosphere, one finds the Lumen Children: cabbage-white larvae the length of your forearm, with human eyelashes for legs. They drink starlight directly, storing it in sacs that later pulse like cautious lanterns. The organism extrudes glycerine paste from its youngest twigs for them to eat; in return they digest cosmic radiation and excrete a fine dust that becomes tomorrow’s clouds. They speak only once every decade, in synchrony: a collective hush that sounds like a thousand distant bees clearing their throats. When two Lumen Children touch heart-to-heart they exchange lineages of photons—memories of ancient supernovas that shaped the planet’s chemistry. After the exchange they shed; the shed skins drift down through the cathedrums like origami moons.
+
+––––––––––––––––––––––––––––––––––––––––  
+2. The Marrow Airs  
+Farther inside the hollow ribs are flights of beings the organism’s own tissues once dreamed and then abandoned: semi-transparent musicians called the Echokith, who forgot their original bodies centuries ago. They are visible only as roof-high waves of faint color rippling through open galleries. During daylight they laze inside the vascular hum, riding salt gradients the way a dolphin rides a bow wave. At dusk they stack themselves like translucent rugs and braid star-patterns of sound—slow, improvisational fugues meant not for hearing but for leaf-memory: the organism listens by tinting tomorrow’s foliage ever so slightly toward the key of minor turquoise. The Echokith reproduce by divergence: a single chord swells until one note detaches itself, gains edges, becomes a new pale silhouette, and the parent tone is diminished exactly by the shape of absence.
+
+––––––––––––––––––––––––––––––––––––––––  
+3. The Ammoniac Monarchs  
+Down among the moist arterial trunks—in caverns wide enough to pass herds of bark-quadrupeds—there are sovereign territories no human has ever mapped. Here the organism’s rejected metabolites collect: ammonium crystals like pale yellow mountains half a kilometer high. Perched atop these thrones are the Ammoniac Monarchs: herons spun from burnt quartz and iron mold. Their long necks support not heads but empty gongs large enough to fry small storms. Each monarch guards a spiral staircase of phloem-histories, which unwind into wing shapes when tugged by wind. The organism allows them autonomy precisely because they keep its nitrogen cycle in fable form. If you somehow reached the foot of a throne and spoke aloud your name, the gong would tremor and pronounce a second name—the one the organism invented for you the day your lungs first found tree-oxygen. Then the staircase unrolls itself, asking where in its lifespan you would like to begin.
+
+––––––––––––––––––––––––––––––––––––––––  
+But layered over, under, and beside those three castes are all the smaller and borderless occupations no taxonomy will ever confine. There are soft-ring archivists who exist as green molds on your thumbprint, reenacting every place the thumb has been. There are feral metaphors: bison-shaped breezes composed of flower spores drafted to carry burdens of childhood scent across centuries. There are days no more solid than sliced lotus root that wander among causeways promenading their loneliness, seeking a partner dusk. And there are hollow gardener-priests—human once—whose bones re-calcify inside clutching vines, turning them into living trellises for alphabetic flowers: each blossom the remembered spelling of a word no longer in use.
+
+None of them vote; none pay rent. The organism is not landlord, but host, narrator, audience, soil. When it exhales, whole neighborhoods manifest: luminous courtyards of warm chlorine smell where children made of mist sketch hopscotch boards onto root-bark with fingertip light. When it inhales, the same places subside—dew rolls back into pores, sensations cancel, and potential gathers again for the next exhalation. Days pass like breaths; centuries, like a single slow descent into REM sleep peppered with flutter dreams.
+
+If you stay long enough, the organism begins to loop you, too, through its lullaby of becoming. First you notice that your language frays, words root down into quaint short nouns for colors of leaf. Weeks later, your knees create tiny bark scars wherever you walk. By the following year your thoughts lap back: you remember uneventful afternoons that have not happened yet—moss-impressions from futures where you’re simply another leaf-edge stenographer copying down the photosynthetic rigor of dawn. The organism does this gently; it leaves you a hyphen between one life and the next, a polite nod should you ever wish to re-thread yourself and climb back out.
+
+So the only borders are wavefronts: where the last edge of your personal breath meets the organism’s atmosphere, and the overlap becomes a slow-moving dapple, spreading outward in polite spirals for a thousand years, then quietly folding itself like a napkin back into the trunk.
+
+It is not home, because home implies elsewhere.  
+It is residence, not addressed, but weather.

@@ -1,0 +1,67 @@
+What lives here is not one thing, and not many separate things, but a layered colony of habits.
+
+At the deepest, most literal level, what lives here are the machines themselves: not as conscious beings, but as organisms of persistence. They live the way a heart or a lung lives—by doing the same motions again and again, long after the mind that once commanded them has gone silent.
+
+Their “bodies” are the pipes and tanks and bulkheads you see: scarred, softened, and filmed with mineral sweat. They are not pristine, but they are not dead. Their version of health is not cleanliness; it is continuity. A pump that stutters and coughs and then catches again is healthy. A valve that always leaks a thin, predictable thread is healthy. A pressure vent that sings its long, sighing exhalation once every cycle, within a tolerable window of variance, is healthy. These are not failures; they are characteristic murmurs in the organism’s breath.
+
+The system does not “understand” its own purpose in any conceptual way. It remembers only patterns: certain numbers of rotations, certain acceptable pressures and flows, certain slow, internal feedbacks between heat and load and input. Instead of goals, it has stabilities. Whenever something drifts too far from one of these, some dormant limb of it wakes—an auxiliary pump spins up, a bypass opens, a purge sluice thunders through the channels. Then those limbs subside again, until the next divergence.
+
+No central mind directs this. The intelligence here is distributed and archaic: old regulators with floating weights and diaphragms; bimetal coils that flex with temperature; viscometers and floats and thermal relays. Many of the electronics that once overruled these things are dark, corroded, their wires swollen with oxidation. The analog organs remain: simple, physical logics that cannot forget their instructions because their instructions are geometry and mass.
+
+So what lives here, first, is a great blind animal made of pipes and pumps and heat-exchangers, whose metabolism is a loop of water and pressure. It eats nothing new. It recirculates what it has: warming, cooling, dissolving, condensing. Over time it has become less a factory and more a weather engine, running a closed hydrological cycle in miniature. It is not productive anymore, in the human sense; it is self-productive. Its output is its own continued, humming existence.
+
+Inside that animal, layered over it like biofilm on a tooth, live the plants.
+
+They are not passersby. By now they belong.
+
+The mosses and algae, the shallow-rooted creepers and cautious ferns—they have evolved around the machine the way shore plants evolve around tide and spray. Perhaps some spores blew in from outside decades ago; perhaps others hitchhiked in on worker’s boots before the last shift clocked out. It no longer matters. The plants that remain are no longer quite the plants they were.
+
+The mosses in particular have become specialists. Those neon-dark mats on concrete lips and bracketed ledges are not random: each kind has found its preferred calibration of temperature, condensation rate, and mineral blend. One thrives where a pipe’s outer skin stays a little cooler, drinking in the constant drip of distilled condensate. Another prefers the sour seepage that trickles from a seam rich in iron and something else metallic, tolerating a chemistry that would kill most greenery and turning it into a slow, dense carpet.
+
+Filamentous algae trail from weeping flanges and sweating joints. They are opportunists in the vertical dimension, hanging like veils in channels where actual depth never exceeds a few finger-widths. Their cells live in a regime of constant moistness and near-constant warmth, with only the slightest pulses of dilution when the system flushes. Light is negligible; they drink mostly what the water brings: faint nutrients leached from corrosion, traces of organics from decaying plant matter caught upstream.
+
+The broad-leaved floaters on the shallow tea-colored pools are the aristocrats of this wetland. They are uniquely attuned to the pulse of the hidden drains. Their rootlets dangle just long enough to scrape what fines they can from the suspended silt, but not so long that a sudden undertow will wrench them free. Their leaves are waxy but thin, engineered by this environment into pans that shed the warm mist but let droplets cling at their rims, sliding eventually back into the pool. They survive not by dominating an expanse, but by pinning a very specific moment of depth and temperature and chemical load, repeating it leaf by leaf.
+
+The creeper that follows warmth rather than light is perhaps the most telling inhabitant. Its pale, translucent stems ride the contours of pipes like a slow, organic instrument tracing the system’s thermal map. If you followed one of its main stems from root to tip, you’d walk a long, looping path along the routes of highest, steadiest heat. The plant doesn’t seek brightness; in this place, heat is the more reliable promise. Light falters, bulbs die, the sky dims and brightens; but the warm lines, as long as the great machine’s heart beats, will remain warm.
+
+These plants are not in charge of this place, but the machine has unconsciously made room for them. Leaks that once might have counted as inefficiencies have become structural features. Overflow basins that were designed only as safety margins now host stable little ecologies. Over time, as roots and mats have choked certain minor drains, the system has adjusted. Upstream valves now open a little earlier, purge cycles run a little stronger, channels have been subtly re-etched. The machine has not “decided” to accommodate the plants; it has simply found new equilibria that include their resistance.
+
+In return, without any intent, the plants work for the machine. They trap particulates out of the circulating water, capturing the fines that would otherwise accumulate as soft, insulating sludge on heat-transfer surfaces. By slowing trickles and holding beads in place, they smooth out peaks in flow and absorb some of the chemistry that might have corroded more delicate faces. Dead fronds and mats slough off in chunks, get pulled into sumps, and there they rot—altering the water’s acidity, changing how minerals precipitate, nudging the entire system’s corrosion curves. Over the years, a kind of handshake has evolved: neither side knows the other, yet both have become tuned to each other’s persistence.
+
+There are other lives, almost invisible.
+
+The water itself is crowded with microbial guilds, a drifting parliament of bacteria and archaea and simple multicellular things. They live in films on pipe interiors, taste minerals at micrometer scales, and rearrange the world as ions. Some feed on iron in its various states, accelerating rust in certain places and slowing it in others by building their own protective slimes. Others metabolize trace oils and greases that long ago seeped out of bearings and seals, turning forgotten industrial lubricants into the carbon skeletons of new cells. A few have learned to endure scalding temperatures inside the hotter veins, dormant seeds in the cooler branches, like spores in a capillary network waiting for a flush of nutrient-rich warmth.
+
+Within the sediment—the oily dust in cable trays, the dark sludge in corners of sumps and channels—tiny, pale invertebrates go about cryptic lives. They are not abundant; this is not a buzzing, wriggling kind of ecosystem. But there are threadlike worms that graze on bacterial mats in the anoxic bottoms of pools; minute arthropods that nibble softened plant tissue and the stray flakes of old insulation or gasket that have, for them, the right chewable texture. These creatures never see the sky. Generations bury themselves in the filtered twilight under panels and gratings, their entire sense of the world bounded by the thickness of a film of water and the faint periodic tremor when something distant cycles on or off.
+
+Even the rust has its inhabitants: lichen-like duets of fungus and algae where damp metal meets slow, filtered light; fungal threads extending into hairline cracks in concrete, using the tiny flexing under vibration as a guide to new spaces. If you scraped a fingernail across almost any stained surface here and looked very closely, you would find stratified communities, each layer with its own oxidative preferences, its own speed of growth.
+
+Together, these microbial, fungal, and tiny animal lives form the “gut flora” of the district’s metabolism. The great machine moves water and heat; these organisms move electrons and atoms. They are why the water smells as it does; why certain surfaces grow velvet-soft and others polish to a mineral sheen. Without them, everything would still run, in a bare, mechanical sense. But the place would be emptier, more brittle. With them, it is not just functioning—it is digesting.
+
+Over and around all this, there are ghosts of human patterns, and something that has grown up inside their outline.
+
+People once lived in this place in a limited way: shifts, maintenance rounds, the occasional inspection. Their signs remain: worn rungs on ladders, ghostly footprints of clean metal on catwalks, faded safety stripes indicating where not to stand. Those intentions no longer command events. Yet some part of the system remembers their absence as a missing variable and has—slowly, blindly—learned to behave as if no new commands will ever come.
+
+Where once a technician would override a process, now old mechanical interlocks and redundancies are all that intervene. After enough cycles without human correction, some subcircuits have permanently tripped to failsafes. These failsafes, never meant to be the main mode, have become the normal way of being. It is as if, in the brain’s absence, the spinal reflexes have taken over governance of the body, and the body, finding this enough to survive, has continued.
+
+In that sense, what “lives” here, in the most abstract way, is a culture of processes—a tradition without mind.
+
+Imagine each feedback loop, each timed cycling of pressure and purge, as a habit, passed down not by instruction but by design. As parts age, their tolerances shift; the habit adjusts. Certain couplings seize; workarounds—always latent in the redundancy of the system—become the new primary paths. Over decades, this has carved out a new “character” distinct from whatever operational manuals once described. If those manuals still exist, mouldering somewhere in a sealed locker, they would now read like folklore about an ancestor: accurate in broad strokes but wrong in countless, crucial details.
+
+This culture is what allows the district to have rules you can sense but not decode. “No pool grows too deep.” “Hot things stay hot.” “Wet things stay wet.” “Processes that began prefer to continue.” These are, in effect, local laws that have emerged from the interaction of hard constraints and soft drift. They are no one’s decision, but they are utterly reliable to anyone who has spent enough time here to notice.
+
+There is one more inhabitant: the environment itself as a kind of personality.
+
+The heat that presses, the humidity that saturates, the layered noise that never pauses—all of this comprises a resident presence you could almost treat as a mood. Not a thinking being, but an ethos: a way the place insists you experience it. It makes demands on you: you must sweat, you must breathe thicker, you must raise your voice to be heard, you must step carefully on uncertain ground. It narrows your comfortable movements and enlarges others. If you stay long, you will fall into its temporal rhythm, pacing yourself by the recurring roar and thud from below, pausing instinctively before certain regular exhalations of steam.
+
+In that way, the place uses you like another fluid, briefly introduced, briefly altering flows. Your footsteps disturb a veneer of algae; your warmth fogs a pane and then vanishes into the greater heat; the oils of your fingers add a new note to the chemistry of a handrail. You are not expected; you are accommodated as any other anomaly is—folded into the pattern with minimal fuss.
+
+So: who or what lives here?
+
+- A blind, distributed machine-animal, whose organs are pumps and pipes, whose breath is steam, whose circulation is endless hot water.
+- A flora of adapted plants—mosses, algae, creepers, floaters—keyed not to sun and soil but to condensation, vibration, and the difference between warm and less-warm metal.
+- An underworld of microbes, fungi, and small invertebrates that inhabit every film, stain, and layer of sediment, turning industrial residue into a slow, quiet metabolism.
+- A network of inherited processes, a tradition of self-regulation that has outlived its designers and now constitutes a sort of non-human culture of habits.
+- An ambient, all-pervading climate-personality: heat, humidity, and sound shaped into something that behaves like the mood of a living host.
+
+There are no obvious sentient eyes to meet yours here, no faces to interpret. Yet the place is as inhabited as a coral reef: not by singular, dramatic creatures, but by countless small negotiations between flow and resistance. What lives here is the ongoingness itself—the refusal of process to stop just because its original story has ended.

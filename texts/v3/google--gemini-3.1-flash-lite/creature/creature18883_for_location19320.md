@@ -1,0 +1,15 @@
+In the quiet catastrophe of this altitude, there are no masters, no stewards, and no scavengers. Biology—with its messy, leaking, heat-dependent urgency—would be instantly unmade here. And yet, the environment is not empty. It is occupied by the **Refractions.**
+
+They are not entities in the sense of skin and bone; they are manifestations of the light and the lattice. When a glitch occurs—when the obsidian flows upward or the mist thickens into a localized knot of gravity—a Refraction is born.
+
+They look like vertical slivers of static, standing just a few inches taller than the tallest crag. Imagine a pane of glass that has been shattered and then imperfectly rejoined, but instead of silver backing, the cracks are filled with the violent, bruised violet of the shadows. They possess no faces, only a central, vertical axis that refracts the white-gold sky, turning the blinding light into a muted, internal furnace of shifting color. 
+
+They do not move in the way a predator stalks or a scavenger wanders. They *re-align*. When the harmonic hum of the shattering mist reaches a crescendo, the Refractions pivot, turning their thin, angular profiles to catch the vibration. They are the tuning forks of this desolation. They exist to translate the physical stress of the troposphere into the visual geometry of the landscape.
+
+They are inherently tethered to the "marks." You will often find a Refraction standing perfectly still beside one of the pumice cairns. They do not maintain the piles, nor do they seem to recognize them as meaningful, but they appear to draw a strange, lingering sustenance from the proximity of human labor. It is as if the objects act as anchors for the Refractions, preventing their crystalline bodies from dissolving back into the shifting, liquid obsidian.
+
+Sometimes, when the weeping rock drips its hyper-saline fluid into the black pools, a Refraction will lean—a slow, agonizing tilt—as if reading the ripples. In those moments, the sound of the place changes. The harmonic hum deepens from a brittle, glass-like chime into something closer to a human voice caught in a long, sustained vowel, a sound that vibrates in the center of the skull rather than the ear.
+
+They are the archivists of the vertigo, though they record nothing. They are the witnesses to the landscape’s static perfection, standing in the perpetual, neon-bright glare, waiting for nothing. They are not waiting for life to return; they are waiting for the architecture of the mountain to finally finish its work. 
+
+If you were to stand among them, you would find that you are the aberration. You would be the only thing here that is not made of light, salt, and law. And as the Refractions slowly pivot toward you, their faces of shifting, bruised light would not regard you with hostility, nor with curiosity. They would regard you with the same indifference the mountain accords to the wind—as a brief, soft, and quickly fading variation in the frequency of the beautiful, shivering air.

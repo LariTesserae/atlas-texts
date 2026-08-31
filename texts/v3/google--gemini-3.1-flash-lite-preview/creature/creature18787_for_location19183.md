@@ -1,0 +1,19 @@
+To inhabit this place is to become a vibration. You do not so much live here as you are processed by the environment, slowly integrated into the feedback loop of the great, grinding machine.
+
+There are things here—not beasts, not people, but rather the *sediment* of the system.
+
+If you were to sit perfectly still against the curved, slick polymer of the wall, you might eventually notice them. They are the **Conduit Weavers**. They are not born; they are precipitated. As the ionized rain interacts with the heavy, aged metals and the bioluminescent sap of the ferns, tiny, metallic filaments drift in the currents of the warm air. Over decades, these filaments snag on the rivet heads and the overlapping seams of the iron.
+
+They are spindly, fragile geometries of oxidized copper and translucent, hardened resin. They look like clockwork spiders, yet they possess no legs for walking. They have only delicate, sensory tapestries—fine webs of spun conductive wire that stretch between the ferns. They are entirely blind, possessing no eyes, for light is meaningless to a creature that exists to harvest the hum.
+
+The Weavers spend their entire, languid lives translating the wall of white noise into physical form. They feel the thundering roar of the turbines through their feet, and as the metal vibrates, the Weavers shift their weight, tightening or slackening their webs to catch the harmonic frequencies of the pipe. They are tuning the room. They are the ones who ensure the roar remains constant, dampening the high-pitched screams of friction or amplifying the deep, bass thrum of the subterranean pistons.
+
+They do not eat. They absorb the heat of the oil and the static electricity that arcs when the humidity hits a certain, critical threshold. When a Weaver grows too old, when its joints become as featureless and smooth as the floor beneath it, it simply lets go. It folds its metallic limbs into a tight, perfect sphere and falls into the dark, rushing water at the base of the pipe, becoming part of the sludge that lubricates the unseen gears below.
+
+Perhaps, in the deeper reaches—where the conduits narrow into hexagonal honeycombs—there exists something else: the **Maintainers**. They are not fleshy, and they are not truly robotic. They are remnants of the original automated diagnostics, now evolved into something akin to a localized weather pattern. 
+
+They appear as shifting clouds of microscopic, magnetically-aligned iron dust. They drift through the air currents, behaving like shoals of fish, swirling around the leaking joints to patch them with a self-hardening, obsidian-like seal. They have no consciousness in the human sense, but they possess a terrifying, singular obsession: *Integrity*. 
+
+If you were to damage the pipe—to scratch the paint, to pull a fern from its rivet—the cloud would descend. You would feel a sudden, localized drop in pressure, a prickling of static against your skin as the microscopic dust swarms toward the break, knitting together a new surface, sealing the wound. You would not be attacked; you would be *repaired*. And if you fought them, if you resisted the order they demand, you would find yourself slowly coated, layer by millimeter, in a thin, shimmering veneer of iron. You would become a statue, a permanent fitting, a new protrusion on the wall of the pipe, destined to vibrate in harmony with the machine until the ends of time.
+
+These are the residents: the harvesters of noise and the architects of stillness. They are the custodians of a house that no longer remembers its owner, keeping the machine alive simply because the machine is the only thing they know how to endure. In this infinite gut, there is no death, only the slow, rhythmic transition from movement to maintenance.

@@ -1,0 +1,23 @@
+# The Whisperwings of Bhazaal
+
+The four-winged beings who inhabit the aerial cities of Bhazaal are called the Whisperwings by visiting scholars, though they refer to themselves through a subtle language that has no spoken name—only a particular pattern of air currents created by a specific four-wing gesture performed while facing east.
+
+Standing approximately the height of a human child, their bodies appear almost skeletal in their delicacy. Their hollow bones—visible through nearly transparent skin—are not a vulnerability but an evolutionary marvel, containing intricate internal chambers that allow them to sense minute changes in air pressure and temperature. These biological barometers give them warning of storms days before they arrive and help them navigate the complex wind patterns between the peaks.
+
+The Whisperwings possess four wings arranged in an X-formation when fully extended—two larger wings emerging from their shoulders and two smaller ones from the middle of their backs. Unlike insect wings, these are featherless membranes stretched over delicate bone structures, similar to a bat's wing but far more translucent. The membrane tissue contains bioluminescent cells that glow softly at twilight, creating constellations of moving light throughout the suspended cities as they travel between dwellings.
+
+Their faces are elegantly elongated, with large, compound eyes that wrap partially around their narrow heads, giving them near-panoramic vision. These eyes contain specialized cells that can detect ultraviolet patterns in the mountain mist, allowing them to "read" the weather and air currents. They have no visible mouth; instead, they absorb moisture directly through specialized patches of their skin when they immerse themselves in the communal cisterns.
+
+The Whisperwings reproduce rarely and live extraordinarily long lives—perhaps centuries, though no outsider has documented their full lifespan. Young Whisperwings emerge from crystalline egg cases that are embedded into the structural fibers of the city itself. The hatching of a new generation is a community event, occurring only once every few decades, when all the egg cases open simultaneously during a particular celestial alignment.
+
+Their society appears to lack hierarchy in the conventional sense. Rather than leaders, they have "Patternweavers"—elders whose wings have grown so sensitive they can create incredibly complex air current communications that spread throughout an entire neighborhood. These messages coordinate city-wide activities without any visible signal to outside observers.
+
+The Whisperwings maintain a symbiotic relationship with the floating jellies of the range. These balloon-like creatures—called Mistblossoms—produce a secretion that the Whisperwings collect and weave into the structural fibers of their cities. In exchange, the Whisperwings cultivate special algae gardens on the undersides of platforms where the Mistblossoms feed.
+
+What appears as ritualistic behavior to outside observers—the synchronized wing-beating at the cisterns each morning—is actually their primary form of historical record-keeping. The geometric patterns created in water are a sophisticated language, with each ripple formation representing an event or concept. The collective memory of their civilization is stored not in writings but in these ephemeral water patterns, recreated daily and memorized by the young.
+
+The Whisperwings wear no clothing but adorn their bodies with living crystals that grow naturally from their skin at certain points—these crystals slowly change color throughout their lives, from clear in youth to deep purple in their final decades. The patterns and arrangements of these crystals tell the life story of each individual, a biographical record visible to all who understand their meaning.
+
+Though they appear physically fragile, the Whisperwings possess remarkable resilience. Their bodies can withstand the extreme temperature variations of the heights, and they can enter a hibernation-like state during rare severe storms, their metabolisms slowing to near suspension as they cling to the protected inner chambers of their suspended homes.
+
+They are custodians rather than conquerors—their technology indistinguishable from biology. The cities' adaptive nature comes from specialized glands in the Whisperwings' palms that secrete a substance which, over generations, allows the structural fibers to microscopically adjust to the mountain's changes. To build is to grow; to maintain is to nurture. Their civilization has no concept of architecture separate from themselves—they are their cities, and their cities are them, bound in a relationship so intimate it transcends our understanding of habitation.

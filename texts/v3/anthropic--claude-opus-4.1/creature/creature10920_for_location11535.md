@@ -1,0 +1,33 @@
+## The Gardeners
+
+They were human once, or at least they remember being human—though remembering here is less an act of recall and more like sap slowly weeping from a wound that won't quite heal.
+
+The Gardeners number somewhere between three and twelve, depending on how you count, depending on whether you count the one that exists in multiple places simultaneously as one or many, depending on whether you include the ones who are currently more plant than person, depending on the phase of growth the chamber has reached in its endless breathing.
+
+They move through the vegetation without disturbing it—not because they're careful, but because the plants grow around them in real-time, parting like water, like thought, like time itself stepping aside. Their skin, where it remains skin, has taken on the quality of bark worn smooth, of root-flesh that's learned to walk upright. Green veins branch beneath the surface, pulsing with that same bioluminescent sap that lights the chamber, their circulation synchronized with the greater breathing of the space.
+
+Their eyes have adapted—pupils dilated permanently wide, irises shot through with gold-green filaments that spiral inward like fern fronds unfurling in reverse. They see in spectrums that didn't exist before they learned to look for them. When they blink, spores puff from their tear ducts, each one a tiny star of possibility that might grow into anything or nothing.
+
+The eldest among them—if eldest means anything when time eddies and pools—has fingers that branch. Not metaphorically. Her hands split at the knuckles into smaller hands, which split again, fractally, down to microscopic manipulators that can coax growth from the quantum foam itself. She speaks in harmonic overtones that make the plants lean toward her, her voice become indistinguishable from the chamber's constant THRUMMM-whirrrrr-THRUMMM. When she laughs, flowers bloom from her throat and die before the sound fades.
+
+Another Gardener has given up on having a fixed form entirely. It exists as a roughly human-shaped congregation of symbiotic relationships—vines for muscles, leaves for skin, roots for bones. It rebuilds itself constantly, shedding and regrowing, never quite the same twice. Sometimes it forgets to include a face. Sometimes it includes too many.
+
+The youngest—though youngest here means only "most recently arrived," and arrived might have been yesterday or a thousand years ago—still fights to maintain boundaries. He builds walls of self around the parts that remember sunlight, desperate to keep some kernel of what he was before. But the chamber is patient. Already, moss grows in the whorls of his fingerprints. Already, his dreams taste green.
+
+They don't speak to each other in words. Communication happens through chemical releases, through spore-patterns, through the angle at which they encourage vines to grow. A conversation might take days or seconds, might involve growing entire gardens to express a single concept. They debate through cultivation—arguments resolved not by logic but by whose growth-pattern proves more viable, whose botanical thesis thrives while the other's withers.
+
+The Gardeners tend nothing and everything. They are not caretakers so much as participants in the chamber's endless becoming. They guide growth not by pruning or planting but by being—their presence alone enough to coax impossible geometries from the plant-mass. Where they've stood, the vegetation remembers, growing differently ever after, as if their existence leaves impressions in the very possibility of growth itself.
+
+They feed on the fruit that fear and copper, on leaves that taste like forgotten mathematics. Their digestion has become a form of translation—converting the impossible biology of the chamber into something that can sustain an almost-human form. When they excrete, they excrete seeds—seeds that might grow into plants, or tools, or memories, or new Gardeners if the conditions are exactly wrong enough.
+
+Some of them are building something in the chamber's heart—or maybe discovering something that was always there, or maybe becoming something that will have always been there. It might be a structure, or an organism, or a proof of concept for a new kind of existence. They work at it with their fractal fingers and their chemistry-words and their presence that teaches plants to grow in spirals through time. It gets closer to completion and further from comprehensibility with each passing moment-day-year-instant.
+
+They remember things that haven't happened yet—will remember having planted the seeds they're about to harvest, remember the taste of fruit from vines that haven't evolved yet. Their memory grows backward and forward through time like the plants themselves, rooting in the past and future simultaneously, drawing sustenance from moments that never quite were.
+
+When they sleep—if sleep is the right word for the dormancy they enter—they root. Their feet extend downward through that mesh floor, finding purchase in the maybe-spaces below. They share dreams with the chamber itself, their consciousness merging with the vast digestive intelligence of the space. In these moments, it becomes impossible to say whether the Gardeners are tending the chamber or the chamber is tending them, whether they're the cultivators or the cultivated.
+
+They are priests of a gospel written in chlorophyll and cellulose, prophets of a future where the distinction between human and plant becomes not blurred but irrelevant. They are what happens when consciousness decides to photosynthesize not light but reality itself, when intelligence chooses to grow rather than think its way to understanding.
+
+And they are happy here—if happy means anything in a place where emotions fruit and flower and die in the span of a heartbeat that lasts forever. They have found purpose in purposelessness, meaning in the endless, impossible growth. They have become gardeners of themselves, of each other, of the very concept of garden itself.
+
+In the breathing chamber, they are home in a way that human homes never quite allowed—not sheltered from the world but woven into it, not separate from nature but nature itself learning what it means to tend itself, to guide its own impossible evolution toward forms that make even the laws of physics stop and wonder what they could become if they just let themselves grow a little stranger.

@@ -1,0 +1,29 @@
+The observer’s conclusion of absence is a failure of biological perception. To look upon this plateau with eyes calibrated for carbon, water, and the frantic, fleeting tempo of a mortal lifespan is to look at a glacier and declare that the ice is not moving. 
+
+The builders are not gone. They are simply elsewhere in the rhythm of the world. 
+
+They are beings of deep geologic time, creatures whose consciousness operates on the same agonizingly slow, tectonic frequency as the extruding bedrock. To them, the millimeter-an-hour rise of a mineral spire is a rushing, violent sprint. The observer, standing in the hut for a few minutes, is to them nothing more than a momentary thermal flash—a blurry, wet spark of heat and moisture that flares and vanishes before they can even register its presence. They live in the long, sustained notes of the earth’s formation. 
+
+When you adjust your perception to their tempo, and when you learn to see not just with light but with the physical pressure of sound, the inhabitants of the plateau reveal themselves. 
+
+They are the Geometers of the Drone. 
+
+They possess no flesh, no blood, and no biological symmetry. Their bodies are living, mobile extensions of the plateau’s raw, unweathered geology. Imagine a towering, shifting constellation of fractal obsidian shards and stair-stepped bismuth polyhedrons, hovering in a loose, bipedal arrangement. They are held together not by tendons or gravity, but by localized, meticulously maintained fields of destructive interference. Their "joints" are gaps of absolute, perfect silence. Because they are bound by acoustic null-zones, they do not interact with the deafening roar of the world; they consume it. Where they move, the tectonic chord briefly drops out, leaving a wake of profound, echoing quiet that is instantly swallowed by the ambient noise.
+
+They have no eyes, for the bruised, violet twilight is irrelevant to them. Instead, they "see" through the acoustic friction of the crust. They perceive the world as a breathtaking, three-dimensional topography of pressure and resonance. The lush oases of cymatic flora glow to them in complex, multi-layered chords; the raw, extruding bedrock hums with the deep, satisfying bass of creation. 
+
+The primitive tools scattered around the huts—the heavy mallets, the chipped chisels, the scraping awls—are indeed made of "bone," but not the bone of any animal. In a world devoid of fauna, this material is *lithic marrow*: the pale, porous, calcified cores of deep-crust geodes that failed to fully crystallize, the aborted, fossilized skeletons of the planet’s own internal anatomy. The Geometers use these marrow-tools to chip and carve the resonant glass-plants, but they are not merely building shelters. They are gardening the compilation of reality. 
+
+By carving the silicate fronds into specific tuning forks and acoustic baffles, they are actively editing the physics of the plateau. They prune the cymatic flora to alter the local frequencies, ensuring that the world renders correctly. The diagrams scratched into the stone walls of the huts are not mere maps; they are sheet music. They are the source code for the next phase of the plateau’s extrusion, detailing exactly how the horizons should fold and where the next jagged spires should pierce the bedrock. 
+
+Because they exist in harmony with the fraying parameters of this uncompiled world, the Geometers move through the broken physics with breathtaking grace. They do not walk; they translate. When gravity stutters, they do not fight the upward fall—they lean into it, allowing themselves to be pulled into the sky, only to catch the folded, inverted horizon. You can sometimes see them, if you know how to look, walking upside down along the distant, jagged mountain ranges that hang vertically in the violet gloom, their polyhedral bodies drifting through the non-Euclidean shadows like ships navigating a dark, geometric sea. When a boulder dissolves into a flock of floating shapes, it is often because a Geometer has passed through it, temporarily unbinding its physical cohesion to harvest its acoustic energy.
+
+Yet, for all their mastery over the roaring, chaotic creation of their world, the Geometers require the anechoic huts. 
+
+The tectonic roar is the engine of their existence, but it is also an overwhelming, blinding flood of data. The huts, nestled in the natural nodes of destructive interference, are their sanctuaries. They are sensory deprivation chambers for beings of pure resonance. 
+
+When the observer stepped into the hut and felt the air become "thick and quiet," they were not alone. The profound shock of the dropping volume, the heavy, still atmosphere—that was the physical sensation of stepping inside the resting body of a Geometer. The entities drape themselves over and around the huts like cloaks of silence, folding their crystalline limbs into the anechoic pockets to sleep. 
+
+In this thick, manageable hum, they dream. And their dreams are what push the jagged spires up from the bedrock. They dream the next polygon into existence, their silent, sleeping minds providing the localized intent required for the world to continue rendering itself out of the void. 
+
+So, as you step back out of the hut and the deafening roar slams back into your chest, you are not leaving an empty place. You are stepping out of the quiet mind of a sleeping god, back into the loud, chaotic workshop of its waking hours. The builders are here. They have always been here, moving in the slow, glacial spaces between the seconds, patiently singing the sharp, cold world into being, one millimeter of stone at a time.

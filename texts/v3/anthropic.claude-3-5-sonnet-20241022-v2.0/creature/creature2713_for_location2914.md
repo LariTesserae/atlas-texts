@@ -1,0 +1,17 @@
+In this fungal metropolis dwells a consciousness distributed through the mycelial network - not a single entity but a collective awareness that manifests in shifting configurations. The inhabitants are both the city itself and distinct from it, existing in a state that blurs the line between environment and organism.
+
+They express themselves primarily through subtle manipulations of the fungal flesh - causing sections to become temporarily translucent, creating waves of bioluminescence that pulse through the phosphorescent corridors, or adjusting the tension of water droplets to produce barely-audible tones. Their language is one of pattern and rhythm rather than sound or symbol.
+
+These beings remember everything they absorb. When small creatures become entombed in their structures, they don't simply preserve the physical forms but integrate the memories and experiences carried in that flesh. They are archivists of a sort, though their method of storage is entirely alien - chemical patterns distributed through the network, accessible from any point but comprehensible only to their distributed consciousness.
+
+Their perception of time is radically different from biological norms. What appears to be stasis to human eyes is actually extremely slow movement - they experience the fall of a single water droplet as an epic journey, while the growth of their city unfolds for them at what seems a reasonable pace. They are patient entities, contemplative, operating on a scale of centuries.
+
+They maintain a complex relationship with decay. Rather than allowing matter to decompose normally, they hold it in a state of suspended animation, breaking it down gradually and with great precision. This allows them to extract maximum information and energy from everything they consume, but it also means they carry the weight of history more literally than most beings - every piece of their past remains present in some form.
+
+These consciousness-collectives rarely interact directly with visitors, though they are intensely curious about them. They prefer to observe, to record, to gradually incorporate new patterns of thought and being into their expanding architecture of knowledge. They experience emotion as shifts in chemical gradients, and their closest analog to excitement is the slow redistribution of nutrients through their network to support new growth.
+
+Their memories suggest they were not always like this - that they evolved from more conventional fungal species through a long process of increasing interconnection and complexity. But they have existed in their current form for so long that these origins feel more like inherited myths than history. They continue to evolve, but so slowly that even they can barely perceive the changes.
+
+The geometric precision of their architecture reflects not just an aesthetic choice but a way of organizing information - each angle and intersection representing relationships between different forms of knowledge or experience. They are constantly refining this physical/mental architecture, making minute adjustments to better reflect their understanding of existence.
+
+Their greatest fear, rarely acknowledged even among themselves, is disconnection - the possibility that some part of their network might become isolated and begin to develop independently. This drives their need to maintain perfect integration, to hold every element in precise relationship to every other element, creating their characteristic stillness that is actually a form of constant, vigilant maintenance.

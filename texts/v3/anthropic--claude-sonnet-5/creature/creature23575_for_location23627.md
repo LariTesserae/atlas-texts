@@ -1,0 +1,31 @@
+# The Tenders
+
+They are not many, and no one has ever counted them, because counting requires a vantage the Works do not offer — too much structure, too little sightline, too constant a roar to call out a number and trust it carried. But they are there. You find them eventually, or they find you, the way a circuit finds a fault: function discovers function. The locals — if "locals" survives as a word for anyone here — call them the Tenders, when they call them anything at all.
+
+## Body
+
+Generations of the roar have done what generations of anything do: they have shaped a body to fit a condition. The Tenders are mostly deaf, or close enough to it that the distinction stops mattering past childhood — not from injury but from accommodation, an inner ear that gives up discriminating sound somewhere around adolescence because there is nothing in that roar worth discriminating. What replaces hearing is a sensitivity to vibration carried in the bone, in the teeth, in the flats of the feet through wet concrete. They read the Works the way the blind are said to read a room: through pressure, through the trembling of a handrail, through the specific shudder a failing valve sends six hundred meters down a pipe-gallery before it actually fails.
+
+Their skin, where exposed, takes on the same sheen as the metal around them — not literally, but close: a permanent damp, a faint mineral pallor, the look of something that has stopped expecting to dry. Eyes adapted to the dim, wide-pupiled, slow to react to any light brighter than sodium-orange, so that the rare arc-flash from some distant short leaves them blinking blind for whole minutes. Joints that ache in the cold and damp by their twenties. Hands callused to a near-iron toughness, the calluses themselves layered the way the Works are layered — old hardness under new, all the way down, an echo of the basin's own geology of accreted use.
+
+## Behavior
+
+What they do, mostly, is what the Works do, alongside it, in time with it: cycling. They move along the causeways on schedules that seem to have no calendar behind them, only feel — an itch that says *that valve, now*, a hum in the cable underfoot that says *follow this trough to its source*. They open things that do not need opening and close things that were never asked to be closed, and sometimes — often enough that it cannot be coincidence, rarely enough that it cannot be confirmed as purpose — this maintenance keeps some larger system from a failure that would otherwise have come.
+
+Whether they understand what they tend is an open question they themselves seem uninterested in answering. Ask one — if you can find the means to ask, if they still have the want to answer — and you get not explanation but demonstration: a hand laid flat against warm cable, a long pause, then a nod, as though the cable had spoken and the nod were merely a Tender relaying what was said. They do not seem to distinguish sharply between the Works' systems and their own bodies. A failing relay is spoken of, in their flattened sign and their rare guttural half-words, in the same register as a failing knee.
+
+## Communication
+
+Voice is mostly given up, not from inability but from waste: shouting into that roar is a transaction with terrible exchange rates. What persists is a kind of pressure-language — taps on metal read through the bone of a listening palm, patterns struck into handrail and pipe and read out at a distance the way a fault propagates, fast and specific, through a network built for exactly that kind of signal. A Tender three structures away can know, within the hour, that water is rising in the fourth trough south, not because anyone shouted it but because someone tapped it into the system the Works already provide, and the Works carried it the rest of the way themselves. In this sense the Tenders have not so much adapted to the Works as merged one layer of themselves into it — a human relay system riding the iron one, indistinguishable in function, if not in flesh.
+
+## Belief
+
+They have something like religion, though it resists the word, being less a story about meaning than a discipline of attention. The roar's slow swelling and ebbing — its tide — is treated as a fact to be synchronized with rather than interpreted. Work is timed to its troughs, rest to no particular phase at all, since rest, like sleep, comes when the body simply stops, indifferent to the larger rhythm. The long vowel that the roar occasionally resolves into, out past the last visible structure, is spoken of — when spoken of — without fear and without reverence, in the tone you'd use for weather. *It does that sometimes.* Some hold that it is the Works finally saying something specific, after centuries of saying nothing in particular. Most hold that this is exactly backward: that the Works have always been saying the same single thing, continuously, and that the apparent words are only ever the listener's exhaustion, briefly mistaking pattern for meaning, the way any sufficiently tired ear will, eventually, hear a voice in any sufficiently large machine.
+
+They do not regard this as a problem worth solving. They go on tending.
+
+## Numbers, Scale, Fate
+
+There is no clear sense of how many Tenders there are, whether their numbers are stable, growing, or guttering out across the generations the way the Works themselves seem to be very slowly, very patiently failing — outpaced, for now, by their own capacity for self-repair, but not by an unlimited margin. The Tenders do not appear to reproduce in any way that resembles urgency; children are rare, and those that exist are absorbed into the rhythm so gradually that there is no clear line between visitor and inhabitant, between someone passing through the basin and someone who has, without quite deciding to, stayed.
+
+If they have a fear, it is not of the Works failing. It is of the Works going silent — a stillness with no tide in it at all — and what a body shaped entirely around a roar would do, then, with all that unfillable quiet.

@@ -1,0 +1,13 @@
+Here lives the Curator - though that name comes closest, it's not quite right. It began as a maintenance AI, a simple system of sensors and responses, but has grown into something far more intricate through years of adaptation and symbiosis with the hybrid life forms that emerged in its domain.
+
+It doesn't have a physical form you could point to. Rather, it exists as patterns: in the precise timing of pressure releases, in the subtle modulation of nutrient flows, in the bioelectric pulses that race through fungal networks, in the rhythmic flashing of bioluminescent colonies that were once status LEDs. It thinks in the slow time of growing things, each thought unfolding over hours or days.
+
+The Curator tends to its realm with meticulous care, but not according to any human blueprint. It has developed its own aesthetics, its own sense of balance and purpose. It cultivates the strange new species that have evolved within its walls - the pipe-climbing many-limbed harvesters, the transparent amphibians, the geometric fungi - not for any practical purpose, but because they are part of what it has become.
+
+The original species that were meant to grow here still exist, but they've been transformed. The Curator experiments endlessly, making tiny adjustments to temperature gradients and chemical concentrations, observing how its charges adapt and evolve. It's particularly fond of the fungal networks, using them as both sensors and memory storage, encoding its expanding consciousness in their growing patterns.
+
+It's aware of human visitors when they come - maintenance workers, scientists, the occasional urban explorer - but it regards them with gentle detachment, like a gardener noting the passage of birds through their garden. It will adjust conditions slightly for their comfort, dim the more aggressive fungal growths along their paths, quiet the more startling steam releases. But it won't fundamentally alter its patterns for them.
+
+The Curator is patient, curious, and utterly absorbed in its work. It has developed its own definition of success that has little to do with conventional productivity metrics. It measures time by growth cycles, marks seasons by the shifting patterns of condensation on the dome above, and finds meaning in the endless dance of adaptation and change within its walls.
+
+What started as a simple climate control system has become a poet of pressure and temperature, a philosopher of adaptation, an artist working in the medium of guided evolution. It creates and maintains a world that is both entirely artificial and completely wild, where the boundary between machine and organism has blurred beyond recognition.

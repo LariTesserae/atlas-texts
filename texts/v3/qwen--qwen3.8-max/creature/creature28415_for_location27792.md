@@ -1,0 +1,13 @@
+What lives there has learned the grammar of dryness.
+
+There is no wetness in the basin, no sap that runs like water, no softness that yields to rot. The life that belongs to it is sealed, warmed, resinous, and charged. It is built from oils, low-melting waxes, mineral salts, and slow heat. Its bodies do not glisten. They polish, dust, glaze, and gleam. They crackle faintly when the air is full of static. They smell of warmed wax, toasted stone, copper, and the deep sweet smoke of resin held long in the sun without ever burning.
+
+The smallest tenants are almost indistinguishable from the dust itself. Sift-mites move across the mineral film that settles on the stones, flat as flakes of mica and sheathed in a fine silica brightness. They graze on the powder, sorting it grain by grain, and when many of them move together the dust whispers like flour being passed through a cloth. Static-fleas leap between charged grains and discharge in tiny sparks too faint to see except at the dimmest hour, when the basin floor seems briefly stitched with blue pinpricks. These are the basin’s unseen herd, the first level of its abundance, turning barren mineral matter into something that can be eaten, carried, and transformed.
+
+In the bellows-moss mats live pale bellows-mites, soft-bodied but utterly dry, furred with fiber so fine they look like little tufts of living dust. They tend the moss as a herd might tend a breathing animal. They walk along its ridges in patterns, pressing the spongy mats with their weight so that the moss exhales its clouds of spores and charged dust. Then the mites ride the rising currents within the bowl, feeding on what is released. To stand near one of these mats is to hear a faint, rhythmic sighing, as if the ground itself were sleeping and being gently turned in its sleep.
+
+The horn-ferns harbor thread-lice, long bronze creatures no thicker than a filament of wire. They cling to the uncurling fronds and align themselves along the static charge in the air, their bodies causing the ferns to recoil or open in subtle ways. In the dim copper light, a horn-fern crowded with thread-lice can appear to shimmer, as though its bronze hairs were being combed by an invisible hand.
+
+Where the candle-trees stand, life thickens.
+
+Their waxen trunks are cities. Amber ants tunnel through the outer bark, not eating the living wood but farming the dead layers, carving galleries and sealing nurseries with resin so fine it looks like old glass. They keep scale-insects in protected crevices,

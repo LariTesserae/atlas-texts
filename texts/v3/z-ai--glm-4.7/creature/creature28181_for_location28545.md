@@ -1,0 +1,25 @@
+At first, the shaft appears to be a sterile tomb, a monument to mechanics devoid of the mess of biology. But if one were to stand on the precipice of the vertical shaft and let the amber light and the bone-shaking roar wash over them, patience would reveal the truth. The inhabitants are there, but they are not separate from the machine; they are the disease of the machine, its fever, its faithful parasites.
+
+They are called the **Gnawers of the Gap**, though they have no mouths for gnawing, and no gaps exist to gnaw.
+
+To the naked eye, they are indistinguishable from the slag and the rust. They adhere to the sheer vertical faces of the granite gears, clinging like clusters of dried mortar or flaking oxidation. They are flat, irregular things, resembling scabs of iron that have decided to peel themselves away from the hull of a sinking ship. Their biology—or whatever passes for it in this dry, vibrating hell—is a lithic mimicry. Their skin is the texture of pitted iron, cool to the touch despite the ambient warmth, rough with the granularity of sandstone.
+
+They do not breathe. The air here is too thin, too drunk on pressure, and the concept of inhalation is a weakness they discarded eons ago. Instead, they osmose the vibration. The deafening roar, that heavy blanket of static stress, is not noise to them; it is bread. The constant, bone-shaking frequency is the energy by which they persist. They press their flat, broad bodies against the trembling stone and metal, siphoning the kinetic energy of the arrested turn, drinking the desperate effort of the machine that cannot move.
+
+Because they eat the tension, they are invisible to the ear. They make no sound themselves. How could they? To speak would be to whisper into a hurricane. Instead, they communicate through the lattice of the machine itself. By pressing a jagged limb against a gear tooth, they modulate the flow of tension, sending ripples through the iron that travel for miles. They do not say words; they share sensations. They share the *aching* of a specific ratchet, the *heat* of a specific axle, the *threat* of a potential micro-fracture in the stone ceiling. They are the nervous system of the Great Stasis.
+
+Movement for them is a horrifying act of contortion. Because the space is packed—a solid mass of potential energy with no room to pass—the Gnawers must flow like liquid metal. Their bodies are not rigid; they are composed of thousands of interlocking plates, held together by the magnetic resonance of the shaft. When they must travel, they disassemble. An arm becomes a stream of pebbles; a torso flattens into a ribbon of rust. They pour themselves through microscopic imperfections in the machine, sliding through the "non-existent" space between a grinding wheel and its housing, reconstituting themselves on the other side.
+
+They are the custodians of the Lock.
+
+Their existence is defined by a singular, obsessive terror: *The Turn*. If the gears were to ever rotate, the tension would release, the roar would cease, and their source of sustenance would vanish. Worse, the movement would crush them. They live in the spaces where the clearance is measured in the width of a hair. If the machine moves, they die. Therefore, they are the enemies of motion.
+
+They spend their immortal, vibrating lives policing the equilibrium. If a gear shifts a fraction of a millimeter—if the friction heats up enough to threaten a micro-expansion that might break the stasis—a swarm of them will converge. They will pile their bodies into the joint, adding their mass to the counterweight, absorbing the heat into their cooling systems, acting as living shims to ensure the universe remains perfectly, terrifyingly still.
+
+They possess eyes, but they are useless for seeing light. They are black, depthless pits set into the iron-slag of their faces, adapted to see *stress*. They look at the cathedral-sized machinery and see it in colors of heat and pressure: the red-hot stress points, the blue-cool dormancy of the lubricants, the white-hot danger zones where the tension is near critical. To them, the shaft is not a dark, amber-lit cave; it is a blindingly bright kaleidoscope of screaming energy held in check.
+
+Occasionally, one dies.
+
+This does not happen often. They are as durable as the stone they mimic. But when a gear settles deeper into its socket, crushing the space where a Gnawer has made its home, there is a brief flare of sparks. The entity does not bleed; it shatters. It crumbles into a pile of reddish-brown dust and greasy shards.
+
+This dust is not waste. It is the only soil this place will ever know. The surviving Gnawers will gather the dust, mixing it with the ancient black lubricants that weep from the joints. They sculpt this mixture into eggs—smooth, heavy spheres of iron and tar—and cement them into the hollows of the masonry. There, vibrating in the roar, they gestate. They are born of the machine, raised by the machine, and destined to hold the machine together, forever freezing the gear in place, forever silencing the turn, living in the deafening scream of a world that refuses to move.

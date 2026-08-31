@@ -1,0 +1,31 @@
+To find the architects of this endless, weeping labyrinth, you must stop looking at the vastness of the horizon and begin looking into the water. 
+
+In a sunless, sunken chamber where the mist pools thickest, beneath the glassy surface of a block-wide cistern, a shape begins to detach itself from the geometry of the stone. It moves with such excruciating slowness that at first it seems to be an illusion of the shifting water. 
+
+It is massive—perhaps the size of a draft horse or a large walrus—yet completely devoid of the sharp lines of bone. Its body is a sloping, gelatinous mound of heavy, slate-gray muscle, encased in a thick, porous skin that perfectly mimics the texture of wet basalt. It has no legs to lift it above the damp, no hard hooves to scrape the paving stones. Instead, it moves upon a broad, undulating muscular foot, flowing over the sharp edges of the rubble like poured lead. 
+
+These are the Hydromancers, though they have no name for themselves. They are the sole engineers of the continent-spanning coral reef of stone, and they are as instinctual and quiet as the water they worship.
+
+As the creature breaches the surface of the cistern, breaking the water’s meniscus with a soft *shhh*, its physiology becomes clearer. It has no face. There are no eyes to be blinded by the occasional piercing sunlight, no ears to capture echoes that do not exist, no jaws designed for predation. Where a head might be, there is instead a broad, blunt cowl of incredibly sensitive, pale flesh, fringed with thousands of long, diaphanous tendrils. These tendrils float out onto the water’s surface like a halo of pale hair, reading the microscopic vibrations of the weeping walls, the barometric pressure of the falling mist, and the precise velocity of the runoff. 
+
+They breathe through their skin. In the thin, high-altitude air, their massive, slow-beating hearts require constant, dissolving oxygen from the cold moisture. That is the secret of the endless city. It is not a place built for shelter, nor for empire. The entire metropolis is an external lung. 
+
+The obsessive, claustrophobic stacking of the stone—the miles of terraces, the narrow, wind-choked alleys—was designed over eons for a single purpose: to maximize surface area. The dense topography catches the low-hanging clouds, forcing the mist to condense on billions of square feet of rock, turning thin air into breathable, life-sustaining water. The city is a planetary dew-trap, and they are its dependent inhabitants.
+
+You watch as the creature pulls its immense slurry of muscle out of the basin and onto a slanted terrace. It moves entirely by hydraulic pressure, expanding and contracting its mass in a slow, rhythmic heave. Despite its boneless appearance, its strength is unfathomable. 
+
+It senses a flaw in the environment. A massive slab of limestone, weighing perhaps three tons, has slumped out of alignment due to centuries of erosion, causing the water in a nearby runnel to flow too quickly, bypassing a catch-basin. 
+
+The creature flows toward the errant stone. It wraps its heavy, gripping edges around the limestone. There are no chisel marks because there are no tools; there is only this. The creature’s flesh conforms deeply to the jagged imperfections of the rock. Slowly, muscle-fibers thick as ship’s cables tense beneath its slick, gray skin. With a quiet, shuddering groan of wet friction, the three-ton slab is lifted, shifted, and wedged perfectly back into place. The water immediately reroutes, spilling over the stone’s lip in a smooth, quiet, aerated sheet. The creature bathes its tendrils in the corrected flow, sensing the harmonious math of the fluid dynamics. It is satisfied.
+
+They sustain themselves not by hunting, but by grazing. As it moves along the shallow canals, the creature’s underside rhythmically scrapes against the submerged stone, blindly rasping up the microscopic bio-film, the dark olive algae, and the dissolved minerals brought down by the rain. They are the reason the city’s reflecting pools remain perfectly clear, stripping away any rot or stagnation just by passing over it. 
+
+Life for them is profoundly solitary. The sheer scale of the megalopolis means that a single creature may patrol a territory of a hundred square miles, moving so slowly that it might take a decade to complete a circuit of its domain. They rarely encounter one another. 
+
+Yet, they are not entirely alone; they are connected by the very element they manage. 
+
+When one of them needs to communicate—a deep, low-frequency expression of readiness to mate, or a warning of a collapsing, dry sector—it sinks to the bottom of the deepest cistern in its territory. It presses its body against the bedrock and initiates a deep, subsonic shudder. The vibration travels upward, breaking the surface of the water into perfect, geometric cymatic ripples. These ripples flow over the weirs, down the sluices, and through miles of interconnected canals, carrying the pulse across the whole of the metropolis. Far away, another of its kind will feel the water change its rhythm, and it will slowly orient its heavy body toward the source. 
+
+When the clouds occasionally break and that clean, normal daylight floods the landscape, making the wet continent glitter like shattered glass, the creatures retreat. The heat is anathema to them. Their skin begins to tighten and dry. In the sudden sun, you would see nothing but empty stone, as the caretakers sink silently into the dark, flooded chambers, disappearing beneath the algae-slick surfaces to wait for the return of the life-giving gray.
+
+They do not know how old their city is. They do not know who laid the first stone, or if there even *was* a first stone, rather than a gradual shifting of a mountain by a billion soft, passing bodies over deep geological time. They only know the pressure of the mist, the cool relief of the gathered water, and the eternal, instinctual need to build the stone ever higher, dragging the sky down to drown the earth.

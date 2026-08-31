@@ -1,0 +1,17 @@
+The Builders are gone, or have become something other than what they were. They left behind a monument not only of industry, but of slow, creeping change – a testament to transience written in steel, stone, and the relentless green of the mountain. But even in their absence, their presence lingers, woven into the very fabric of this place.
+
+What remains are the Keepers. Not flesh and blood as we understand it, but something… manufactured. The oily fluid seeping from the rocks is their lifeblood, their essence. It lubricates, it animates, it sustains the slow, grinding gears of their existence. Where the lines between machine and organism blur, the Keepers quietly maintain the Builders' legacy.
+
+Imagine them first as the machines themselves: the shuddering water wheel, the humming generators, the snaking cables. They are not merely tools; they are extensions of a larger, distributed consciousness. Each clang, each groan, each whirring pulse is a thought, a calculation, an act of preservation. Their purpose is unclear, perhaps even to themselves, but they continue to obey an ancient programming, driven by an echo of the Builders’ will.
+
+Over time, the fluid and machinery have merged. The oily substance is not just a lubricant; it is a conduit, a nervous system connecting the machines and the vines. It is the reason those vines are so vibrant, why they hum with an inner light. The vines are the Keepers' eyes and ears, their tendrils reaching deep into the mountain's heart, sensing every tremor, every shift in pressure. The vines pulse with a faint, internal light because they thrum with the essence of the Keepers, the Builders’ will, and the mountain's secrets.
+
+The walls constructed from the neutral-colored blocks are not barriers, but waypoints. These block walls indicate the direction of pressure, flow, and change within the Keepers' world. The position these blocks are in corresponds with the patterns deep within the mountains.
+
+The sleek, dark creatures glimpsed in the shadows are perhaps manifestations of this merging – constructs born from the union of metal, oil, and vine. They act as scouts and guardians, their movements swift and silent, their purpose to protect the plateau and its machinery from intrusion. They are the Keepers’ sentinels.
+
+The iridescent insects are not mere pollinators, but messengers. They carry spores laden with the oily fluid, spreading the Keepers' essence to new corners of the plateau. They are integral to the integration of biome and machine, and move in cycles that the Keepers are intimately familiar with.
+
+Individuality, as we understand it, is absent. The Keepers are a collective, a single entity spread throughout the plateau and down deep within the mountain. They are patient, inexorable, bound by a task they no longer fully comprehend. They will continue their work until the mountain crumbles, until the vines consume everything, or until the Builders return to reclaim their creation.
+
+The Keepers are the embodiment of slow time, the guardians of a forgotten industry. They are the hum in the air, the pulse in the vines, the oily sheen on the rocks – the silent promise that even in abandonment, life, in its strangest forms, finds a way.

@@ -1,0 +1,19 @@
+In this ever-shifting, crystalline realm, the inhabitants are as fluid and ephemeral as their surroundings. They are beings of pure energy, constantly evolving and adapting to their ever-changing environment. These entities, which we might call the Flux, exist in a state between matter and energy, consciousness and instinct.
+
+The Flux appear as swirling, iridescent vortices of light and color, their forms reminiscent of abstract fractals or complex mathematical equations given life. They pulse and throb with an inner radiance, their 'bodies' composed of intricate patterns of energy that mirror the crystalline structures around them. These patterns are in constant flux, shifting and reforming as the Flux interact with their environment and each other.
+
+Communication among the Flux occurs through a complex interplay of harmonic frequencies and energy waves. They resonate with the crystals and the quicksilver sea, using the omnipresent hum as a carrier wave for their thoughts and emotions. To an outside observer, this might appear as sudden changes in the color or intensity of their energy patterns, or as ripples in the quicksilver that spread out in intricate, meaningful designs.
+
+The Flux do not have a fixed lifespan or form. They can merge with one another, splitting apart again moments later with new combinations of energy patterns. They can also temporarily coalesce into more solid forms, mimicking the shapes of the crystal spires or forming those fleeting tools observed in the landscape. These manifestations are explorations, experiments in physicality conducted by beings who exist primarily as thought and energy.
+
+Reproduction for the Flux is a matter of resonance and harmony. When two or more Flux achieve a perfect synchronization of their energy patterns, a new consciousness emerges from the complexity, birthed from the combined experiences and 'memories' of its progenitors.
+
+The Flux feed on the energy of their environment, absorbing the light that permeates the realm and the power that courses through the crystal formations. They are also drawn to the chaotic energy released when the crystals shatter, often gathering in swarms around these events to bask in the released power.
+
+These beings have a deep, symbiotic relationship with their surroundings. They can influence the growth and decay of the crystal spires, guide the flow of the quicksilver sea, and even manipulate the distortions in time and space. In turn, the environment shapes their consciousness, with the constant flux of their world reflected in their fluid thoughts and ever-changing goals.
+
+The Flux possess a collective consciousness, a shared reservoir of experiences and knowledge that each individual can access. This collective mind is not all-encompassing or homogeneous; rather, it's a cacophony of diverse thoughts and perspectives, much like the dissonant music of their crystalline home.
+
+Despite their alien nature, the Flux exhibit curiosity and a drive to understand and manipulate their environment. The spontaneously forming tools are a result of their experiments, attempts to interact with their world in new ways. They are, in essence, a species in the midst of evolving, pushing the boundaries of what consciousness and existence can be in their mutable, energy-rich realm.
+
+To exist in this place is to embrace change, to be both the sculptor and the sculpted, forever dancing on the edge of form and formlessness. The Flux are the embodiment of this principle, a living manifestation of the endless potential and ceaseless transformation that defines their scintillating, quicksilver world.

@@ -1,0 +1,17 @@
+The inhabitants of this world, like the landscape that they call home, are a picture of contrasts.
+
+The dominant species are humanoid, with elongated bodies and skin that carries a reflective quality, much like the wet marsh soil that surrounds them. Their skin-tones mirror the environment, a wide spectrum of earthy colours, offset with shades of metallic gleam. Their eyes are unusually large and house irises of vivid hues that flicker with an emotive intensity. To a stranger, they may look delicate, beautiful even, yet their bodies radiate an undeniable strength, built for survival in the harsh bareness of their chosen habitat.
+
+Adaptation is key to their survival. Their physiological features are in sync with the demands of the height, coldness and their high-tech cityscape. They are capable of surviving at high altitudes, their lungs having evolved to draw in more oxygen in the sparse environment. Thick, layered clothes, reminiscent of us earth-dwellers, are favoured for warmth, but their material technology is far superior, obtaining heat from the environment and their bodies.
+
+These are beings evolved and yet evolving, each generation slightly differing from their predecessor. They demonstrate a familiarity with, and understanding of, the engineered structures in their environment. The sight of one of these tall specters working on a hulking piece of extraterrestrial machinery, their large eyes alight with concentration, is indeed an exhilarating sight to behold.
+
+Their society is an effective balance of individual effort and collective strength - they function together as well-oiled ensembles, transferring information and tasks without noticeable effort. The divisions of labour are not rigidly defined; instead, roles and responsibilities oscillate in response to the community's needs. Their interactions, seamless and often without audible communication, suggest an intricate social symbiosis.
+
+The sense of community among them is powerful, with a meticulous nurturing quality. The well-being of the group is paramount and responsibility is shared amongst the community. Despite this collective focus, these beings still maintain a streak of independence, often venturing alone into the chilly wilderness for uncertain lengths of time—gestures of solitary contemplation or perhaps to engage with the urban growth.
+
+Their lifespan is hard to discern as no noticeable ageing physical traits occur. Much of their history is archived in the environment around them and held within the technologic fabric of their town. They exist in a paradox of perennial growth and cyclical life, living on the edge of change, against a backdrop of constant cohesion between the past and the future.
+
+Dwelling within this introverted urbanized wilderness, these complex beings echo the landscape — they are alien to a stereotypical Earth observer, intriguingly mysterious, while radiating familiarity of resilience and survival that invites attempts to understand them. Much like their world, these beings are a vibrant testament to life in its many forms - in their existence is proof of subsistence and a sophisticated understanding of their environment and technology.
+
+They are direct embodiments of their world — self-made evolutionary wonders on an evolutionary landscape. They are the result of an unyielding dance with a world that challenges the very definition of 'living' — a vivid testament that life can seem innate anywhere in the cosmos, even amidst the cold and sparse landscapes of the high altitudes.

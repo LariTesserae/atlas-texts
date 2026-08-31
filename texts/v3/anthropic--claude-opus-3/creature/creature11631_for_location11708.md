@@ -1,0 +1,13 @@
+In the heart of this immense, ancient clockwork, a lone figure resides, as much a part of the machine as the gears and pendulums themselves. He is an old man, wizened and lean, his skin weathered to a parchment-like texture and his long, wispy hair and beard gone completely white. His eyes, pale and nearly colorless, hold a distant, contemplative gaze, as if perpetually turned inward to some inner vision.
+
+The old man is clad in simple robes of coarse, undyed cloth, frayed and worn thin with age. Around his waist is a belt hung with an assortment of tools - bronze calipers, plumb bobs, and strange instruments of unknown purpose, all worn smooth by centuries of handling.
+
+He moves through the grinding, clattering machinery with the surety of complete familiarity, ducking pendulums and stepping over thrumming rods and cables without so much as a glance. His gnarled hands touch the ancient stone and metal with a lover's caress, feeling the subtle vibrations, the minute changes in temperature that speak volumes to his sensitive fingertips.
+
+This is the Keeper of the Machine, the last of an ancient order tasked with maintaining and operating this unfathomable device. For centuries untold he has lived here, oiling gears, replacing worn parts, making minute adjustments to ensure the machine's continued operation. The knowledge of its true purpose, if he ever knew it, is long lost in the mists of time.
+
+He is a figure of monastic devotion, his existence entirely given over to the service of the machine. In its constant rhythms he finds a kind of peace, a certainty of purpose in an uncertain world. He listens to the music of the grinding gears and thrumming cables, finding in it a wordless wisdom, a cryptic truth that only he can decipher.
+
+In the rare moments when he allows himself to rest, he sits cross-legged amidst the turning gears, his eyes closed in meditation. He becomes still as a statue, just another worn stone component in the vast, incomprehensible calculus of the machine. At times he seems to commune with it, as if in some wordless dialogue with an intelligence vast and inscrutable.
+
+The Keeper is the living heart of this place, as much a part of it as the basalt and bronze. He is a figure of mystery, a riddle as impenetrable as the machine he tends. In his long, lonely vigil, he has become something more than human, or perhaps something less - a cog in a greater mechanism, a servant to a purpose that has long outlived its master. And so he remains, watching and listening and tending, until the day when the great gears finally wind down and the machine's long calculus reaches its ultimate solution.

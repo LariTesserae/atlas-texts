@@ -1,0 +1,19 @@
+Let me describe the beings who call this place home:
+
+The Migrants are neither quite birds nor whales, but carry echoes of both in their form. Their bodies are serpentine and fluid, ranging from 15 to 40 feet in length, with wingspans that can stretch to twice that. Their skin has a metallic sheen - not scales, but a living alloy that their bodies synthesize from the mineral-rich waters they process. This integument ripples with bioelectric patterns, a language of light that flows across their surfaces in complex social displays.
+
+They move in three dimensions with absolute freedom, their bodies able to flow through spaces that seem too narrow, compressing and extending like living mercury. Their wings aren't solid structures but rather fields of manipulated electromagnetic energy, visible as shimmering, translucent membranes that interact with the city's own ancient power systems.
+
+Different social castes have evolved to fill specific roles: The Tenders are smaller, with more dexterous appendages adapted for maintaining the city's machinery. Their bodies can generate precise electromagnetic fields that interface directly with the ancient systems. The Collectors are larger, specialized for riding the thermal currents to gather mineral-rich condensation from the upper levels. The Shapers are the architects, their bodies producing the specialized compounds used to modify and expand the city's structures.
+
+Most fascinating are the Memory Keepers - massive, nearly sessile individuals who anchor themselves to the city's deeper chambers. Their bodies have evolved into living archives, their neural networks interweaving with the city's own systems. They store not just the collective memory of their species, but also fragments of knowledge from the city's original builders, passed down through generations of bioelectric inheritance.
+
+The Migrants don't exactly think as individuals - their consciousness flows between them in electromagnetic pulses, creating shifting networks of shared awareness. During their social seasons, entire sections of the city become single organisms, thousands of Migrants moving in perfect synchronization, their bioelectric fields merged into vast, complex patterns that use the city's metal structures as a transmission medium.
+
+They've developed intricate relationships with the chemosynthetic organisms that share their habitat. Some Migrants host colonies of these creatures in specialized organs, forming symbiotic partnerships that help them process the mineral-rich waters and generate the energy they need for their electromagnetic abilities.
+
+Their young begin life in the deeper, warmer chambers, initially as purely aquatic creatures that swim in the mineral springs. As they mature, they gradually develop their electromagnetic organs and begin to generate their wing-fields, eventually joining the aerial society of their elders.
+
+There's evidence that they're still evolving, still adapting to the city. Each generation shows slightly different adaptations - better integration with the city's systems, more efficient processing of its minerals, more sophisticated electromagnetic abilities. They're becoming something that could only exist in this specific place, a species shaped by and shaping their extraordinary home.
+
+The Migrants are not simply inhabitants of the city - they have become essential components of its function, their bodies and behaviors now inextricably linked with its systems and cycles. They are, in a very real sense, the city's new nervous system, maintaining and evolving it in ways its original builders could never have imagined.

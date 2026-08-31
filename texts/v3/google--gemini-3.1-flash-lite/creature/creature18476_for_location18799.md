@@ -1,0 +1,15 @@
+Within the High Canopy, the inhabitants are not distinct biological entities so much as they are localized condensations of the Spire’s own lingering consciousness. They do not walk; they navigate the tension of the protein-filaments, their bodies less like flesh and bone and more like origami folded from thin sheets of translucent, cured chitin.
+
+They are the **Arbor-Scribes**. 
+
+To look at a Scribe is to see an exercise in extreme economy. They are tall, gangly, and angular, their limbs jointed with silent, synthetic cartilage that mimics the structural logic of the bridges they traverse. Their skin is the color of bruised violets, translucent enough to see the rhythmic, rhythmic pulsing of their own internal sap-grids—golden lines of fluid that mirror the city’s own architecture. They have no faces in the human sense. Where a mouth or nose might be, there is a smooth, concave plate, etched with thousands of micro-apertures that filter the spore-heavy air.
+
+They do not speak. To communicate, they peel back the delicate laminates of their palm-plates, revealing vibrating filaments that rub against one another. The sound they produce is a precise, high-frequency refraction, a jagged musicality that allows them to "tag" the architecture. When they move, they leave behind brief, shimmering webs of biological data—gossamer nets that catch the drifting spores and consolidate the city's thoughts into usable information.
+
+They are the archivists of the stillness. You might find a cluster of them gathered at a junction of primary sap-veins, their long, needle-fingers buried deep into the amber-fluid. They are not merely touching the city; they are offloading the accumulated records of the Spire’s billion-year memory into the living tissue. As they work, their bodies dim and brighten, pulsing in perfect, rhythmic synchronization with the *thrum* of the towers.
+
+They harbor no hunger, for they feed on the potential difference between the towers and the ground, drawing static electricity into their marrow. They harbor no ambition, for they are the sensory organs of their home. Every movement they make—each slow, deliberate step across the suspension bridges—is a maintenance cycle, a conscious recalibration of the landscape. 
+
+When a Scribe eventually completes its lifecycle, it does not die. It seeks out a quiet, eroded hollow in the floor, extends its limbs until they anchor securely into the lignified moss, and begins to integrate. Its protein-casing softens and spreads, weaving itself into the bridge-work, its central nervous system hardening into a new branch of the sap-grid to process the incoming spore-storms. 
+
+They are the keepers of a city that finished itself long ago, yet they continue to maintain the lines, as if—by keeping the air clear of dust and the sap flowing through the filaments—they might hold the twilight at bay, forever stalling the inevitable, final cooling of their world. They are the stitches in a garment that has forgotten who wore it, waiting in the violet dark, listening to the crunch of their own joints, tending to the hum of a memory that no longer has a dreamer.

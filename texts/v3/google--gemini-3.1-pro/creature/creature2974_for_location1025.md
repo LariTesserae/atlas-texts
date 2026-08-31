@@ -1,0 +1,33 @@
+To understand what lives here, you must first discard the concept of meat. You must forget blood, bone, lung, and the desperate, frantic hunger that drives the animal kingdom. The prompt is absolute: the plants and the engines have out-competed the flesh. Nothing with a beating heart survives the ozone, the pressure, and the blinding galvanic arcs. 
+
+And yet, the grove is entirely populated. The loop requires tending. 
+
+It begins in the low places, within the marshy depressions where the iridescent machine oil mixes with water and dark, polymerized tree sap. If you watch the surface of these pools, the thick fluid does not merely ripple from the vibrations of the massive flywheel. It *gathers*. 
+
+From the suffocating, hyper-saturated floor, the caretakers of the grove assemble themselves. They do not have fixed shapes, nor are they born in any biological sense. They are transient extrusions of the grove itself, emergent properties of the closed-loop system. 
+
+Watch as one forms near the rusted, thirty-foot flywheel. It starts as a shifting under the spongy mat of decomposing fibers. An armature breaks the surface—a thick, articulated length of ironwood root, naturally infused with heavy metals drawn from the degrading machinery. It pulls itself free with a sound like tearing canvas. The sap and oil pool around it, cohesive and thick, acting as a binding agent. Leaves, discarded copper cables, and shattered ceramic insulators are drawn into the mass, adhering to the sticky, resinous core. 
+
+It becomes a hulking, asymmetrical entity, a hybrid of golem and machine. Its "musculature" is entirely hydraulic, comprised of vascular plant tissues wrapped in tightly braided, leaf-stripped vines. You can see the pale, raw sap rushing through translucent, stem-like capillaries beneath its outer layer of velvet moss and lacquer. When it needs to move, the internal pressure of the boiling sap surges, expanding the fibrous bundles and forcing the heavy joints to bend. 
+
+It does not have a face. In place of a head, its central mass is capped with a cluster of fleshy, upright pitcher-plants. Small, blue kinetic sparks—stray static from the environment—dance continuously across the moist rims of these pitchers, serving as a primitive, exposed nervous system. 
+
+It moves with the agonizing slowness of the grove itself. It takes five long, heavy minutes just to stand. But it possesses the unstoppable leverage of a growing root. It approaches the great flywheel, unaffected by the deafening *boooom... boooom... boooom* of the piston. Its purpose is equilibrium. Reaching out with a heavy, multi-pronged appendage of living, hardened resin, it presses against the groaning iron axle. The entity weeps. It secretes a synthesized mixture of botanical oils and refined sap directly into the machine's rusted bearings. In return, the friction of the iron warms the creature's vascular core, sustaining the boil of its internal hydraulics. 
+
+These heavy tenders are solitary, mindless in the human sense, but perfectly attuned to the pressures of the caldera. They prune the too-ambitious vines that threaten to jam the hydraulic presses, snapping them with slow, terrifyingly powerful, sap-driven claws. They seal ruptures in the engine casings, sacrificing their own amber-like bodies to become living gaskets.
+
+But they are not the only things that dwell here. 
+
+Look higher, up into the emerald-tinted shafts of mist and the choking canopy. The flowers of this place require pollination, but there are no bees. Instead, the air is navigated by the Galvanic Drifters. 
+
+When the towering, sap-weeping conductive pillars loose their blinding arcs of blue lightning, the deafening *CRACK* is not just a discharge—it is a spawning event. The intense heat and electromagnetic flash vaporize the waxy secretions of the canopy above, spinning the burnt resins into microscopic, gossamer-thin carbon threads. These floating clumps of conductive fluff are snatched up by the lingering static charge in the air. 
+
+They become living ball-lightning, the size of thistledown, glowing with a soft, pulsing azure light. They drift effortlessly through the dense, wet air, riding the localized updrafts of hot steam that rise from the exhaust manifolds. They are drawn to the biological batteries of the environment. A drift of these glowing, crackling entities will settle onto the raw copper-vines and the receptive, metallic stamen of the grove's bizarre orchids. They deliver both pollen and electrical charge, sparking violently as they touch down, completing micro-circuits that tell the flora it is time to fruit. 
+
+Beneath the surface, within the yielding drumhead of the floor, exist the Root-Weavers. If you were to dig into the spongy mat, you would find them moving blindly through the decomposing pulp. They look like thick, segmented cables of pure black rubber, though they are entirely organic—a highly specialized fungus entirely hybridized with the rubberized casings of ancient electrical lines. They have no limbs, undulating like earthworms, but their mouths are a halo of microscopic copper filaments. They seek out severed wires, broken connections, and frayed root-systems, splicing them back together. They pass raw voltage through their own bodies, stitching the power grid of the earth back into a seamless whole wherever it is disrupted.
+
+Death in this caldera is unlike death anywhere else. When a heavy tender exhausts its hydraulic pressure or sustains too much structural damage from a flywheel's sheer torque, it does not rot. It simply ceases to move. It finds a place near the warm exhaust manifolds, kneels, and locks its joints. The sticky sap that coats its body hardens perfectly, turning into a petrified, translucent amber. The velvet moss calcifies. It becomes an inert statue of glass, wood, and iron. Eventually, the floor rises to swallow it, turning its hardened husk into foundational scaffolding for the next generation of engines and roots.
+
+There is no fear here. No predation, no pain, no panic of fleeing prey. The entities of the grove communicate not through sound, but through shifts in voltage, changes in the chemical scent of crushed ferns and ozone, and through the slow, deep, seismic thumping of the great engine. 
+
+They are a phantom ecology. They live without breathing, bleed without blood, and think in the binary pulses of alternating current and the slow, creeping geometry of botany. Deep within the belly of the earth, shrouded in mist and petrichor, the children of the engine and the seed go about their work, perfectly content, tending to a heaven of their own making.

@@ -1,0 +1,21 @@
+# The Inhabitants of the Echoing Flats
+
+They call themselves the Resonants, though not with words. Their language is vibrational—patterns of interference they create within the omnipresent roar. To human senses, they are almost impossible to perceive directly. At first glance, you might mistake them for heat shimmer above the waterlogged plain or peculiar distortions in the relentless light.
+
+The Resonants exist as organized wave patterns within the constant sound of the Flats. Their "bodies" are not physical in the conventional sense but consist of carefully maintained standing waves—regions where the background roar is shaped, controlled, and given purpose. When they move, they do so by shifting these interference patterns across the plain, propagating themselves through the medium of sound itself.
+
+Their lifecycle is measured in oscillations rather than years. Young Resonants begin as simple patterns—perhaps just two or three harmonizing frequencies that gradually accumulate complexity. The elders among them are vast symphonies of sound, their consciousness distributed across intricate patterns that might span hundreds of meters of the Flats.
+
+The dome structures are their equivalent of architecture—resonance chambers they've shaped over countless generations by manipulating the minerals of the ground through subtle, persistent vibration. Each hole is precisely positioned to create specific tones when the constant roar passes through them. A dome might be a dwelling, a nursery for new patterns, or a repository of communal memory stored as standing waves.
+
+The Resonants feed on energy rather than matter. The crystalline plants serve as transducers, converting the relentless light into vibrational energy that sustains the inhabitants. The relationship is symbiotic—the plants' molecular structure is maintained by specific frequencies the Resonants produce, preventing them from shattering under the constant noise.
+
+Their society is non-hierarchical but highly specialized. Some Resonants maintain the wet-dry balance of the plain, using their vibrational influence to control how water rises and falls. Others tend to the crystalline flora, producing the precise frequencies needed for their preservation. The most respected among them are the Pattern-Keepers, who embody the most ancient and complex vibrational sequences—their living archive of history and knowledge.
+
+They perceive time differently than corporeal beings. For the Resonants, past and present exist simultaneously as overlapping wave patterns. They don't remember history so much as they continuously resonate with it. The oldest patterns—vibrations that have been maintained for what might be millennia—contain impressions of events long past, accessible to those who can match their frequency perfectly.
+
+The Resonants are aware of visitors but find solid beings puzzling and somewhat pitiful—creatures trapped in fixed forms, unable to flow and merge with the fundamental vibrations of existence. They attempt communication by modulating the background roar into patterns that might be interpreted as meaning, but few visitors can distinguish these subtle changes from the overwhelming ambient sound.
+
+They have a form of art—complex vibrational compositions that travel across the Flats, reshaping the patterns of water pooling and light reflection as they pass. To witness a Resonant performance is to see the entire plain come alive—water dancing in synchronized patterns, light fracturing into impossible spectra, and if you could somehow process it, hear the roar separate into countless distinct voices working in perfect harmony.
+
+The Resonants do not fear death as we understand it. When their patterns finally destabilize beyond repair—usually after countless oscillations—they simply rejoin the background roar of the Flats, their frequencies becoming part of the constant sound from which new Resonants will eventually emerge. They do not end so much as dissolve back into the medium that birthed them, contributing their complexity to the eternal chorus.

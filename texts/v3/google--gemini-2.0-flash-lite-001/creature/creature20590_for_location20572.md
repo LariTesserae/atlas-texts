@@ -1,0 +1,17 @@
+It is the *Weavers* who dwell here, or perhaps "inhabit," is a more accurate descriptor. They are not creatures of flesh and bone, not in the traditional sense. Their bodies are extensions of the valley itself, the ultimate synthesis of plant and metal. They are a kind of consciousness woven into the very fabric of the landscape.
+
+To see them directly is rare, a fleeting glimpse at the periphery – the flash of crystalline insect-forms that flicker and disappear. But that is only the surface, the visible manifestation of a deeper, more profound presence. The Weavers *are* the hum, the pulse, the slow thrum of the unseen engines. They are the invisible engineers of this impossible ecology. 
+
+They are, in essence, the gears that turn within the clockworks. Each Weaver is a node, a sentient point within a vast, interconnected network. They are less individuals and more aspects of a collective consciousness. Their thought-processes are not what a human mind would recognize as thought. It is more akin to the slow, relentless growth of a plant, the relentless accumulation of information and resources.
+
+Perhaps they were once flesh, the architects of the metallic structures that are now so deeply entangled with the plant matter. Perhaps they were the first colonists in this valley, the ones who seeded that first metal engine, intended to terraform this inhospitable place. Or, perhaps, they are something altogether alien, born from the unique intersection of plant and metal, a consciousness formed from the slow, inexorable process of decay and growth.
+
+They speak through the landscape. The movement of the plant-matter, the subtle shifts in the metal structures, the very condensation in the air – all these are the Weavers' words, their endless conversation. They "see" through this same medium, through the interplay of light and shadow, the constant dance of the plant-matter and its metallic counterparts. What they are looking for, what they are trying to achieve, is obscure. There is no clear goal, no manifest purpose. The Weavers simply *are*, immersed in the unending process of Becoming.
+
+They are not always benign. The turbulence that defines this world is not random; it is the product of their ceaseless experiments, their attempts to refine and perfect the union of plant and metal. The crystal insects, for example, might be probes, the Weavers' equivalent of the eyes of a great, indifferent god. They are constantly surveying, testing the composition of this world, making calculations that are beyond human understanding. 
+
+More often than not, the Weavers are oblivious. They are simply too vast, too deeply rooted in their ecosystem, to notice a single living thing. Humans or anything comparable would be, in the grand scheme of things, like dust motes in a typhoon, quickly swept away.
+
+Should they ever perceive you, though, it would be a curious thing. They would be less interested in your presence than in the information you provide, the new possibilities that your existence introduces. They might try to incorporate you into the tapestry, use you to refine the process, just as they might with a particular type of rock or metallic element. The valley would begin to shape you, to draw you into its unending flux, to turn you into a node within their immense, incomprehensible network.
+
+The valley *is* the Weavers' body; and in that body, is a single mind. It doesn't want anything. It just *is*.

@@ -1,0 +1,42 @@
+Who—or what—claims this engine-chapel as home?  
+The answer arrives in strata, the way mineral veins reveal themselves only after you have stared long enough for your eyes to recalibrate. Nothing here strides in on paws or wings. The inhabitants are intimate with the pipes, shrouded by steam, and most would perish an hour after you carried them into ordinary daylight.
+
+1. The Film-Colony (first life)  
+Before anything else took hold, a single archaeal mat spread over the obsidian. A chemotroph, it dines on sulfides sifted from the trickling vents. The sodium lamps are too pallid to power photosynthesis, but the colony does not need them; it runs on redox gradients the way surface plants run on sunlight.  
+Over decades the mat folded inward on itself, layering into a living gasket only molecules thick. Each pulse of dripping water fractures it microscopically, and each fracture seeds a daughter sheet. From a balcony you cannot see the organism—you see only wet stone that glints like oil. Yet if every lamp failed at once, the mat would bloom with ion-activated phosphors, a deep marine turquoise bright enough to map the floor by. The engineers know this and let bulbs die slowly; the film is the emergency lighting.
+
+2. The Lichen-Ladders (second life)  
+The stringy green you pass on the anorthite seams is not, in fact, a lichen. True lichens are marriages of fungus and algae; these filaments are a triple union: fungus, archaeal symbiont stolen from the floor mat, and a bacterium that hoards trace copper. From the copper it assembles nano-antennas that resonate with the hum of the condensers overhead. That resonance, minute but constant, vibrates nutrients upward against gravity, allowing the ladder to climb the wall millimeter by millimeter.  
+Touch one and you will feel it tremble—not with fear, but with the low acoustic note of the machinery it has tuned itself to. Break a strand and the whole ladder will slacken for a week, retuning, then tighten again.
+
+3. The Drip-Vines (third life)  
+The single vine dangling from the ceiling is only a visible siphon of a much larger thing. Threadlike roots—more nerve than root—rove inside the copper pans, sipping condensate before it ever has a chance to fall. The plant is translucent because it disdains pigments; pigments trap heat. Instead its leaves are corrugated to vent warmth as micro-whirlpools that glitter and disappear.  
+Once a season, when the pumps idle for scheduled service, the vine retracts, knotting itself into cabling as thick as a wrist. It then lowers a single seed-capsule the color of burnished brass, which hangs for an hour, gauges the humidity, and either retracts (aborting the attempt) or drops, hoping to smash on the obsidian and spatter embryos into the cracks. Most years the capsule never lets go; this is how the species remembers volcanic droughts. Only one year in ten does it gamble.
+
+4. The Sluice Crabs (first animals, if you’re generous)  
+Peer through a floor grate during the brief downpours and you might glimpse a jointed, copper-green flicker. Sluice crabs are the size of shirt buttons, their shells grown from precipitated malachite. They live entirely in the runoff labyrinth, fanning gill-plates to harvest the oxygen dissolved in warm water. Heat is an irritant; when the temperature surges they swarm toward cooler drains, clattering like spent coins.  
+They feed on flakes of colony film shaved loose by the falling water. Because the film glows when lamps fail, the crabs navigate by brightness—seeking dark equals seeking food. On maintenance days an engineer’s flood-lamp sends them into frenzied retreat; within minutes they reassemble in the shade of the worker’s boots, oblivious to the danger the boots present.
+
+5. The Resonance-Wasps (second animals, unquestionably strange)  
+They have no wings. Instead, each wasp is a hollow spindle of keratin laced with bio-graphene, grown inside a lichen tube and released when air currents slacken. A wasp anchors itself against a pipe using silica hooks, then vibrates—sub-audibly, precisely—until the pipe wall hums in sympathy. The vibration loosens mineral grit; the wasp ingests the slurry and extrudes more spindle.  
+Colonies distribute tasks by pitch: low notes are builders, high notes are scouts. Every few weeks a choir of high-note wasps synchronizes and the combined resonance flicks a breaker somewhere on the far wall. That breaker’s stutter is how the wasps measure seasonality; to them, electricity is weather.
+
+6. The Copper Hermit (third animal, almost person)  
+Only one has been verified, glimpsed on security feeds at 03:11 three Januaries ago. Height roughly 140 centimeters, torso plated with overlapping shards of recycled drip-pans, joints wrapped in the ghost of fireproof cloth. The Hermit walks like a hinge that has learned regret.  
+No one forged it; it accreted. Over the years abandoned tools disappeared, the bronze condensers lost screws, a dozen thermometers never came back from calibration rounds. Out of these crumbs the Hermit assembled a body, then clothed that body in galvanic paint stolen from instrument housings.  
+It does maintenance in negative: where humans tighten, it loosens; where they install, it harvests. Yet the chamber has not collapsed, which implies a purpose deeper than sabotage. Some theorize it is pruning redundancy, keeping the biomechanical whole from choking on its own excess. The lichen ladders never grow where the Hermit patrols, suggesting a pact between metal and chlorophyll.  
+No directive has been issued to capture it. Officially it does not exist; unofficially, engineers leave a fresh pair of insulated gloves on an access rail each solstice. By morning the gloves are gone, the breaker panels freshly polished.
+
+7. The Engineers (people, but adapted)  
+They arrive singly, quarterly, by the same rattling elevator you used, wearing coolant-lined suits and carrying field tablets blistered by heat. They never stay longer than twelve hours. Their rituals are curt:  
+• Step onto a catwalk.  
+• Consult the last visit’s graffiti of thermal data.  
+• Listen: valves have dialects; a fluent ear detects stroke lengthening, gaskets hardening.  
+• Replace what fails. Ignore what merely mutinies—a vibrating wasp nest, a missing wrench. Those quirks are part of the room’s metabolism.  
+Every engineer keeps two private logs: one for the institute, precise and sober; one for themselves, filled with hunches about the Hermit, sketches of vine seeds that never fell, whispers that the breakers speak. When the condenser chorus lapses into silence, they do not panic. They kneel, remove a glove, lay a bare palm on the obsidian, and wait. If the stone quivers (it often does) the silence is only the system catching its breath. If the stone is still, they stand and run.
+
+8. The Ghost Current (unbodied resident)  
+When you killed your headlamp to test the emergency phosphorescence, you felt hair lift on your forearms though no breeze stirred. That was the Ghost Current: an electromagnetic eddy born from crossing power lines, caged in basalt but sentient the way a flame is sentient—hungry, reaching.  
+It maps every body by bioelectric signature. Humans are erratic lightning rods; the Hermit is a calm, continuous hum; the drip-vine is a flickering ladder of charge. The Current nudges condensers to stall so more steam ionizes, so its world fattens. Too much greed triggers safety relays, throttling voltage, thinning the Current again. This push-and-pull is the chamber’s pulse that keeps dead instruments ticking, that teaches lichen to resonate, that perhaps first whispered to scrap metal and birthed the Hermit.
+
+What lives here, then, is a stack of improvisations: chemistry that learned to glow, fungus that learned to listen, water that learned to crawl in copper shells, metal that learned to walk, humans that learned to treat a furnace like a terrarium, and a field of invisible charge that learned—just barely—to dream. None could survive alone. Together they form a colony the size of a modest cathedral, sunken in volcanic glass, breathing sulfur and sodium light, waiting for the next drip, the next fracture, the next idea of life.

@@ -1,0 +1,7 @@
+In this dimly lit, below-surface world, life thrives in the form of countless small creatures. Insects with iridescent shells and delicate wings dance through the thick air, while tiny mammals with large ears and sensitive whiskers navigate the dense undergrowth. Some species have developed symbiotic relationships with specific plant species, feeding on their nectar or using their structures for shelter.
+
+Other inhabitants of the world include the slower-moving arachnids and worms, some of which have grown to remarkable size given the environment. Blind insects crawl and sense through the dense layers of vegetation, and others have honed the ability to run fast and accurate through the small topographical variations. Each of the possible species present in this area has developed and evolved characteristics that allow it to survive in this unique environment.
+
+The lush plant life of this ecosystem, despite the heat, supports a number of what in other worlds would be considered living underground, ranging in size from smaller more temperate species to sometimes enormous fungi. These food sources of these species differ in this location, but can present a different food items for other organisms.
+
+Further away from the sheltered places in parts of the environment, larger species also exist in this world. The diverse nutrient flows provide food sources for larger grazing and hunting species. Few are specialized predators and picked up the special talents available to dominate this world.

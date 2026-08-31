@@ -1,0 +1,27 @@
+# The People of Vryll
+
+The Vryllians are neither tall nor short, but appear so due to their perpetual motion. They seem to stretch when reaching across terraces to harvest sky-berries, and contract as they weave through narrow pathways between dwellings. Their bodies have adapted to vertical living—strong, flexible limbs with remarkable grip strength and balance that outsiders find impossible to match.
+
+Their skin varies from warm amber to deep bronze, often adorned with temporary pigments derived from plants and minerals that form intricate patterns mimicking the flow of water down the mountainside. These markings serve as practical communication—denoting which communal tasks a person is responsible for that day—but also as expressions of personal relationships and moods.
+
+Vryllian hair grows thick and fast in the humid environment, typically worn in practical braids interwoven with useful items: bone needles, seed pods, small tools, and messaging tokens. Nothing is purely decorative; everything serves multiple purposes. Even their clothing consists of quick-drying plant fibers arranged in layers that can be adjusted as they move between the cooler upper terraces and the warmer lower levels.
+
+Most striking are their eyes—unusually large and expressive, with expanded peripheral vision adapted to navigate their three-dimensional home without falling. Vryllians rarely make direct eye contact with each other, instead watching movements from the corner of their vision while their attention seems directed elsewhere—a habit outsiders find disconcerting.
+
+Their hands tell the story of their lives—nimble fingers slightly elongated with calluses in unusual places from manipulating irrigation systems and weaving plant matter. Each Vryllian keeps one fingernail on each hand grown long and reinforced with resin, used as an all-purpose tool for harvesting, scoring bamboo, and untying knots.
+
+The Vryllians have no concept of private ownership beyond personal tools and ritual objects. They think in terms of stewardship rather than possession—one might be responsible for tending a particular fruit vine or maintaining a section of aqueduct, but the produce and water belong to all. This extends to child-rearing; while biological parentage is acknowledged, children belong to the entire community, raised by whoever is best positioned to teach them needed skills.
+
+Their social structure defies simple hierarchies. Leadership shifts based on necessity—the best irrigator leads water projects, the most knowledgeable plant tender guides cultivation decisions. Status comes from contribution, not accumulation. The eldest are valued for institutional memory, particularly regarding weather patterns and crop cycles, but no one rules through age alone.
+
+Communication happens on multiple levels simultaneously. Their whistled language contains at least forty distinct sounds, each with four tonal variations, allowing for complex conversations that blend seamlessly with bird calls. But equally important is their physical language—subtle hand positions, body orientation, and rhythmic movements convey information about current tasks, emotional states, and social bonds.
+
+The Vryllians practice a spirituality centered on flow and transformation. They see divinity in the cycle of water—from mountain spring to mist to rain—and model their lives on this perpetual movement. Their rituals involve directing water through temporary channels created with their bodies, allowing it to "read" their intentions before absorbing those intentions and carrying them back to the mountain.
+
+They mark time not by fixed calendars but by ecological events: the blooming of certain flowers, the arrival of migratory birds, the seasonal changes in water flow from the mountain springs. Each Vryllian's age is counted in "flowings"—the number of times they have witnessed the great spring surge when the winter melt causes the mountain waters to reach their peak.
+
+Disease is rare among them due to their diet rich in medicinal plants and the natural quarantine provided by their isolated location. When illness does occur, they treat it as an imbalance in the body's waters, using steam treatments and carefully formulated herbal infusions. Their healers are recognized by a distinctive double braid worn close to the face, incorporating red berries that leave their fingers perpetually stained.
+
+Visitors note that Vryllians rarely seem to sleep in the conventional sense. Instead, they take brief rest periods throughout the day, entering a meditative state while perched in seemingly precarious positions. This polyphasic sleep pattern allows the settlement to function continuously, with someone always awake to tend the critical irrigation systems.
+
+Perhaps most remarkable is their adaptability. When landslides occasionally destroy sections of the settlement, the Vryllians respond not with mourning but with immediate repurposing—salvaging materials, redirecting water, replanting. They understand their existence as temporary and renewable, just like the platforms they inhabit. In Vryll, destruction is merely a stage of creation, and the people embody this philosophy in everything they do.

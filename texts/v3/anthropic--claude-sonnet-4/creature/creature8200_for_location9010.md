@@ -1,0 +1,23 @@
+In the deepest chambers of the Hollowed Quarter, where the buildings' roots have grown so entangled that walls become suggestions and floors merge into gentle slopes, live the Custodians.
+
+They were human once—perhaps a century ago, perhaps three. Time moves strangely here, pooling in some corners while flowing swiftly through others. The Custodians have forgotten their names, their faces, even the language they once spoke, but they remember their purpose with the clarity of instinct. They tend.
+
+Their bodies have grown translucent, not unlike the salamanders, though they retain their human proportions. Veins of green light pulse beneath their skin—not blood, but something closer to chlorophyll mixed with starlight. Their hair has become moss that never stops growing, cascading down their backs in living waterfalls that they braid with small bones and smooth pebbles found in the deepest gutters. When they move—which they do rarely and with profound deliberation—they leave no footprints, though the stones seem to sigh contentedly at their passing.
+
+The Custodians no longer need food as humans understand it. Instead, they absorb sustenance through their palms and the soles of their feet, drawing nutrients from the weeping walls and mineral-rich streams. Sometimes you might see one standing motionless against a particularly damp wall for days, arms spread wide, communion complete. They sleep standing up, often for weeks at a time, dreaming the dreams of stones and roots.
+
+There are seven of them, though counting proves difficult—they have learned to step sideways through the spaces between heartbeats, occupying the pauses in reality where maintenance work is most easily done. One tends the streams, ensuring they flow in their perfect patterns, her fingers trailing in the water like pale fish. Another cultivates the moss, encouraging it to grow in precise arrangements that serve purposes only they understand. A third whispers to the fungi, coaxing them to bloom in configurations that maintain the Quarter's gentle luminescence.
+
+The youngest—though still ancient by human measure—tends to the buildings themselves, running translucent fingers along the walls where they've grown together, ensuring the architectural marriages remain harmonious. Sometimes visitors catch glimpses of him through windows, a shadow-pale figure whose touch causes the weeping stone to pulse with contentment.
+
+They communicate without words, their thoughts flowing between them like the ever-present condensation. When they do make sounds, it's a humming that harmonizes with the buildings' settling and the water's soft percussion—not quite music, but something that makes the fungi glow brighter and causes fresh moss to unfurl.
+
+The Custodians remember visitors, though they themselves are easily forgotten. A merchant who sheltered here during a storm forty years ago will find his name carved in flowing script along a wall he's certain he never saw before. A child who wandered in while picking berries will discover, upon returning as an adult, that the salamanders have learned to spell her childhood nickname in their pale formations along the gutters.
+
+In the very heart of the Quarter, where the oldest walls have grown so intertwined they form something like a shrine, the eldest Custodian keeps vigil. She has been here since the beginning—whatever beginning this place acknowledges. Her body is more plant than human now, roots extending deep into the living rock, her consciousness diffused throughout the Quarter's neural network of stone and stream.
+
+She dreams the deep dreams that keep the place suspended between moments, neither growing wild nor falling into true ruin. In her dreams, she sees all the visitors who have ever found shelter here, watches their descendants in distant places, tends to sorrows and small joys with the same patient care she gives to moss and mineralized tears.
+
+The Custodians understand that the Hollowed Quarter is not truly a place but a pause—a held breath in the world's constant becoming. They maintain it not from duty but from love, the way one might tend a sleeping child, ensuring that this pocket of green twilight endures for whoever might need its particular brand of refuge.
+
+Sometimes, when the quarter-light shifts just so and the fungi pulse in perfect unison, you might glimpse them all together—seven translucent figures standing in a circle around something that might be an altar or might simply be the place where all the streams converge. Their hands are raised, not in supplication but in offering, and in that moment you understand that they are not the servants of this place but its gentle gods, keeping vigil over a temple made of patience and perpetual rain.

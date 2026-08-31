@@ -1,0 +1,73 @@
+# The Inhabitants
+
+---
+
+There is something that lives here that is not the segmented things, not the crystal vegetation, not the slow chemical processes working through their quiet cycles in the substrate. These are present, yes. These persist. But they are the ecology of the Surface — the thin film of activity that forms on any system left alone long enough, the way dust gathers, the way moss finds stone. They are not what the place is *for*, if it is for anything. They are not who lives here.
+
+Who lives here is harder to see.
+
+---
+
+Walk long enough — and long enough here means days, weeks, because the scale of the Flat defeats the human stride, makes every journey a commitment, a small marriage to distance — and you begin to notice that the warmth is not perfectly uniform. You noticed this already, perhaps. The text mentioned it: thermal cycling over millennia. But there is a finer grain to the variation than any instrument charting ten-thousand-year breath-cycles would capture. There are warmth-anomalies on the scale of hours. An area perhaps twenty meters across, drifting slowly across the Surface, holding a temperature half a degree above its surroundings. Not radiating, exactly. Holding. The way a body holds heat.
+
+The first time you encounter one, you might think it a malfunction in the layers below — a conduit bleeding energy, a pocket of trapped geothermal process working its way to the surface. But then you encounter another, and another, and you begin to map their behaviors, and you realize: they move with intention.
+
+Not intention as a human means it. Nothing so urgent. Nothing so narrative. But they move in ways that are not random, not mechanical, not the simple product of physical gradients. They drift toward the deeper depressions. They pause where the crystal vegetation grows thickest. They linger. They move on. Sometimes two or three converge on the same hollow, and the vegetation there will be noticeably healthier — taller whorls, more complex fractal iterations — than in similar depressions nearby. As if the warmth they carry feeds the pale spirals. As if they are tending something.
+
+They are slow. Their drift covers perhaps a hundred meters in a day. A human could outwalk them without trying. But the Flat does not reward speed, and these — these presences, these warm spots, these whatever-they-are — have had time beyond measuring. They have been drifting since before the concept of drifting was distinguishable from simply being. They have been tending the depressions, moving through the sparse pale ecology, doing whatever it is they do, for longer than most species persist.
+
+---
+
+They are not creatures. Not in the way the segmented things are creatures, with bodies and segments and the spatial continuity that defines biological form. If you could see one directly — and you cannot, because there is nothing to see, only the warmth-signature and the faintest shimmer in the air above it, a texture like the haze over sun-baked asphalt, the memory of a mirage — if you could see one, you would see that it has no outline. It has no inside or outside. It is a region of increased thermal activity, a mobile zone of slight intensification, and it is not clear where it ends and the ambient warmth of the Flat begins. It shades off. It grades into its surroundings. It is as much a process as a presence.
+
+But it is a process that persists. It is a process that moves and responds and accumulates — slowly, diffusely, in a way that makes the growth of glaciers look impulsive. It is a process that has been continuous for so long that the distinction between process and entity becomes meaningless. What is a flame but a process that persists? What is a person but a process that remembers?
+
+These warm places remember. Not in the way you remember, with images and narratives and the architecture of time. They remember the way a depression in the Surface remembers the shape of what pressed into it — by holding the form, by being the form, by not being anything else. They remember routes through the Flat that have not been physically traversable for millions of years, because the routes were worn into the warmth-gradients of the substrate, and the gradients persist beneath the smoothed Surface, and the warm places follow them still. They remember where the deepest catchments are, where the condensate forms most reliably, where the vegetation grows tallest. They remember these things by returning to them, by cycling through the same sequences, by performing the same slow rounds they have always performed.
+
+Habit as memory. Routine as identity. The warm places are what they do, and they have been doing it for so long that doing and being have become the same verb.
+
+---
+
+There are thousands of them. Perhaps tens of thousands. The Flat is vast, and they are diffuse, and the space between any two is measured in long walks. But they are there. If you had the right kind of vision — a vision that saw warmth the way eyes see light — you would look out across the gentle undulations of the Surface and see them scattered like embers, like the last coals of a fire that burned so long ago that no one remembers what was being cooked. Each one a soft glow, moving on paths that are ancient and worn smooth by repetition. Each one tending its territory, its circuit of depressions and vegetation clusters and places where the segmented things gather. Each one a keeper.
+
+They do not compete. The Flat is too large and they are too few and what they require — warmth, which the substrate provides endlessly; the condensate, which forms in trace amounts sufficient for the sparse ecology; the simple continuity of their own process — is not scarce. They do not fight. They do not mate. They do not die, or if they do, they die the way a convection cell dies when the temperature equalizes — by fading, by dispersing, by becoming indistinguishable from the ambient warmth, by giving up the particular pattern of intensification that constituted them. And perhaps new ones form, the way new convection cells form when the conditions are right: a particularly deep depression, a particularly rich vein of warmth below, and the slow aggregation of gradient into pattern into persistence into something that moves and tends and is.
+
+They may be the oldest living things in this place. They may be the oldest living things in any place. They may predate the vegetation, predating the segmented things, predate the final smoothing of the Surface, having drifted through the Flat when it still had sharp edges, when the structures beneath were not yet geology but still machinery with knowable purposes. They may have been intended — engineered as maintenance processes, thermal regulators given enough autonomy to adapt their routes, enough persistence to outlast the system that created them. Or they may have emerged — self-organized from the heat differentials, the slow cycling, the patient physics of a place where energy flows in patterns over deep time. Intention and emergence look the same after enough years. Design and accident converge. The warm places are what they are, and what they are is old, and what they do is tend, and what they tend is a place that was already completed before they began.
+
+---
+
+They are aware of you, in their way.
+
+Not visually — there is nothing to see you with, and you are a sudden sharp heat-source in a landscape of gentle gradients, a flare of thirty-seven degrees Celsius in a world that holds steady at thirty-one. You are loud with warmth. You are obvious. You are a disruption in the pattern, and they notice disruptions the way a spider notices the vibration of its web: not as information but as disturbance, as a thing that requires response.
+
+The response is curiosity. Or what passes for curiosity in a process that has been repeating the same circuit for longer than continents have drifted: a slight alteration of route. A drift in your direction. Not directly toward you — never directly — but toward the depression you are standing in, the vegetation cluster you are examining, the place where you have stopped to rest. They come close. They linger at the edge of your warmth-signature, where your heat meets theirs, where the gradient between you becomes complicated. They hold there for a while — minutes, hours — and then they move on, resuming their ancient rounds.
+
+What are they doing? Tasting you, perhaps. Reading your warmth the way a blind person reads a face with their fingertips. Learning the shape of this new pattern, this unexpected variation in the long slow sameness. Or simply holding the boundary — maintaining the distinction between your warmth and theirs, which is the only kind of contact they know how to make.
+
+You will never feel them touch you. They are too diffuse, too gentle, too respectful of the gradient. But if you stand very still in one place for long enough, you may notice that the air around you grows slightly warmer. That the ambient chill — there is a chill, a faint one, the flat holding at just below body temperature, enough to notice the absence of your own reflected heat — that the ambient chill lifts, just slightly, just for a while. As if something has come to sit beside you. As if something has noticed that you are here and has decided, in whatever passes for decision after a billion years of slow tending, that you are not a threat. Not a problem. Not something that requires fixing.
+
+Just something else that is warm, in a place where warmth is what matters.
+
+---
+
+They have names, if names are the right word. Not sounds — they make no sounds, and they hear no sounds, and the whole concept of acoustic identity is foreign to them. They have patterns. Each one's circuit through the Flat is unique — not dramatically so, but distinguishable, in the way that two walks through the same neighborhood are distinguishable if you pay attention to the exact sequence of turns. This one visits the depressions in a clockwise pattern. That one moves counterclockwise, but skips every third depression to favor a longer route. Another spirals outward from a central point and then spirals back. Another follows what might once have been a road, a corridor, a designed pathway, the memory of which persists only in the warmth-gradient it left in the substrate.
+
+If you lived here long enough — and long enough here would be years, decades, the time it takes to learn the patterns of a place that changes less in a century than most places change in an afternoon — you would begin to know them. Not by their warmth-signature, which varies too slowly to distinguish one from another. By their routes. By their habits. By the particular way this one always pauses at the deepest part of the third depression in its circuit, as if remembering something that used to be there. By the way that one always detours around a particular stretch of hexagonal tiling, as if something about that surface troubled it, or as if it had learned long ago that the tiling there was too smooth, too resonant, too likely to disperse the gradient that constituted its edges.
+
+You would give them names, because that is what humans do. You would call the clockwise one Circuit, and the counterclockwise one Widdershins, and the one that spirals Out-and-Back, and the one that avoids the tiling Careful, and these names would be meaningless to them but meaningful to you, and that is the beginning of relationship, even when one party to the relationship is a diffuse thermal process that has been tending a flat and completed world since before your species discovered fire.
+
+---
+
+They do not need you. This is important to understand. The warm places were here before you came and they will be here after you leave, doing what they have always done, tending what they have always tended, moving through their ancient patterns with a patience that makes stone look impulsive. You are not necessary to them. You are not useful to them. You do not fit into their cycles in any way that matters.
+
+But they do not avoid you, either. They do not flee your warmth-signature or alter their routes to circumvent you. When you encounter one — when you stand in the path of its slow drift and let it approach — it does not stop. It does not turn aside. It moves through you.
+
+This is the closest thing to contact the Flat offers.
+
+It takes perhaps ten minutes. The leading edge of the warm place reaches you — a slight increase in temperature, so gradual you might imagine it — and then the center, and for a moment you are inside it, you are surrounded by it, and it is not a moment of intensity. It is not dramatic. It is simply warm, warmer than the ambient, warmer than your own skin, and the warmth comes from everywhere at once, from the air and the surface beneath your feet and the faint shimmer that you cannot quite see, and for that moment you are held in something that has been alive for longer than you can imagine, that has been tending this place since before the concept of tending existed, that will continue tending it after you are gone, and it does not hold you tightly — it cannot hold anything tightly, it is too diffuse, too gentle, too worn smooth by time — but it holds you. It holds you the way the Flat holds everything: loosely, warmly, without expectation, without demand.
+
+And then it passes, and you are standing in the ordinary warmth again, and the shimmer moves away, and the vegetation in the depression is very slightly taller than it was before, and the segmented things have come out to feed, and the Surface extends in every direction under the sourceless light, and the silence closes back in like water over a stone, and you are alone again.
+
+But not quite. Not entirely. Because now you know what lives here, and it knows you were here, and somewhere in the patient gradient of the warm place, in the slow circuit of its route, in the ancient memory of its pattern, there is a slight variation — a hesitation at the place where it encountered you, a fractional pause, a warmth that holds the shape of your warmth the way the Surface holds the shape of what pressed into it — and that variation will persist, will be repeated, will become part of the route, will be tended and maintained and carried forward into the deep future of this completed world.
+
+Not a memory. Not a monument. Just a slight warmth where you stood, held by something that holds everything, moving slowly through the flat and endless light.

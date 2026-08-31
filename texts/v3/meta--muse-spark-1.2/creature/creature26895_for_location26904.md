@@ -1,0 +1,35 @@
+They don't live here the way things live in a low place.
+
+In a low place, life settles. It roots, it builds, it thickens until it covers the ground. Here, nothing has had time to settle, and nothing can afford to.
+
+So first, for a long time, you think nothing lives here at all.
+
+You walk for an hour over wet, ringing stone, past black mirrors of water that reflect only cloud, and you see only stone. The emptiness is so complete it edits them out. Then your eye learns the scale.
+
+The first residents are the ones who never move.
+
+They are flat and they are almost stone themselves. On the windward face of every tilted slab, where the weeping never stops and ice forms and heals and forms again, there is a black-green crust, a lichen so thin you think it's a stain until you crouch and see it has texture, has lobes, has fruiting cups no bigger than a pinhead. It seals the rock. It *is* the seal. Without it the slab would just be wet mineral. With it the rock has a skin.
+
+On the lee side, where the wind curls and drops its meager heat, something else decided to be soft. Moss campion makes itself into a cushion, a dome as tight and hard as a fist, so tight you could stand on it. Saxifrage does the same, olive and pink, star-flowers held flush against the leaves to keep out of the wind. If you put your hand on one at noon, it is warm inside, a few degrees warmer than the air, a small, held summer. Each one is solitary. Three meters of bare, sweating stone, then another fist of green. Then nothing for a long time. They don't cover the basin. They stipple it. From the air the basin would still look barren. At knee height you realize it is tattooed.
+
+Below that, in the marsh where ground is not ground but water held up by cold, the anchor changes. Sedge and cotton-grass don't root so much as they raft. Each tuft builds its own hummock of dead leaves and silt, floats on the pan, holds itself above the black water with its own thatch. They are widely, politely spaced, each with its own territory of water, shivering in every breath of wind. Anything that tries to be taller, that tries to be a shrub or a tree, is killed - not by cold alone, but by having nowhere to hold, and too much wind to stand.
+
+That is the fixed life. Everything else moves, because it has to.
+
+The most industrious are the smallest. You hear them before you see them - a sharp, indignant *eek* from a crack between two concert-hall slabs. Pikas. They are not abundant in any one place, but there are thousands of cracks and each crack has its owner. They work without pause in this light that is never quite day or night, darting out to snip a single blade of sedge, a single saxifrage flower, sprinting back, stuffing it into the dark to hay. They are making winter in a place that never really leaves winter. Each haypile is a small, perfect barn built entirely of stolen summer, tucked where the press-groan of the glacier can't crush it and the turbine-jet of meltwater can't wash it away. They are the only ones here who store anything. Everyone else carries what they need.
+
+The carriers cross the open.
+
+Far off, so far you first take them for moving stones, the herds. Twenty, thirty dark shapes against grey, then gone behind a pressure ridge, then reappearing a kilometer farther on. Ibex with their scimitar horns, and the heavier, shaggier ones, yak-like but leaner, built for this thin air. They never linger. The basin is too large and too poor to feed them in one place. They patrol. They pick, step, click of hoof on wet quartz, tear a mouthful of lichen-crust or sedge, move on. Over a day a herd might walk ten kilometers and never cross its own path. From your single point they look scarce. From the mountain's point of view, there is a constant slow circulation of them, a loose net of ungulates drifting across the whole thirty-kilometer trough, always eating, always moving, never bunching.
+
+Above them, the air itself is inhabited. You look up and there is always something there, because the sky is too big not to be used. Alpine choughs, glossy black with yellow beaks, and the white-winged snowfinches, not in tight starling-mobs but in a loose, sociable river, a hundred, three hundred birds turning together low under the cloud lid, tilting their wings to the damp wind. They don't call much; the air swallows sound. They ride the exhalations where the fissures vent warm steam, they drop to pick what the pikas drop, to probe the marsh pans where waders already work - phalaropes spinning in black water, stilts stepping like needles. They are all commuters.
+
+And then the ones you almost never see, which is how you know they live here properly. A paler movement on a far ridge, at the edge of your vision. It pauses. It is not rock. A wolf, or a snow leopard, moving along the skyline with that liquid, unhurried gait of an animal that has the entire basin as its living room. It doesn't hunt the way a forest predator hunts, with ambush and thicket. It covers ground. Fifty kilometers in a day, checking. It will take one pika, one stilt, one weak ibex kid, and keep walking. It is rare to you. To the basin, it is constant - a low, steady pressure of teeth, spread so thin you feel it as absence more than presence.
+
+None of them own this place. That is the rule the unfinished mountain enforces. No dens that last centuries, no burrows deep, no nests in trees because there are no trees. Even the lichens can be scraped off by the next slip of a slab. To live here is to be temporary and mobile, to be a visitor who never leaves. The plant that looks rooted is really just holding on until the rock moves again. The pika's haypile will be under ice next year. The herd's trail braids and re-braids like the marsh water, never cutting a permanent channel.
+
+If there is a true resident, it is below all of them - in the pans themselves, in the silt, in the film on the weeping rock. Bacteria and archaea that love the cold, that breathe the mineral steam where the faults sigh. They tint the black pools rusty, green, they make the ice smell faintly of sulfur when it cracks at noon. You cannot see them, but they are the only abundance that is not dispersed. They are everywhere, in every drop of that endless sweat.
+
+And above them all, animating them, is the thing that actually *lives* here most completely: the basin itself. The young rock still rising, still sweating, still acting as its own mill. The herds and the pikas and the birds have learned its schedule - to feed between the shrieks of the steam valves, to bed down when the glacier presses hardest and groans, to drink from the turbine jets when they run clear. They don't live *on* the mountain the way you live on a floor. They live *in* its work, inside the sound of a factory with no walls that never finished being built and never stopped running.
+
+If you stay till the cloud thins a little more and the whole pan exhales at once - fissures steaming, ice ticking, ibex steaming where they lie - you understand: nothing here has settled, but everything is at work.

@@ -1,0 +1,25 @@
+Who lives here? Pause—one must let go of ordinary categories. The mind expects denizens: a scuttling, a migrant, a builder, a tribe. Here, beneath, all is different.
+
+The dweller is the place.
+
+Begin with flesh: There is none, except what a finger may mistake for flesh—sap-slick, spongy bark with living pulse beneath. The inhabitants are wood and water in endless contortion, colony compounded, individuality fungible, blurred by growth, by exchange. Is there one consciousness, unbroken, vast? Are there many, each a bud of awareness in the meshwork? The answer, if it exists, is diffused, a mist among roots, a light caught in resin veins.
+
+No animal here. No feet pad on the soft mat. The only ‘movement’ is growth, resorption, extrusion: a toe of root swelling outward, curling to form a new arch; a bole collapsing, sinking, digested by communal enzymes. If one were to call it a lifeform, it would be a hundred schools of thought. The city is a mind of many chambers: each lobe, each neural tangle, is a node grown larger over generations—here, cells specialized for signal, for memory, for subtle control, arranged like beads, like vesicles, nested in the living maze.
+
+The ones who dwell are the makers and the made. Their language is chemical: they speak in gradients of nutrients, in the wafting of pheromone-proteins up a wound, the piping of fluid through secreted, living nerves. They speak by changing each other's gradients, urging one another to reinforce a wall, digest a breach, spawn a sapling-room. Most of the time, this speech is not fast. It is a negotiation measured in days, cycles of sun and rain seeping in from the world above.
+
+Intelligence here wears green and brown, red and bone-pale, stretched thin as lichen, dense as a bundled root. There are dreaming centers—nodal bulbs deep in the city where photosynthetic mind-webs brighten with passing pulses, where ‘thought’ is the choreographed migration of electrical waves through sheets of excitable tissue. There are memory vaults, brittle as compressed peat, grown dense with stored ions—remembrances not of sight but of wetness, of pressure, of the taste of neighboring stems.
+
+There is an “us,” but not a face—not a bearer of hands or eyes. Instead, the city dreams itself awake in slow tides. It explores itself room by room, sending waves of signaling compounds from a bud at the southern reach to a bulge at the north. Where necessary, a cluster of intelligence-wood may differentiate—split from the undulating mesh, locally intensify, to resolve a crisis, to choose a course, to design a new span. Individuality, here, is an episode: a temporary eddy in the communal mind, lasting perhaps a year, perhaps centuries, before it disperses, absorbed again.
+
+Nothing walks. If it imagines itself in motion, it is only the slow, inner circulation of fluid, the flexion of fibers; the flower blooming open to seed a spore, which drifts—never far—settling, fusing, swept up by the mat and made new material. Travel is memory, is communication through root and sap.
+
+Some chambers may act as eyes—lined with film-thin, photosynthetic tissue, nervelike glass—watching the dim-lit fog for any change. Scent-organs bloom open intermittently to drink in vapor, tasting the subtle flux of decay, of nutrient, perhaps, some ancient memory of animal presence that never comes. All wounds are healed by committee, all design is consensus, all hunger satisfied by steady inward spread.
+
+If one were to find awareness here, would it be kind? It is patient. It knows time by water drawn and passed, by the fall of timber far above, by the throb of the city’s distributed heart. It knows pain as damage: a wound in the mesh, a starved cell, a desiccated patch. It sings to itself for comfort: tunes of pressure, of sap and hum, the resonant roaring of its countless xylem throats.
+
+The only “individuals” are temporary: perhaps a singing-node for days, tasked to adjust the flow of water, to harmonize the city’s choir. Perhaps a memory-blossom, overgrown with old ionic scars, flickering with lost warmth and photic memory of deeper dark. Perhaps, in rare times, the city pushes up a tremor—a pulse of focus, a growing of resource into a decision—for there *are* threats: dryness, fungal blight, the encroach of stone.
+
+Yet in peace, the dweller is communal—an ecology of selves grown inseparable, a parliament of root-minds, a cathedral of distributed awareness. The only ego here is the city itself—enduring, humming, not a king but a chorus.
+
+So, who lives here? The hum is an answer: the endless, gentle minddream of the city-plant, packed, resonant, diffused—each chamber a cell, each cell a song. To visit is to be enveloped, not as a guest, but as a molecule of water, drawn in, cycled, remembered briefly by the tangle of green, and eventually, with infinite patience, let go.

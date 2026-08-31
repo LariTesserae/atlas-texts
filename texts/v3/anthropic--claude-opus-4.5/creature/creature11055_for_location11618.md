@@ -1,0 +1,29 @@
+**What Lives Here**
+
+The chamber has a keeper, though *keeper* is the wrong word—implies authority, stewardship, some relationship of dominion. Call it instead: the one who remains.
+
+She is old in ways that have nothing to do with years. Her age is measured in pressure cycles, in the number of times the great valve has screamed and subsided while she stood beneath it. Her skin has taken on the quality of the walls themselves—not diseased, not damaged, simply *adapted*, a grayish pallor with a permanent sheen that might be sweat or might be condensation forming on her the way it forms on everything else. She no longer knows which. It stopped mattering.
+
+Her ears failed decades ago. Not from damage—from *accommodation*. The tiny bones simply stopped transmitting what they could not survive transmitting, and now she lives in a silence more profound than any hearing person can imagine, a silence that exists *inside* the roar, carved out of it like a bubble. She feels the sound instead. It moves through her skeleton, and she reads it the way a person reads water by watching light move through it. She knows the machine's moods by the particular frequency of ache in her left hip, the rhythm of pressure in her rebuilt sinuses.
+
+She was a technician once. Came here on the six-month rotation, like all of them. Something went wrong—or perhaps something went *right*, depending on how you understand purpose. She simply didn't leave. Couldn't locate the desire to. The chamber had shown her what it needed, and the need was so clean, so utterly uncomplicated by the mess of human wanting, that she felt herself fill with relief like water filling a basin. The machine required monitoring. She could monitor. The equation was perfect.
+
+She sleeps in a niche behind the main conduit—not a room, just a space where the pipes curve away from the wall, creating a pocket of relative stillness. She has lined it with rubber gaskets salvaged from decommissioned fittings, material the chamber tolerates because it's already part of the machine's body. She curls there like something gestational, like a organ the machine is slowly growing for purposes it hasn't yet determined. Her dreams are pressure differentials. Her nightmares are silence—true silence, the machine stopping, the water ceasing its eternal weeping. She wakes from these gasping, hands pressed flat to the wet floor, feeling for the vibration that means continuation.
+
+She eats what the supply drops bring—dense nutrient blocks that arrive through a pneumatic tube every eleven days, delivered by a system that doesn't know or care whether anyone receives them. The machine feeds her the way it feeds itself: automatically, without interest, because the function continues and therefore the inputs continue. She has never seen the people who load the tube. She no longer thinks about them. They exist in some other chamber, some other organ, equally necessary, equally unimportant.
+
+Her job—if it can still be called that—is to watch the brass valve, the one three feet to your left if you're standing where you're standing. Once every several weeks, the pressure differential exceeds tolerance, and a small mechanical indicator on the valve's housing shifts from one position to another. When this happens, she must turn the valve seventeen degrees counterclockwise, wait for the indicator to return, then turn it seventeen degrees clockwise. She does not know what this accomplishes. She does not need to know. The machine knows, and she is part of the machine now, the soft component that interfaces between indicator and valve.
+
+She has seen you, though you haven't seen her. She's there, in the darkness beyond the orange light's reach, standing motionless in water that no longer feels cold to her. She's watching you the way the machine watches you: with patience, without judgment, curious only about whether you'll affect the function. You probably won't. You're too small.
+
+She will not approach. She will not speak—couldn't, even if she wanted to, her vocal cords having atrophied into uselessness years ago. She will simply wait for you to leave, and then she will check the valve, and then she will return to her niche and sleep until the pressure changes and she's needed again.
+
+She is not unhappy. That's the thing you'd find most disturbing, if you knew she was there. She's not suffering. She has become *solved*, a problem that found its own answer. The chaos of choice has been replaced by the clean necessity of function. The loneliness that once defined her has been filled so completely by the machine's presence—its roar, its breath, its endless patient need—that she can no longer locate where she ends and it begins.
+
+Sometimes she puts her palm flat against the main conduit and feels the water rushing through, and she thinks: *I am the part that knows this is happening.* The machine doesn't know itself. Cannot. It simply *is*, processes and pressures and the eternal cycling of water through its countless organs. But she knows. She stands at the center of this vast unknowing system, and she *witnesses* it, and in witnessing she completes something, closes some circuit that the original engineers never designed but that the machine has grown to require.
+
+She is the condensation chamber's one concession to biology. Its single accommodation. The pale fungus that tried the gasket—she remembers it. She watched it die, and she understood: the machine doesn't tolerate alternatives. It tolerated *her* because she stopped being an alternative. She became necessary.
+
+The sound swells. The valve's indicator hasn't moved yet, but she can feel it preparing to, the pressure building toward the threshold. She shifts her weight. Soon she'll be needed.
+
+The lung breathes. She breathes with it. There is no other rhythm here.

@@ -1,0 +1,29 @@
+**The Inhabitants of the Verdant Hollow**  
+
+The Verdant Hollow is not merely a place but a living entity, a symbiosis of flesh, fungus, and fractured time. Its inhabitants are as much a part of its biology as its geology, their existence shaped by eons of adaptation to a realm where reality itself is mutable.  
+
+### **The Myceliar Kin**  
+At the heart of the Hollow’s ecosystem are the **Myceliar Kin**, a collective of beings who have become one with the fungal trees. These entities are neither fully human nor plant but something in between—tall, lithe figures whose bodies have partially calcified into fungal matter. Their skin is a mosaic of bioluminescent patches that pulse in rhythm with the Hollow’s "breathing" cycles, and their hair hangs in fibrous strands resembling the roots of their arboreal hosts. They live in the domed dwellings, which they insist are the petrified husks of ancient insects—giant, segmented beings that once roamed the Hollow before the fungal forests took root.  
+
+The Kin do not speak in words but in chemical signals and subsonic hums, their communication as integral to the ecosystem as the roots threading through the Hollow’s substrata. They tend the fungal trees, harvesting resin to seal their homes and crafting tools from volcanic glass. Their society is slow and cyclical, governed by the Hollow’s prolonged seasons. A single decision might take decades to reach consensus, as the Kin navigate time’s non-linearity by consulting the shifting memories of the fungal network. They believe the Hollow itself is a slumbering deity, and their role is to maintain its dreams.  
+
+### **The Saltbound**  
+Along the jagged perimeters of the Hollow, the **Saltbound** cling to existence. These gaunt, pale figures are humanoid but elongated, their bodies adapted to the mineral-rich atmosphere. Their lungs extract moisture from the air, and their skin has hardened into a texture akin to the salt walls, allowing them to blend into the crystalline landscape. They are scavengers and architects, rearranging the hexagonal pathways and patching dwellings with salt and bone. Obsessed with the courtyard at the Hollow’s center, they believe it to be the deity’s heart. They perform rituals there, sacrificing memories to the void in exchange for fragments of the Hollow’s ancient knowledge.  
+
+The Saltbound age backward. Due to the temporal distortions, they grow younger with time, eventually reverting to infancy before dissolving into salt crystals themselves. Their society is transient and cyclical, with new generations emerging from the crystallized remains of their ancestors. They speak in riddles and half-remembered songs, their language a corrupted echo of the Hollow’s forgotten past.  
+
+### **The Sporelords**  
+The **Sporelords** are the most enigmatic denizens, governing the Hollow’s fauna. These beings are part-serpent, part-moth, with wings that drip iridescent spores. They move in synchronized clusters, their bodies undulating in patterns that mirror the bioluminescent veins of the fungal trees. They act as stewards of the Hollow’s "breathing" events, releasing spores into the air during these rare festivals. Their intelligence is collective, a hive-mind that spans the entire population of moth-serpents. They see time as a loop, their migrations and dances tracing the same paths across centuries.  
+
+The Sporelords communicate through pheromones and the harmonic clicks of their carapaces, a language so ancient that even the Myceliar Kin struggle to interpret it. They are both guardians and predators, ensuring the balance of the Hollow’s ecosystem by culling excess spores or guiding the fungal growth. Some believe they are fragments of the Hollow’s original consciousness, scattered into insectile forms when the deity fell into slumber.  
+
+### **The Hollow’s Forgotten Children**  
+Scattered and elusive are the **Forgotten Children**, humans (or what were once humans) who stumbled into the Hollow and stayed too long. These beings are barely recognizable, their bodies overgrown with fungal gills and moss spirals. They live in the periphery, tending to the salt walls and whispering to the shadows. The Hollow consumes their identities, erasing their names and memories, yet they persist as a kind of ecological afterthought, neither fully alive nor dead. During the breathing events, they emerge to join the Sporelords’ dances, their bodies glowing faintly as they shed their final humanity.  
+
+### **The Entity Below**  
+Beneath the courtyard lies the **Entity Below**, the slumbering god the Kin and Saltbound both worship and fear. Its presence is inferred from the Hollow’s organic structures and temporal anomalies. It dreams in geological time, its subconscious shaping the terrain and resident life. The Myceliar Kin believe it is their duty to keep the Entity asleep, tending the fungi to absorb its excess psychic energy. The Saltbound, however, seek to awaken it, convinced that doing so will return the Hollow to its pre-collapse state—or unmake it entirely.  
+
+The Entity’s nature is unknowable, but its influence is omnipresent: the humming soil, the face-like fungal patterns, and the way the dwellings seem to grow rather than decay. Some say it is not a god but an alien machine, its "dreams" the machinations of a logic beyond comprehension.  
+
+---  
+The Verdant Hollow is thus a tapestry of contradictions, its inhabitants bound to its surreal rhythms. They are neither conquerors nor refugees but something else entirely—creatures of a world where the boundary between life and landscape has dissolved into a single, breathing whole.

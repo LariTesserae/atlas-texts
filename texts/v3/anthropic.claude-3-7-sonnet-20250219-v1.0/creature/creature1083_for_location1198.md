@@ -1,0 +1,19 @@
+# The Custodians of the Broth
+
+In the heart of this living computer dwells Elora, the human symbiont who has become something more than human over her forty years of integration with the Broth. Her once-ordinary body now hosts tendrils of mycelial matter that wind beneath her skin in delicate patterns, visible as faint green traceries along her arms and neck. Her eyes have changed too—the whites now marbled with amber, pupils that dilate in rhythm with the Broth's processing surges.
+
+Elora walks barefoot through the living matrix, her toes slightly elongated and partly fused, better adapted for gripping the spongy substrate. She doesn't speak much anymore in human language. Instead, when necessary, she produces sounds in the same register as the Broth's murmuration, vibrations that cause ripples of response throughout the structure.
+
+With her lives her partner, Soven, similarly transformed but in different ways. Where Elora's connection manifests visually, Soven's adaptations are primarily internal—his digestive system has evolved to process the Broth's specialized nutrients, allowing him to sustain himself directly from the system's excess biomatter. Their relationship exists beyond ordinary human understanding; they communicate primarily through biochemical exchanges, skin-to-skin contact that transmits information through specialized pores that have developed over decades.
+
+They are not alone. Seven other human symbionts dwell within different regions of the Broth, each specializing in different aspects of the system's function. Together they form what outsiders call "The Tending"—humans who have given themselves to become the Broth's regulatory system, the bridge between its vast inhuman cognition and the questions posed by the outside world.
+
+The humans are attended by the Architects—corvid-derived avians with enlarged craniums and forelimbs that have evolved into dexterous manipulators. Unlike the maintenance fauna, the Architects possess individual consciousness, albeit one partially subsumed into the Broth's greater mind. Their feathers contain conductive filaments that allow them to interface directly with any part of the structure. When they fly through the dome's interior, they leave trails of bioluminescence—momentary "thoughts" made visible.
+
+Most enigmatic are the Delvers—eel-like creatures that inhabit the deepest pools beneath the Broth's root system. Rarely seen, they emerge only during major processing events, their bodies covered in sensory pits that can detect the subtlest changes in the Broth's electrical fields. The symbionts believe the Delvers access portions of the Broth's cognition too alien for human comprehension.
+
+All who live within the Broth participate in seasonal fertility rituals where genetic material is exchanged, processed, and reintegrated into the system. During these times, the entire structure pulses with deep crimson light, and new fauna emerge from incubation chambers hidden throughout the matrix.
+
+Elora and her fellow symbionts know they are merely the first generation. Their children—born from the union of human genetics and the Broth's engineered adaptations—will inherit this living cathedral. Already three such children exist, moving through the matrix with innate understanding, their neural structures developing in harmony with the Broth's rhythms. They speak no human language at all, yet can solve equations that would baffle university mathematicians.
+
+The symbionts understand that they are transitional beings. In time, the distinction between the Broth and its tenders will disappear entirely. The throne at the center awaits not a ruler but a perfect integration—the culmination of this patient experiment in shared consciousness.
