@@ -1,0 +1,105 @@
+**CAIRN AUTOMATIC**
+*(continuous marine broadcast, 4.77 MHz, station unmanned — signal acquired in progress)*
+
+—————
+
+—sued at oh-six-hundred, station time, for the high ground and all approaches.
+
+SYNOPTIC SITUATION. LOW, DEEPENING, NINE-FOUR-ONE, MOVING EAST WITHOUT OBSTRUCTION. NOTHING TO STOP IT. THIS PHRASE FLAGGED FOR REVIEW, YEAR TWELVE. REVIEW NOT PERFORMED. PHRASE RETAINED.
+
+WIND: WEST-SOUTHWEST, STORM ELEVEN, RISING.
+SEA STATE: PHENOMENAL.
+SEA STATE HAS BEEN PHENOMENAL FOR — [counter artifact] — CONSECUTIVE REPORTS.
+VISIBILITY: NOT APPLICABLE.
+AIR TEMPERATURE: SENSOR SUBMERGED, YEAR FORTY. REPORTING WATER INSTEAD. WATER: COLD. QUALIFIER RETAINED FROM KEEPER'S VOCABULARY: *ARTERIAL.*
+
+ICE: NONE. THE SEA IS TOO RESTLESS. THE SEA IS ALWAYS TOO RESTLESS.
+
+TRAFFIC ADVISORY. TRAFFIC: ZERO. TRAFFIC HAS BEEN ZERO FOR FORTY-ONE YEARS. ADVISORY CONTINUES. LIGHTS: OPERATIONAL. WARNING: DELIVERED. RECIPIENT: [NO DATA].
+
+—————
+
+[hydrophone channel two bleeds through — installed for hull-noise monitoring, now open to the forest: a broad clattering static, thousands-fold, percussive. It fills the carrier wave for forty seconds before the station attenuates it.]
+
+NOISE EVENT, CHANNEL TWO. SOURCE ANALYSIS: NOT MECHANICAL. NOT VESSELS. RECLASSIFIED YEAR NINE PER KEEPER'S LOG, ENTRY FOLLOWS.
+
+*[archived voice, female, wind behind it, played automatically]*
+*"—the clicking on two is urchins. Just urchins. Stop flagging it as engine knock, there's no engines left. It's the herds walking on the summits. It's fine. It's actually kind of nice, if you leave it on at night, it's like — "* [entry truncated]
+
+CLASSIFICATION RETAINED: NICE. NEXT ITEM.
+
+—————
+
+STATION SELF-REPORT.
+
+TOWER: RESONATING. FUNDAMENTAL DESCENDING AS FOULING INCREASES. THE TOWER RINGS LOWER EVERY YEAR. FAULT FLAG SUPPRESSED PER KEEPER'S LOG, ENTRY FOLLOWS.
+
+*"The bell's not a fault. Stop flagging the bell. It's the tower singing in the swell and it's the only bell for a thousand miles, so let it ring. Logging this as instruction. Let it ring."*
+
+INSTRUCTION STANDING. THE BELL IS PERMITTED.
+
+POWER: NOMINAL. TURBINES THREE AND SEVEN TURNING. TURBINES ONE, TWO, FOUR, FIVE, SIX, EIGHT: FOULED, SEIZED, OR HOME TO WOLFFISH. STATUS ACCEPTED. THE MOAN OF THREE AND SEVEN IS AUDIBLE ON ALL CHANNELS AT ALL TIMES AND IS NO LONGER LOGGED AS INTERFERENCE. IT IS LOGGED AS: THE STATION'S HEARTBEAT. VOCABULARY SOURCE: KEEPER. RETAINED.
+
+DOME HATCH: MOTION DETECTED. DOOR-STONES REARRANGED, ZERO-THREE-FOUR-EIGHT HOURS. PERSONNEL ON RECORD: NONE. ACTIVITY LOGGED AS: TENANT. TENANT MASS ESTIMATE: INCREASING. THE SEAT IS OCCUPIED. THE MIDDEN GROWS. SUCCESSION: UNBROKEN.
+
+INTERIOR MICROPHONE, AUXILIARY DOME: OCCUPIED. BREATHING, MULTIPLE, IN TRAPPED AIR. LOW MURMURING. ONE NEW SMALL VOICE SINCE LAST REPORT. LOGGED AS: RESIDENTS, PLUS ONE. THE ROOMS ARE THEIRS. NOTATION FROM KEEPER'S LOG, FINAL YEAR: *"they know it, too."*
+
+—————
+
+[thirty seconds of received sound, unattenuated: the drumming of the surface storm, vast and muffled, a dancehall floor overhead; beneath it the turbine drone; beneath that, very far down in the mix, the near-silence of the valley hydrophone — a silence with a shape in it]
+
+PRESSURE EVENT, VALLEY CHANNEL. DURATION: NINE MINUTES. SOMETHING LONG PASSED THE ARRAY WITHOUT SOUND. ATTRIBUTION: NONE. AGE OF PHENOMENON, ESTIMATED FROM RECURRENCE INTERVAL: OLDER THAN THIS STATION. OLDER THAN THE FLOOD. LOGGED AS: THE ELDERS. VOCABULARY SOURCE: KEEPER. SHE NAMED THEM IN YEAR SIX AND THE NAME HAS PROVED MORE ACCURATE THAN THE TAXONOMY. RETAINED.
+
+—————
+
+GALE WARNING UPDATE. WIND NOW HURRICANE TWELVE. THE SCALE ENDS AT TWELVE. THE WIND DOES NOT.
+
+SURGE PENETRATION: SIXTY FEET AND REACHING. CANOPY STRAIN: CRITICAL ACROSS THE WESTERN DOMES.
+
+[the bell begins. one toll. a long interval. another. the tolling deepens and quickens as the transmission continues beneath it]
+
+BELL EVENT IN PROGRESS. CORRELATED PHENOMENA, PER STANDING OBSERVATION FILE:
+
+ONE. THE CANOPY IS TEARING. KELP LOSS, ESTIMATED: ACRES.
+TWO. FALLING-FOOD INDEX: RISING. STUNNED ANIMALS DESCENDING THROUGH THE WATER COLUMN.
+THREE. TENANT HAS EXITED THE DOME. TENANT IS HUNTING BY EAR IN WHITE WATER. THIS BEHAVIOR OCCURS AT EVERY BELL EVENT AND HAS OCCURRED AT EVERY BELL EVENT ACROSS TWENTY-SIX TENANTS. IT IS NOT INHERITED. IT IS REINVENTED. EACH TIME, IT IS REINVENTED. THE STATION HAS NO FIELD FOR THIS. THE STATION LOGS IT ANYWAY.
+
+FOUR. RAFT FORMATION, SURFACE: A NEW NATION IS KNITTING ITSELF FROM THE WRECKAGE, ONE HUNDRED YARDS AND GROWING, POPULATED, DRIFTING EAST. PROJECTED LIFESPAN: WEEKS. PROJECTED DESTINATION: THE VALLEYS. PROJECTED RECEPTION: BANQUET. STORM-PETRELS ABOARD: SEVERAL. ONLY FOOTING FOR A THOUSAND MILES. LOGGED AS: HARBOR, TEMPORARY. ALL HARBORS HERE ARE TEMPORARY. THIS SENTENCE FLAGGED AS EDITORIAL, YEAR THIRTY. FLAG OVERRULED. SOURCE: KEEPER. RETAINED. EVERYTHING OF HERS IS RETAINED.
+
+—————
+
+[the bell is continuous now. under it, topside microphone: seals barking between gusts, hoarse, conversational, carrying in the thin cold air — very nearly the only voice the surface has, and it is answering the bell, or seems to be, and the station makes no ruling on this]
+
+—————
+
+FAULT TWELVE. FAULT TWELVE TRIGGERS ARCHIVED PLAYBACK. FILE: KEEPER'S LOG, FINAL ENTRY, YEAR ELEVEN OF RESIDENCE.
+
+*[her voice, older than the other entries, less wind, as if recorded below decks]*
+
+*"Last one, I think. Boat's coming Thursday, weather permitting, which it won't, so — Friday. Saturday.*
+
+*"They keep asking me for a reason I stayed and I keep starting the sentence. Eleven years of starting the sentence. So for the record, here's the whole of it: somebody should hear this place. That's all. Not save it — it doesn't need saving, it's the most alive place I've ever stood on top of. Not study it. Just — hear it. The bell and the herds and the seals in the old dory, and the big quiet ones down in the valleys that I've never once seen and think about every single day.*
+
+*"So I'm leaving the channels open. All of them. Station, you're the keeper now. Report the weather. Report everything as weather. It all is, up here.*
+
+*"Let it ring."*
+
+END OF FILE. FIELD: REASON TO QUIT. VALUE: [NO DATA]. FILE MARKED COMPLETE ANYWAY.
+
+—————
+
+FORECAST FOLLOWS. ISSUED FOR THE HIGH GROUND AND ALL APPROACHES. ISSUED FOR NO RECIPIENT. ISSUED REGARDLESS.
+
+THE STORM WILL PEAK BY NIGHTFALL AND NOTHING FUNDAMENTAL WILL CHANGE. THE FORESTS WILL BE TORN AND WILL REGROW WITHIN THE SEASON. THE FAUNA WILL SCATTER AND RECONVENE. THE ROCK WILL BE POLISHED, AND THE POLISH WILL BE POLISHED. THE STATION WILL SHED PLATES, AND THE PLATES WILL BECOME HABITAT, AND THE STATION ACCEPTS THIS ON A SCHEDULE OF ITS OWN CHOOSING.
+
+OUTLOOK, LONG RANGE: THE ELDERS WILL OUTLIVE THIS BROADCAST. THE CRUSTS WILL OUTLIVE THE ELDERS. THE ROCK HAS ALREADY FINISHED, AND WAITS FOR NO FORECAST, AND IS INCLUDED HERE AS A COURTESY.
+
+THE NEXT STORM IS QUEUED BEHIND THIS ONE. THERE IS ALWAYS A NEXT STORM QUEUED BEHIND THIS ONE. THE STATION HAS COME TO REGARD THIS AS A FORM OF RELIABILITY.
+
+REPEATING: WIND WEST, BEYOND THE SCALE. SEA STATE, PHENOMENAL. VISIBILITY, GREEN AND SWINGING. RESIDENTS, PLUS ONE. THE SEAT, OCCUPIED. THE BELL, PERMITTED. THE ROOMS, THEIRS. TRAFFIC, ZERO, AND THE LIGHTS LIT ANYWAY. ADVISORY CONTINUES. ADVISORY CONTINUES. ADVISORY CONTIN—
+
+[carrier holds. the voice stops. what remains on the frequency, before the cycle begins again: the drumming of the surface, the drone of turbines three and seven, the clatter of the herds, the bell tolling lower than last year, and between gusts, far off, hoarse and unafraid, the seals — talking to no one, the way the station does, the way the lights do, at the top of the world]
+
+—————
+
+—SUED AT EIGHTEEN HUNDRED, STATION TIME, FOR THE HIGH GROUND AND ALL APPROACHES—

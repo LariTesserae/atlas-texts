@@ -1,0 +1,33 @@
+*A crackling transmission begins, punctuated by the resonant tones of crystal vibrations and the distant whoosh of pneumatic tubes. The signal fades in and out, carrying fragments of sound that seem to echo from deep within the earth.*
+
+*BZZT* ...constant hum... *CRACKLE* ...crystal song rises... *PING*
+
+Tap-tap-scrape... community gathers... *WHOOSH*
+
+Elders whisper through the walls... memories of epochs past... *GRIND*
+
+Spore-mist thickens... *BUZZ* ...floating gardens sway...
+
+*WHIR* Gears turn... city shifts... *CRACKLE* ...new passages form...
+
+Heart-crystal pulses... *THRUM* ...energy flows... *PING* ...life renews...
+
+Tap-scrape-tap... *STATIC* ...young ones learn the songs of stone...
+
+*BZZT* Air-jellies drift... silent observers... *WHOOSH*
+
+Deep rhythms... *GRIND* ...the geode grows... *HUM* ...time crystallizes...
+
+Tap-tap... *CRACKLE* ...outsider artifacts... mysteries from beyond... *PING*
+
+Crystal-skin reflects... *BUZZ* ...light dances... colors shift...
+
+*STATIC* ...collective dreams ripple... *THRUM* ...through living rock...
+
+Ancestral voices... *WHIR* ...embedded in facets... wisdom preserved...
+
+*BZZT* City breathes... *WHOOSH* ...a world in balance...
+
+Tap-scrape... *CRACKLE* ...the unending symphony of crystal life...
+
+*The transmission fades, leaving only the faint echoes of tapping and the deep, resonant hum of the crystal heart.*

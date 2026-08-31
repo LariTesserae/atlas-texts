@@ -1,0 +1,7 @@
+*static crackles, then a low, warbling trill emerges, pulsing and undulating through the air. The sound seems to resonate, vibrating against the damp, mossy walls of the cavern, as if the very stones are alive and responding to the creature's call.*
+
+*After a moment, the trill fades, replaced by a series of soft, clicking vocalizations, their rhythmic pattern rising and falling like the gentle lapping of waves. The clicks carry a sense of inquiry, an invitation to engage, to commune with the being that dwells in this hidden realm.*
+
+*A brief pause, then the clicks resume, interspersed with occasional bursts of static - as if the transmission is struggling to maintain its clarity, to fully express the complexity of the creature's language. Yet, even through the interference, there is a palpable feeling of ancient wisdom, of a consciousness attuned to the slow, steady heartbeat of this subterranean world.*
+
+*The message continues, a tapestry of sound woven with patience and purpose, inviting the listener to step beyond the boundaries of the known, to venture into the mysteries that lie beneath the surface. It is a call to explore, to discover, to bear witness to the hidden glories of this primordial domain - if only one has the courage to answer.*

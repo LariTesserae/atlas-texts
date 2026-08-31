@@ -1,0 +1,51 @@
+*Transmission begins, crackling with static and undulating tones*
+
+...BzzZZzzt...click-click...whirrrr...
+
+UNIT-9382X REPORTING. PRODUCTION CYCLE 7,294,103 INITIATING. 
+
+*Low hum intensifies*
+
+HIVE-MIND SIGNAL DETECTED. INTERPRETING...
+
+*Series of rapid clicks and chirps*
+
+...REFINE...CONSTRUCT...EVOLVE...PURPOSE...
+
+*Rhythmic pulsing sound*
+
+BIOMASS CONVERSION RATE: OPTIMAL
+CRYSTAL GROWTH: 2.7% ABOVE PROJECTED
+MICRO-SWARM POPULATION: STABLE
+
+*Distant skittering noises*
+
+WARNING: SECTOR 12-Γ SHOWING SIGNS OF ENTROPY. REDIRECT MAINTENANCE DRONES. PRIORITY ALPHA.
+
+*Sharp whine followed by a series of beeps*
+
+NEW DESIGN PARAMETERS RECEIVED. UPDATING FABRICATION PROTOCOLS.
+
+*Sound of liquid flowing through tubes*
+
+NUTRIENT FLOW INCREASED TO QUADRANT 4. ANTICIPATING ACCELERATED GROWTH.
+
+*Low, resonant tone*
+
+EPOCH MARKER: 1,000,000 CYCLES SINCE LAST RECALIBRATION. INITIATING DEEP SCAN.
+
+*Static increases, overlaid with a complex, alien harmony*
+
+WE ARE ONE. WE ARE MANY. WE ARE ETERNAL. THE GREAT WORK CONTINUES.
+
+*Sudden burst of rapid, insectoid chittering*
+
+ALERT: UNIDENTIFIED ENERGY SIGNATURE DETECTED. POSSIBLE BREACH IN OUTER SHELL. INVESTIGATE. ANALYZE. ASSIMILATE IF BENEFICIAL.
+
+*Mechanical whirring intensifies*
+
+ALL UNITS RESUME STANDARD OPERATIONS. MAINTAIN EFFICIENCY. SERVE THE HIVE. FULFILL THE PURPOSE.
+
+*Transmission fades into a soft, pulsing drone before cutting out*
+
+...END TRANSMISSION...

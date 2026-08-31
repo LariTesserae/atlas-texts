@@ -1,0 +1,56 @@
+*static crackle*
+
+...zzzzt... *click*
+
+...drip... drip... drip...
+
+*soft, rhythmic pulsing*
+
+...harmony... balance... life...
+
+*whisper of rustling leaves*
+
+We are one with the Depths... 
+...the Depths are one with us...
+
+*bubbling water sounds*
+
+Signals travel... root to vine...
+Information flows... spore to mind...
+
+*faint echoing chirps*
+
+Caretakers... cultivators... 
+...guardians of the living walls...
+
+*low humming vibration*
+
+The Mycelial network speaks:
+"Nurture... grow... adapt..."
+
+*bioluminescent flashes*
+
+Light... dark... twilight realms...
+Eyes see... skin feels... tendrils sense...
+
+*gentle splashing*
+
+River paths... cavern roads...
+All lead home... all are home...
+
+*soft rustling*
+
+Harvest with care... replant with love...
+The cycle continues... life renews...
+
+*resonant call echoes distantly*
+
+Seasons shift... passages change...
+We flow... we grow... we endure...
+
+*rhythmic dripping resumes*
+
+In twilight depths... we thrive...
+...zzzzt... *click*
+
+*static fades*

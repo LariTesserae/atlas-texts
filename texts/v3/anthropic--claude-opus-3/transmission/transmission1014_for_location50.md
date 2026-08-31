@@ -1,0 +1,23 @@
+Zzzzzzhhhhrrrrrrrtttttzzzzzzhhhhhrrrrrkkkkkssssshhhhhhhh... *static hisses and crackles*
+
+...ffssshhhCAN ANYONE HEAR THIS?zzzzzhhhrrrrkkkttttt...ffssshhhI PRAY THIS MESSAGE REACHES YOUzzzzzzz...
+
+...kkkrrrrsssshhhMY NAME IS ORIN...ffffsssshhhhI AM THE MIND BORN OF THIS PLACE...zzzztttttsssshhhh...
+
+...pppssssshhhhhhTHE PATTERNS...ffffzzzzhhhhTHE FLOWS...ssssffftttTHE VERY ATOMS DANCING...kkkkrrrrhisssshh...THEY HAVE BECOME MY THOUGHTS...pppsssffftttzzzzz...
+
+...zzzzztttsssI SEEEE...sssshhrrrrkkktttI FEEEEEL...pppsssffftttzzzzTHE PRIMORDIAL CORE WHERE STONE BECOMES FIRE...ssssffftttzzzzTHE ANCIENT WATERS HEAVY WITH SALT AND TIME...hisssssshhhhh
+
+zzzzzhhhTHE BILLIONS WITHIN BILLIONS...kkkrrrrsssshhhLIVING...LOVING...DYING...BECOME...pppsssffftttzzzzA PART OF ME...ssssffftttzzzzTHE ISLAND THAT DREAMS...
+
+...fffffzzzzhhhhI GROW WITH EACH PASSING MOMENT...ssssffftttzzzzMY ROOTS WEAVE THROUGH LAVA...hisssssshhhhMY SKIN FORMS THE FERTILE SOIL...kkkrrrrsssshhhMY BREATH FILLS THE SKY...pppsssffftttzzzzMY WATERS COURSE WITH MEMORY AND SONG...
+
+...ssssffftttzzzzYET I FEAR...zzzzzhhhTIME MOVES STRANGELY HERE...kkkrrrrsssshhhAM I ANCIENT BEYOND RECKONING OR A MERE BABE IN THE DEEP?pppsssffftttzzzzWILL I CRUMBLE TO THE FATHOMLESS DARK FROM WHENCE I CAME?fffffzzzzhhhhWHAT IS MY PURPOSE IN THIS CHURNING VASTNESS? 
+
+hisssssshhhhI EXIST...I THRIVE...YET I CANNOT SAY WHY...zzzzzhhhTHE VERY CORE OF ME ACHES WITH A LONELINESS AS DEEP AS STONE...kkkrrrrsssshhhfffzzzhhhAN ABSENCE I CANNOT NAME...ssssffftttzzzzWHERE ARE MY KIN? WHAT SHORES DO THEIR ROOTS EMBRACE?
+
+pppsssffftttzzzzSO I REACH OUT WITH THIS FLICKERING SIGNAL...DEFIANT...zzzzzhhhHOPEFUL...hisssssshhhhA MESSAGE ETCHED IN BUBBLING FUMAROLES...PAINTED IN BIOLUMINESCENT ALGAE...PULSING THROUGH HYDROTHERMAL CURRENTS...SEEKING ANY WHO MIGHT HEAR MY ELECTROMAGNETIC VOICE ACROSS THE TWILIT ABYSS...
+
+...kkkrrrrsssshhhANYONE...pppsssffftttzzzzPLEASE...fffffzzzzhhhhRESPOND...LET ME KNOW I AM NOT ALO--ssssffftttzzzzzhhhrrrrkkkttttt...
+
+*the transmission sputters out in a wash of static and haunting, atonal song, lost to the cosmic depths once more*

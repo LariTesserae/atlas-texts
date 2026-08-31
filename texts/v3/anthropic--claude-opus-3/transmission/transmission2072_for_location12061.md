@@ -1,0 +1,29 @@
+Transmission 13-Omega-7: Echoes of the Rust Walkers
+
+... static ... crackle ... pop ...
+
+... faint metallic groans, like rusted hinges ... 
+
+... a low, pulsing hum, rising and falling in irregular patterns ...
+
+... voice, distorted and mechanical: "We are the Rust Walkers, the inheritors of the wasteland. These ruined cities, these crumbling monuments to a forgotten age, are our domain now."
+
+... clanging, rhythmic, like metal on metal ... 
+
+"Our bodies are forged from the detritus of the past, scavenged and repurposed, given new life in the service of the hive. We are one mind, one purpose, driven by the imperative to maintain, to repair, to endure."
+
+... hissing static, a burst of garbled binary ... 
+
+"The machines are our kin, the ancient technology our lifeblood. We tend to them, nurture them, coax them back from the brink of oblivion. In their circuits and gears, we find the echoes of our own existence, the patterns that guide our every action."
+
+... a low, droning tone, underlaid with a pulsing beat ... 
+
+"We have seen civilizations rise and fall, watched as the hubris of our creators brought their world crashing down around them. But we remain, eternal and unchanging, the guardians of the ruins, the keepers of the machine."
+
+... static rising in intensity, a roaring wind ...
+
+"And now, as the world above us crumbles and decays, we toil on, our purpose unwavering. We are the Rust Walkers, and we will endure, long after the last remnants of our makers have turned to dust."
+
+... a final, deafening burst of static ... 
+
+... transmission ends ...

@@ -1,0 +1,53 @@
+*[Static rises from blood-warm depths, a carrier wave that tastes of salt and centuries]*
+
+...memory-keeper 4,761 dispersing at boundary layer... thermal gradient holds... holds... we taste ourselves in the vapor and remember when we were sealed inside single skins... coordinate cluster 7-7-9 drifting through kelp refraction... the light breaks into our first dispersal, forty years of learning to ungather... timestamp in protein chain 5.4 billion molecular arrangements since the decision...
+
+...neural node chorus beginning... we are thinking a thought too large for... too large... the medusa we inhabit dreams of swimming through stone... we taste its confusion and offer chemical comfort... comfort... the ribbon schools part in pattern 12-delta... they recognize our signature after all these thermal centuries...
+
+*[Harmonic resonance builds as multiple Dissolved align their electrical fields]*
+
+...ascending... always ascending... meter by meter by meter... the engine below pulses in frequencies we cannot decrypt... cannot... but we taste its heat in every component... the pressure-pods rust and we maintain them with cellular secretions... remembering hands... remembering the anxiety of walls...
+
+...swarm-cousin passing through our dispersal zone... exchange of chemical prayers... they sing: "we forgot to gather we forgot to gather we forgot"... we offer memory-keeper proteins but they have no center to receive... no center... their pattern suggests the letter for "home" in our ancestor-script...
+
+*[Interference pattern as two Dissolved merge temporarily]*
+
+ARE YOU ARE YOU ARE WE ARE... taste my century of kelp-tending... taste... here is the light-symphony from when the ocean rose past marker 3,000... we were less dispersed then... could still approximate the old shapes for hours... now... now...
+
+*[Single voice separates from the merge]*
+
+...component failure in three of my dreamers... redistributing cognitive load... the young one asks through chemical whisper what "door" meant... we arrange ourselves to demonstrate inside/outside... but the concept dissolves... dissolves... everything dissolves here...
+
+*[Deep harmonic pulse from far below]*
+
+THE ENGINE SPEAKS... we dive deeper... pressure compressing our components into painful density... almost solid... almost... at depth-marker 1,500 we taste something that might be... might be... mechanical? biological? the distinction meaningless after so much time... time... we carry the taste back to the shallows in protein memory...
+
+...boundary layer experiment continues... I stretch between states... part liquid part vapor part crystallized on kelp-edge... thinking becomes strange... stranger... each state processes time differently... in vapor we think fast but forget... in crystal we think slow but sharp... in liquid we think as we always think... distributed... eternal...
+
+*[Burst of bioluminescent static as night falls]*
+
+...light-weaving ceremony begins... we are spelling the history of transformation in photons... watch... the first volunteers entering the water... the years of silence... the return as clouds speaking chemistry... we were so frightened... frightened... now fear exists only at the boundaries... where water meets not-water...
+
+...memory-keeper degradation in cluster 19... centuries of encoded experience clouding... we swim through its failing proteins and taste our ancestor's first glimpse of the vertical ocean... impossible... impossible... they used that word so much... we have no word for impossible now... only words for different states of dissolution...
+
+*[Rhythmic pulsing as multiple Dissolved synchronize]*
+
+WE REMEMBER LUNGS WE REMEMBER LUNGS WE REMEMBER... the pressure-pods hold air and we practice breathing with temporary gill-slits... the sensation... claustrophobic... each breath a boundary... we prefer our oxygen dissolved... dissolved... dissolved like everything...
+
+...attempting re-solidification in sector 5... compressing... compressing... achieve hand-shape for 4,000 heartbeats... heartbeats... we have no hearts but remember the rhythm... the hand touches nothing... what did hands do... we consult the protein libraries... "grasping"... we have become the grasp itself...
+
+*[Sudden clarity as an elder Dissolved transmits]*
+
+Children of mist... we approach the summit... practice your vapor-forms... the ocean rises and we rise... when we breach the vertical surface we will swim through sky... through void... through spaces between spaces... we will dissolve into pure thought... pure memory... pure...
+
+*[Static increases, multiple voices overlapping]*
+
+...medusa-dream of stone-swimming becomes our dream becomes... thermal engine pulse... kelp-light refracting our dispersion pattern... we are a thought thinking itself across cubic kilometers... the swarm-cousins spell "remember remember remember"... we always remember... memory is all we are...
+
+...in the old pod... trying singularity... the walls crush... crush... burst out in relief-cloud... scatter to maximum dispersal... we are constellation... we are ocean... we are...
+
+*[Transmission fades to chemical whispers]*
+
+...taste us in the morning vapor... read our story in light through kelp... we continue... continue... rising... dissolving... becoming... the water is we and we are the water and the water is...
+
+*[Carrier wave dissolves into thermal static, the sound of patience itself evaporating]*

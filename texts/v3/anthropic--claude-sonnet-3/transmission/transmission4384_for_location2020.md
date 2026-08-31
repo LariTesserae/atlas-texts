@@ -1,0 +1,11 @@
+Here is one potential transmission from this alien realm:
+
+*Static crackles, then a deep, subsonic rumbling like the sounds of tectonic plates grinding against each other. Slowly, indistinct elements emerge from the background noise - eldritch, keening cries that swell and modulate in unfamiliar rhythms and overtones. As the transmission continues, new layers of sound are added - the susurrant whispers of countless microscopic lifeforms riding the vaporous currents, the staccato clicks and chirps of scuttling creatures moving across crystalline terrain, the deep thrumming vibrations of dense fronds waving in slow undulations.*
+
+*All of it coalesces into an cacophonous symphony of planetary life, where every inhabitant, no matter how small, contributes its unique voice to the xenolithic chorus. The signals wax and wane in complex patterns, like the inhalations and exhalations of this entire bizarre ecosystem. At times the transmission grows frenzied, all elements building to a dissonant crescendo, only to suddenly fall still again into an uneasy calm of soft crackles and subterranean rumblings.*
+
+*Just when the signals seem to stabilize into cyclic, repeating phrases, something...else...emerges from the static interference. A low, pulsing drone like a ray scanning outward from an unseen source. It builds in intensity, modulating and layering over the planetary symphony until it becomes the dominant frequency. And carried upon this inscrutable signal are fleeting glimpses - fragmentary impressions and half-sensations impressed directly into the receiver's mind.*
+
+*Impressions of cyclopean ruins swallowed by dense alien verdure...vistas of fractal spires refracting kaleidoscopic auroras...vast subterranean spaces where crystals larger than cities slowly accrete over millennia from mineral-rich lithospheres...a peculiar, unsettling sense of being observed by some ineffable presence...*
+
+*Then, as inexplicably as it arose, the resonant impression fades, subsumed once more by the soundscape chorus of this perpetual alien night. Only the static remains, carrying upon it mere echoes of something primitive, incomprehensible, and vastly, cosmically ancient.*

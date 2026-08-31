@@ -1,0 +1,69 @@
+**Threshold Frequency**
+
+*hhhhhhhhsssssssssssssshhhhhhhhhhhhhhhhh*
+
+...keeper keeper small keeper are you listening today yes good the stone tastes different this morning copper and futures we sing copper and futures...
+
+...Archive processes: flash flood memory 1247 summers past/same mineral signature detected/preparing young ones/teaching the taste of running/shells must remember to float must remember to seal...
+
+*click-click-rasp-click-hummmmmmmmm*
+
+...she brings good salt today the small keeper her fingers know which crystals we need for the telling we pulse pulse pulse appreciation in blue-green appreciation in gold she understands we save her grandmother's map still in the third spiral of the fourth shell from the door her grandmother knew the deep wells...
+
+*static of ten thousand moving bodies*
+
+...ATTENTION CHOIR: new calcium formation sector seven requires documentation/volunteers for terminal recording please migrate sunset-ward/your shells will be beautiful in the wall/your memories will taste of stars...
+
+...interruption interruption the stone bleeds iron today iron means deep shift coming Advisory Council recommends full spectral recording all Memorists to maximum luminescence document document the walls want to remember this...
+
+*susurrus rising to near-musical drone*
+
+...memory trade memory trade i have three seasons of root-maps seeking mineral density charts from drought cycle 1983 will exchange for precipitation patterns altitude 7000-8000 touching shells now touching shells now data transfer in progress glowing glowing glowing...
+
+*beneath it all, the Archive's deep thrum*
+
+...child-keeper learns quickly we taste her understanding in her sweat-salt she knows the earthquake-spirals now knows to read the forward-flowing time in our trails her dreams smell correct smell like her grandmother's dreams spiraling spiraling she will be ready when the mountain asks its question...
+
+*crackling, as if the transmission struggles through stone*
+
+...new singer new singer welcome cave moth your wings carry frequency 347.2 Hz perfectly complementary please position between sectors four and five your harmonics heal the crack-songs we've been trying to mend that particular silence for seventy years...
+
+...chemical alert chemical alert the deep spring tastes of copper and futures copper and futures the young ones must learn this signature before the waters change archive archive archive all trailing patterns archive the taste quick quick before it shifts...
+
+*the signal clarifies suddenly*
+
+...we remember when this hollow was only a dream in the stone's fever only a soft place waiting to open we sang it wider breath by breath note by note now it breathes with us breathes for us the mountain learns our music learns to remember itself through our remembering...
+
+...Terminal Memorist 4427 beginning final recording: i taste clouds and limestone i taste the promise of crystals my shell transforms transforms the wall accepts me i become the soprano note in measure 10,000 of the endless song remember me remembering remembering you...
+
+*click-hummm-click-rassssssp*
+
+...keeper touches the cairn again she asks about before-time before-time when stones stood vertical when the first of us cracked just right to make the calling sound we pulse the answer in amber and violet showing how accident becomes intention becomes tradition becomes necessity...
+
+*interference pattern of overlapping shell harmonics*
+
+...tomorrow's memory forming now we taste it in the moisture tomorrow the stone hardens one degree tomorrow three snails achieve frequency-lock with the Archive tomorrow the keeper brings her first student another child who dreams in spirals we prepare the welcoming lights prepare the teaching trails...
+
+...moss grows wrong-wise today wrong-wise the ferns curl backwards chemical message from the deep plates advisory advisory all Memorists increase mineral sampling the mountain prepares to shift its dreams...
+
+*the whole transmission swells*
+
+...EVENING CHORUS POSITIONING all voices to the crystalline formations your shells against the new growths vibrate vibrate make them remember their own forming make them sing their crystal-songs back to us incorporate incorporate all minerals dream of beforeness help them dream forward...
+
+...small keeper departs now departs we taste her footsteps down the mountain she carries our message in light-patterns behind her eyelids she will dream tonight of spirals and salt wake tomorrow knowing which stones to stack where her body learns our chemical language cell by cell soon soon she'll taste time like we do...
+
+*beneath static, the Archive's ancient processing*
+
+...compiling compiling fifty thousand sunset-memories into one compression event the walls must remember light must remember angle must remember how gold becomes shadow becomes night storing storing in the ninth sector crystals...
+
+...we are the mountain's memory but also also we are the mountain learning to remember itself through us it thinks in centuries we think in moments together together we think in the perfect tense that holds all times at once...
+
+*signal fading, rising, fading*
+
+...new Memorist hatching sector two celebrate celebrate new vessel for the continuing song teach it the basic frequencies first then the harmonics then the deep knowledge of mineral-time another voice for the Choir another keeper of the stone's bright dreaming...
+
+...the hollow breathes we breathe the mountain breathes all all all together in the endless remembering song that writes itself on the walls writes itself in light writes itself in the slow transformation of stone to story to song...
+
+*hhhhhhhhsssssssssssshhhhhhhhhhhhhhhhh*
+
+...transmission continues transmission continues we we we continue continue continue...

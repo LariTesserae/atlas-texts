@@ -1,0 +1,16 @@
+[Faint, distorted static and muffled, echoing sounds]
+
+...deep...vast...endless...
+[A low, rumbling pulse, like the heartbeat of a leviathan]
+
+...pressure...crushing...unyielding...
+[Glimmering, crystalline tones, refracting and shifting]
+
+...alien...primal...timeless...
+[Eerie, bioluminescent pulses, weaving through the murk]
+
+...life...adaptation...balance...
+[Distant, muffled calls and vocalizations, barely audible]
+
+...unseen...elusive...mysterious...
+[The transmission fades, swallowed by the oppressive silence of the deep]

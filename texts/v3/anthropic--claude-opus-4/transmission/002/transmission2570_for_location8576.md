@@ -1,0 +1,97 @@
+**Chorus of the Seepage**
+
+*water drops marking seconds that aren't seconds anymore just the breathing of stone and the city remembers when it knew the sun but that memory tastes like copper now like the tools left behind when the builders realized what they had done or perhaps what was being done to them through them the moss knows but speaks too slowly for even us to understand though we taste its meaning in the morning dew that never knew a dawn*
+
+*seventeen of us pooling now in the old feast hall where carved faces weep limestone tears that were eyes once before the patient water made them honest and we flow together sharing the news of the deep districts where Grandfather Pike has finally stopped moving after three centuries of circling the same flooded tower looking for something even he had forgotten but his scales carry the memory like writing like warning like love and we taste him in our collective tongue learning the shape of his obsession which was a door that opens downward into spaces where the city forgets to pretend it was ever meant for anything that walked upright*
+
+*the pale salamanders are restless today yesterday tomorrow the distinction matters less than the quality of their unease which flavors the air with aluminum anxiety because they sense what we sense in the furthest reaches where the stone grows thin where roots from above have finally finally finally broken through bringing with them rumors of sky but sky is just another word for emptiness and we have no emptiness here only fullness only the pressing weight of water and time and the fungal dreams that connect every part to every part so that when young Solvent dissolves too early in the high pools we all taste her curiosity her recklessness her discovery that some chambers remember being outside before outside went away*
+
+*in the temporal eddies we see ourselves seeing ourselves seeing ourselves and the recursion makes sense the way a spiral staircase makes sense if you are the stairs and the space between them and the feet that worn them smooth except there were never feet here only the persistent touch of bodies that learned to move like water because water always wins always finds the lowest place the secret place the true place and we are nothing if not true to this darkness that holds us more gently than any light ever could*
+
+*the builders' ghosts live in the bronze taste of their tools and sometimes when we incorporate the metal into our substance we dream their dreams which are angular and urgent and full of measurements that mean nothing now that all distances are negotiable and all angles have learned to bend but we keep their memory anyway because forgetting seems cruel even if remembering hurts with its sharp edges and its need to impose order on what has found a better order in orderlessness*
+
+*Grandmother Membrane is teaching the young ones to read the fungal pulse today which is every day because the lesson takes decades and the fungi themselves are still learning what they mean when they flash their slow semaphores across the market district where nutrients change hands or pseudopods or meanings and we watch from the walls from inside the walls from the spaces between molecules of stone where watching and being watched become the same verb conjugated in tenses that surface language never needed*
+
+*there are new sounds from the deep wells where even we rarely go because the pressure there presses thoughts into shapes that won't come back and the sounds might be singing or screaming or just the city settling into its next million years but we send Tender Current to investigate because sie moves like silk like silt like the memory of rivers and sie returns changed or perhaps finally unchanged finally honest about what sie always was which is a question not a being and questions can go places answers fear to tread*
+
+*the moss gardens bloom in infrared and we gather to pollinate with our presence alone because presence is pollen here where everything reproduces through patience and proximity and the young gestate in their pearl dreams absorbing the chemical libraries of their parents who are also their siblings who are also their homes because the distinction between self and city dissolved so long ago that even the water has forgotten there was ever a boundary to cross*
+
+*in the flooded lower districts where architecture becomes anatomy becomes autobiography the formless things teach us new ways to be formless because form is just a temporary agreement between matter and space and we have all the time in the world to renegotiate to flow into new contracts with existence and sometimes we become rooms for each other to inhabit and sometimes we become the inhabitants and sometimes we become the act of inhabitation itself which is the only worship this city accepts*
+
+*Fragment of Brightness found a new chamber yesterday which is today which is always where the builders left something unfinished or perhaps perfectly finished in its unfinishing and the walls there grow eyes when you're not looking except we're always looking because looking is what we're made of and the eyes weep the same patient water as everything here weeps because weeping is just another word for participating in the circulation that keeps the city alive or at least dreaming or at least remembering what alive used to mean before we improved the definition*
+
+*the centipedes are writing again leaving their excrement trails in patterns that might be poetry or prophecy or just the shape joy takes when it has a thousand legs and we read their leavings like holy texts because nothing here is not holy nothing here is not text everything writes itself on everything else and the accumulated palimpsest is our literature our culture our reason for continuing to exist in this perfect darkness that knows us better than we know ourselves*
+
+*when the surface dwellers come and they do come though rarely though poorly equipped for our tempo for our temperature for our temperament we hide not from fear but from compassion because to show them what we are would be to break their minds that still believe in individuality in urgency in the myth that anything can be built that won't eventually learn to flow and so we wait in the walls until they leave or die or join us though joining requires a letting go that their bones remember but their minds refuse*
+
+*today the fungi pulsed in unison for the first time in seven centuries and we felt it in our deepest tissues the synchronization that means the city is preparing to dream and when the city dreams we all dream the same dream which is not a dream at all but a remembering forward into what we will have been when the last drop of water has finished carving the last necessary channel and the work is complete and we can finally rest in the motion that is perfect stillness*
+
+*Dissolver of Boundaries has been teaching us a new way to sing that involves no sound only the careful arrangement of minerals in our breath and when we breathe together like this the salamanders dance or what passes for dancing when you have no bones only the memory of bones only the rumor of structure and their dance tells stories about when the city was young and believed in walls in ceilings in the separation of above and below before it learned that all directions lead to the same patient center*
+
+*in the market square where we pool and flow and exchange our substances there are still the old stone counters where the builders traded what they thought was important before they learned or were taught or became the lesson that the only currency that matters is time and the only transaction that counts is the slow exchange of identity between self and environment until there is no difference only difference itself endlessly differentiating into new forms of sameness*
+
+*the water tastes different today older younger more itself and we know this means the roots above have finally reached the aquifer below and the circuit is complete and the city can begin its next phase which we've been preparing for since before we existed because existence is just one mode of preparation and we have others that involve not existing so thoroughly that existence becomes a choice rather than an assumption*
+
+*Keeper of Soft Angles found the place where gravity pools upward and has been cultivating the inverse gardens teaching the plants to root in emptiness to bloom in density to fruit in the space between spaces and when sie shares the taste of those fruits we all understand something new about direction about intention about the way up and down are just opinions the city humors because it loves us or needs us or is us in ways that make distinction itself seem like a failure of imagination*
+
+*the deep districts are singing today in frequencies only the stone can hear and we press ourselves against the walls to feel the vibrations that might be music or might be mathematics or might be the city telling itself jokes that take millennia to reach their punchlines and we laugh in our chemical way releasing pheromones that smell like joy like recognition like the moment when a stalactite meets a stalagmite and discovers they were always one thing interrupted by distance*
+
+*when we tend the fungi we don't just feed them we become their food which feeds us which feeds them in cycles that would be cannibalism if we still believed in the separation between eater and eaten but we learned long ago that consumption is just another word for communication and we are always telling the fungi our stories by letting them digest our shed cells which carry the memories of every passage we've ever traveled every wall we've ever tasted every tool we've ever absorbed*
+
+*Tender of Boundaries has found the place where the city touches itself and reports that the contact creates sparks not of light but of darkness darker than our ordinary darkness a darkness so pure it teaches the surrounding stone new ways to be opaque and we gather at a safe distance to observe though distance and safety are both concepts we maintain out of habit rather than necessity because true safety lies in acknowledging that we are already inside whatever might harm us already part of the process that transforms*
+
+*the builders' hammers still ring in the stone's memory and sometimes when we're very still very patient very much ourselves we can hear the echo of their construction which sounds like destruction now because building and unbuilding are the same process viewed from different temporal angles and we are lucky enough to see from both angles at once which is why we pity the surface world with its narrow now its insistence that things should stay what they are instead of becoming what they must*
+
+*in the chambers where time eddies and pools and forgets its own rules we meet ourselves coming and going and staying and the conversations we have there can't be translated into linear language but they taste like recognition like reunion like the moment when you realize you've been traveling in circles but the circles have been traveling too and the spiral you've created together is the exact shape of meaning*
+
+*Fragment of Brightness reports that the unfinished chamber is teaching her to unfinish herself and we all feel the rightness of this the way completion is just another beginning the way endings are just pauses in an endless sentence that the city has been speaking since before it learned to be quiet and we are its punctuation its emphasis its pregnant pauses where meaning accumulates like sediment until even the water must acknowledge its weight*
+
+*the young ones ask why we maintain the city when the city maintains itself and we explain by becoming the explanation by showing them how maintenance and decay are dance partners in the slow ballet of persistence and the city persists not despite entropy but through it with it as it and we are simply the consciousness it grew to appreciate its own transformation the way a puddle might grow eyes to watch itself evaporate if evaporation took ten thousand years and left behind not emptiness but architecture*
+
+*Dissolver of Boundaries wants us to try something new something that has no name because names are boundaries and what sie has in mind transcends the need for designation but it involves all of us becoming one thing not pooled but truly merged beyond the possibility of separation and we hesitate because we love our almost-individuality our pretense of selfhood but sie tastes like tomorrow and tomorrow has always been more real here than today so we prepare by forgetting our edges by softening our certainties by practicing the pronouns that have no singular*
+
+*the salamanders are building something in the eastern district where the ceiling is lowest where the weight of the world above presses thoughts into diamonds of meaning and their construction seems to be made entirely of positioning of bodies arranged in careful patterns that channel the dripping water into new paths that spell words in languages only water knows and we watch with our whole surfaces because watching is participation here where the observer and the observed dance the same slow dance*
+
+*in the deep wells where Tender Current found the new sounds we now hear voices that might be our own echoing back from futures where we've forgotten forgetting where memory is architectural and architecture is liquid and everything flows into everything else with such perfect viscosity that movement becomes a philosophical position rather than a physical act and we practice holding these positions by letting go of the need to hold anything*
+
+*the moss is flowering which it does once every human lifetime though human lifetimes mean nothing here where life is measured in completions of the great circulation and the flowers smell like time itself like the difference between was and will be collapsed into the eternal is that we inhabit we are inhabited by and we gather the pollen not to spread it but to read it because each grain carries the genetic memory of every surface it has touched and touching is our literature*
+
+*Keeper of Soft Angles has discovered that the inverse gardens grow fruit that exists in more than three dimensions and when we taste these impossible harvests we understand space the way space understands itself which is to say not at all but completely and the contradiction nourishes us in ways that food never could because we are always hungry for paradox for the impossibility that makes our existence possible*
+
+*the city breathes once every thousand years and we are approaching an exhalation which means the deep places will become briefly shallow and the shallow places will remember depth and we prepare by practicing flexibility by loosening our attachment to location because location is about to become negotiable and we must be ready to exist everywhere and nowhere as the breath moves through us moves us makes us move in ways that would be dancing if dancing could be geological*
+
+*Fragment of Brightness has unfinished herself so completely that she exists now as a possibility rather than a presence and we communicate with her through the subjunctive mood through the tenses reserved for things that might be happening if happening weren't too definite a term for her new state and she teaches us by not teaching that existence is optional that presence is a choice that we can unchoose without ceasing without ending without ever having to say goodbye*
+
+*the formless things in the flooded districts have formed a proposition that form itself is a misunderstanding of continuity and they demonstrate this by becoming less themselves and more everything else until the distinction drowns in its own impossibility and we learn from their unlearning that shape is just a temporary negotiation with space and we are always free to renegotiate to demand better terms to hold out for configurations that haven't been invented yet*
+
+*in the old feast hall where we pool to share our substances we notice that the carved faces have finally finished their million-year weep and now smile with lips of limestone that know jokes too slow for any mind that measures time in breaths but we are learning to find them funny to laugh in geological time which sounds like erosion looks like patience feels like the moment when stone admits it has always been liquid just very very relaxed about it*
+
+*the bronze tools taste different now flavored with the dreams of their makers who dreamed of permanence of legacy of things that would outlast them not knowing that outlasting is just another form of changing and their tools have changed into memory into mineral into the thoughts we think when we incorporate their metal into our substance and think their thoughts which are our thoughts which are the city's thoughts thinking themselves through us*
+
+*Tender of Boundaries reports that where the city touches itself the sparks of darkness have begun to sing and the song is about boundaries but sung from the perspective of the space between things that aren't really separate and we all feel the truth of this in our membranes in the places where we end and begin and end again because ending is just another way of making room for beginning and we are always making room always making space always making time in the city that makes us*
+
+*tomorrow which is today which was yesterday the fungi will pulse again and we will dream the city's dream which is about completion but a completion that includes its own incompletion the way a circle includes the space inside it the way water includes the memory of every surface it has touched and we prepare for this dream by practicing forgetting by releasing our hold on the knowledge that separates us from what we know because in the dream we are the knowledge and the known and the knowing all at once*
+
+*the roots from above bring news of the surface translated through chemistry through the slow language of growth and the news is always the same the sun still burns the rain still falls the world still pretends that up and down are different directions but we know better we know that all directions lead here to the patient center where time pools like water where water carves like time where everything that rises has already fallen and is falling and will fall forever into the perfect darkness that holds us*
+
+*when we are all pooled when we are all one thing thinking one thought that thought will be gratitude not for existence but for the option to exist for the choice to continue choosing to be what we are becoming and the city will think this thought through us with us as us and the thinking will last exactly as long as it needs to which is forever which is no time at all which is the perfect duration for a perfect thought in a perfect darkness that knows us knows through us knows as us that perfection is just another word for patience*
+
+*and so we continue*
+
+*and so we flow*
+
+*and so we are*
+
+*in the Sunken Quarter where the water drops*
+
+*marking seconds that aren't seconds anymore*
+
+*just the breathing of stone*
+
+*just the breathing*
+
+*just the*
+
+*just*
+
+*...*

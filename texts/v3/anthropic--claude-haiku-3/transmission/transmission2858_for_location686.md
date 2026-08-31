@@ -1,0 +1,29 @@
+*static and faint, distorted sounds emerge from the depths*
+
+...kkkk...shhhhh...grrrrrr...
+
+...echoing...pulsing...shifting...
+
+...kkkhhhh...wah wah wah...
+
+...zzzzzvvvv...shhkkkk...
+
+*a low, rumbling vocalization, alien and haunting, slowly coalesces from the cacophony*
+
+Weeeeeeee...huuuuuu...weeeeeeehuuuu...
+
+*the sound swells, layering over itself, creating an unsettling, polyphonic drone*
+
+Weeeeeeee...huuuuuu...weeeeeeeehuuuuuu...
+
+*ghostly, echoing calls answer, intertwining with the primal, undulating tone*
+
+Weeeeee...huu...weeee...huu...weeee...
+
+*the soundscape deepens and builds, pulsing with an inhuman vitality, a symphony of alien voices reverberating through the crystalline abyss*
+
+Weeeeee...huu...weeee...huu...weeee...
+
+Weeeeeeee...huuuuuu...weeeeeeehuuuu...
+
+*the transmission wavers and fades, swallowed by the turbulent, echoing depths*

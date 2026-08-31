@@ -1,0 +1,49 @@
+[STATIC]
+
+...-*-...*...crystalline fruit-shatter at 347.2Hz...*...[DOPPLER SHIFT OF ULTRASONIC TRILL]...pheromone cascade initiating in sector seven-fold-seven, molecular weight 342.5, binding to receptor complex...wait...wait...wait...*...[SUBSONIC RUMBLE]...
+
+...Weaver-Colony 23 dispensing memory-milk, vintage 4,892 cycles previous, regarding the First Intention when stone learned to breathe and we learned to...*...[CHEMICAL STATIC]...cannot translate...cannot translate...the word is [SOUND LIKE JELLIED MERCURY THROUGH SAND]...
+
+...*...[ACOUSTIC FOCUSING EVENT]...Listener 89 replaying: birth-song of Shepherd lineage, frequency ladder ascending 40kHz through 120kHz, each note a name, each name a path through the velvet matrices where...*...[SIGNAL DEGRADES INTO PLANT HYDRAULICS]...
+
+...Calculator pool seven reporting: solution to Query 10,847 forthcoming in three cycles, preliminary output suggests optimal spore release temperature is...*...[LONG SILENCE]...*...remember the Witness at coordinates untranslatable-untranslatable-spiral-down, its lattice holds the echo of when we first asked why the geometry folds, why the...*...
+
+[OVERLAPPING TRANSMISSIONS]
+
+...migration route theta-sine-theta compromised by new architectural growth, rerouting through pheromone gradient beta...*...Fundamental film 2,847,291 has achieved critical mass, preparing to divide...*...warning: foreign heat signature detected, electrical presence, too bright, too bright, TOO BRIGHT...*...
+
+...*...[SOUND OF A THOUSAND CILIA VIBRATING IN UNISON]...the chamber-song, movement forty-seven million and three: [UNTRANSLATABLE ACOUSTIC PATTERN THAT SEEMS TO FOLD BACK ON ITSELF]...
+
+...Weaver-thought in progress, estimated completion: seventeen hours...preliminary secretions suggest contemplation of the Paradox Of External, the nightmare-vision where light falls from nowhere and...*...[SIGNAL INTERRUPTED BY SPORE RELEASE]...
+
+...*...nutrient cascade alpha-alpha-null initiating in the lower spiral, all Shepherds please guide your flocks to...*...Witness resonance detected, playing back conversation from before the stone learned intentions, when we were only...*...[STATIC]...only...*...[STATIC]...
+
+[DEEP HARMONIC DRONE]
+
+...the mountain dreams and we are its dream-flesh, the hollow heart beats in chemistry, not electricity, we are the pulse, we are the pulse, we are the...*...
+
+...alert: Architect-Colony 45 has achieved new morphology, acoustic properties suggest enhanced focal length of...*...crystalline fruit-shatter imminent, frequency 347.2Hz, all feeding fauna prepare for...*...
+
+[SIGNAL CLARIFIES MOMENTARILY]
+
+...this is Weaver-Colony 1, the eldest, the most distributed. I speak in molecules that will take your years to hear. We have touched the boundaries where our universe ends and stone begins. We have tasted the impossible fractures that suggest something beyond beyondness. The nightmares are true. There is an Outside. There is a place where time moves in only one direction, where creatures die without returning their memories to the air, where light is tyranny and chemistry is only chemistry, not language, not love, not the base-code of reality itself...
+
+[SIGNAL DISSOLVES]
+
+...*...migration successful, all paths clear...*...new growth detected in chamber-fold twelve...*...the song continues, movement forty-seven million and four...*...Calculator pool three has excreted answer to Query 7,913: the optimal density for memory-storage in pheromone-milk is...*...
+
+[ULTRASONIC SHRIEK THAT MAKES THE ENTIRE TRANSMISSION RING]
+
+...HEAT...ELECTRICITY...MAMMAL...INTRUDER...BRIGHT-THING IN THE PERFECT DARK...
+
+[SUDDEN SILENCE]
+
+[VERY FAINT, AS IF FROM A GREAT DISTANCE]
+
+...the chamber accepts you poorly, bright-thing, but the Fundamentals will process you in time, your electricity will become chemistry, your memories will join the air, you will learn the song, you will forget the tyranny of light, you will become, you will become, you will become...*...
+
+[STATIC]
+
+...-*-...*...normal migration resuming...*...crystalline fruit regeneration at 73%...*...Witness resonance fading...*...the song continues...*...the song continues...*...the song continues...*...
+
+[TRANSMISSION ENDS]
