@@ -46,7 +46,10 @@ Self-describing, so a text carries its position even outside the tree:
 | `regard` | `regard<id>_for_creature<creature_id>.md` |
 
 `<id>` is the item's stable corpus id. The relation ids resolve to other files in the
-tree. `seed<vector_id>` is the shared 14-dimensional coordinate (§6).
+tree. `seed<vector_id>` preserves the historical vector-slot label recorded during
+collection; it is **not** guaranteed to be a unique coordinate. The exact
+fourteen-dimensional coordinate for a location is in `v3_vectors.csv`, keyed by the
+location's stable id (§6).
 
 ## 4. `manifest.jsonl`
 
@@ -103,14 +106,32 @@ available evidence; it lives under `texts/v3/source-unresolved/…` and is grade
 Resolving it later would move a path and is therefore a deliberate, documented act,
 not an automatic one.
 
-## 6. Reading across models — the seed
+## 6. Seeds — `v3_vectors.csv` and comparing across models
 
-Every `location` renders one of a fixed set of 14-dimensional coordinates, recorded as
-`vector_id` and named in the file as `seed<vector_id>`. Two locations with the same
-`vector_id`, written by different models, are the same scaffolding rendered by
-different interiors. To gather a seed across all models, group `manifest.jsonl`
-locations by `vector_id`; everything downstream (creatures, placements, …) inherits
-its world through the `_for_location` / `_for_creature` links.
+Every `location` was generated from a fourteen-dimensional coordinate. The **exact
+coordinate each location received** is published in `v3_vectors.csv`, one row per
+published location:
+
+- Header (16 columns): `location_id,vector_id,` then the fourteen dimensions in this
+  order — `water, vegetation, temperature, elevation, erosion, scale, density, built,
+  tech, light, fauna, weirdness, sound, dynamic`.
+- Values are numeric on the public **0–3** scale; the authority is the snapshot's
+  `locations.param_vector`, verbatim. Rows are sorted by ascending `location_id`.
+- The file carries numbers, dimension names, and the range only — **no** prompt text,
+  template, rendered parameter prose, or natural-language level labels.
+
+**`vector_id` is a historical slot label, not a unique coordinate.** The original seed
+ids `0–74` have one stable coordinate each. During a later expansion, the 175 added
+seed ids were reused for two different coordinate sets across collection runs (a
+resampling artifact); about 1,400 locations sit on the minority variant. So two
+locations sharing a `vector_id` may carry different coordinates.
+
+To compare across models, **join on `location_id` and match the fourteen values** (or
+on both `vector_id` and the values) — never on `vector_id` alone. An analyst wanting a
+unique-vector table can `drop_duplicates` over the fourteen columns; the corpus does
+not manufacture one canonical winner per `vector_id`. Everything downstream (creatures,
+placements, …) inherits its world through the `_for_location` / `_for_creature` links,
+and reaches its numeric seed through the location's row in `v3_vectors.csv`.
 
 ## 7. Invariants
 
@@ -121,3 +142,8 @@ its world through the `_for_location` / `_for_creature` links.
   change.
 - Public files and records contain no prompts, system messages, request payloads,
   reasoning, credentials, or private paths.
+- Every manifest location has exactly one row in `v3_vectors.csv`.
+- A published location's numeric seed row is immutable; a changed coordinate for an
+  already-published location is a provenance failure, not a routine regeneration.
+- `vector_id` is a historical label and is not required to identify one unique
+  coordinate across all v3 records.

@@ -1,5 +1,6 @@
 # Root docs may normalize line endings; below texts/ nothing is ever normalized.
 * text=auto
 manifest.jsonl -text
+v3_vectors.csv -text
 # LAST word wins per path: canonical texts are byte-exact model output.
 texts/** -text -diff

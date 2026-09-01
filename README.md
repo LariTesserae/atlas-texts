@@ -17,6 +17,7 @@ The response text is the recorded object. It enters Atlas unedited and is stored
 - **150,621 texts** across **seven types**, written through a wide range of model endpoints.
 - Every text file contains only the response returned by the model—no front matter, attribution line, commentary, or other material inserted into its prose.
 - The requested endpoint, date, evidence for provenance, relationships, and file hash travel separately in `manifest.jsonl` and `sources/`.
+- `v3_vectors.csv` records the exact fourteen-dimensional seed stored for every location, keyed by location ID; it contains numeric inputs but no prompt text.
 - Published text paths are stable and append-only.
 
 The seven types are:
@@ -41,12 +42,15 @@ Readers can build around the texts without writing back into their generation ch
 
 ```text
 texts/v3/<endpoint>/<type>/[<bucket>/]<filename>.md
+manifest.jsonl
+v3_vectors.csv
+sources/<source_id>.json
 ```
 
 - **`<endpoint>`** is the model route from which the text was requested: for example, an OpenRouter permaslug, Anthropic API ID, or Bedrock model ID. Folder names report the sourcing endpoint; they do not claim access to the provider's underlying weights or internal routing.
 - **`<type>`** is one of `location`, `creature`, `advisory`, `regard`, `placement`, `transmission`, or `elsewhere`.
 - **`<bucket>`** appears only where a source/type directory would otherwise contain more than 1,000 files. It is the integer `id/1000` shard.
-- **`<filename>`** carries the text's Atlas ID and its immediate parent relationship.
+- **`<filename>`** carries the text's Atlas ID and its immediate parent relationship. The `seed<vector_id>` in a location filename is the historical collection-slot label; the exact fourteen numeric values for that location are obtained by joining its location ID to `v3_vectors.csv`.
 
 Examples:
 
@@ -65,11 +69,11 @@ seed → location → creature → placement
 
 ## Reading across models
 
-The seed number is the principal comparative join.
+The fourteen numeric dimensions are the exact comparative join. `v3_vectors.csv` gives those values for every location, keyed by `location_id`. Two locations sharing an identical fourteen-value coordinate began from the same landscape input; they are the same scaffolding, not the same world.
 
-A `location..._for_seed1.md` from one endpoint and a `location..._for_seed1.md` from another began from the same landscape coordinate. They are the same scaffolding, not the same world. `manifest.jsonl` records `vector_id` on every location, allowing all responses to a seed to be gathered without relying on filenames. Downstream texts inherit their world through `location_id` and `creature_id` relationships.
+Use the coordinate, not the seed number, to match. The original seed IDs `0–74` have one stable coordinate each, but during a later expansion the 175 added seed IDs were historically reused for two different coordinate sets across collection runs (an artifact of resampling the input grid). So two files that both read `_for_seed76` can carry different coordinates. For analysis, group locations by the fourteen dimension values (or join on both `vector_id` and the values), never by `vector_id` alone. Filenames retain the historical seed slot; the CSV records the exact input each location received. Downstream texts inherit their world through `location_id` and `creature_id` relationships.
 
-Coverage is intentionally uneven. The existence of 250 canonical seeds does not mean every writer has answered every seed or produced every downstream type. Atlas grows mostly by adding writers and by following interesting branches; absence is normal data, not a defect to conceal.
+Coverage is intentionally uneven. The existence of a set of canonical collection slots does not mean every writer has answered every slot or produced every downstream type. Atlas grows mostly by adding writers and by following interesting branches; absence is normal data, not a defect to conceal.
 
 ## Provenance
 
