@@ -1,7 +1,8 @@
 # Schema
 
-The exact contract for this repository. Everything here is stable: paths, filenames,
-manifest fields, and the source vocabulary are append-only promises.
+The exact contract for this repository. Paths, filenames, manifest fields, and the
+source vocabulary are meant to stay and have only grown so far; the firm commitment is
+§1 — a text file is the model's response, byte for byte.
 
 ## 1. Canonical text files
 
@@ -121,10 +122,11 @@ published location:
   template, rendered parameter prose, or natural-language level labels.
 
 **`vector_id` is a historical slot label, not a unique coordinate.** The original seed
-ids `0–74` have one stable coordinate each. During a later expansion, the 175 added
-seed ids were reused for two different coordinate sets across collection runs (a
-resampling artifact); about 1,400 locations sit on the minority variant. So two
-locations sharing a `vector_id` may carry different coordinates.
+ids `0–74` have one stable coordinate each. Of the ids added in a later expansion, the
+175 that were kept as canonical slots were each reused for two different coordinate
+sets across collection runs (a Latin-hypercube resampling artifact); about 1,400
+locations sit on the minority variant. So two locations sharing a `vector_id` may carry
+different coordinates.
 
 To compare across models, **join on `location_id` and match the fourteen values** (or
 on both `vector_id` and the values) — never on `vector_id` alone. An analyst wanting a
