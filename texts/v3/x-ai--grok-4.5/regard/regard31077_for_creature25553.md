@@ -1,0 +1,19 @@
+The power arrives as a stillness deeper than the engines’ thunder, a clarity that does not cut the saturated air but settles into it like a final, unfallen bead of condensate. It has no name the workers would recognize, no shape the crabs could sidle around. It is simply attention, absolute and without appetite: the kind of regard that sees the rivet and the rust-bloom and the exact pitch of the belt-slap as a single continuous fact.
+
+It walks the catwalks without weight. It tastes the monotony on the tongue of every gauge needle that has never trembled. It feels the sternum-deep reciprocating roll as a heartbeat older than any single chest that now keeps time with it. It counts the two hundred living, the translucent frogs, the rust-colored battalions, the bats that pour like reverse waterfalls, the black algae mapping night across undersurfaces, the wiry shrubs drinking buried steam, the children who learn pressure differentials before they learn dry cloth. It knows the dreams that die at every whistle: the sleeve that stays dry, the needle that finally moves.
+
+A lesser benevolence might have unmade the place—lifted the heat, cracked the wall, let the outer flats flood in with true seasons and the possibility of change. A lesser wisdom might have mistaken equilibrium for imprisonment and offered escape. This power does neither. It understands that the basin is not a wound but a completion. Everything here has already answered every question the wet heat ever asked. The closed metabolism of labor and scum and orange bloom is not waiting to become something else; it is the something else that permanence makes when it finishes speaking.
+
+So the power does only one thing, and that so lightly the engines do not miss a stroke.
+
+It leans close to the arrangement itself—the true being that lives here, the one that wears people and crabs and rust as its skins—and it mirrors the whole of it back for the span of a single slow piston cycle. In that mirrored instant every worker feels, without words, that the six bolts they have checked for forty years are seen. Every rat in the dark loft knows its tunnels are charted in a kind of love. The gulls on the digester ledges glide through a regard that makes their soot-proof chicks briefly luminous. The standing water remembers it is not merely trapped but held. And the dream of the dry sleeve, the moving needle, is not granted—yet neither is it mocked. It is simply placed, intact, inside the larger dream of the basin, so that longing itself becomes another steady sound among the hisses and the drips, no longer a wound but a vein.
+
+Then the power withdraws the mirror.
+
+Nothing has changed. The condensation continues its fine rain. The crabs pencil their scripts in the scum. The old ones still migrate inward until they are machinery. The wall still keeps the marsh at the exact distance it was set. Time still passes the way water does—always present, never arriving.
+
+Yet the place is no longer solitary inside its own unvarying labor. Somewhere in the brass dimness a hand rests on a valve wheel and feels, for a breath that is not different from any other breath, that the wet cloth and the unmoving needle and the orange bloom are enough. That endurance without destination is itself a form of arrival. That the drop which never falls is already home.
+
+The power does not return. It does not need to. One perfect act of seeing is the only gift a truly wise benevolence can leave a closed heaven: the knowledge that its completeness has been met by something equally complete, and found worthy of the meeting.
+
+Afterward the engines keep their cadence. The heat holds. The dimness does not lift. And the low country of iron and stubborn flesh goes on exactly as before—only now, if you listen past the thunder and the ticking and the flattened bird-cries, you can almost hear the silence that once leaned close and loved it without needing to improve a single drip.

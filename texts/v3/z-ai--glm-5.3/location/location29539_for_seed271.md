@@ -1,0 +1,15 @@
+The country around it is warm, low, and dry — a plain of pale limestone and dust, thinly grown, the kind of land where shrubs stand a dozen paces apart as if by agreement. The heat is not fierce; it is steady, a held note. In the middle distance a low bluff crosses the land like a single step in a staircase, hardly worth the word cliff, and under its brow there is a band of darkness that from far off looks like nothing — a shadow, a stain, a place the light forgot.
+
+You only understand it when you walk in.
+
+The threshold is exact. One stride takes you from glare to dimness, from pale dust to dark damp sand, a line as sharp as a tideline drawn across the floor. The temperature does not drop so much as change nature: it is still warm, but the warmth goes still, goes close, like stepping behind the curtain of a waterfall without the waterfall. The air holds its moisture the way a shaded coat holds body heat.
+
+Inside, the place opens into a room. That is the honest word for it. The mouth is as wide as a barn; the roof arches up to the height of good trees; the floor runs back deeper than the bluff is tall, so that when you turn around, the outer world has become a bright rectangle, a rectangle of bleached sky and overexposed rock, framed in stone. Everything here is made of the same cream and grey limestone, banded and stained, case-hardened by millennia of dry wind until the surface rings faintly underfoot.
+
+And on the back wall, high up, there is a stripe of dark rock that is dark because it is wet.
+
+The seep emerges along that stripe and bleeds downward over great aprons of flowstone — cream-colored, ribbed, terraced like stacked saucers, all of it looking poured and frozen at once. At its foot, the water gathers in a basin the size of a table, glass-clear, warm as the air. From the basin a runnel escapes, and here is the strangest ordinary fact of the place: the runnel is three meters long. It sinks into gravel and fissures at the back of the alcove and is gone. The water is born inside this room and dies inside this room. It never reaches the outside. The dry country out there does not know this water exists. There is a whole small river here that has never seen the sky.
+
+The green of the place lives on that water and nowhere else. Maidenhair ferns stand in fans on the flowstone, their black stems beaded, their fronds tilted toward the room's dim glow. Moss grows in a mat around the seep's reach — dark green at the wet center, paler at the rim, and then it stops. Not thins. Stops. A hand-span beyond the spray, the rock is mineral desert. There is a single small fig tree leaning in at the lip of the alcove, its roots walking the cliff face down to the wet stripe, its leaves half in one world and half in the other. Ten paces of bare stone lie between the moss and the fig. That is the spacing of life here: everything present, everything far apart.
+
+No sun enters. The mouth faces away from the sun's

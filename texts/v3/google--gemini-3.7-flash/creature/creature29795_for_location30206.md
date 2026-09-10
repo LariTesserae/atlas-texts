@@ -1,0 +1,27 @@
+To find what lives here, you have to look past the scale of ordinary movement. In a chamber where the air never stills and the sound never falters, animal life has not vanished; it has simply discarded everything unnecessary for enduring a permanent, vibrating deluge. It has surrendered legs, lungs, voices, and eyes, matching itself to the physics of the slot.
+
+First are the inhabitants of the green sleeves—the continuous, sodden pelts of liverwort and moss that sheath the iron columns. 
+
+Deep within the rootless rhizoids, where the water is filtered into a slow, warm seep, lives a dense, uninterrupted culture of blind, soft-bodied grazers. They are pale as tallow, barely the length of an eyelash, resembling flattened amphipods whose segments have fused into a single, flexible shield. They have no eyes; in a space lit by shadowless white light forty feet above, vision is useless to a creature that never leaves the moss rootings. Instead, their entire dorsal plates are patterned with minute, microscopic pits packed with sensory cilia. They do not hear the sound of the pumps with ears; they *ride* it. The 60-cycle vibration that shakes the rivets is their spatial map. By the differential trembling of the iron against their bellies and the water against their backs, they know precisely how thick the moss is, where the water flows fastest, and when a patch of bryophyte is dying back into edible mulch.
+
+They crawl through the moss like drops of clear oil moving through a sponge, feeding on the microscopic debris that washes through the intake chute and atomizes into the mist. Because there are no seasons, they do not have mating cycles; they reproduce by a slow, continuous budding, dropping minute, gelatinous clones directly into the dark, wet fiber of the moss.
+
+Higher up, where the warm water sheets most fiercely across the black, polished iron plates, the life becomes flatter, wider, and firmer.
+
+Anchored directly into the rivet collars and the countersunk bolt-heads beneath the cascading ferns are small, disk-shaped colonies of what might once have been freshwater bryozoans, but are now something far older and more specialized. To the eye, they look like nothing more than smooth, slightly raised blisters on the wet iron—dark amber or bottle-green, completely flush with the metal to offer no resistance to the laminar flow of water. 
+
+Under the surface film, these disks are alive with microscopic cilia, creating tiny, counter-directional eddies in the rushing water to pull in suspended organic dust. When the water tempers or shifts its line by a fraction of an inch, the disks very slowly deform, creeping across the slick slate-patina of the iron over the course of decades, leaving behind a faint, milky trail of calcified cement that the moss quickly colonizes. They are the mortar-makers of the vault, cementing the plant roots to the steel.
+
+And in the deepest, loudest corners—where the vertical seams of the four walls meet the floor scuppers, where the mist is thickest and the roar is so loud it turns water droplets into standing geometric patterns on the stone—there are larger things, though they rarely look like animals until they move.
+
+These are the *tongues*.
+
+They are neotenic, blind, ribbon-like organisms, perhaps descended from planarians or some long-isolated branch of leeches, though they have lost all parasitic drive. They measure four to six inches in length, but are scarcely thicker than a wet leaf of hart's-tongue fern. Their skin is smooth, translucent, and milk-white, patterned internally with the faint, branching red tracks of their vascular systems, which absorb oxygen directly from the warm, heavily aerated foam running across them.
+
+They live anchored by broad, muscular suckers to the polished river pebbles of the concrete aggregate, entirely submerged within the thin, glass-clear sheet of drainage water. Their long, ribboned bodies trail downstream toward the scupper grates, floating weightless, undulating in perfect synchronization with the rhythmic pulses of the intake chute. 
+
+They do not hunt; there is nothing to hunt. Instead, their broad, flattened dorsal surfaces are coated in a perpetual, hyper-adhesive mucus. As the atomized water drifts through the chamber, carrying with it microscopic algae, fungal spores, and the occasional translucent gnat that falls from the wire-glass ceiling, it settles onto the water film and is carried over the ribbons. The mucus catches the drift. Every few hours, with a slow, deliberate rolling motion that looks like a peeling strip of wet silk, the creature curls its head back along its own body, scraping the enriched slime into a wide, toothless ventral groove, then unrolls again into the current.
+
+To be inside this chamber is to be in a closed, circular metabolism. 
+
+The heat comes from the deep machinery; the light comes from the sky; the water carries the food from the world outside. The creatures here do not fight the roar, because the roar is the vault's weather, its pulse, its only clock. They have become so completely attuned to the frequency of that six-inch steel wall that if the pumps were ever to fall silent, the sudden stillness—the cold, dry arrest of the air—would kill them long before the light faded. They are the flesh of the machine's foundation, grown slowly out of centuries of wet, warm iron and sunlit noise.

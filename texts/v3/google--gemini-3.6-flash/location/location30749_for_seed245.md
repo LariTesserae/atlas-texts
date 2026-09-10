@@ -1,0 +1,23 @@
+There is no dirt here, no stone born of cooling magma, no silt laid down by ancient rivers. The ground beneath the warm steam is a single, continuous expanse of hand-troweled mortar, coarse terracotta, and grey ceramic slabs, stretching out into a low, dim horizon that never meets a sky.
+
+The heat is heavy, damp, and suffocating, like the inside of a newly fired kiln that has been drenched in lukewarm water. Moisture does not fall from above—there are no clouds in the faint amber gloom—but instead seeps out from the seams between the immense tiles. It weeps perpetually from the vertical faces of hand-built ramparts and pools in the shallow, finger-smoothed gutters that crisscross the floor for miles. The air tastes of lime, wet clay, and cooked salt.
+
+Everything in this place is made, yet nothing seems finished. 
+
+The scale is vast—a continent-sized interior basin enclosed beneath an impossible ceiling of hand-jointed brickwork—and yet the work bears the crude, immediate texture of simple craft. You can trace the marks of gigantic wooden floats across the floor, where the plaster was laid down while soft. There are thumb-sized grit inclusions in the glaze of two-mile-high pylons; there are messy, squeezed-out beads of dark mortar between blocks of cast concrete the size of city blocks. 
+
+Yet there are no machines. No engines hum in the haze. Where structures meet, they are held together by hand-spliced ropes of thick, coarse fiber, pinned into the masonry with oversized iron wedges that have been hammered in with brute force. Plumb lines—ropes as thick as tree trunks, weighted by massive, unpolished iron teardrops—dangle down from the dim vault above, swaying slightly in air currents generated purely by the heat of the floor.
+
+It is a silent place, for the most part. The only sounds are the quiet, rhythmic *clop-clop* of warm condensate dripping from the underside of high arches into shallow basins, and the occasional heavy, wet *thud* of a fresh layer of plaster settling miles away. There are no birds, no insects, no weeds pushing through the joints. The water is totally sterile, clear and warm, devoid of algae or sediment, moving only where the slight pitch of the masonry forces it to run.
+
+And yet the landscape refuses to remain still.
+
+Because the world is brand new—un-eroded, raw, its physics still soft and uncured—it undergoes constant, turbulent re-formation. A miles-wide terrace of wet, red clay tile will sit flat for hours under the amber fog, sweating warm vapor, only to slowly swell upward like rising dough. The geometry deforms without breaking: the straight, hand-cut mortar lines stretch and curve into impossible, non-Euclidean loops, lifting millions of tons of fired masonry into a soaring, twisted vault. A hundred yards away, an immense monolith, carved with rough hand-chisel grooves, softly melts at its base, folding sideways into a liquid slurry of warm grey cement that flows across the plain until it suddenly freezes solid mid-ripple, leaving a wave of hard, thumb-marked concrete.
+
+Distance here is uncalibrated. A straight walkway, laid down with neat ceramic cobbles, seems to stretch five miles to a distant archway; yet walking along it, three steps bring the arch immediately overhead, while looking back reveals the starting point now hidden by twenty miles of steaming, empty plaza. Space expands and pinches like wet clay under a potter’s wheel.
+
+The density of this realm is sparse. Between the colossal, isolated monuments—a sixty-story staircase that ascends into empty air and turns upside down; a sprawling, low labyrinth of hand-poured concrete walls with no doors—lie vast, empty expanses of wet, dim floor. You can stand on a flat expanse of dark glaze, looking out into three hundred degrees of lukewarm mist, and see nothing but the faint, dull amber glow radiating through the floor-slabs from some unseen, deep-set hearth far below the crust.
+
+Scaffolding made of lashed ceramic poles clings to the sides of half-formed megastructures, left behind as if the builders simply stepped away a moment ago. But there are no builders. The world seems to be constructing itself using the memories of primitive tools—the logic of the trowel, the rope, the brick-mold, and the hammer—amplified to planetary proportions and operating in a volatile, hyperactive vacuum where reality has not yet decided how to hold a shape.
+
+A warm breeze carries a puff of fine lime-dust through the fog. Where the dust settles on a pool of stagnant water, the surface skin hardens instantly into a paper-thin sheet of terracotta, which begins, slowly and silently, to lift itself into the shape of a new wall.

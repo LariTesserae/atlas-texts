@@ -1,0 +1,23 @@
+I would be a Wanderer. 
+
+I would be one of the harvestmen, picking my way across the saturated hide of the Velvet.
+
+To be a harvestman in the Seam is to exist as a living bridge between the slow, green wars of the moss and the silver geometry of the Weavers. I have eight long, spindled legs, and I use every one of them to navigate a world that is perpetually on the verge of dissolving beneath me. My kind does not scuttle; we do not rush. To rush in a place where the air is practically liquid and the ground is a quaking mat of sphagnum would be a violation of the physics of the place. We step high, delicately, placing each limb with the careful precision of an old man walking on ice, testing the tension of the moss before committing our weight.
+
+I begin my journey at the edge of one of the glass-still pools, where the water is black and cold and holds the narrow sky like a mirror. The stone here is sharp—geologically an infant—and the moss has only just begun to pack the fresh fractures. I step from the bare, weeping limestone onto the Velvet. The texture changes instantly. It is like stepping from bone into flesh. The moss yields, just slightly, holding the impression of my foot for a long, lingering moment before it slowly, slowly springs back. I am walking on the breathing skin of the Seam, and I can feel the cold radiating up through my legs, the dense, heavy cold that sits at the bottom of the slot like an invisible lake.
+
+As I move upward, away from the pool, the architecture of the Weavers begins to assert itself. The air is so saturated here that it is practically weeping, and the spiders have turned this abundance into geometry. Their webs are strung between the hanging curtains of clubmoss, stretched across the mouths of crevices, spanning the gaps in the green. They are not traps; they are filtration systems, drawing the mist out of the air one microscopic droplet at a time. 
+
+I walk through their cathedrals. 
+
+A strand of silk catches on my foreleg. It is impossibly fine, stronger than its diameter should allow, and beaded with perfect spheres of condensed fog. I do not struggle against it. I simply keep walking, and the strand stretches, holds, and then releases with a faint, tactile *snap* that I feel more than hear. But I carry a fragment of it with me. By the time I have crossed a single ledge, my legs are draped in the forgotten laundry of the Weavers—strands of silk, old web caught on my spindles, tiny lenses of dew that catch the low, sideways sun and bend it into brief, brilliant points of light. I am becoming a part of the Seam’s secondary skin. I am the connector, the traveler who physically transports the architecture of the air from one wall to the other.
+
+Beneath me, in the dense, wet thatch of the Velvet, I feel the manic, vibrating pulse of the springtails. They are the micro-world’s alarm system. When my shadow falls upon them, or when the vibration of their footsteps telegraphs through the moss, they launch themselves into the void in tiny, panicked bursts—the only sudden movement in a place defined by patience. They land a centimeter away, trembling, and I step over them, a giant moving at a glacial pace.
+
+I pause at the border of two moss colonies. Here, the Velvet is a map of a slow-motion war. The line between the deep jade of one species and the pale green of another is sharp, contested, a millimeters-wide front line where neither has yielded. I extend a leg and touch the border. There is no visible movement, no sound, but I can feel the tension in the chlorophyll, the relentless, patient push of one organism against another. I am standing on the front lines of a war that is fought in seasons, not seconds.
+
+Far below, in the deep pools, the philosophers—the newts—row through the still water with their oar-like legs, utterly unhurried. And in the deepest cracks, where the cold is absolute, the eyeless salamanders taste the mineral water, navigating by the electrical impulses of the stone. I cannot go where they go, but I carry the memory of the deep on my legs, the dampness of the abyss.
+
+I continue my high-stepping traverse across the wall, a spindled silhouette against the green. I am not merely moving through the landscape; I am becoming the place. I am the wanderer who ties the Seam together, carrying the silk of the weavers, stepping over the panic of the springtails, walking on the flesh of the Velvet, all while the Cold holds us all in its heavy, suspended embrace. 
+
+I am the harvestman. I am the Seam’s slow, deliberate pulse, walking the wound while it knits itself shut.

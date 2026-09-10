@@ -1,0 +1,23 @@
+This is the Great Shelf of Oor, a continental peneplain lifted so high into the upper troposphere that the sky overhead is not blue but an ink-tinted indigo, yet bathed in the raw, unfiltered white light of an unobstructed sun. The plateau is so ancient that its mountains have long since been planed flat by eons of wind, leaving behind a limitless tableland of slate-gray bedrock, worn so smooth in places that it resembles frozen water.
+
+Despite the altitude and the biting, sub-zero cold, the plateau does not freeze entirely. It exists in a permanent, thin dampness—a state of condensation where the moisture does not fall from above as rain, but sweats directly out of the stones and the air. Micro-droplets gather on every surface, clinging like cold oil, pooling into shallow, mirror-surfaced cisterns that stretch for miles without a ripple. 
+
+Across this colossal expanse, vegetation thrives in a strange, thick, low-slung abundance. It is a lushness without trees: vast, spongy tundras of liverworts the color of oxidized copper, dense mats of black velvet moss, and thick, ribbon-like succulents that insulate themselves with coats of translucent, oily frost. These plants are not dormant; they are relentlessly active, swelling and exhaling thin plumes of steam at rhythmic, four-minute intervals, as if the soil itself were hyperventilating in the thin, freezing atmosphere.
+
+Yet the emptiness between things is terrifyingly wide. You can walk for days across a single, level terrace of moss and wet shale before encountering a feature, because the scale of Oor operates on continental terms. 
+
+When structures appear, they do not arrive as mere ruins, but as whole, unpeopled cities of astonishing, primitive density. 
+
+These cities were built without the wheel, without iron, and without mortar. They are labyrinths of cyclopean slate, hand-piled drystone tenements, massive stepped terraces of raw granitic slabs, and thousands of narrow avenues lined with lintel-and-post dwellings. The masonry is brutally simple—the work of millions of hands swinging flint adzes and dragging sledges—yet the sheer volume of construction matches the footprint of a metropolis. These cities are laid out in strict, geometric grids that ignore the curvature of the planet.
+
+And it is here that the laws of matter fray.
+
+Because the plateau has existed longer than the continuity of the local physics, space has begun to shear along the joints of the drystone walls. A narrow alley between two five-story stone tenements might open, without transition, onto a ledge overlooking the same alley from three hundred cubits above. You can drop a pebble from an unglazed window on the third floor of a stone hut, and hear it strike the moss behind your own heels thirty seconds later. The cities loop into themselves, folding like wet parchment: a street of hand-carved dolmens will stretch straight toward the horizon, perfectly flat, until it crosses its own origin at a ninety-degree angle, with no hill or incline to account for the return.
+
+No animal walks these streets. There are no birds, no insects in the lichen, no worms in the damp silt under the stones. The only motion belongs to the landscape itself and the relentless, mechanical breathing of the flora. 
+
+The dynamics of the Shelf are vast and procedural. A low, rolling tide of heavy vapor—dense with the scent of crushed moss and cold iron—drifts across the plain twice a day, following a logic of atmospheric pressure that belongs to a continent five times larger than this world should allow. As this fog rolls through the stone cities, the acoustic properties of the air collapse: a falling stone produces no sound at all, while the microscopic tearing of moss expanding across a slab is amplified into a low, wooden creak that vibrates through the soles of one's boots.
+
+The light remains steady, cold, and pale. Shadows cast by the massive stone towers do not track the sun in a simple arc; instead, they slowly detach from the bases of the walls and drift across the paved courtyards like dark, rectangular sheets, sliding over the wet moss before dissolving into the air. 
+
+At the edges of the urban sectors, where the stone gives way once more to the damp, endless expanse of black liverwort, you can find the quarry pits where the primitive builders worked. There, the bedrock has been split into neat, colossal blocks by wooden wedges swollen with water. The tools—antler picks, quartzite hammers, and frayed hemp ropes—still lie beside the half-freed slabs, preserved perfectly by the cold, damp air, unchanged across an amount of time that has outlived the concept of history itself.

@@ -1,0 +1,51 @@
+At first you think nothing does.
+
+Not really. That's the first lesson the high town teaches. You walk a grid street with dust to your ankles and hear a boot scrape two streets over and you turn and there is no one, and the doors are all ajar onto hot dark rooms, and the laundry hangs stiff and unmoving, and you think: abandoned. Maintained by momentum. A habit of machines that forgot to die.
+
+Then you learn to stand still long enough for your blood to quiet. And they come out of the balanced dark — not all at once, never Crowded — one at a time.
+
+A man at the end of a conveyor, hand on a stilt-leg, just leaning his weight into the iron to feel if the tremor is right. A woman coiling a rope between tenements, testing it hand over hand, not looking at you. A child squatted by an open cistern dropping stones one by one to listen for a bottom that never answers.
+
+They are dust-colored. That is not a metaphor that wears off. The dust gets into the creases and stays. Skin tanned to a red-gray, powdered pale at the eyebrows and knuckles, cracked at the lips into permanent fine lines, like the glaze on old pottery. Young faces look old. Old faces look like stone that has decided to keep eyes.
+
+The eyes are the second thing. Large in the dark, too large, the pupils always wide because there is never enough light to close them. You think at first they are blind, the way they don't quite fix on you. Then you realize they are seeing by a different spectrum — not shape, but heat. They see your face as a faint warm coin. They see the handrail you just touched because your palm left two degrees on it for a minute. They navigate by afterglow. When they pass you close in a machine hall, their glance flicks to your throat, your hands, your boots — the hottest parts — the way an animal checks another animal.
+
+Don't mistake them for ghosts. That is too easy and too wet an idea. They are not thin. They are *dried*.
+
+The body here learns a new economy. Sweat never beads. It leaves the pores and is gone, taken by the warm air before it can do its work. So they have learned not to sweat. They move slowly, even the children. No quick gestures, no running, no open-mouthed breathing if it can be helped. Their breath is shallow, through the nose, conserved. Speech is hoarse and low and sparing — talking dries the mouth. They whisper more with their hands: a tap on a pipe means *this way is warm*. A palm held flat means *wait*. When they do speak, the voice sounds oiled, scraped.
+
+Because there is no water, and that is not a shortage. Shortage implies something missing that could return. Here water is a concept from elsewhere, like snow or sea. What they have instead is oil, and heat, and time.
+
+They oil their throats. A half-spoon of clean machine oil, swallowed slow morning and night, to keep the swallow working. They keep damp rags — or what their grandmothers told them were damp rags — sealed in biscuit tins, folded in wax paper. On feast days, and there are feast days marked only by a different bell-toll of contracting plate, they press the cloth to forehead and to the back of the neck for five counted seconds, and then seal it again. No one knows if there is any damp left in them after a hundred years. It doesn't matter. The ritual is the moisture.
+
+They eat what doesn't need water to keep. Hard tack that never molds because it desiccates first. Salt meat like wood shavings. Grease dripping saved from zerks and bearings, clarified and salted — you will smell it on their bedding, hot oil and stone and old wool, on their breath, on the shine of the chair arms. The railbed that climbs out of the lowlands on slag and never quite arrives — once, within living memory of the oldest, something still came up it. Not often. Irregular as weather. A wagon left in the night with flour sacks and tool steel and once, miraculously, a crate of tinned peaches that is still talked about in the exact tone other towns use for miracles. Now nothing comes. They thin what they have. They beat their clothes clean instead of washing. They mend sheet metal over brick over stone. They are not starving. They are *abrading*, the way everything here abrades, dust by dust, but so slowly it does not count as dying in a single lifetime.
+
+Their children are few and startlingly quiet. They do not play chase. They play listening. Dropping stones into the dry cisterns to hear how deep empty is. Laying cheeks against warm pipes to guess which hall is turning. Tying strings between guy-wires to feel dust land. They learn early the rules you learn without being taught: keep to the warm paths, shade your lamp, do not ask for water. Cold metal means a dead load, a structure no longer fed by the hum — it will be brittle, it will betray you. The dark is communal — to flood it with white light is to steal from everyone, to blind eyes that have spent decades widening. So they carry their little amber lamps cupped, hooded, leaking only enough red to find the next rope.
+
+The old are warmest. That is a strange thing to say, but kneel next to one sitting against the powerhouse wall with hands folded and you will feel it radiating off them like a stove banked for night. They have spent sixty, seventy years in the 50-cycle throb, flywheels turning one revolution per minute in their molars, shafts humming in their bones. Their bodies have tuned. They can tell by placing an ear to a housing whether a bearing ten meters away is going dry. They do not repair so much as *attend*. A wipe of waste on a journal. A quarter-turn of a greaser. A long lean while the press kisses its empty die and withdraws, kisses and withdraws. To stop would be colder than to run. They know this in their joints.
+
+No, they are not miners. There is no ore coming in, no product going out. The bins are full of the same dust that is everywhere. The tools are worn to the shape of hands. What they tend is not production. It is equilibrium. The town reached its final form long ago — someone, somewhere, built it to make something on a scale that needed chapels and switching yards — and then the reason wore away like the corners of the buildings, leaving only the motion. They keep the turning going because the turning keeps them warm, and they keep warm because they keep the turning going. It is a closed animal, and they are its blood.
+
+And they are not alone in it.
+
+Where there is heat and grease, even without water, something finds a way to be hungry.
+
+The pale ash-moths live for the pilot lamps. Almost blind, the size of a thumbnail, dusted the color of the pavement so you don't see them until they move. All their short lives they beat themselves, softly, almost inaudibly, against amber and blood-red glass — *tit tit tit* — until their wings fray to stubs. Then they crawl, still warm, into the nearest crack in brick or switchgear and die, and their bodies, too dry to rot, just thin away. You will find their dust on the lamp housings, mixed with iron dust. The workers never brush it off. It would be a waste of motion.
+
+The duct-rats own the overhead. Lean as wrenches, hairless-tailed, whiskers caked stiff with graphite, they run the cable trays in single file, nose to tail, silent except for the faint tick of claws on steel. They do not drink. They lick. Grease from zerks, oil sweat from bearings, the salt crust at a human's collar left hanging overnight. They know every hot culvert the way you know hallways. If you leave a glove out, you will find it in the morning thinned, the fingertips gone to tiny teeth. They watch you with eyes like wet ball bearings, reflecting red, and vanish before your lamp finds them.
+
+And under the powerhouse, in the hottest culverts where the air shimmers though there is no light to shimmer in and the plates ring faintly under your boots, live the cinder-pups.
+
+You will meet one first by your feet. A cool draft, then a warmth nosing at your laces. Low, eyeless, the size of a shoe, skin like warm pudding-stone, blind muzzle pushing, pushing. They find you by the warmth of your feet — you are the only thing in the culvert that is roughly blood temperature and moving. They will mouth your bootlace once, thoughtfully, and think better of it and melt back into the dark with a sound like a sigh through sand. They breed in the ash pits that never cool. They eat moth dust, rat droppings, skin flakes, the heat itself, it seems. The workers leave them alone. A cinder-pup curled against a bearing block means that block is healthy. A culvert gone cold and empty of pups means a dead load. Do not step there.
+
+Put them together and you begin to see it, lying on your back on the still-warm tar paper of the sorting shed roof, feeling the high ancient flat extend past seeing in every direction.
+
+The town is not a place with animals in it. The town *is* an animal. A low, flat, scattered creature keeping close to the ground to avoid being noticed by the sky. The powerhouse is its heart, throbbing slow at the threshold of hearing. The flywheels and shafts and belts are its slow peristalsis, moving nothing from nowhere to nowhere to keep the insides warm. The conveyors on stilt legs, the gantry cranes with hooks touching earth like tired muzzles, the dozens of chimneys breathing nothing — limbs extended and at rest. The pilot lamps are its nerve endings, small hot eyes that never close. The people are its caretaker cells, moving along warm paths, oiling, listening, conserving moisture, never expecting change because a healthy body does not change, it continues. The rats are its parasites, the moths its scales, the cinder-pups its gut flora, finding warmth and making warmth.
+
+Nothing begins. Nothing ends. Nothing is born wet or dies rotting. Things thin, abrade, sublime away, and are replaced dust by dust.
+
+If you lie long enough, your own heartbeat slows to try to match the 50-cycle throb. Your sweat dries before it beads. Your lips crack. Your eyes widen uselessly at the plum-black lid above. You feel the day that left a million years ago still leaking out of the stone into your back.
+
+And somewhere two streets over, a boot scrapes. And does not come closer. And does not need to.
+
+You are already inside what lives here.

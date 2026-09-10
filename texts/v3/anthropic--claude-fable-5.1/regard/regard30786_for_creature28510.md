@@ -1,0 +1,49 @@
+It would come to the rim first, because everything does, and it would stand in the scrub where the reed grows and look down at the lid of steam, and for a while it would do what wisdom mostly does, which is not act.
+
+It would be tempted. That is the first thing to say honestly. A benevolent power looking down into that basin would feel the pull of a hundred gifts, and each of them would arrive dressed as mercy. It could thin the steam and let the sun in. It could give the children back the middle of their ears. It could reach down and pull the snails free of the lips before the lime took them. It could warn the people. It could tell them there is a sky, and weather, and a thing called a year, and that the springs — because a wise power would know this, would have looked into the ground and seen the heat and seen that all heat in the ground is borrowed — that the springs will one day cool, and the fog will lift, and the sound will stop.
+
+And it would turn each of these over, in whatever way a power turns things, and set each one down.
+
+Light would be a wound. A shadow is a thing you are taught to live beside before you can walk, and no one down there has been taught. Hearing would be worse: the roar given back to a whole city at once, a wall of sound with nothing built to bear it, and under the roar, arriving for the first time, the terrible smallness of a voice. The snails it would look at longest. It would let its attention rest on one shell with its bead of fresh lime and the living thing inside grazing its small circle, and it would feel the exact impulse the people have a touch for — two fingers, pressed and held — and it would understand that the touch is the whole of the answer, that they have already said everything there is to say about the snails, and that a hand coming down out of the fog to lift one free would be an act of speaking without holding.
+
+As for the warning. It would think about the warning for a long time. To tell them that the water will stop is to hand them a tense they do not have, a thing that will happen once and then never again, and to hand it to them not as a story but as a fact about the walls they sleep against. It would mean that every child laying a cheek against the stone would be listening for something. It would end the place a thousand years early, from the inside, and leave the springs running over people who were already gone.
+
+So it would not.
+
+---
+
+What it would do instead is small and happens outside.
+
+The basin depends on one thing it does not make, and that is the reed. The reed grows in the wet places in the scrub beyond the rim, in the ordinary country with its ordinary weather, and the ordinary country is not steady. It has droughts. A dry decade over the rim and the wet places shrink and the bearers come back with half-bundles, and then with none, and a city that cannot stand new screens cannot go up, and a city that cannot go up is swallowed at exactly the pace it has always been swallowed, with nothing climbing after it. The standing wave collapses not because anything in the basin changed but because something forty miles away did.
+
+A wise power would see that this is the seam, and that the seam can be tended from the outside without touching the inside at all. It would keep the wet places wet. Not conspicuously. A spring in the scrub that does not quite fail in a bad year. A watercourse that shifts a little, toward the reed rather than away. The bearers would never know; they would walk out and the reed would be there, as it always has been, and they would cut it and bind it and carry it down. This is what benevolence looks like when it is also wise: not a gift, which must be received, but an absence of a loss that no one will ever count.
+
+The springs it would leave alone. This is the harder refusal, and it would not be made lightly. But the power would see what the place is — not the people, not the birds, but the letting go itself, hot water giving up what it cannot hold — and it would see that a basin whose springs never cooled would not be this place made safe but a different place wearing its stone. Everything down there is a surface of deposit. The dead are laid under the lip and left. To hold the heat forever would be to build the one wall in the valley that was not grown, and to build it around the whole valley, and the people would never see it and it would change everything.
+
+So the heat is borrowed, and will be returned, and the power would let that stand. But it would decide something about the day it happens, and then it would go down.
+
+---
+
+It would go down as a bearer. There is no other way in. It would take a body that can carry a bundle taller than itself, and it would cut reed in the wet places it had kept wet, and it would walk over the rim into the steam. For the first hour it would hear — the roar arriving as a roar, the way it does for anyone — and then, as it went down terrace by terrace into the pearl light, it would stop hearing. It would let this happen. A power that kept its ears in that basin would be a thing standing at the far end of a room calling out, and there is no far end of a room down there and no calling.
+
+It would go deaf. It would go soft at the fingertips. Its feet would whiten. And it would begin, with enormous slowness, to learn to speak on the arm.
+
+This is the act. Everything before it was preparation, and everything after is consequence, but the act itself is a hand laid on the inner wrist of an old woman whose hair clicks when she turns her head, and the fumbling of that hand through pressures and drags and taps, and her patience, and the two pats that mean all right and never mind. It would be bad at it for a long time. A power is used to being understood. It would have to learn what the bearers already know, which is that in that place you cannot say anything to anyone you are not also holding, and that to be held you must stop being large.
+
+It would learn the tenses. This is where it would learn the most. It would feel its own hand reaching, over and over, for the shape of a thing that happened once and stopped — the drought it had softened, the dry decade that did not come — and it would feel the arm under its hand wait, and it would let the reach die, and say something else. It would learn that the language has no word for lost because nothing here is. It would learn the word for far, which is the word for hidden, and it would think about the sky and say nothing.
+
+And it would be given secrets. It would not seek them. But a bearer is a person who is here and then gone and then here again, a person whose arm a thing can be told to and then walk out over the rim, and people would come to it, one at a time, and cup a hand so the fingers could not be seen, and lay the hand on its arm, and speak. It would keep them. Every one. Not because it had promised — there is no touch for promising, only for holding — but because a secret in that place is a thing you have had to be held to receive, and the power would find that it could not set down anything it had been given that way. This, it would come to think, was the nearest thing to what it had come for. Not to be seen. To be told.
+
+---
+
+It would stay a house. That is the length of a life there, and the power would take a life's length and not a moment more, because to stay longer would be to become the one thing in the basin that did not go up when its door narrowed.
+
+It would stand screens. It would cut channels with a tufa adze and set the adze down when it went blunt and watch it become floor. It would gather dung and burn it and eat fish with the drip in the pot. It would sit in a chain, hand to arm to hand, and feel a joke arrive as a different joke and laugh with its whole body because there is no other way to laugh there. And once — only once, and it would not do it again — it would kneel at a terrace lip and hold its hand above a white shell with a bead of fresh lime at its base and feel the whole valley pressing on the back of its hand, all the letting go, and it would not lift the shell. It would press two fingers to the rim of the pool beside it, and hold them there, and get up.
+
+Near the end its knees would set. Its knuckles would begin to lock. It would move like something being lifted carefully from a mold, and children would take its arm to tell it things, small things, the things children tell, and it would understand every one.
+
+And when the door of its room had narrowed too far, it would not go up. It would go down, with the others, to the low tiers where the water runs and no one lives, and it would lay its borrowed body under a lip and let the water be led over it. This would be its answer to the question of the springs. Not to hold them, but to be in the stone when they stop — a hollow, perhaps, at about the height of a knee, a few rooms down, so that on the day the fog lifts and the roar dies and the people stand for the first time in a valley full of sound and light and shadow with nothing built to bear it, the walls they put their hands against will have it in them too, and the drip that has just stopped will have passed through the stone that passed through it.
+
+It would not be able to help them then. That is not what wisdom is for. But they would not be standing on anything it had not been part of, and every one of them would have, somewhere in the walls, at some height, the arm of a thing that had come from very far away and learned to say nothing except with its hands, and had been told everything, and had kept it.
+
+That is what it would do. It would keep the reed wet, and it would go deaf, and it would let itself be held.

@@ -1,0 +1,21 @@
+High up in the black spires—where the tectonic rise is still raw and the jagged edges of the mountain have had no time to round—there sits an enclosed shelf of rock, no larger than the nave of a cathedral. It hangs three thousand meters above the cloud floor, walled in on three sides by sheer, razor-sharp basalt cliffs that shoot straight up into the light. The stone here looks freshly cracked, dark and glassy, with razor-thin fractures and jagged overhangs that have never known the softening weight of ages.
+
+Yet, despite the extreme altitude, the pocket is warm. 
+
+A subterranean thermal vein bleeds heat directly through the floor, warming the water that constant condensation pulls from the passing clouds. The atmosphere within the pocket is a thick, balmy soup of steam and sun. Bright daylight plunges down the vertical throat of the rock walls, striking the vapor and scattering into brilliant, shimmering shafts of orange and white light. Everything glistens; every surface is coated in a warm, perpetually renewed film of water.
+
+Dominating the center of this small basin is a scattered assembly of heavy iron and brass machinery, bolted straight into the unyielding basalt. 
+
+It is not a ruin, though it is overgrown; it is an engine that operates on timescales so vast and patient that it seems stationary. A massive, riveted steel boiler, four stories tall, sits wedged against the rear cliffface. From its sides project thick copper conduits, green with verdigris and weeping warm, mineral-rich condensation into dark rock pools below. A single, colossal iron flywheel—fifteen meters across—is set into a trench in the bedrock. It turns, but so slowly that a human eye must watch its rim against a seam in the rock for minutes to register its motion. With every long, agonizing degree of rotation, a deep, bone-shaking groan reverberates out of the mountain—a low-frequency thrum that rattles the teeth and vibrates through the soles of your feet.
+
+The sound in the basin is immense and layered. It is an acoustic trap: the sharp, un-weathered basalt walls bounce every vibration back inward. Water roars constantly from a narrow notch near the top of the cliff, plunging as a white plume into a brass catchment basin before overflowing into the moss. Steam relief valves on the copper pipes vent at long, predictable intervals, releasing deafening, high-pressure shrieks that echo off the stone like cannon fire, only to settle back into the continuous roar of cascading water and the heavy, rhythmic *thump-hiss* of an automated hydraulic ram deep within the rock.
+
+Because of the endless warm rain and industrial exhaust, the vegetation is suffocatingly dense. 
+
+Lush, fleshy broadleaf plants with leaves the size of doors crowd around the base of the steel boiler, their dark green surfaces slick with mineral sludge. Thick carpets of neon-bright moss cushion the sharp, knife-edge ridges of the fresh basalt, spilling over the rusted edges of catwalks and wrapping around iron pressure gauges whose glass faces broke long ago. Long, ropy ferns hang from every seam in the cliff, bathed in the spray of the waterfall and the warm exhaust of the vents. Roots have found every tectonic micro-fracture, lacing the iron structures to the mountain face with a tight, living webbing.
+
+Fauna is nearly absent in this humid acoustic chamber. Animals avoid the thunderous vibration of the machinery. Only a specialized species of thick-shelled, oil-slick beetle creeps along the warm brass pipes, scraping up microscopic algae, and small, blind white crabs scuttle in the deep, warm basin where the boiler drains. 
+
+Nothing changes quickly here, despite the noise. The engine does not race; it breathes. Water gathers, heats, builds pressure, drives a piston deep in the rock, vents its steam, and condenses on the cold overhangs above to rain back down into the basin. The young rock does not crumble under the water’s assault; it is too hard, too recently exposed. The iron rusts at a crawl, sealed beneath thick layers of oily lichen and moss. 
+
+It is a small, incredibly loud, secret warm room perched on the edge of the sky—a place where heavy industry and wild, dripping flora have settled into a single, slow-motion metabolism, locked inside an amphitheater of razor-sharp stone.

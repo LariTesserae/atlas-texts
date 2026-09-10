@@ -1,0 +1,19 @@
+This is a world of Lignin and Friction, a planet-sized loom where the "soil" is a compressed crust of petrified fiber and the sky is a dry, blinding white glare. 
+
+There is no water here. The biology of this place has solved the problem of metabolism through the violent exchange of static electricity and the refinement of atmospheric gases. The "vegetation" is the environment itself; it is not merely growing on the terrain, it *is* the terrain. Great, weathered buttresses of grey-brown cellulose rise like Himalayan ranges, their surfaces polished to a dull sheen by eons of dust-storms. These are the World-Stalks, continent-sized pillars that anchor the atmosphere. 
+
+The scale is so vast that the valleys between these stalks are canyons of thin, cool air, miles deep. Because the density is so low, you can stand on the edge of a Lignin-Plateau and look across a hundred miles of absolute nothingness—a terrifyingly empty sky—to see the next pillar rising like a lone tooth on the horizon. It is a landscape of massive presences separated by even more massive absences.
+
+Though there are no "built" cities—no bricks, no steel, no intentional architecture—the world is profoundly industrial. It is a biological factory. The plants have evolved mechanical functions to survive the dryness. You see massive, rotating whorls of wood, miles in diameter, caught in the high-altitude jet streams. These natural turbines grind against stationary nodes, creating a constant, deafening roar—a tectonic screaming of wood-on-wood that never ceases. This friction generates the heat and electrical charge the ecosystem requires. 
+
+The sound is a physical weight. It is the bass thrum of a thousand planetary-scale mills grinding dry pulp. It vibrates in your marrow. 
+
+Because the world is so dynamic and turbulent, nothing is ever truly still. The "foliage" consists of mile-long ribbons of stiff, metallic-tasting fiber that whip in the wind like serrated cables. They clash together with the sound of a million swords. In the high reaches, the pressure of growth is so intense that the stalks occasionally splinter with the force of an earthquake, sending shards of hardwood the size of skyscrapers tumbling into the void.
+
+The light is relentless and cold. A high, bright sun—or perhaps a layer of luminous gas—saturates the air, casting sharp, black shadows across the textured bark of the world. There is no moisture to soften the light, no haze to blur the distance. Everything is hyper-defined, crisp, and jagged.
+
+Fauna exists in the interstices. They are creatures of bone and dry husk, skittering like giant silverfish across the vertical plains. Some are gliders, launching themselves from the heights to travel the hundred-mile gaps between stalks, their wings humming like biplanes in the thin, cool air. They feed on the dust, the pollen-soot that clogs the air, and the static discharge from the grinding turbines.
+
+The world feels ancient and "settled," despite its violence. The erosion is evident in the way the wind has carved smooth, aerodynamic flutes into the sides of the continental trunks. It is a stable chaos—a machine that has been running for a billion years without a mechanic, fueled by its own friction, screaming into the bright, dry silence of the vacuum. 
+
+You are standing on a shelf of bark that feels as solid as granite. Below you, a storm of dry chaff and splinters swirls in a vortex large enough to swallow a moon. The sound is a constant, industrial howl that makes speech impossible. To your left, a massive gear-leaf, three miles wide, begins to turn, catching the wind, its wooden teeth clicking into a groove in the cliffside with a rhythmic, mechanical thud that shakes the very foundations of the world. It is not a machine, but it is doing work. It is living, and it is loud, and it is unimaginably large.

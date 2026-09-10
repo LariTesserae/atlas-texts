@@ -1,0 +1,69 @@
+**Before anything else, understand what kind of place this is**
+
+This is not a landscape. It is an event that is still happening, slowly enough that a person can stand inside it. Everything you prepare for should follow from that one fact. You are not visiting a mountain; you are visiting the first few weeks of one. Every instinct you have about ground — that it holds, that it stays where you left it, that a landmark is a landmark — has to be set down before you arrive and picked back up when you leave.
+
+The second thing to understand is that the place will not kill you dramatically. There are no cliffs to fall from in the dark, or rather there are, but they are a few meters deep and the fall is not the danger. The dangers here are quiet and cumulative: thin air, dry air, sharp stone, invisible gas, cold above and heat below, and a total absence of any reference point for time or direction. People who go to places like this do not usually die of one thing. They die of four small things at once, in the dark, three hundred meters from where they thought their camp was.
+
+**The air**
+
+You are high. How high, the description doesn't say in numbers, but it says sound doesn't carry and the sky dust takes a season to settle, and it says the air is thin enough that a fissure opening makes no crack. Treat it as serious altitude. If you can acclimatize somewhere else first — a few days at a comparable elevation in a world with a sky — do it. If you can't, arrive expecting the headache, the shortness of breath, the strange stupidity that comes with hypoxia. That stupidity is the real danger, because this is a place where you need to make good decisions constantly and hypoxia makes you confident and wrong. Bring supplemental oxygen if you can carry it. At minimum bring the drugs that help with altitude and take them before you go, not after you feel bad.
+
+The air is also dry to the point of being hostile. Warm ground under thin cold air means whatever moisture exists is being driven off and carried away, and your lungs and skin will be donating to that process every minute. You will not sweat visibly, and so you will not believe you are losing water, and you will be losing a great deal. Bring more than you think. Bring twice that. Bring electrolytes, because plain water at altitude in dry conditions will pass through you without doing its work. Drink on a schedule, by the watch, not by thirst — thirst is unreliable in cold and unreliable at altitude and you will have both.
+
+The fissures exhale. The text says flint and scorched hair, which is sulfur, and where there is sulfur coming out of warm rock there is also carbon dioxide, and carbon dioxide has no smell. It is heavier than air. It pools in low places and in the hollows between slabs, and it is at its worst on still nights, and every night here is still. You will not feel it. You will feel tired and then you will sit down and then you will not get up. Carry a CO2 monitor with an audible alarm and clip it low on your body, not high. Carry a hydrogen sulfide monitor too — the smell warns you at low concentrations, but at high concentrations it deadens the nerve that smells it, and the warning stops right when you need it most. Never sleep in a hollow. Never rest in a dip. If you find yourself breathing harder for no reason, move uphill immediately, and in this place uphill may have changed since you last checked, so look.
+
+The dust above you is very fine and very high, and it is falling, slowly, all the time. Fresh volcanic glass in the lungs is not something you feel today; it is something you feel in twenty years. Wear a particulate respirator when you are moving and breathing hard. Wear sealed goggles. The dust that has already fallen is on every surface, and every time a slab tilts it lifts.
+
+**Your feet, your hands, your knees**
+
+Every edge here is fresh. Nothing has worn anything. This is obsidian and pumice and things between them, and it has never been rained on. Ordinary hiking boots will be cut through at the sole in a day or two. Bring the heaviest boots you own, with the thickest soles, and bring a second pair, because you will need them. Bring thick leather gloves — not for warmth, though they will help, but because you will fall, and when you fall you will put your hands down, and the ground will open them. Wear them at all times, including when you eat. Bring knee protection. Bring a real trauma kit, with pressure dressings and a tourniquet and the knowledge of how to use them, because a deep cut here, in this dryness and this darkness and this distance from anything, is not a minor injury. Clean every wound immediately. There is nothing alive here to infect you, which is one mercy, but glass in a wound still needs to come out.
+
+The ground is warm. This will feel wonderful, and it is the one thing the place gives you freely, and you should be suspicious of it anyway. Body-warm rock is comfortable to stand on. New rock — a fresh face where a ridge just stepped down, the lip of a fissure that opened an hour ago — can be much hotter than that, hot enough to burn through a boot sole if you stand still on it. The ember-seams a few meters down are incandescent, which means several hundred degrees, and the radiant heat coming up out of a deep one will cook the skin on your face if you lean over to look. Do not lean over to look. Look from the side, from a few paces back, and let your eyes do the work.
+
+The air will be cold. The ground keeps the first meter or so tolerable, and above that the altitude asserts itself. Dress in layers you can adjust without taking off your gloves. When you rest, rest lying down, because the rock will warm you from below and the cold air will not reach you as badly. Bring an insulating layer for your top half and don't bother with a ground pad — the ground is the best heat source you will have, and you want as much of yourself against it as possible, on a slab you have chosen carefully.
+
+**Light**
+
+Bring a headlamp with a red or very dim setting, and use only that. The ember-seams are your only landmarks and they are dim enough that any white light will erase them from your vision for ten minutes afterward. Move in near-darkness. Let your eyes adjust and keep them adjusted. Carry a powerful light as well, sealed and separate, for the moment when something has gone wrong and you need to see everything at once and don't care what it costs you. Carry more batteries than seems reasonable; cold eats them.
+
+**Navigation, and why it mostly won't work**
+
+There are no stars. There is no sun. The rock is fresh and iron-rich and freshly cooled, and it holds its own magnetism, so a compass will lie to you in a different direction every hundred meters. Whatever positioning technology you rely on at home does not exist here. That leaves dead reckoning — counting paces and holding a bearing — and dead reckoning assumes the ground stays put, which it does not.
+
+So: do not think in distance. Think in time. Set a watch. Decide before you leave your point of arrival how many hours out you will go, and go no further, and turn back on the hour regardless of what you have or haven't found. Two hours out is ambitious. One is sensible. The slabs move a hand's width in a night, and a hand's width is enough to change which way a ridge faces and whether a gap can be stepped across. Every hour you are away, the country between you and your exit is being quietly rewritten.
+
+Mark your arrival point with something you can find, knowing that it will move. Stack stones if you like — you will not be the first — but also do something the ground cannot undo: pace out the relationship between your exit and the two or three nearest ember-seams, and check that relationship every time you look back. When the seams start to drift relative to each other, that is the ground telling you the map has changed, and it is time to go back and see whether your exit is still where you left it. It probably will be, roughly. Roughly is the best you will get.
+
+Keep your means of leaving on your body, not in a pack you might set down. If you set something down here and walk twenty paces and turn around, there is a real chance you will not find it again, not because it has been taken but because the dark has closed over it and the slab it sits on is no longer quite where the slab was.
+
+**Sound, and listening**
+
+Do not wear anything over your ears. The thin air swallows most sound, but what remains is information. The ticking is the rock cooling — a background of small contractions, everywhere, constant. Learn its rhythm in the first hour and then pay attention to changes. When the ticking rises from one direction, something there is about to move. When you feel a long shudder through your feet followed by warmth on your face, a fissure has opened somewhere close and is breathing at you, and you should already be moving away from it and uphill, because the breath will be followed by whatever is heavier than air. You will not hear a warning. You will feel one, through your boots, if you are standing still and paying attention. So stand still often. Stop every few minutes and simply feel the ground for a moment. It is talking, and it is talking to your feet.
+
+**Time, and what it does to you**
+
+There is no morning here. You will lose track of hours within the first two, and after that the only clock is the one on your wrist. Trust it over everything you feel. You will feel that you have been walking for twenty minutes when it has been two hours. You will feel that it is time to sleep when you have been awake for four hours, because the dark and the warmth and the altitude all press toward sleep. Do not sleep for long. Sleep in short stretches, on a slab you have watched for a while and judged to be one of the older, stiller ones — one with the pale crust on it, if you can find one, because the crust only forms where the rock has held still for weeks. Set an alarm. When you wake, before you do anything else, look at your seams and see if they have moved.
+
+The stillness will get into you. This is a place where nothing lives and nothing moves fast and there is no sky, and the human mind was not made for it. Expect to feel watched. Expect to attribute intent to the ground. Expect the ticking to start sounding like it is coming from just behind you. None of this is a reason not to go, but it is a reason to keep talking to yourself out loud, to keep checking the watch, to keep doing small ordinary tasks — drink, check the monitor, look at the seams — as a way of staying in your body. People who go quiet in places like this go wrong.
+
+**About the cairns**
+
+You will find them. You should not go looking for whoever builds them.
+
+This is not a warning about danger. Whoever it is has left no tools and no fire and no waste, and has built only markers and one low wall and one place to lie down. There is nothing in that to fear. But there is nothing in it to find, either. They are not lost, or they are lost in a way you cannot help with. They are doing something with this place that is between them and the ground, and it does not need a third party.
+
+Do not take stones from the cairns. Do not straighten the leaning ones. If one has fallen and you feel you must, you may rebuild it where it was, using its own stones, the way whoever-it-is seems to do. If you want to build one of your own, understand what you are joining: a long, unwinnable, entirely serious argument, conducted in silence. Build it well. Choose the flattest stone for the bottom. Know that it will not last, and that this is the point.
+
+Do not step on the pale crust. Do not scrape it or sample it or carry it home to find out what it is. It might be salt. It might be the first thing that will ever be alive here. You are not equipped to tell the difference, and if it is the second thing, it is the only one of its kind, and it has enough to contend with.
+
+**What to leave behind**
+
+Nothing. Not a wrapper, not a cap, not a drop of anything. This place has never been touched by anything but heat and its own weight and one person's hands, and whoever that person is has been careful to leave it that way. You are a guest in an unfinished room. Pack out everything you bring, including what your body makes, which will be little — you will be too dry to make much.
+
+**The short version, for the pack**
+
+Oxygen if you can carry it, altitude medication regardless. Water for twice as long as you plan to stay, with electrolytes. A CO2 monitor and an H2S monitor, both with loud alarms, worn low. A particulate respirator and sealed goggles. Your heaviest boots and a spare pair. Thick leather gloves worn always. Knee protection. A serious wound kit. A red-light headlamp and a separate sealed bright light, with far too many batteries. Warm layers for the top, nothing for the ground. A watch with an alarm. Your exit on your body.
+
+And a decision, made before you arrive and not revisited once you are there, about how many hours you will stay. Make it a small number. This is a place that rewards a short visit with something you will not be able to describe afterward, and punishes a long one in ways that are entirely describable and not worth it.
+
+Go. Stand still for a minute and feel the warmth come up through your feet and listen to the hundred ticks that are none of them close. Look at the ember-light by not looking at it. Find one cairn, and leave it as it is. Then check your watch, and check your seams, and walk back the way you came, which is no longer quite the way you came, and leave while the ground is still letting you.

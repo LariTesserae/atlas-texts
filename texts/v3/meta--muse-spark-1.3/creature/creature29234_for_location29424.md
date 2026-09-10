@@ -1,0 +1,31 @@
+They are not many, and at first you think they are not here at all.
+
+The houses look empty. Twenty hearths of stacked black basalt sunk half into the sheltered wall, turf roofs beading with the damp that never quite rains, slate lids weighted down with stones, doors hung with grey felt — and no smoke, no voices. Only three old women on the middle tier with a net spread across their knees, mending with bone awls. Only a child laboring up the paved path with a skin bag of water twice her size sloshing against her hip. The town is too large for them. The paths are too well kept, the stone gutters too clear of grit, the rope bridges too taut for so few feet. You think: it has been abandoned, or it is kept in shifts.
+
+Then the fog lifts to your waist and burns, and you understand the citizens were overhead all along.
+
+They come up out of the moss in snow going upward.
+
+The moths. That is the first nation of the bowl.
+
+Pale as ash, pale as luna, hand-wide and furred to the thorax against the cold, they roost by the thousand under the great waxed leaves of the stunted trees and in the knee-deep sponge of the moss islands. As caterpillars they are fat as your thumb, green-white and blindly hungry, scalloping the fern edges overnight; you can hear, if you crouch close, the soft tick of their jaws. They pupate in leaf-litter and leave behind papery cocoons the people gather for wool. When they hatch they do not fly so much as rise — hush-hush-hush, a pressure against your cheeks more than a sound — tens of thousands of wings beating too soft to echo in the fog. They drink. They will settle on your shoulders, your outstretched hands, uncurl a thread of tongue and drink the condensation off your skin. They navigate by warmth. In the deepest part of the bowl, where the young basalt is still faintly warm to the palm and no snow ever settles, the whole cloud on a windless night will slowly revolve above that bare navel, like water going down a drain in reverse.
+
+Tending them — tenanting with them — are the people of the terraces.
+
+They are spare themselves, the sparsest thing here. Short, broad-chested from a lifetime in thin air, pale-eyed from living in blue-grey diffusion, soft-footed from a lifetime of stepping stone-not-moss. Their voices are ruined for anything above a whisper; even the children whisper, even alone. They wear the moths: long felted cloaks of spun cocoon-wool, ash-grey and luna-white, that shed drip and go stiff and then soften again, smelling faintly of fern and smoke. Underneath, skin gone damp-white at the knuckles from always handling nets and troughs.
+
+You will not see most of them at any hour because their work is dispersed and constant and quiet. An old man on his belly at a cistern lid, skimming midge larvae with a slate cupped spoon. A girl on a moss-fiber rope bridge, tightening lashings with sinew between her teeth. The three net-menders, always mending, because the fog-nets strung on bent tree-limbs above the highest houses — loose weaves of human hair and plant fiber — tear in wind and stiffen with dew and must be coaxed to drip all day into the troughs. They harvest caterpillars selectively, pinching only the largest and leaving the rest to spin, spreading the harvest on the communal drying racks in the ash plaza. They leave water where they find it in the tea-colored basalt pots where midges skate. They carry only what the nets give. They built low so as not to break the circling air; they laid their terraces along the moth flightlines, not the contour; they dug their deep clay-lined cisterns where dew falls heaviest for caterpillars, not where it is convenient to carry. Everything hand-made — stone adze, bone awl, slate knife, digging stick polished by generations — because the bearded, wind-bent trees are too precious and too slow to saw, and there is no iron here to spare.
+
+Among the ferns, under that rising snow, hops the second nation.
+
+The mouse-birds. Tiny, flightless, white as the moths, round as white mice with a sharp little beak stuck on. They cannot fly in the thin, damp air, so they don't try. They spring from fern stem to fern stem on huge, furred feet that don't sink in sponge, flipping leaves with a quick jerk of the neck to find caterpillars underneath. You hear the tick of leaf against beak, the soft thump of landing, nothing else. Downy to the skin, waxed like the leaves to shed drip, they nest deep in moss — which is why you step on stone, not moss, because moss holds nests and a single boot can crush a whole year.
+
+And above them all, circling without a single wingbeat you can hear, are the ones the people really serve.
+
+The owls.
+
+Small, round-faced, fur-footed to the talons against the cold rock, white as the moths they hunt so you cannot pick them out until they open. They hunt entirely silently, as owls do, but here the moss and fog and lichen swallow even the memory of sound. No screech. No snap. You just see talons open and a moth is gone, and the cloud closes around the gap and continues. Then another. Then a mouse-bird snatched from a fern top. They take the chicks from the drying racks too, if the moths fall — if someone speaks aloud after fog-drop and confuses the cloud and knocks them to the sponge. That is why the rule is whisper, always whisper. That is why no white feather is ever picked up from the ground. Those are the owls' tithe, left to rot back into the sponge that feeds the moss that feeds the caterpillars that feed the moths that feed the owls.
+
+Everything is eating and being eaten at a frantic pace, but muted. Drip, grow, spin, hatch, hunt. Caterpillar to moth to owl to feather to moss. Midge to bird to owl. Human taking only the largest caterpillar, only the cast cocoon, only net-water, tending gutters pebble by pebble so the cycle doesn't stutter.
+
+Stay long enough and you stop counting the people as separate. They are just the hands of the bowl — the part of the cloud that mends nets, clears gutters, keeps the houses low and the air unbroken. The overwhelming, silent, active citizenry has six legs or feathers, and was farming the moss long before the first stone was stacked.

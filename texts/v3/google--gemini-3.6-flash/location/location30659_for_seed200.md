@@ -1,0 +1,23 @@
+The air does not move. It hangs as a warm, heavy suspension—part steam, part fine aerosolized silt, part the exhalation of a trillion damp lungs. The temperature is locked at an oppressive, blood-warm high, holding the vast basin in an unending, sweltering fever that never breaks for twilight, storm, or night.
+
+This is a low shelf of the world, a broad regional basin miles wide, yet it feels suffocatingly close. The terrain beneath is unnaturally raw, like earth that has only just coalesced from mud and heat and has not yet been introduced to time. There are no sharp ravines, no cut stream-beds, no riverbanks carved by centuries of flow. The geology is embryonic: smooth, rounded mounds of uncarved basalt, soft gray clay beds that haven't hardened into shale, and slick domes of dark, iron-rich mud that ooze up from the deep sub-surface. Water does not erode this land; it sits upon it, soaking the un-etched rock, weeping out of the porous stone in silent, steady sheets, and pooling in shallow, un-banked pans that have no clear edges.
+
+Because nothing dries and nothing breaks down through frost or gale, the ground remains in a state of soft, unformed genesis. Walking here—if anything walked on two feet—would mean sinking ankle-deep into a warm, mineral-rich slurry that heals its own tracks within seconds.
+
+Above this raw substrate, life has filled the void with terrifying density.
+
+The vegetation is a continuous, thick-layered mat of dark, fleshy growth. Because the light is perpetually faint—a dim, copper-tinted twilight filtered through an unbroken ceiling of low-hanging haze and overlapping fronds—the plants have adapted by turning immense, broad, and glossy. Leaves the size of skiffs, dark purple and bruised-green, overlap like scales. Succulent vines, thick as a man's thigh, weave through sprawling fern-like carpets, binding the undergrowth into a solid, spongy mass six feet deep. Every leaf is tilted slightly downward, channeling a constant, heavy drip of condensation to the roots below. Nothing here is woody; there is no bark or dry timber. The plant life is all soft tissue, stem, sap, and swollen water-cells, rising and intertwining in a silent, slow-motion crowding match.
+
+Yet the plants are only half the volume of this place. The rest is animal.
+
+The fauna does not merely inhabit the landscape; it *is* the landscape’s primary texture. The biomass is overwhelming. Every square foot of wet mud, every slick stone, every underside of every broad leaf is covered in a restless, glistening armor of soft-bodied and segmented life. Giant, pale-shelled isopods as wide as dinner plates crowd the shallow pools, churning the warm water into a gray froth. Translucent, lunged mud-skimmers crawl over one another in writhing terraces along the clay mounds. In the upper foliage, dense colonies of silent, wingless orthopterans—each as long as a forearm—cling to the stems, their fat, dark bodies touching flank to flank like beaded curtains.
+
+The air itself is thick with small, heavy-bodied fliers that do not dart or hover, but drift aimlessly through the steam on short, leathery membranes, colliding with leaves and falling back into the undergrowth, only to climb and drift again.
+
+And the sound is an absolute, unbroken wall.
+
+It is not a chorus of songs, but a mechanical, biological roar. It comes from the stridulation of millions of rubbing joints, the wet rasping of feeding parts against soft leaves, the liquid bubbling of burrows in the hot mud, and the deep, throaty resonance of large, blind amphibians buried in the soft clay below. The sound does not rise or fall. It does not pause for rain or heat of noon. It is a flat, deafening hum of sheer existence, vibrating through the wet earth so strongly that a hand pressed to a weeping rock feels the stone humming back.
+
+There is a subtle, unsettling logic to the stability here. In most lush places, growth is balanced by decay, and terrain is sculpted by the passage of water and seasons. Here, there are no seasons. The light never brightens to full sun; the mist never clears; the temperature never drops a single degree. Growth and consumption occur at the exact same instantaneous rate. When a large, soft-bodied crawler dies, its flesh is liquidated by swarms of microscopic scavengers and absorbed by the surrounding roots before its heat can dissipate. Leaves dissolve into green grease where they touch the mud, feeding new shoots that emerge from the same spot hours later. 
+
+It is a world caught in a permanent, boiling equilibrium—an open, town-sized cradle of warm mud and dense meat, eternally coming into being, never maturing, never eroding, and never quiet.

@@ -1,0 +1,41 @@
+To understand the people who live in the throat, one must first look at their feet. 
+
+They do not have the flat, soft soles of valley-dwellers. A throat-born child learns to walk on edges, and by their tenth year, the tendons along the arch have thickened into cords as rigid as cured rawhide. Their toes are long, splayed, and independently muscular, capable of hooking over a thumb-width lip of sandstone or gripping a juniper rung while both hands remain free to work an awl. Their skin is uniformly the color of the rock itself—ochre and sun-scorched dust—not merely from dirt, though the silt never truly leaves their pores, but from generations of living inside the amber reflection of the walls. Sweat on their bodies does not run; it is pulled immediately into the dry air, leaving only a white, frosted lace of salt along their collarbones and temples.
+
+They are a short-waisted, broad-chested folk, built like wedge-anchors. The thinness of the mountain air has expanded their lungs, giving their rib cages a barrel-like fullness, while their bellies are lean and hollowed out by a diet of ground starch-flour, bitter succulent-marrow, and swift meat. 
+
+Because horizontal space does not exist, they do not understand distance in terms of paces or miles, but in *reaches* and *rungs*. A family does not say they live a quarter-mile apart; they say they live eighty rungs below, or twelve traverses to the sun-side. 
+
+Life is divided into distinct vertical tiers, each inhabited by different callings and ages:
+
+### The Upper Rims (The Wind-Watchers and Cord-Braiders)
+Near the lip of the chimney, where the amber light is brightest and the deafening bass roar of the mountain gale shears constantly overhead, live the younger men and women. They are the most agile, accustomed to working in harness while suspended over hundreds of yards of nothingness. 
+
+Their primary labor is the harvesting of the sky. Armed with long poles tipped with loop-snares of ibex gut, they fish the clouds of swifts from the air as the birds shoot into the funnel. They also harvest the bone-sage and thorn-brier that crusts the windward cracks, hauling up bundles on creaking counterweight ropes. It is here that the great cord-walks are strung: narrow spans of hemp suspended across the open chasm where braiders, tied to overhead guide-lines, walk backward over the void, spinning long, endless cables of plant fiber and mountain-goat sinew that the lower tiers depend on for every ladder and bracket.
+
+The people of the Upper Rim are almost entirely deaf in their left or right ears—the ear they habitually turn toward the lip of the shaft, where the wind-whistle scours away the hearing over years. In response, they have developed a secondary speech of sharp, rhythmic tongue-clicks and finger-tappings on wood, sounds that pierce the roar far better than vowels.
+
+### The Mid-Depths (The Hearth-Tiers and Carvers)
+Further down, where the air grows heavy, still, and furnace-warm, lies the core of the community. Here, the siltstone dwellings are built so closely together that the flat roof of one house serves as the threshold and hearth-court of the house above it. 
+
+Here dwell the resin-boilers and the horn-smiths. In small, scooped-out niches, old women oversee low-burning dung fires, melting the amber tears of desert resin with pulverized slate to make the tacky, black glue that seals their water-gourds and locks their stone masonry against the rock face. The smell of this tier is thick and unforgettable: scorch-fat, bitter sage-smoke, dried guano, and the sharp, vinegar tang of fermenting succulent jelly.
+
+The women here are famous for their horn-work. Ibex and mountain-sheep horns, brought in by rare trade or found on the upper shelves, are softened over steam pots fueled by swift-fat, then split and scraped into translucent, golden sheets. From these, they craft shallow bowls, grease-scrapers, and thin, horn-paneled lanterns that shield their hearth-embers from sudden updrafts.
+
+Children on the Mid-Depths are tethered from the day they can crawl. A thick rawhide belt is cinched about a toddler’s waist, connected by a braided leash to an ironwood ring that slides along a groove cut into the back wall of the house. They play, eat, and sleep at the end of their tethers, learning the perimeter of safety before they ever learn the names of the stars.
+
+### The Low Shallows (The Root-Keepers and Elders)
+Farther down still, where the amber dusk fades into an ash-colored gloom and the warmth becomes damp and cellar-like, the chimney narrows to a slit. This is the domain of the oldest inhabitants and the *Root-Milkers*.
+
+Down here, the great, hairy taproots of the cliff-succulents emerge from deep fissure-systems, weeping microscopic droplets of mineral-dense condensation pulled from the heart of the mountain. The Root-Keepers tend these like orchards. They wrap the filaments in sleeves of woven reed that channel the slow, bead-by-bead seepage into carved stone basins. It is quiet down here; the roar of the upper wind is reduced to a rhythmic, oceanic thrumming that vibrates through the soles of the feet rather than the ears. The old people, whose knees have been worn smooth by a lifetime of vertical climbing, sit on low benches carved directly into the living rock, grinding roots between flat siltstones with a steady, hypnotic *shhh-shhh-shhh* that echoes through the lower throat.
+
+***
+
+### The Companions of the Rock
+
+The humans are only the largest among many dwellers who have found a niche in the chimney’s ribs:
+
+*   **The Slate Swifts:** They are the heartbeat of the throat. Sleek, short-necked, with crescent wings stiff as horn, they number in the tens of thousands. Their nests are small, hard cups made of dust, plant-fluff, and their own fast-drying, rubbery saliva, glued in clusters under every overhanging brow of rock. They bring the world of the high valleys into the chimney: in their crops they carry seeds, small beetles, and the water-dust of distant river-fogs. When a cloud of them departs at dawn, the downdraft of their wings is strong enough to extinguish unguarded hearth-fires and blow the dust off the drying-racks.
+*   **The Orange Crawlers (Lintel Lizards):** Broad, flat-skulled reptiles nearly eighteen inches long, their hide identical in texture and color to weathered rust-stone. They are utterly fearless of the people, sunning themselves on the ladder rungs and sleeping against the warmth of the siltstone ovens. The people revere them as hearth-wardens; they are voracious hunters of the armored, blood-sucking rock-ticks and horn-beetles that would otherwise infest the cordage and rawhide joints. A house with three fat lizards on its door-lintel is considered well-kept and secure.
+*   **The Abyss Hyraxes:** Bred in suspended wicker baskets that hang out into the empty center of the shaft, these animals are plump, short-eared, and constantly shivering with nervous digestion. They are fed on the tough, fibrous parings of the succulents and bundles of dried lichen lowered from above. Their presence is purely functional: they convert inedible thorn-scrub into rich, high-protein meat, their pelts are sewn into winter sleeping-capes, and their dry, tar-like droppings are carefully collected from catch-cloths hung beneath their cages to serve as the sole cooking fuel of the chimney.
+*   **The Shadow-Sifters (The Floor-Crabs):** Far below the lowest human dwelling, on the cold, choked floor where centuries of dust, swift-guano, dropped wooden pins, and broken pottery have accumulated into a soft, dry silt-bed hundreds of feet deep, lives something that never climbs. They are broad, pale-shelled terrestrial crabs, blind and slow-moving, with long, delicate pincers suited for sifting through the powdery talus. They live entirely on what the upper tiers drop. When an item falls from the human hive—a horn awl, a sandal, a dead bird—it is not chased. It belongs to the floor, and by nightfall, the sifters have gathered over it in the darkness, turning it over and over with dry, clicking joints, slowly reducing everything the throat discards back into fine, mineral flour.

@@ -1,0 +1,47 @@
+No one lives here. That is the first lie the roof tells you.
+
+The second lie is that the gliders live here. That the pill-things live here. They do, the way the mites in your eyelashes live in you. They move, they can be counted. So you count them and feel better. Ten living things in a day. A sterile city.
+
+Stay longer. The city will correct you with your legs.
+
+You will notice first that the emptiness has a size. It is not random emptiness. The towers stand a quarter-mile apart, always. The plazas are enormous and bare, always. The avenues are fifty paces wide for no feet. The shell-rooms are far larger inside than their skins should allow, and empty, and ringing like pottery. This is not the emptiness of abandonment. This is the spacing of bodies. You have walked into a pasture and mistaken the cattle for hills because you were looking for faces.
+
+What lives here is large, and thin, and mostly still. It has to be.
+
+In air this thin and dry nothing small and quick and wet can afford to stay big. So it stayed big by becoming almost nothing. By becoming mostly hollow, mostly air held in stone.
+
+There are four of them in a day's walk. Maybe five. You have already named their backs: the honeycomb of low domes to the north, the needle-field to the east, the sunken breathing grid to the south, and the bridged terraces in the middle where street lies on street like scar over scar. Those are not quarters. Those are individuals. Sessile. Old. Each a valley wide and only a few fathoms thick, spread under the dust like a lens of living gristle, with its shell pushed up into the cool dim light.
+
+You never see the lens. You see what it extrudes.
+
+Come close, as you did, and put your hand to a wall. Warm-grey. Matte. No chisel, no seam. Fine laminae, calcium and chitin and ash laid down micron by micron. Shell. Tooth. It was oozed. When they were young they could still crawl — slow, huge, soft streams of organized mucus, heavy enough that they needed ramps — and you can still see where a young one hauled itself up a hill and settled, and then settled again on top of itself. The gutters, the roofed cisterns, the processional stairs that stop at the sky: those are not for water now. There is no water to run. They are the retained anatomy of a wetter youth, or a wetter age, kept because a body keeps its shape. Once a day the cliff exhales through the blowhole and the cold vapor falls apart before it touches stone. Sometimes, in a rare tide, a little of it lingers in a gutter. Enough.
+
+Adults do not crawl. They secrete and wait and filter.
+
+For this is a reef, only the current is air. The long cool tides that smell of iron come off the cloud-sea below, lift the white dust in sheets like slow water across the plazas — the only water this world will ever have — and lay it down again. The reef eats the tide. Not much in it: salt, sterile powder, a spore from below, a dead glider, interplanetary grit sifting down from the bruised sky where the stars never quite leave. It is almost nothing. So to live on almost nothing you must sift a huge volume with almost no effort, for a very long time.
+
+Hence the size. Hence the stillness. Hence the towers ticking as they contract in the cool, the papery curls of shed skin stacked by wind in corners, the black and rust-orange crust in the lee of walls — not moss, flaking like dried mineral — which is its partner kidney, its photosynthetic paint, living so slowly as to be geology, fixing what dim coin-sun there is and excreting salt.
+
+And hence the servants.
+
+The six-foot veils that pass overhead without sound, translucent skin over bone-kite, that land on a needle and fold themselves into a slit and disappear: they are not wildlife. They are mouths. Detachable mouths. Lungs with wings. They ride the updrafts off the cliff down to where the dirty-white sea breaks against the black flanks, where there is still moisture to be drunk, and they come back heavy and let the reef drink them dry through the slit. When the slit seals behind them and a new slit opens elsewhere, that is peristalsis. That is the reef shifting its lips.
+
+The thumb-sized armored pills braiding trails between courtyards, freezing into pebbles when you come: they are gut flora. Lice. Cleaners. They sift the sterile powder a second time for what the great filter missed, and in turn their bodies, their droppings, their dead, become the concentrated broth the reef can actually absorb. You walked all day and counted ten living things because you were counting blood cells and thinking they were animals.
+
+You are inside the animal now when you duck through a low oval lip-like door and stand up in a vault that should not fit. Of course it does not fit. It conserves. Outside, a small hard skin reduces evaporation, reduces scouring by dust. Inside, it keeps a great soft lung of still, slightly warmer air where dust can fall — even sideways along a wall, even toward a ceiling for a moment, because the air in there is not quite falling, it is being held, turned, breathed. Gravity goes negotiable in a lung. Your pack pulls gently toward the ceiling and then corrects with a soft jolt that drops your stomach. That jolt is a valve closing.
+
+The sunken quarter breathes a finger's width by afternoon and settles by dimmer hours, lifting dust in rings. That is the breath. The whole city sounding, when the wind gusts, like an empty vessel blown across the mouth of — that is the resonance of bladders miles wide, thin-walled, mostly void. Knock and they ring like pottery because they are pottery: living pottery, inflated stone.
+
+And space —
+
+Space here was already thin. You felt it on arrival: horizon falling away too fast, sky pressing close, sun stuck, stars leaking through day. So high the world-skin is stretched tight and worn. The reef did not create the looseness. It learned to tuck it. To fold a little extra room inside a small skin the way a gut folds acres of absorption into a belly. Two towers that seem adjacent recede until the plain between them opens as you walk: you are walking across a stretched membrane that gives under weight. A doorway shoulder-high becomes a vault you can stand in: you have passed a sphincter. An avenue half a mile long takes three hours and returns you to your arch from the other side: you have been moved, politely, like a mote on cilia, like undigested grit expelled by a slow peristaltic loop. A stair climbs twenty steps and leaves you looking down on the top of your own head from a terrace that was below: a fold, a valve, an intestine of place.
+
+That is why sound arrives wrong. You hear your boot scrape a half-second before your foot moves. You hear the wing-snap after the glider has passed. You are not hearing through air. You are hearing through the walls, through the calcium-chitin nerve net that conducts vibration through stone faster than thin air can carry it, to a mind that thinks in seasons. It felt your intention to step through pressure in its floor before your muscles obeyed, and it relayed the echo ahead. It dreams you a little before you happen. In dim light, in near-silence, on its high dry roof, it has time to anticipate. Its thoughts take months to cross from dome-field to needle-field. Your whole visit is a brief itch, fully anticipated and half-remembered at once.
+
+Shadows pool on the underside of nothing in the needle-field because the light is being lensed through great invisible veils — the reef's own extended foraging membranes, vast and utterly transparent, quarter-mile wingspans strung between towers, too thin to see unless dust lights them. Sometimes at an angle you catch them: a star occluded for no reason, a sheet of lifting dust suddenly avoiding a volume of empty air, a cool tide that is not wind pressing your cheeks from both sides at once. If you stand very still you can feel it shift under your feet while trying to understand you. A pressure change in your teeth. The humming air between presences.
+
+It will not speak. It has no hands to make devices, no fire to blacken hearths, no need for hinge or nail or wire. It speaks by opening. A new slit for roosting gliders appears overnight. An old one seals. A courtyard floor rises. A flake pings off a terrace. Once in a century, perhaps, when the cloud-sea boils high enough and the salt rims grow thick enough to catch deliquescent moisture, two of them will release at once through the blowhole — that plume that never condenses — and exchange spores on the wind. That is their conversation. That is their sex.
+
+They are not cruel. They are not kind. They are full, in the way a desert is full. Wait long enough and you will feel yourself become what you are to them: rare slow traffic of living dust passing through hollow streets. A nutrient pulse. A flake of skin from a lower world, briefly irritating, briefly interesting, to be turned gently around the loop until you exit where you entered, a little drier, your exhalation drunk by the sky, your moisture taken for the cistern.
+
+Look back once from the cliff edge, down at the dirty-white sea breaking forever and never reaching. Above you a veil passes without sound. Below you, in the dust, a pill freezes into a pebble. Around you, the towers tick. The city, which is not a city, settles a finger's width, and waits.

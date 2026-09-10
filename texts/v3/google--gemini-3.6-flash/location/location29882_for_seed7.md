@@ -1,0 +1,19 @@
+It begins with heat—not the dry, baking heat of an open plain, but a heavy, suffocating warmth that hangs trapped twenty feet below the earth.
+
+The chamber is small, no larger than a sunken parish chapel or an old engine pit, bounded on all sides by fresh basalt and shear-strained granite. The rock here is young; the fracture that opened this pocket happened recently enough that the edges of the stone are still blade-sharp, unrounded by wind or water. Where the walls fell open, they sheared cleanly, leaving glossy black facets that reflect almost nothing.
+
+It is nearly pitch dark. The only illumination is a dim, sour light: the tiny, steady embers of sealed neon indicator lamps on ancient control boxes, and a faint, cold phosphorescence weeping along the undersides of heavy, rubbery leaves.
+
+Despite the near-total darkness, the space is lush. Plants with broad, swollen fronds—pale as boiled ivory at their stalks and bruising into dark indigo toward their tips—burst from the floor in dense, isolated clusters. They do not cover the ground like a carpet; rather, they form thick, solitary islands of vegetation separated by wide stretches of slick, bare stone and cold iron plate. Their leaves are thick and slick with oil-scented condensation. Because the heat is constant, the flora grows with a quiet, terrifying ambition, pushing fat, translucent roots into every seam between rock and metal.
+
+Yet there are no insects. No pale blind beetles crawl through the fibrous loam accumulated at the base of the roots; no gnats hover above the puddles of warm, mineral-heavy water that gather in the low spots. The plants grow in complete biological isolation. Their leaves never show the notched raggedness of being chewed. They unfurl, heavy and wet, in absolute peace.
+
+In the center of the chamber, and tucked into two of its corners, sit the machines. They are not ancient in the sense of stone monuments, but industrial—heavy, cast-iron compressor housings, bank upon bank of copper tube manifolds, and massive, spoked flywheels six feet across, all bolted directly into the freshly fractured floor. Many of the iron casings are intact, though painted in a dark, flaking lead green. Copper pipes run along the walls, anchored by heavy brass collars, then disappear straight into the solid rock face as if the stone had swallowed them mid-stride.
+
+Where the heat is strongest—near a thick vertical conduit that vents a faint, hot hiss every twenty minutes—the vines have wrapped the iron tight. They cling to the rivet heads with tiny, suction-tipped tendrils, drawing warmth directly through the metal skin of forgotten boilers.
+
+The silence here is dense. It is not an empty quiet, but a muffled, heavy quiet created by saturated air and thick foliage. The air absorbs sound almost instantly. A drop of water falling six feet from a ceiling crack to strike a rusted steel plate makes only a dull, flat *thunk*, stripped of any echo by the surrounding leaves. Now and then, deep within the rock or the machinery, a long-stressed steel girder gives a faint, dry *creak* as it expands in the dark, followed by minutes of unbroken quiet.
+
+Nothing moves quickly here. The water does not flow; it gathers on the ceiling until its own weight pulls it down, drop by drop, into narrow pools that taste faintly of sulfur and machine lubricant. The plants do not sway, for there is no draft, only the slow, invisible rise of thermal air off the iron housings. The rust creeps across the iron at the speed of dampness itself, flaking off in flat, square scales that settle into the wet roots below.
+
+It is a place built for a purpose that has long since been forgotten or rendered obsolete, sealed beneath the surface, where hot metal and cold rock have agreed to let the dark grow wild.

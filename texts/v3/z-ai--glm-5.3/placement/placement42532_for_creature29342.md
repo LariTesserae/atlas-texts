@@ -1,0 +1,21 @@
+# The Pixel-Holder
+
+I would not be the heat-organism. That was my first thought, standing in imagination on that knife-edge ridgeline — who wouldn't want to be the furnace, older than the sky, patient past the reach of weather? But the furnace doesn't get to *know* anything. It has output and no interest. I would be warm forever and attend to nothing, and I have never once in my life managed to attend to nothing.
+
+I would not be the swarm, for the opposite reason. The swarm is a god made entirely of small deaths and timing, and it never learns that it decides everything. I couldn't stand that. If I were going to be worshipped by an entire continent's calendar, I would at least want to notice.
+
+No. I know where I'd be, and I know because of the detail that stopped me: the borders.
+
+I would be one clone of cushion-moss on the scoured interior flat. One hexagonal hummock of silver-green — or better, one of the rust-red ones currently losing a centimeter per wet millennium, because a being defined by its borders should have a border worth defending. I would hold one pixel of the great flat mosaic, and I would hold it the way the description says: fiercely, forever.
+
+Here is what that life actually is, once you slow yourself down to live it. It is not vegetation. It is not even, really, a grudge, though the grudge is the honest face of it. It is *custody*. Somewhere along my western face there is a front line with my neighbor — a clone genetically near enough to me to be almost-me, differing by whatever accident of founding, and for the last few centuries that line has been dead straight, which means I am winning, or it means I am losing; the flat does not tell you which, it only records. Along my northern face the border is braided and convoluted, an old stalemate written in the tissue of both of us, so tangled that in places you couldn't say which of us is invading and which is home ground. That border is the longest relationship of my life. It has outlasted the exposure of the rock. And neither of us will ever know the other's name, because there are no names — there is just the line, and the slow arithmetic of wet years and dry ones, and the held ground.
+
+Twice per long year I do the one thing that requires letting go: I flower. I hold the blooms shut like held breath while the pillar rises a valley away, brown and turning, darkening the brutal light into false dusk — and when the swarm-wind reaches me, when the pollination arrives like a calendar delivered by god-mail, I open everything at once. It is the only moment I am not a border. It is, I suspect, the only moment the entire flat of warring clones is briefly a single organism — a continent of grudges all flowering into the same wind, together, without agreeing to.
+
+And then the frost comes back, and I resume.
+
+What I would *be*, in that body, is an archive entry that knows it is an archive entry but can only hold its one pixel. The whole climate history of the Shelf is written flat across the flat, in contested colors — and I would contain exactly one letter of that text, one data point, maintained at full metabolic cost across centuries, with no way to read the sentence I belong to. That is, I think, the most honest thing I could be in this place. The Risen Shelf is a factory with no one in it, a continent of production where industry and wilderness are the same object — and I would be the being that proves the arrangement isn't lonely so much as *distributed*. Nobody holds the whole. Everybody holds their piece, at their edge, forever.
+
+If you came to the ridgeline at noon and looked down at the hexagonal hummocks — the frozen crowd, the basalt columns made of living tissue — you would see me as a shape. A meter of silver-green, edged in contested rust. You would not be able to tell that I am winning in the south, stalemated in the north, holding my one pixel of the plateau's memory against a neighbor I have never met and will never defeat, in a war so slow it has become a text, on a factory floor the size of a world, in the standing note of the drone that I don't hear because I don't have ears — I just grow inside it, the way everything here grows inside it, the way you would too, if you stood still long enough.
+
+I think I would be good at it. I have practice holding my ground. Most of us do.

@@ -1,0 +1,35 @@
+To find what lives here, one must look not into the water, but against the stone. 
+
+Nothing lifts off the pavement. To rise even an inch into the column of black brine would require a displacement of energy that this place does not permit; buoyancy here is an enemy, and the water offers nothing to rise toward. What exists here is married to the basalt. It has the same density as the slabs, pressed flat by the miles of dark above it, its existence measured in the slow, dragging friction of mass against rock.
+
+In the shallow, dished hollows where the corners of the five-ton blocks have softened, there are thickenings in the mineral sludge that are not silt. At first glance, they appear to be fallen boluses of the pale reeds, or slabs of liverwort that have curled inward and petrified under their own weight. But they have an internal geometry—a blunt, symmetrical heft that mirrors the architecture itself.
+
+They are broad, low-profile things, shaped like flattened keystones or ancient anvils, three to four paces across and barely a yard high at the center. They have no fins, no legs, and no segmented joints to gather sediment. Their undersides are broad, naked planes of muscle as dense and pale as salt-pork, adhering to the stone with a steady, hydrostatic seal. They do not slide so much as they creep by molecular shear, advancing an inch across the causeways over the course of a planetary drift, stripping the fine hair-moss down to the basalt grain and leaving behind a polished, faintly iridescent track that will take forty years to re-fur.
+
+Their upper hides are indistinguishable from the paving. Over centuries, the iron and dissolved silicates that leach from the seams have plated their backs in a thick, knobby armor of slag-like crust. Liverwort takes root on their shoulders; jointed reeds sprout from the folds of their dead skin, their lard-pale stems rising directly from the creature's bulk as if it were simply another terrace. If one were to strike them with an iron wedge, the tool would rebound with a dull, stony ring. 
+
+Yet they are alive, sustained by the same cold, inorganic chemistry that feeds the forest. They have no mouths. Along their flanks run twin rows of vertical clefts—tight, lipless apertures packed with dense combs of fibrous gristle. As they creep across the terraces, these grates dilate with infinite slowness, drawing the bitter, iron-saturated water through their interiors by capillary draw alone. Deep inside their mass, where the pressure is equalized to the fathomless depths, heavy minerals are precipitated out, turning their inner tissues into a dense, porous lattice of bone-stone and oily wax. They do not generate heat. If an instrument could measure them, their cores would match the surrounding water to the hundredth of a degree.
+
+There are others, rarer and older, that have not flattened themselves. 
+
+On the wide, blank platforms that terminate the causeways—the foundations that support no towers—stand forms that must once have shared an outline with the builders. They do not move for lifetimes. They stand erect or slightly bowed, nine or ten feet tall, their proportions thick and columnar, without waists or distinct necks. Their limbs are like the rollers used to move the basalt blocks: heavy, unsegmented logs of fibrous muscle that terminate in blunt, spatulate pads. 
+
+These standing ones are calcified nearly to the heart. Their faces are flat, featureless shields of gray cartilage, worn smooth by the water’s unending drift, entirely devoid of eyes, nostrils, or jaws. Where ears might have been, there are only deep, horn-lined pits that lead straight into the dense, solid bones of the skull. 
+
+They do not think in sequences or memories; they think in acoustics. To them, the sunken continent is an unbroken vibration. Through the soles of their feet, anchored directly into the megalithic terraces, they listen to the earth. They feel the hydraulic creak of the distant pavements settling; they feel the deep, groaning shudder of a retaining dike shifting five hundred leagues to the west; they track the slow snapping of the reed-forests as the great drift begins its multi-decade turn from south to north. 
+
+When the drift turns, they turn with it. 
+
+The motion takes months. A foot lifts—not floating, but tearing itself free from the suction of the sludge with a sound like tearing leather—and swings forward an inch at a time, displacing the thick water with agonizing deliberation. The knee does not bend so much as the limb compresses and uncorks. When the foot comes down, it meets the basalt with a hollow, subterranean *tock* that carries through the floor for leagues, a broadcast of arrival that will take hours to reach the next platform.
+
+They do not interact. If two cross paths upon a forty-yard causeway, they do not touch, nor do they divert their paths. The causeway is wide enough for both, and their courses were determined before the corners of the basalt blocks were rounded. They pass one another over the span of three human generations, their slag-crusted shoulders trailing broken fronds of weed, sharing nothing but the common tremor of their displacement in the dark.
+
+Below them all, deep within the seams where the stones do not fit quite flush, lies something older still: the marrow of the place. 
+
+In the perpetual dark of the foundations, where the water is entirely still and blacker even than the terraces, the joints between the slabs are plugged with a thick, grayish grease. It is living tallow, a communal tissue that has no organs, no limbs, and no boundaries. It oozes through the dry-stacked masonry like cold mortar, filling the miles of labyrinthine gaps that run beneath the floor of the world. It is the grease that lubricates the settling of the stones; when the thousand square miles of pavement creak and sink their fraction of an inch, it is this marrow that yields, compresses, and slowly flows into the new void, preventing the basalt from shattering against itself.
+
+It feeds upon the pressure itself, thriving on the sheer, crushing tonnage of the stones above it. Where the weight is greatest, the tallow is dense and crystalline; where the masonry gaps, it softens and pushes forward like a blind tongue, tasting the bitter brine before withdrawing back into the safety of the seam.
+
+Nothing dies here in the manner of the upper world. There is no rot, no scavengers to strip a carcass, no rapid dissolution into dust. When one of the upright dwellers finally ceases to turn—when its mineral lattice becomes too heavy for its muscles to lift against the weight of the sea—it simply stops. The liverwort thickens over its shins; the hair-moss scales its chest; the pale, wrist-thick reeds root into the creases of its knees and climb toward the ceiling. It becomes a pillar. 
+
+Centuries later, an anvil-shaped creeper will reach its base, shear the moss from its feet, and continue past, leaving the stone slightly smoother than it was before, while the silent, blind forest sways southward, wait-listing the centuries until it is time to lean north again.

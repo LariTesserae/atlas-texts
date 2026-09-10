@@ -1,0 +1,17 @@
+This is the **Glass-Thistle Citadel**, perched on the razor-back of the Aethel-Spine. 
+
+The air here is thin, warm, and perfectly still, smelling faintly of heated flint and toasted dust. There is no moisture; the concept of a "drop" or a "stream" is alien to this altitude. Instead, the atmosphere is a dry, golden clarity that magnifies the sun. 
+
+The terrain is a jagged, adolescent geology. The ground is composed of obsidian plates and raw, unweathered quartz outcroppings that have not yet known the softening hand of rain or wind-blown sand. Everything is sharp. The edges of the boulders could shave a hair; the path beneath one’s feet is a mosaic of obsidian flakes that crunch with a brittle, crystalline finality. 
+
+Emerging from this fractured floor is a city that was not built, but cultivated. It is "urban" in the way a reef is urban—a dense, organized, and layered settlement of biological architecture. Vast, translucent spires of honey-colored resin rise thirty feet into the air, interconnected by sweeping, fibrous bridges that resemble hardened silk. These structures are not houses so much as they are external organs, grown in precise, geometric clusters that mimic the layout of a tight-knit hamlet. There are no tools here, no saws or hammers; the "buildings" are the shed carapaces of a slow, communal organism that has crystallized into a permanent habitat.
+
+Despite the lack of water, the environment is lush. Life here does not drink; it absorbs heat and vibration. The "vegetation" consists of towering glass-thistles—stiff, crystalline stalks that fan out into fractal arrays of needles. They are a deep, bruised purple and vibrant amber, packed so closely together that they form a shimmering canopy. This thicket is dense enough to walk upon if one has the right hide, a multi-layered forest of minerals that grows with the patient, unhurried rhythm of a cooling star.
+
+The city is populated by an abundance of silent, heavy-plated fauna. Creatures resembling oversized trilobites, their shells polished to a mirror sheen, move across the resin bridges with a glacial, deliberate grace. They do not possess vocal cords. Communication is a matter of slow gestures—the tilting of a reflective head to catch the sun, or the rhythmic tapping of a tarsus against a resonant resin wall. 
+
+The scale of the place is intimate. You can stand in the central "plaza"—a flat expanse of violet mica—and see the boundaries of the settlement in every direction. It is a cathedral-sized world, a self-contained pocket of complexity clinging to a mountain peak. 
+
+Everything happens at a geological pace. A new "room" might take a decade to extrude from the base of a spire. A conversation between two residents might last from dawn until dusk, consisting of only three or four slow, meaningful shifts in posture. 
+
+The silence is near-total. Because there is no wind to rustle the glass leaves and no water to babble over the sharp stones, the only sounds are the tiny, high-pitched *tinks* of mineral expansion under the warm sun, and the occasional, muffled thrum of a creature’s heartbeat vibrating through the floor. It is a place of intense, crowded stillness—a crowded city of glass and heat, waiting for a history that moves as slowly as its stones.

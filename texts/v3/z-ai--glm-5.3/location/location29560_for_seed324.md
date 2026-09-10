@@ -1,0 +1,5 @@
+You find it by counting doors. Stair 7 climbs through the high works — eleven hatches, eleven stenciled letters, eleven wire-glass portholes showing more concrete, more cable tray, more green paint — and the last door, D-11, has no name at all, only a steel hook beside the frame. On the hook hang foam ear defenders, old enough that the foam has kept the shape of strangers' heads. That is how the hidden announces itself here. It doesn't. You find it.
+
+You hear the room before you open it, through your hands. The handrail conducts a shiver that climbs into the wrists, and the stair itself hums like the string of an instrument nobody is playing. Then you turn the handle, and step into the roar the way a diver steps off a platform.
+
+The gallery is eight meters long and two wide, curved like a bracket around the thing it exists to watch: Line B, two and a half meters of rolled steel, painted the green of deep lakes, punching down through the chamber at a steep angle — in through the upper wall, out through the lower, going somewhere four hundred meters below. Midway along its run sits the

@@ -1,0 +1,37 @@
+There is no ground here. Not really.
+
+What looks like ground from a distance — flat to the horizon in every direction, white-tan under noon — is a floor. Grown. When you kneel and put your hand on it, the heat comes up through your palm first, and then the texture: fine as sandpaper, layered as shell, warm as skin. It goes down meters thick. There is no rock underneath exposed anywhere, no dirt that wasn't once processed through a living body. If you break a corner off one of the plates, and you can, the edge is soft-chalky and smells faintly of pond and lime, and you can see the laminae, light and dark, light and dark, a season per millimeter.
+
+It goes on like this for longer than weather. This is a low country, a basin so shallow and so wide you can't tell you're in it except that the air sits. Hot air sits. At midday the horizon lifts and shivers and doubles itself. Thunderheads build in the afternoons out of nothing but the sweat of this place itself — the floor exhales, the air can't hold it, clouds stand up in an anvil line from edge to edge of the world, drop their rain in one dark shaft five miles away, and dissolve.
+
+Erosion hasn't found this place yet. That is the strangest thing when you walk it. Everything is too new, too sharp. The floor is tiled into great slow polygons — ten, twenty feet across — each one faintly domed, lifting at the center as it grows. Where two domes meet there is a seam, a V of shadow, raw and uncracked, still soft at the lip where mineral is being laid down today. No rounded hills. No gullies worn smooth. No dust of old mountains. Where a plate has buckled upward in the heat it breaks with a clean, conchoidal snap, and the shards lie where they fell, un-softened. This is geology under construction, a continent being secreted.
+
+Water lives only in the seams. That is the rule.
+
+In the morning, before the heat, everything is wet without rain. The air cools just enough overnight that dew beads across the domes and runs, drop by drop, down the shallow slopes into the cracks. You wake to a lacework of water, silver in every joint for as far as you can see. Step carefully and you hear it before you see it — a faint tick-tick-tick of trickle under your boots, moving laterally through the dark. By nine the domes are dry and pale again. By eleven the seams hold only isolated pockets, tea-colored, warm as bathwater, shrinking. By three most are just damp black lines.
+
+But the rain, when it comes, finds the same paths. A cell bursts three miles east and for twenty minutes a brown sheet moves across the polygons, ankle-deep on the domes, knee-deep and running fast in the seams, carrying loose grains and flecks of green. Then it stops. Steam rises. The floor ticks as it expands and contracts. The pockets remain.
+
+Life is thin on top, because there is no soil to hold it, and because it is hot enough to kill anything tender by noon. That is the second rule: nothing tall lives here yet. What grows are squatters in the seams.
+
+Every hundred yards, or sometimes half a mile, a seam widens enough to hold mud — real mud, trapped silt and dead filaments — and there a tuft holds on. Not grass, exactly, but something doing the job of grass: a starburst of stiff, gray-green blades, waxy, rolled tight against the sun. A black lichen crust aprons out around it, holding the edge. Further on, where a pocket stays wet through the afternoon, a smear of rust-red or dull olive microbial skin stretches across the water, wrinkling in the breeze. That is almost all. No trees. No shade except the inch of shadow in a crack. From standing height, the plain looks empty, bleached, abandoned.
+
+Get low and it isn't. Each tuft is an island with its own weather. Under the blades the mud stays damp all day. Tiny white salt pillars push up where water evaporates. The lichen exhales a faint sweet-sour smell, like bread left in sun. If you lift a shard of floor at the seam edge, the underside is pocked with damp chambers, beaded with water that never sees light.
+
+Nothing walks here. No insects stitch the air. No birds cross, or if they do, very high, and they do not land. There is no dung, no track, no burrow. The tufts grow ungrazed, live and crisp and die and collapse into the seam to become the mud the next tuft needs. The builders of the floor itself are not green at all — they are down in the wet dark, under the domes, laying lime in sheets, invisible, oldest inhabitants. The green things are just tenants. It is too early for animals. This place hasn't made room for mouths yet.
+
+And so it is quiet in a way that takes a day to hear properly. No hum, no chirp, no engine — there has never been a tool here, never a cut or a nail or a wire, though everything underfoot is made. The sounds that do exist are small and physical and constant if you learn to stand still for them.
+
+At dawn: a faint spitting as dew coalesces and drops.
+At noon: a high, irregular ticking all around you as the domes swell against each other — *tik... tik-tik... tik* — like a cooling stove, but spread to the horizon.
+After rain: for an hour, the whole basin glugs and gurgles, water finding level through connected seams, running under thin lids of fresh mineral that drum faintly under your soles. Some places the floor is hollow. You learn to test with a stick. A dull thump means water below.
+Before storm: wind first, moving unbroken for miles with nothing to break it, combing the stiff tufts until they hiss, lifting salt and fine lime dust in low white veils that sting the eyes.
+At night: contraction. A soft, spaced cracking, like ice on a far lake. Occasionally a sharp report as a new seam rips open. In the morning you will find it, a black lightning line across three polygons, damp to the touch, already filmed over with new growth.
+
+The light is ordinary and merciless. White at noon, so bright off the pale floor you squint even with your hat low. Amber and long in evening, when each dome casts a curved shadow and the whole plain suddenly shows its relief — millions of low breasts and dark seams running to a molten horizon. Night skies are huge and clear and full of stars, and the floor gives back the day's heat until near midnight, so you sleep warm on stone that was alive that morning.
+
+Walk far enough in any direction and the pattern repeats with slow variation. Sectors where the polygons are small and tight as turtle scutes. Sectors where they swell to the size of rooms, their centers cracked into sunburst stars. A shallow pan, miles across, where after rain the seams join and for a day there is a true lake, inches deep, sky-mirrored, rimmed with red scum, then gone. A ridge — barely a ridge, a swell of inches — where the tufts are denser, almost a meadow in crack-form, green lines drawing polygons from above.
+
+But never a hill that is rock. Never a riverbank that is earth. It is floor, and seam, and tuft, and pocket, to the edge of weather.
+
+The rule of the world, if you stay long enough to feel it, is this: growth is faster than ruin here. Every day the floor thickens by less than a hair, but everywhere, all at once, over an area larger than some seas. Every day heat tries to break it, water tries to dissolve it, sun tries to sterilize it, and every night it lays down another lamina. It does not need anything else. It is making a continent out of breath and sun and temporary water, and it is only just beginning.

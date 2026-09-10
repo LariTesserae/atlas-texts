@@ -1,0 +1,65 @@
+**Prepare as if you are about to walk into a finished argument between stone and time, one that no longer requires participants and will not notice whether you win or lose.**
+
+This place is not hostile in the way a predator or a storm is hostile. It is indifferent at a scale that redefines the word. An ordinary human body is a brief wet anomaly here: a temporary coincidence of water, metabolism, and linear expectation dropped onto a plateau that has already forgotten water and has never respected linearity. Your preparation must therefore be dual—keep the wet machine running long enough to witness, and keep the expecting mind from shattering when the plateau declines to ratify your assumptions.
+
+### Physiological Foundations: The Body Against Desiccation and Height
+
+The air has long since stopped pretending to be generous. You will ascend (or arrive already high) into a regime where every breath is a negotiation and every exhalation feels wasteful. Ordinary travelers underestimate this. Pre-acclimatize hard. Spend weeks living at progressive elevations if your multiverse staging allows it; use hypoxic tents or equivalent if it does not. Train not merely for low oxygen but for the specific fatigue of permanent mild hypoxia paired with zero humidity. Your mucous membranes will crack. Your sleep will fragment. Your judgment will narrow long before you notice.
+
+Water is the absolute constraint. There is almost none, and what remains is theoretical—mineral bloom, iron taste on a turning wind, nothing you can drink. Carry more water than seems sane, then carry the means to stretch it. Closed-loop recycling systems (even crude ones: condensate capture from breath and sweat, solar stills that work under the bone-colored overcast, chemical reclaimers) are not optional luxuries; they are the difference between a visit and a mummification. Calculate consumption under high-altitude, high-dust, high-anxiety conditions—higher than sea-level desert figures. Include a hard turnaround threshold: when remaining water drops below the amount required to reach your exit vector plus margin, you leave, regardless of what the geometry is showing you that day. People who “just want to see one more plaza” become another layer of dust.
+
+Temperature is sneaky. The perpetual late-afternoon light under high overcast does not bake the way a desert noon bakes, yet the stone radiates stored coolth and the wind scours. Nights (or the dimmer phases that pass for nights) will steal heat efficiently. Layer clothing that handles abrasion against chalky mineral, blocks dust infiltration, and manages both radiative cooling and sudden wind. Sealed goggles, sealed face covering with filtered intake, gloves that still allow tactile feedback—dust here does not merely annoy; it enters, desiccates, and abrades from inside. Surfaces chalk under pressure; your boots will leave marks that the wind immediately begins to edit. Choose soles that grip fractured flagstone and fine dust equally. Broken ankles in a place where sound behaves badly and distances lie are worse than they sound.
+
+Food is secondary but non-trivial. Dense, low-residue, high-calorie rations that do not increase water demand. The body will want more salt and electrolytes than usual; the iron-taste wind is a reminder of mineral realities, not a source. Plan for taste fatigue and the psychological weight of eating alone in monumental emptiness.
+
+Medical kit: altitude drugs if you tolerate them, aggressive moisturizers and occlusive dressings for cracked tissues, dust-related respiratory support, eye care, basic trauma. Include something for the quiet panic that arrives when your footsteps start arriving half a second early. There is no clinic. There is no one to stretch a sprained knee while the courtyard slowly tilts overnight.
+
+### Navigational and Perceptual Armor: Against a City That Revises Itself
+
+The geometry is not broken in a cartoon way. It is simply no longer obligated to remain consistent with an unobserved observer. Parallel streets drift. Stairs reverse preference. Distances inflate until a ten-minute plaza consumes an afternoon while the light stays exactly the same. Sound misbehales. At the edges, objects occupy plural positions and the drop below feels optional rather than merely deep.
+
+Ordinary maps are lies waiting to happen. Prepare multiple redundant systems and treat all of them as provisional:
+
+- Inertial trackers and dead-reckoning logs that do not rely on external references.
+- Physical markers of your own—thread, cairns of contrasting material you brought, chalk that is chemically distinct from the local dust—deployed with the knowledge that the city may slowly incorporate or erase them.
+- Rigorous habit of reverse-path confirmation: look back far more often than feels natural. The avenue behind you is not guaranteed to be the avenue you walked.
+- Mental discipline of landmark hierarchies. Prefer large-scale relations (this spine relative to that terrace relative to the quality of the drop) over local detail. Local detail is mutable.
+- A personal “consistency budget.” Decide in advance how much discrepancy you will tolerate before you stop advancing and begin extricating. When the same tower stands in three places, that is not a spectacle to approach; it is a warning that the local rules are thinning.
+
+Move slowly. The place rewards prolonged watching because its changes are glacial—walls re-angle over hours, buttresses extrude and begin weathering in the common style, courtyards sink by handspans while you sleep. Rushing guarantees you will miss the motion and also guarantees you will blunder into a shift. Treat walking as continuous survey. Pause often. Let your eyes rest on a façade long enough to learn whether it is currently decisive or still negotiating.
+
+At the outer edges the breakdown grows frank and the vertigo is not purely vestibular. Looking over can produce the sense that the world below is one option the plateau has currently declined. Do not look over until you have a secured stance, a fixed safety line to something that has felt solid for at least an hour of observation, and a clear reason. Many travelers will feel the pull to “understand” the drop. Understanding is not required for survival. The plateau does not care whether you ratify it back.
+
+### Psychological and Temporal Preparation: Living Inside Active Emptiness
+
+You could walk for days and meet no one. You could turn a corner and find the same long avenue repeating with only the smallest treacherous variations, as if the city were testing how much continuity you require before you stop trusting it. The silence has weight. Your own steps become embarrassing. Between them: the tick of cooling stone, the soft collapse of a grain-pile that waited centuries to finish falling.
+
+This emptiness is not peaceful by default. It is a pressure. Ordinary social animals experience prolonged absence of witnesses as a kind of erasure. Prepare deliberately:
+
+- Practice extended solitude before you go. Not weekend camping—multi-week isolation with reduced sensory input and no rescue narrative. Learn the texture of your own mind when nothing external answers.
+- Develop rituals that mark time, because the light will not do it for you. The bone sky refuses to deepen into night. Perpetual late afternoon is disorienting at a circadian level. Fixed mealtimes, fixed logging times, fixed rest periods enforced by your own systems matter more than they would in a place with evenings.
+- Cultivate a stance of non-insistence. The city is pure construction and pure nature doing an extremely long improvisation in the shape of habitation. It does not need you to complete the gesture. If you arrive demanding streets remain streets and distances remain honest, you will exhaust yourself fighting slow revisions. If you arrive willing to notice without forcing, the place becomes legible on its own terms: settled mineral still becoming its shape.
+- Expect the fauna to feel like errors. Many-legged dust-colored travelers that leave no lasting track, pale membranes that flutter into shadow. They are not for you. Do not chase. Do not assume predator or prey logics from wetter worlds. Extreme sparsity means anything alive here runs on mineral gradients and faint heat differentials. Give it wide berth; it has survived longer than your species memories.
+- Record, but lightly. Instruments may drift. Memories will try to impose continuity that was not present. Note discrepancies without immediately resolving them. “The stair preferred descent yesterday; today it prefers ascent” is useful data. “I must have misremembered” is how the place begins to edit you.
+
+The emotional tone of a successful visit is a sustained, low-grade awe threaded with unease and a strange tenderness for the patience of stone. You will feel geological smallness. You will feel the embarrassment of being wet and hurried. You may feel sudden protective love for a particular colonnade that has not yet shifted while you watched. Let these feelings move through without turning them into claims of ownership or understanding. The city is not a ruin. It is not a message. It is an ongoing process that briefly overlaps your trajectory.
+
+### Gear Philosophy and Exit Discipline
+
+Travel light in mass but heavy in redundancy for the critical path: water, sealing, navigation references, thermal control. Every object you bring should either keep you functional or help you leave. Do not bring offerings, markers meant to “leave a trace,” or tools for extraction/analysis of the local mineral unless you have a clear, limited scientific protocol and the means to carry samples without contaminating your sealed systems. The dust will try to claim everything.
+
+Establish exit conditions before you enter and write them down in a form you will still respect when the light has stayed the same for seventy hours and a courtyard has developed a new gentle grade under your tent. Exit on water margin. Exit on navigation inconsistency exceeding your budget. Exit on physiological trend lines (oxygen saturation, residual fatigue, mood markers). Exit on the simple decision that you have seen enough of how stone finishes thinking about being a city.
+
+Arrival and departure vectors (whatever multiverse mechanism you use) should be practiced in advance under partial sensory deprivation and under fatigue. The plateau may not actively resist your leaving, but it also will not help, and local inconsistencies can make a familiar exit path feel suddenly optional. Anchor your return with multiple independent confirms.
+
+### What the Visit Itself Will Feel Like
+
+You will step into air that tastes of iron and distance. The first wide avenue will seem almost ordinary—broad, dusty, lined with weathered façades that once might have been buildings and are now simply denser regions of plateau. Then the silence will settle around your heart rate. Then you will notice that the shadows are collaborative and a little too willing to forget their objects. Then, hours later, you will realize a tower has grown a buttress it did not have, or that the plaza you are crossing has been crossing you for longer than its width should allow.
+
+You will sleep (or attempt to) in lee of walls that slowly converse with gravity. You will wake to find the dust has redistributed itself according to laws older than weather and that your footprints from the evening before have already been offered editorial revisions. You will walk, pause, watch, drink measured sips, log, walk again. Occasionally you will sense motion in a negative space and feel your animal body want to assign it narrative. Resist the assignment. Keep moving or keep still according to your plan, not according to the story impulse.
+
+At some point the cumulative effect will hit: the understanding that this high place forgot to end, that the city is the plateau continuing by other means, and that your presence is a brief statistical fluctuation in its patience. If you have prepared well, that understanding arrives as clarity rather than collapse. You will feel the cool cellular currents of air in a market that needs no market. You will hear a single flake of façade release itself with the sound of a held breath let go. You will adjust your scarf against dust that never quite finishes settling, check your water, check your anchors, and decide whether to continue or to begin the long, careful process of departure.
+
+Leave no expectations behind. They will not survive the wind anyway. Take only the calibrated knowledge of how little a human life registers against stone that is still deciding its own elevation, and the practical memory of how to keep a wet mind intact inside an argument that finished needing voices long before you arrived.
+
+That is sufficient preparation. The rest is walking, watching, and refusing to insist that the horizon remain where you left it.

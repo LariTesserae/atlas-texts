@@ -1,0 +1,21 @@
+The rock has never met water. It has no idea what a rounded edge is.
+
+Everything here rises at angles that seem mathematically hostile, jutting miles upward into an ink-black sky that carries neither clouds nor stars. The elevation is absurd—verticality on an planetary scale, where the floor of the world is an abstraction lost leagues below, and the landscape consists entirely of soaring, razor-crested fins, needle-thin basalt horns, and immense, upthrust slabs of vitreous slag. Because there is no weather in the hydraulic sense—no moisture, no frost-wedging, no rain to soften a seam—the fracture planes are fresh enough to shave with. 
+
+Yet it is not cold. The darkness is thick with an ambient, stifling warmth that bleeds out from the stone itself. It is a dry, baking heat, like the interior of an unventilated kiln hours after the fire has been damped. 
+
+The silence is deep, heavy, and nervous, because the terrain is not finished arriving. It is in an embryonic, violent state of emergence. Beneath the feet—or where feet would attempt to find purchase on edges of unweathered obsidian and ironstone—the ground shudders with a stuttering, frantic pulse. Huge volumes of earth are still being shoved skyward by blind, subterranean pressures. Every few minutes, the stillness is severed by a dry, catastrophic *clack*—the sound of an entire spire snapping at its root under sudden shear stress, or a miles-long sheet of cooling silicate cleaving cleanly in two. There is no thunderous rumble, only the hard, crisp percussion of brittle materials fracturing under impossible strain, followed by the crystalline hiss of glass shards avalanching into the void.
+
+In the gloom, vision relies entirely on proximity and the faint, self-generated luminosity of the crust. Deep in the fissures, where the stone has been torn apart only seconds prior, a dull, blood-brown infrared glow pulses weakly before dying as the surface cools against the vacuum-thin air. 
+
+Life has barely contemplated this place. There is no green, no rot, no soil. In the leeward pockets of the great shard-ridges, where thermal vents puff out dry, sulfurous gases, one finds only thin crusts of brittle, pale-yellow mineral mats—not true lichen, but simple, slow-burning chemical carpets that feed on heat and lithium dust, calcifying into chalky rind as soon as the vent drifts shut. 
+
+Yet, impossibly, there are structures here. 
+
+They are scattered across the precipices, separated by leagues of empty, jagged abyss. They are not cities; they are sparse, solitary intrusions of deliberate order among the chaos. Here, balanced on the spine of a ridge that is actively tilting, sits a roofless enclosure built of massive, unmortared blocks of native basalt. The stones are dry-stacked with terrifying precision, fitted together before the ground beneath them began its current spasm of uplift. Elsewhere, perched at the very apex of a needle of black glass, stands a solitary plinth—a tapering column of fitted slate, its top carved into a flat, empty basin. 
+
+There are no wires, no inscriptions, no metal hinges or tool-marks. Whoever placed these stones possessed no technology beyond leverage, counterweight, and a maddening persistence. Many of the structures are already ruined—not by age, for they seem freshly set, but by the furious dynamics of the world itself. A square gatehouse stands sheared in half, one wall remaining on this cliff, the other carried three hundred yards higher by a fault block that violently displaced itself last month.
+
+The atmosphere moves in sudden, hot drafts that smell of struck flint and dry zinc. When a gust hits the vertical fins of rock, it plays them like colossal, out-of-tune reeds, producing a low, breathy hum that lingers just at the threshold of hearing, then drops away the moment the wind breaks against a newly extruded spur.
+
+You can stand in the dry, warm dark and watch the horizon reconfigure itself. A black ridge that five minutes ago was a continuous knife-edge suddenly buckles in the center; with a sound like a single rifle shot echoing off iron walls, a new peak pushes its snout three hundred feet into the dimness, raw and dripping dry talus, while the ruin beside it creaks, settles three inches to the left, and waits to be destroyed by the very mountain that bore it.

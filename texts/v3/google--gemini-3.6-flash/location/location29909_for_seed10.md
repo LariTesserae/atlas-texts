@@ -1,0 +1,23 @@
+The altitude offers no clarity, only a vast, cold tableland where the sky hangs low and bruised, dripping a fine, icy needle-spray that never quite settles into rain. This is a mountain range worn down to its absolute roots—an ancient, high-elevation plain where mountains died millions of years ago, leaving behind a smooth, undulating pavement of petrified biomass. 
+
+There is no stone here. There is no mineral dirt. The substrate of the world is entirely vegetal: a miles-deep, compressed crust of cold black peat, fossilized bark, and tough, rubbery liverwort that yields underfoot like wet leather. It is freezing—a bitter, damp chill that smells of crushed pine needles, cold iron, and ozone. 
+
+Across this high, open tundra, presences are sparse. One can look out over leagues of empty, shivering bog and see only two or three major structures on the horizon. But these are not buildings; nothing here was ever built. They are gargantuan, solitary vegetal engines—plant life that has evolved the brute, mechanical logic of heavy industry.
+
+Three miles to the west, a solitary *Piston-Oak* rises two hundred feet into the dim twilight. Its trunk is not wood as a forest knows it, but a dense, iron-infused cylinder of layered fiber. Every few seconds, the crown of the tree drops twenty feet with a deafening, wet *THUMP* that vibrates through the spongy peat for miles. The compression drives hundreds of gallons of supercooled, pressurized sap through thick, subterranean root-conduits, jetting white steam from bark-valves around its base with a rhythmic, deafening hiss. Further off, strung between distant, calcified spires, hang miles of thick, braided copper-moss ropes. The high winds scour these lines, generating a steady, crackling static that illuminates the dim mist with cold, violet sparks.
+
+It is an ecosystem of biological manufacturing, operating without a manufacturer, completely wild and unguided.
+
+The sound is immense and continuous: the heavy, rhythmic thrumming of the piston-trees, the shrieking gale torn through fields of hollow, glass-hard reed-pipes, the sloshing of dark, frigid water through subterranean root-tubes, and the wet, tearing sounds of the earth itself constantly breaking apart and re-knitting.
+
+For all its sparsity of landmarks, the landscape is violently alive and constantly morphing. It has the hyperactive, unstable energy of an ocean in a storm. A flat, black lawn of damp club-moss will, over the space of twenty minutes, begin to boil and heave, pushing up a temporary ridge of razor-sharp, translucent thorn-lattice sixty feet high. An hour later, the lattice will rot into black slush, dissolving into a surging, cold river that carves a new gully through the peat before freezing solid into a road of purple ice.
+
+Reality buckles under the sheer density and ancient momentum of this growth:
+Near the high-pressure sap-vents, gravity stutters. Drops of black water weeping from the moss-banks do not fall; they thread upward into the fog in long, beaded strings, or freeze mid-air into spinning, gear-shaped snowflakes that grind against one another with a faint, metallic chittering. Shadows do not align with the dim, diffuse twilight; they lag behind the things that cast them, dragging across the wet turf like dark ribbons attached to a heel.
+
+Fauna swarms through this cold, industrial wilderness, adapted to its violent rhythms and electrical currents. 
+Brittle-legged, iron-shelled organisms the size of horses skitter across the marsh on needle-points, gathering around the base of the piston-trees to lick the scalding, mineral-rich froth from the relief valves. In the sky, flocks of leathery, multi-winged organisms hover motionless against the gale, their ribbed bellies humming in resonance with the ground’s mechanical thrum. Small, pale amphibious things with crystalline eyes burst from the churned mud whenever a new root-trench tears open, devouring the exposed, twitching fibers before the frost can claim them.
+
+Everything is wet, cold, and loud. Water weeps from the undersides of floating moss-shelves, collects in black, fathomless pools held in the bowls of giant, dormant leaves, and sprays in endless, freezing plumes from the tectonic shifting of the deep root-network below.
+
+It is a world that has reached the end of erosion—a place where the bones of the earth have completely dissolved into a self-sustaining, self-mangling biological machine, roaring to itself in the freezing twilight at the top of the world.

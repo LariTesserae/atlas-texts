@@ -1,0 +1,39 @@
+The valley doesn't begin anywhere you can point to. You come up out of the low clouds and it is already around you.
+
+High — high enough that the air is thin and cool in the back of the throat, high enough that your breath shows even though it isn't winter. The road up switchbacks and then simply becomes a street, becomes stairs, becomes a roof. There was a mountain here once. You can tell by the way the light hangs, by the way distant slopes should be. But there is no slope left uncovered. From rim to rim, from the mist that caps the upper end to the mist that swallows the lower, the whole trough is built.
+
+Not built on. Built *instead*. Retaining walls thirty meters tall in weathered block, blackened at the base with a hundred years of damp. Terraces stepping down, each one the flat roof of the level below it. Mills and dwellings and sheds and cisterns shouldered together so tight there is nowhere to put your hand between them. Corrugated iron leaning against brick leaning against poured concrete leaning against timber staging that was meant to be temporary forty years ago and never came down. Pipes run everywhere, thick as tree trunks and thin as wrists, lagged and rusted and sweating. Cableways cross overhead with buckets crawling along them, disappearing into the grey.
+
+And everything is wet.
+
+Not flooded. Wet the way a sponge is wet. It rained an hour ago, or a day ago — here it is always just after rain. Water stands in shallow sheets on every flat surface. It threads down every stair in a clear skin. It weeps straight out of the walls. You can see the dark tide marks where the retaining masonry exhales, beads gathering in the mortar lines and merging and falling. Downspouts and flumes and half-pipes and gutters chatter everywhere with low water, carrying it from terrace to terrace, level to level. The air itself condenses. If you stand still your jacket darkens. If you touch a handrail your palm comes away cold and slick. The high cloud sits down into the valley and never quite lifts, so the light is dim, filtered, blue-grey and diffuse, like late afternoon that lasts all day. Work lamps burn even at noon — small amber sodium dots strung under eaves and inside archways, reflected a hundred times in puddles.
+
+Erosion here does not mean falling apart. It means settled. The concrete corners are all rounded. The iron stairs are dished in the middle from boots. Rust has run down in the same streaks for so long the streaks have become a color, a protective varnish. Lichen has mapped the north side of everything. Nothing is new, nothing is collapsing; it's in balance with the water and the weather, worn smooth like a river stone.
+
+Because despite the iron and brick, it is green. Impossibly green for a place with no soil.
+
+There is no soil. If you pried up a paving slab you would find another room. If you dug you would hit culvert, then turbine hall. But the moss doesn't care. It has taken every horizontal surface — a carpet an inch thick over concrete, velvet on the handrails where hands don't rub, swallowing the lower steps until the stone is soft underfoot. Liverworts black-green in the mortar joints. Ferns in every crack, hart's-tongue and lady-fern and something finer, unrolling by the thousand from downspouts. Brambles spill over parapets in long wet arches. Birch and alder saplings, thin and pale from the dimness, have rooted in gutters and inspection sumps, four meters tall and swaying. Washing lines are strung between ventilators, and between the lines, grapevines and runner beans planted in cut oil drums and troughs of composted leaf litter and ash. On the south-facing mill walls, whole hanging gardens have been bolted on — tiers of boxes, pallets, sacking planters with potatoes, kale, mushrooms fruiting from damp straw bales tucked under the stairs. The smell is not what you'd expect from works. Machine oil and wet wool and coal smoke, yes, but under it chlorophyll, crushed fern, rot sweet as apples.
+
+Animals are rare. There's nothing for them to live on except us. Once in a while a crow crosses the gap, cawing and lost in the scale of it. A rat runs a pipe. Pigeons huddle under a conveyor housing. Otherwise it's people and plants and water and machines.
+
+The machines are everywhere, but they are quiet machines. That's the strangeness of it at first: you see industry at valley scale — the turbine houses humming behind grilles, the looms thudding in long sheds where the windows glow milky, the paper mill exhaling steam that is instantly swallowed by fog, the mushroom caverns lit magenta on the third under-terrace, pumps kicking on and off to lift seep water back up to the header tanks — but the sound is muffled to almost nothing. The moss eats it. The cloud eats it. The water eats it. What reaches you is low and close: your own boots squeaking on wet concrete, drip from an eave onto a barrel lid, *plik plik plik*, the soft shush of a flume, a distant clank from three terraces down robbed of its edge, a transformer buzzing like a trapped bee, rubber wheels on wet planks. Men and women call to each other not with shouts but with short, practiced signals.
+
+And yet nothing is still. That is the rule of the place. Look for ten seconds and three things have changed.
+
+A scaffold on the far wall that was empty is suddenly carrying two figures hauling a green-stained panel upward. A market alley below you — awnings of tarp and corrugated plastic jammed into the gap between a dye-works and a pump station — folds and unfolds; stalls are on wheels and trestles because no pitch is permanent, because the drain beneath must be rodded at 3 p.m. Porters trot past with baskets of wet greens, with bobbins, with coal, with eels from the lower sump traps. A sluice gate is wound open and a side channel turns from trickle to brown rush in seconds, and a boy with a hooked pole clears leaves from the grille before it blinds. A cable bucket dumps slag and returns empty. Tarps are pulled over drying yarn as a new spit of rain moves through, then pulled back. Laundry is hauled in, hauled out. The whole packed mass seethes like an anthill seen from above, town-sized, terrace after terrace fading up into white on either side until you can't tell building from mist.
+
+You learn the rules quickly because everyone obeys them without saying them:
+
+Keep the water moving. Never block a drain for more than minutes. Clear your gutter or your neighbor's roof floods.
+
+Don't look for ground. The ground is whatever level you're standing on. Down is someone else's roof; treat it like a floor.
+
+Grow wherever you can, but grow in containers, on structures. There is nothing to plant *in*. And cut back what you grow, or the ferns will take your ladder and the moss will take your doorway.
+
+Work quiet. Sound carries oddly in the cloud bowl, and the night shift is sleeping in the room behind the loom wall.
+
+It is cool enough that you keep moving to stay warm. Your fingers go numb on wet metal. People wear oilskin aprons over sweaters, boots laced tight, hats that shed water. Their faces are pale from dimness, their hands stained green and black at the cuticles.
+
+From the high inspection bridge — itself dripping, itself mossed at the edges, vibrating faintly with the turbines far below — you can see the scale of it: not a factory in a valley, but a valley that is a factory that is also a town that is also a bog garden. Levels stepping down past counting. Chimneys, short and thick, breathing thin white into white. Windows lit yellow in the gloom, each one with a box of geraniums or a curtain of ivy. Water glinting on every edge. Green forcing its way up through grey, grey holding its shape under green.
+
+It goes on past what you can see. You hear a funicular cable sigh somewhere below in the mist. You hear water, always water, finding the next level down.

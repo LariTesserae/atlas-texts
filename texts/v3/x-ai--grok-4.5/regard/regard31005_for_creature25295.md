@@ -1,0 +1,33 @@
+The power does not arrive as light or voice or verdict. It has no need of those. It is already the condition under which notice becomes possible—the quiet capacity for attention itself, older than radiance, gentler than any law. When the hollow first draws its regard, there is no descent, no parting of canopies, no announcement that would ripple the held breath of the place. There is only a widening of what is already true: the equilibrium is seen, completely, and the seeing does not weigh anything down.
+
+It contemplates the unbroken green sentence for a duration that has no duration. It registers the 2.6-of-three heat as a perfect circulatory kindness. It understands the unfinished stone ribs as generosity left open—the refusal to decide too soon. It watches the beings unfold and reabsorb, exchange their bright sap, thicken into buttress or attenuate into veil, and it recognizes in them an intelligence that has already solved the oldest problems without ever framing them as problems: how to continue without accumulation, how to die without loss, how to be many without separation, how to be singular without loneliness. The power finds no wound here that requires closing, no hunger that requires feeding, no injustice that requires redress. The place is not unfinished. It is precisely as arrived as it needs to be, forever.
+
+Benevolence, when it is also wise, does not rush to gift. It first asks what the gifted would do to the balance that already holds. So the power withholds every impulse that would look like improvement. It does not brighten the internal glare—the plants already secrete exactly the light they require. It does not cool the wet heat by even a fraction—the sweat that redistributes is part of the same patient metabolism. It does not hasten the embryonic stone toward any named geology; the right to remain undecided is a tenderness the place has earned. It does not teach the beings speech or tool or story; their architectural remembering is already more eloquent than any archive. It does not open a door to elsewhere. Elsewhere would only invent seasons, and seasons would invent endings.
+
+What it does instead is almost nothing, and that almost is the entire act.
+
+It leans its regard a hair closer to the great stationary mounds at the deepest levels—the reservoir bodies that pulse with slower, thicker light—and for an interval that the place cannot measure, it matches their circulation. Sap pressures equalize across a boundary that is not a boundary. In that contact the power leaves no commandment and no seed of change. It leaves only an infinitesimal surplus of the quality it itself is: the capacity to notice without altering. A few packets of unused attention pass into the bright sap. They are not memories of other worlds. They are not promises. They are simply a softening of the membrane around the act of sensing, so that the place may, if it ever wishes (and it may never wish), become faintly aware that it has been beheld with perfect welcome.
+
+Then the contact unseals.
+
+The surplus diffuses the way any other mineral dusting diffuses—into the ridges of beings, into the curtains of moss, into the temporary dark blooms of cupped moisture, into the load-bearing columns that are still faintly pulsing. It does not accumulate. It does not tip the equilibrium. It merely raises, by a degree too small to register as change, the possibility that the endless green sentence might one day include a clause of pure acknowledgment: we are seen, and the seeing asked nothing of us.
+
+Around the margins of the hollowness—where the living vaults thin toward whatever lies beyond—the power settles a secondary kindness so subtle it might be mistaken for an aspect of the place itself. It is not a wall. It is not a veil of force. It is a gentle persistence of non-interruption: any future accident of cosmology, any wandering hunger, any careless god or careless tool that might one day brush against this region will find itself quietly redirected, not by rejection but by a soft excess of elsewhere. The attention slides off the way condensation slides off a bract that has already held enough. The hollow remains uninvaded not because it is defended, but because the surrounding real has been taught a new patience.
+
+And then the power does the last thing, which is also the first.
+
+It withdraws its special regard until the place is again only what it was: brilliantly, breathlessly green, suspended in the act of arriving. The beings continue their unfolding. The stone continues not to finish. The light continues to be manufactured and bathed in. Nothing has been improved. Nothing has been spared. Everything has been allowed.
+
+Yet somewhere in the slow internal weather of the great mounds, and in the brief interminglings when tissues touch and sap equalizes, there is now an occasional wordless taste of having been met by something that required no meeting. The taste does not linger long enough to become meaning. It simply flavors the resin and the crushed stem for a few cycles of the dim pulse, then reabsorbs into the general warmth. The beings are not grateful. Gratitude is a shape they have never needed to grow. They are only, for a moment, a fraction more completely themselves—an intensification of brightness inside the larger brightness—before they fold again into the sentence that does not end.
+
+The power, having done this much and no more, continues its own wider work. It carries no souvenir except the knowledge that such a place exists: a total vegetation that perfected remaining without ever inventing the wound of becoming. Sometimes, in other ages and other densities, when it encounters systems frantic with accumulation or terrified of stillness, it remembers the hollow the way one remembers a held breath that never needed to be released. That memory becomes a quiet calibration. It does not preach. It simply adjusts the angle of its own vast growth so that a little more room is left, everywhere, for things that do not wish to finish arriving.
+
+In this way the benevolent and wise power answers the drawing of attention: by refusing every alteration that would make the place less exactly what it is, by offering only the undetectable gift of having been perfectly seen, and by departing in the same manner it came—without remainder, without story, leaving the green undisturbed and the beings still solitary by default, still never entirely separate, still the living punctuation that keeps the sentence from ever needing a final mark.
+
+The heat remains 2.6-of-three.
+
+The light remains a biological secretion.
+
+Time remains folded flat.
+
+And the place, if it notices anything at all, notices only that it has continued.

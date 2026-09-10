@@ -1,0 +1,21 @@
+It is a pocket of space no larger than the interior of a drowned cistern, wedged beneath a shelf of black, un-eroded volcanic glass. Above it lies miles of sea or earth—the distinction vanishes down here—but within the pocket, the pressure does not crush; it settles. It sits upon the chest like a folded wool blanket soaked in well-water.
+
+The space is entirely submerged, filled not with clear water, but with a thick, ice-cold fluid that moves with the sluggish viscosity of cooling oil. There is no current here, only an endless, motionless suspension. The water is chilled to a precise, bitter temperature that keeps the blood thick and the senses slow. It tastes faintly of wet zinc and ancient silt.
+
+It is nearly pitch black. What little light exists does not radiate from a source; rather, the blackness itself occasionally thins, revealing the cold, pale outlines of things crammed into the void. 
+
+And it is crammed. There is almost no free fluid in the vault. Every cubic inch is contested.
+
+From the sharp, jagged fractures of the basalt floor—fractures so fresh and un-rounded by friction that their edges could slice a palm without a sound—grows a suffocating tapestry of cold-water flora. Rubbery, liver-colored kelp fronds, thick as leather belts, twist around one another in tight, wet braids. Beneath them, carpetings of black, velvet-like moss cover every surface, holding the fluid like a sponge within a sponge. Long, translucent tendrils—hair-fine and pale as bone—hang from the ceiling of the pocket, trailing down into the vegetation below until the airless room becomes a solid matrix of leaf, stem, and cold fluid.
+
+In the corners of this tight chamber, almost lost beneath the thick, dark ropes of weed, are the remnants of something built. They are not grand ruins, but quiet, heavy fragments: three steps of dark, hand-notched slate that lead directly into a solid wall of basalt; a single lintel stone carved with shallow, unreadable grooves, wedged sideways into a fissure; a floor paved with flat, square tiles that have been split from below by the sharp, rising edges of the young rock. There are no tools here, no metals, no glass, no mechanisms. Just the hand-cut stones, cold and abandoned long before the moss found them, held in place by the roots of plants that grow without sunlight.
+
+Here, the physics of the world have begun to fray around the edges.
+
+The water does not observe a level surface, nor does it press equally in all directions. In certain corners of the pocket, the fluid grows so dense it forms motionless, jelly-like spheres that hover between the plant stalks, perfectly still, housing their own tiny, inverted currents. If a leaf drifts into one of these spheres, it moves backward through its own growth, uncurling into a stem before dissolving into dark water. In other spots, gravity turns sideways; the long hair-tendrils do not hang down, but stream horizontally toward the slate steps, pulled by an invisible, silent weight that lives inside the stone itself.
+
+Fauna is nearly absent. Once every few hours, a tiny, glass-clear creature—no bigger than a thumbnail, shaped like a ribbed teardrop—twitches its way through the dense kelp. It leaves no wake. It has no eyes, no mouth, and moves with a frantic, stuttering rhythm that feels entirely out of place in the vast, cold patience of the vault. It passes through a frond, vanishes into the dark moss, and is gone.
+
+Sound does not travel here as it does in open water. It is muffled, swallowed immediately by the density of the vegetation and the heavy liquid. The only noise is a deep, infrequent *clack*—the sound of the young basalt shifting a fraction of a millimeter deep in the floor, or the slow, rhythmic *thrum* of the water density changing as it settles into a new, impossible geometry.
+
+Everything moves on a scale of decades. A single leaf takes three years to unfold from its black sheath. The moss creeps over the carved slate at the speed of cooling stone. The pocket remains hidden, packed tight, dark and cold, holding its drowned stones and its tangled growth in a quiet, broken corner of the world.

@@ -1,0 +1,45 @@
+The attention arrives the way the light does: from above, spreading, catching on nothing.
+
+It takes in the whole room at once, because the room is small enough for that. The four walls and the comb-teeth on them. The terraces with their softened silt. The ramp with its varnished tire tracks. The stand of pale trees, the fallen one, the chalk ring at its foot. The bright wrinkled ceiling and, some way beneath it, the plane where the warm water sits on the cold and neither crosses. And below the plane, the tenant. It sees the tenant without difficulty, having no need to look for movement, and it understands what the tenant is doing and roughly how long the doing will take, and it understands—this is the first thing it settles on—that the tenant is not asking for anything.
+
+That is unusual. Most things the attention falls on are asking. This one has no organ for it.
+
+So the power does what a wise thing does when it has been drawn to a place that wants nothing: it holds still, and it goes through the gifts one by one, in order to put them down.
+
+Fish, first, because fish are the obvious kindness to water. A few dozen small ones, released at the shallow end, to cross the light column and give the room a heartbeat. The power looks at this and sees the whole sequence at once—the fish would need to eat, and there is nothing to eat, so they would need something brought in to eat, and that something would need something, and within a decade the pit would be a working pond, with dung falling through the thermocline and the tenant thickening with it, going green in the upper meters and then brown, then losing the clarity that is the one thing it has made of itself. The drill marks would vanish into murk, not into calcite. The gift would be a burial. Put down.
+
+Company, then. Not in the water but in the tenant itself—a spark of noticing, so that it could know the light column, and the tick of a falling flake, and the diver's plume of silt drifting back to the ramp. So that it could know it was lining the room. The power weighs this longest, because it is the gift a lonely observer most wants to give. And then it sees that the tenant currently has no edges but its working faces, and that a mind would find edges. A mind would find the thermocline above and feel it as a ceiling. A mind would find the stone and feel it as a wall. A mind would find the slowness. The tenant is not lonely because it has no room in it for loneliness, and to give it a room would be to give it the thing that comes to live in rooms. Put down, carefully.
+
+Warmth, mixing, movement—these are not gifts. The power does not even lift them.
+
+Completion. The wound is a wound; the power could close it. Fill the cut with stone, put the seam back where it was, let the birches grow where the spoil bank was and forget the hole. It looks at this and sees that the stone went out to become ballast under railway lines and the sand in mortar, and that this was not a crime to be reversed but a thing that happened; and it sees that the tenant's whole life is the return, the slow easing of cut into grown, and that to finish the return in an afternoon would be to take the tenant's work away, which is the same as taking the tenant. You do not help a river by delivering the sea to it. Put down.
+
+Permanence, last. Fix the water table. Hold the silt where it is. Let the room stay a room forever. The power sees the region's rain a thousand years out and the way the aquifer will eventually lower and the pit will become a shallow marsh and then a damp hollow with a ring of alders, and it sees the silt, which has finished falling for now but will not have finished forever, because nothing has. It sees that the tenant will end. It does not find this a fault in the design. Put down.
+
+So: nothing. The attention has arrived at nothing, and it is content to have arrived there, and if it were only benevolent it would withdraw now and count the visit a success.
+
+But it is also wise, and wisdom looks at the edges of a thing rather than the center, and the pit has two edges the tenant knows nothing about.
+
+The first is a winter.
+
+Not this one. Some decades out. A December that comes in hard and early, cold enough to chill the surface water until it is nearly as dense as what lies under it, but not cold enough to close the pit with ice—a dry, black, open cold—and then a long wind out of the northwest, running the length of the pit along its long axis for a week without letting up, piling the cooled surface water against the far wall and driving it down. The power sees the column come within a degree of tipping. Meromictic water does this, once in a long while; the layers that have not spoken in fifty years speak all at once, in a single night, and in the morning the pit is one temperature top to bottom and the old water is gone—not moved, not diluted, gone, its identity given up into the whole. New water would settle out under a new thermocline within a season. It would look the same. It would not be the same tenant.
+
+The power leans on this. Very slightly. It brings the ice three days earlier than the winter meant to, so that the lid closes before the wind arrives, and the wind finds a hard surface and can only sing over it. That is all. A few days of cold, shifted. The tenant does not feel the reprieve, having no way to feel the danger. Somewhere a farmer on the ridge remarks that the pond froze early, and does not remark on it again.
+
+The power knows this buys one winter, not all winters. It does not intend to buy all winters. It intends to buy this one, because it was here and saw it coming.
+
+The second edge is the rim.
+
+The fate of the pit is not decided in the pit. It is decided in an office where a map shows a blue oblong on a parcel of scrubland with an access road marked as unmaintained. It is decided by a haulage company looking for somewhere to put clean inert fill, and a dive club looking for a training site with good visibility, and a district planner with a form that has a box for *sites of ecological interest* and no box for *sites of ecological absence*. It is decided by which way a field drains.
+
+The power arranges obscurity. This is the gentlest thing it can do and it does it gently. The culvert under the access road, which was going to hold for another fifteen years, fails this spring instead, and the road washes out at the low point where it always wanted to, and it is expensive to repair and nobody's responsibility. The survey that would have noted the visibility notes instead the sheer walls, the lack of a shelving entry, the depth—*not suitable*—and files the note where notes go. The haulage company finds a nearer hole. And the ditch on the ridge field, when the farmer's son recuts it, comes out by a hand's width running the other way, so that the little tongue of nitrogen that would have found its way down the spoil bank each spring finds the stream instead, and the felt on the upper shelves stays thin, and the light keeps going where the walls let it.
+
+None of this is a fence. A fence is a mark, and the power has noticed that the tenant is in the business of removing marks, and has a certain reluctance to make one in its honor. What it has arranged is a generation or two of the pit being uninteresting to anyone who has not been down in it. That is not permanent. It is not supposed to be. It is a lid, like the ice.
+
+And the visitor.
+
+The power considers the diver who came down through the thermocline and was received and hung there in the old water long enough to see the bloom on the drill marks and understand it. It considers whether to do anything about them, and finds that the one thing the tenant could not do for itself has already been done: it has been registered. Once. By something that breathes. That is enough. It would not be improved by being done twice. The power lets the visitor go up, and keep the memory, and it does not take the location from them, because it trusts them, and because a wise power knows that most secrets are kept by the difficulty of the road.
+
+Then it withdraws. This too is deliberate. Attention is a kind of stirring; held long enough on a still thing, it wants the thing to do something, and the power knows this about itself and does not stay to be tempted. It lifts the way the light lifts in the evening, out of the deep end first, then off the ramp, then off the terraces, then off the pale trunks, until the room is what it was.
+
+Below the plane, the tenant does not know any of this. It did not know it was seen and does not know it has been left. It has a temperature and the temperature is the stone's. Somewhere on the far wall a grain of calcite, which had been considering the question for eleven years, lets go and ticks down through the clear cold water and comes to rest on the silt, and is, in that instant, the loudest thing that has happened here, and is not an interruption. The lining goes on. The corners are still true. Give it long enough.

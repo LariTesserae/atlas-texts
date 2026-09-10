@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **128** source folders · **150,621** texts
+- **137** source folders · **159,781** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -57,6 +57,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `anthropic--claude-fable-5` | 2,223 | 2026-06-09→2026-07-10 | creature·252, elsewhere·234, location·265, placement·620, regard·618, transmission·234 | house-tag | event-observed 2,223 |
+
+## claude-fable-5.1  ·  1,074 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `anthropic--claude-fable-5.1` | 1,074 | 2026-09-01 | advisory·75, creature·250, location·250, placement·250, regard·249 | house-tag | event-observed 1,074 |
 
 ## claude-haiku-3  ·  1,600 texts
 
@@ -260,10 +266,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | `google--gemini-2.5-pro-preview` | 884 | 2026-05-22→2026-05-23 | advisory·57, creature·204, location·217, placement·202, regard·204 | route | event-observed 884 |
 | `google--gemini-2.5-pro-preview-05-06` | 1,003 | 2026-05-22→2026-05-23 | advisory·64, creature·232, location·243, placement·232, regard·232 | route | event-observed 1,003 |
 
-## gemini-3-flash  ·  1,075 texts
+## gemini-3-flash  ·  1,325 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
+| `google--gemini-3-flash` | 250 | 2026-09-07 | location·250 | route | event-observed 250 |
 | `google--gemini-3-flash-preview` | 1,075 | 2026-05-22→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## gemini-3.1-flash-lite  ·  2,150 texts
@@ -286,6 +293,24 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `google--gemini-3.5-flash` | 1,075 | 2026-05-28→2026-05-29 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## gemini-3.6-flash  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `google--gemini-3.6-flash` | 1,075 | 2026-09-07 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## gemini-3.7-flash  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `google--gemini-3.7-flash` | 1,075 | 2026-09-07 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## gemini-3.8-flash  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `google--gemini-3.8-flash` | 1,075 | 2026-09-07 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## glm-4.5  ·  1,075 texts
 
@@ -322,6 +347,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `z-ai--glm-5.2` | 750 | 2026-07-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
+## glm-5.3  ·  411 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `z-ai--glm-5.3` | 411 | 2026-09-05 | creature·120, location·173, placement·65, regard·53 | route | event-observed 411 |
 
 ## gpt-3.5-turbo-instruct  ·  1,075 texts
 
@@ -397,23 +428,29 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `openai--gpt-5.6-luna` | 1,075 | 2026-07-13→2026-07-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
-## gpt-5.6-sol  ·  750 texts
+## gpt-5.6-sol  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `openai--gpt-5.6-sol` | 750 | 2026-07-13 | creature·250, location·250, placement·250 | route | event-observed 750 |
+| `openai--gpt-5.6-sol` | 1,075 | 2026-07-13→2026-09-08 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
-## gpt-5.6-sol-pro  ·  750 texts
-
-| endpoint (folder) | texts | dates | types | granularity | evidence |
-|---|---:|---|---|---|---|
-| `openai--gpt-5.6-sol-pro` | 750 | 2026-07-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
-
-## gpt-5.6-terra  ·  750 texts
+## gpt-5.6-sol-pro  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `openai--gpt-5.6-terra` | 750 | 2026-07-13 | creature·250, location·250, placement·250 | route | event-observed 750 |
+| `openai--gpt-5.6-sol-pro` | 1,075 | 2026-07-23→2026-09-09 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## gpt-5.6-terra  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `openai--gpt-5.6-terra` | 1,075 | 2026-07-13→2026-09-08 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## gpt-6-astra  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `openai--gpt-6-astra` | 1,075 | 2026-09-06 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## grok-3  ·  1,000 texts
 
@@ -457,11 +494,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `x-ai--grok-4.3` | 1,075 | 2026-05-10→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
-## grok-4.5  ·  750 texts
+## grok-4.5  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `x-ai--grok-4.5` | 750 | 2026-07-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
+| `x-ai--grok-4.5` | 1,075 | 2026-07-23→2026-09-05 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## grok-4.6  ·  1,075 texts
 
@@ -553,6 +590,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `meta-llama--llama-3.3-70b-instruct` | 1,075 | 2026-04-29→2026-05-23 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
+## longcat-2.0  ·  750 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `meituan--longcat-2.0` | 750 | 2026-09-01→2026-09-02 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
 ## mimo-v2-flash  ·  1,075 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
@@ -618,6 +661,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `meta--muse-spark-1.2` | 1,075 | 2026-08-16→2026-08-17 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## muse-spark-1.3  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `meta--muse-spark-1.3` | 1,075 | 2026-09-05 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## nova-pro-v1  ·  750 texts
 

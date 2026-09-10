@@ -1,0 +1,5 @@
+The sound reaches the plateau's rim before the land does. You come up the long escarpment through ordinary country — scrub, dust, wind — and at the top, while the horizon is still only a pale gold haze, you hear it: a sustained chord, wide as weather, low enough to feel in your sternum, on which thousands of smaller voices are working at once. Then the rim levels out and you see what is making it, and you understand that you will not see the end of this place in any direction, and that the place is, in the most literal sense, one thing.
+
+It is a plant. It is also the continent.
+
+What you first take for a plain of dry grass is the litter of a single organism — the Stand, the notch-folk call it — a bamboo-like being whose body is the plateau. Out of the gold expanse rise its organs: towers of jade-green culms, jointed and hollow, half a mile tall, standing alone or in loose groves, hours or days apart, like the masts of a fleet becalmed. Each tower is one crown of one rhizome, and the rhizome is under everything. There is no edge to the Stand. Walking out here, you never leave it; it just gets thin. The horizon is its litter plain — the Chaff, meters deep,

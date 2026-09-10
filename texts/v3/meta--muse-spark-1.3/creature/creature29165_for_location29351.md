@@ -1,0 +1,49 @@
+At first you think no one lives there.
+
+That is the instruction the place gives. The lanes are swept but empty. The shutters are closed but not latched. A barrel under an eave is full to the brim and ticking over. Smoke thins up from two or three chimneys and is taken at once by the wind, so you can't be sure you saw it. The bench stone at the widening is cold. The cup on its rope at the cistern is wet.
+
+Then a door thumps, somewhere behind you, and is quiet. A bucket scrapes. And you understand they were there all along, only spaced out, only quiet, the way the houses are spaced out.
+
+They are few. Fewer than the houses.
+
+Count the roofed ones — fifteen, sixteen — and put one or two to a roof and some roofs with no one, kept anyway, swept anyway, and you have them. Thirty people, perhaps, in winter less, in summer no more. Enough that you will nod in a day to the same five or six and glimpse the rest at distance, carrying, bending, mending. Not enough to fill the gaps between the houses. They keep those gaps.
+
+They look like the ground they stand on. Not dramatic, not hard. Low, broad, settled.
+
+Cold has made them pale underneath a permanent weather-reddening at cheek and knuckle. The skin at their wrists and throats stays white from being covered always. Their hair, when you see it loose from under a wool cap, is damp-dark, straight, cut short for convenience by whoever is handy with the knife. Men and women both wear it the same. Children too.
+
+Their bodies are thick through the middle, not from plenty but from layers. No one goes in a single layer, ever. Wool over wool, undyed for the most part — grey sheep, brown sheep, the blackened grey of peat smoke — patched with more of the same until a shoulder or elbow is twice as thick as it was made. The wool smells, always, of smoke and damp. It never quite dries. Neither do they. Their cuffs are damp at the edge. Their boots are dark at the toe and lighter at the ankle where the stone has polished them. When they come in they stand a long time by the hearth without speaking, steaming faintly.
+
+Their hands give them away. Broad palms, short fingers, nails broken short and rimmed with dark soil that washing doesn't lift. The backs cracked at the joints from cold water. You can see in the hands what they do all day: lift, carry without spilling, wring, wedge. An old woman's thumb is flattened sideways from a lifetime of pressing slabs back to bed. A man's forefinger has the white pit-scar of a slipped chisel. Even the children, eight or nine, have the careful, cupped way of carrying, elbows in, eyes on the rim.
+
+Their faces are quiet in the same way their hands are busy. Nothing quick passes over them. They look at you directly but without holding, the way you look at weather. When they speak — and they speak low, because the stone takes the edge off a voice and gives it back flat, so there is no point in raising it — it is short, practical, complete. *Gutter's clear. Take less, it'll mist tonight. Mind the skin on the lower puddle.* A nod does for most of the rest.
+
+Movement, among them, is unhurried and exact. No one runs. No one loiters either. A man crosses from his woodpile to his door with an armload of split kindling, sets it under the slab, knocks the snow or rain from it with one practiced shake, goes in. A woman ladles from the cistern with the wooden cup, not filling her bucket to the top though she could, leaving the measured inches the custom leaves. A boy goes along the lane gutter after rain with a bent stick, clearing leaves from the rowan, mussel-shells of ice, grit, working downhill toward the court. He knows which gutter to clear and which to leave for the next rain. They all know.
+
+That is what they are, more than anything: people who know the maintenance.
+
+There are no farmers here, though they dig. No masons, though they build. No mayor, no priest, no owner that you can find. There are only keepers of things that must be kept if the shelf is to hold. The water-keeping is the first. The stone-keeping is the second. The garden-keeping is the third. Everyone does all three, and the old teach the young not as lessons but as accompaniment. *Step here when it's iced. Not there.* *Lift the same slab. Bed it the same way, lichen-side up.* *Sweep to your doorstone and no further; the wind does the rest.*
+
+They eat what the shelf allows, and their bodies show it. Potatoes, turnips, leeks, the small hard cabbage boiled long. Bread from the communal oven on baking days, dense, dark-crusted, divided without counting. Sorrel for sharpness. Yarrow tea when the cold settles in the joints. On the days the sheep are brought up from below — six or seven, bells ticking dully — there is milk, and for a little while the smell of dung and warm wool among the wet stone. Then the sheep go down again and the smell washes out with the next rain. No one remarks on it. The rowan berries, late and few, are left for the ravens.
+
+Because they are not alone in living here, and they know it.
+
+The ravens live here more permanently than any person. A pair, nesting in the tor, crossing over at the same hour morning and evening, croaking once each time as if marking the edge of the page. The people look up when they pass, briefly, without stopping work. It is part of the day.
+
+The mice live in the thatch of the woodpiles, quick brown hands in the dryest place in the hamlet. The small black beetles live under the lifted stones, and are put back, stone replaced carefully, when found during a wall rebuilding. The lichen lives on every wall — sage, ash-white, mustard — and is not scraped, because it holds the stone. The moss, an inch thick on the north sides, is in dry weeks taken up in handfuls and wrung into a bucket, and then laid back. Even the seep in the back rock lives, in its way, drop by drop into its basin, longer than the houses have stood, and they listen for it at night to know the hill is still well.
+
+What is strangest, once you stay a few days, is how they live with emptiness as if it were a neighbor.
+
+There are houses with no fire. The door is closed, the lane in front swept, the barrel under the eave emptied after rain so it doesn't breed, the shutters shaken free of dew in the morning by whoever passes. No one lets a roof truly fall. When a wall bulges, two or three of them will take it down together over a morning, without hurry, without much talk, the knock-stop-knock of the hand-axe and the wedge, and rebuild it with the same stones to the same height. When a garden has no keeper that season, it is still dug to its lines and planted to potatoes and harvested, the produce left in the bake-oven porch for whoever needs. They maintain more than they inhabit, on purpose. Between any two lived-in houses there is a length of pale grass, a patch of bare damp gravel, wind and quiet. They need the space. To hear your own steps too loudly moving from door to door is correct. It reminds you to walk softly.
+
+They do not gather, except in the way stones gather. On baking days three or four will stand about the mouth of the oven while the loaves darken, hands in pockets, saying little, watching the soot. At the cistern in the morning two buckets may wait while one is filled, and the waiting one nods. At the bench stone in the evening, if the wind drops, an old man may sit and a child may sit beside him, not touching, both looking down the terraces to where they stop. That is company. It is enough. Voices stay low. A laugh, when it comes, is short and surprised and quickly put away.
+
+The young are very few, and precious in a way that has nothing to do with doting. You will see perhaps three or four, of different ages, moving like smaller versions of the old, already careful with water. They are not schooled so much as weathered in. They learn the channels. They learn how much to take. They learn where to step. They do not ask why no new house is built, why no terrace expands, why the doorway of the house built over the older foundation now opens only onto earth and is left that way, swept. They understand equilibrium before they have a word for it. Season turns into season without accumulation. This is simply how a place continues.
+
+The old are many, and they continue until they don't. When someone dies — rarely, for the air is clean if cold, and the work keeps the blood moving — there is no cemetery you can see. The body is taken down below, where the ground is deeper. The house is kept. The lane in front is still swept. The name is used less and then not, and the careful hands that pressed slabs are replaced by other careful hands. Nothing is allowed to appear to change.
+
+If you wake cold among them, shake dew from the shutter, carry water without spilling, mend what needs mending, sweep the lane in front of your door because it is yours to sweep, you will feel it settle onto you by the third day: the chill on the back of the neck even at midday, the smell of wet stone and peat-smoke in your own wool, the flattening of your voice against stone, the way the light goes plain white to plain grey and you stop waiting for more color. You will nod and be nodded to. You will watch the drip slow and stop from the eaves long after rain. You will sleep while the seep keeps seeping.
+
+They are not waiting. They are not hiding. They are not the remnant of something larger, though their right-angled lanes and gutters and cistern court remember a town. They are what happens when people decide, a hundred years ago and every day since, to hold a small, high, cool, damp shelf exactly in place — to live damp and cold and sparse, to take only what mist and rain and seep will replace, to rebuild the same wall with the same stones — and find that enough.
+
+Ordered like a city and empty like a moor. That is them, too.

@@ -1,0 +1,43 @@
+The place is low. That is the first thing your knees know before your eyes do.
+
+You come down off the marsh road — not much of a drop, ten or twelve feet over a half mile — and the air gets heavier and cooler and the sound of your boots changes. Gravel to wet cinder to slick concrete. The fog doesn't lift here. It snags on the berm and stays.
+
+It is a small place. You can see all of it at once if you stand on the berm. An oval, maybe a hundred paces long, sixty across. A bowl. Man-made, but old enough that it has stopped pretending otherwise. The concrete rim that once held it square has slumped and rounded, been chewed by frost and salt into something like sandstone. The berm around it is black mud and crushed shell and slag, heaped and then settled. Beyond the berm, the marsh goes on flat and grey to a white sky, but inside, everything is pulled inward and down toward water.
+
+Water is everywhere and it is not raining. Not quite.
+
+The basin floor is water — shallow, cold, tea-dark over black silt, three to four feet at the deepest in the center channel. But the water is also in the air, beading on every cold surface, and in the walls, weeping out of them. The low concrete terraces that step down to the pool are always wet. They shine. Thin sheets move across them without ever seeming to come from anywhere, finding the old expansion joints and running in them like veins, dropping off the lips in curtains of drip. The rocks weep. The pipes weep. The underside of the catwalk is hung with droplets that grow and fall and grow again. If you stand still your shoulders dampen through. If you breathe out, your breath stays a little too long.
+
+There is no green here. That takes a minute to understand, because there is color — ochre and rust-red and mustard and oil-black — but no leaf, no stem, no grass, no moss, no tree root breaking the concrete. Nothing that photosynthesizes and admits it. The terraces are coated instead with mineral skin. Travertine and iron. In places the seep has laid down smooth aprons of cream-colored calcite, soft-looking as icing, hard as tooth. Elsewhere there are mats: bacterial velvet, a millimeter thick, blood-orange and sulphur-yellow and dark chocolate, wrinkling where the water tugs it. It smells faintly of iron and eggs. Touch a handrail and your palm comes away orange. This is the pasture. Everything eats this, or eats what eats this.
+
+Because the bowl is crowded.
+
+At first, in the dim, it looks empty. The light here never gets past late afternoon, even at noon. Low cloud, sea-fret, plus the shadow of the pumphouse and the one sodium lamp that still burns. Everything is grey-blue except where the lamp makes a cone of dirty amber. But crouch down and the density resolves.
+
+The concrete below the waterline is not concrete. It is animals, edge to edge. Black mussels bearded together in clumps so thick you can't fit a finger between, their shells gaping and closing. Acorn barnacles white as teeth on every vertical face. Limpets in their home scars. Above the waterline, crabs — shore crabs, small and olive and missing legs — packed under every slab and pipe flange, moving sideways over each other with a dry click. Amphipods, thousands, pale and shrimp-like, boiling in the wrack line whenever a ripple lifts it. Bloodworms in the silt leave constellations of coiled castings. Eels, as thick as your wrist, hang in the center channel, slow in the cold, nosing the bacterial mats.
+
+And above, things that eat them. Not many kinds, but many bodies. A dozen grey herons motionless as posts on the rim, each guarding five feet of territory. Turnstones flipping shell fragments. A constant low turnover of gulls that don't cry, just land and stare and stab. In the pumphouse doorway, a rat watches with wet whiskers. Everything is close. Knee to elbow to shell. Layered. Mussel on concrete on pipe on tire on mussel again. The air itself feels occupied, midges in columns over the warmest seep.
+
+What makes it industrial is not big. It is scattered, half-sunk, and still running.
+
+On the north side, half into the berm, is the pumphouse: single-storey brick, paint long gone, roof sagging but intact, door gone. Inside, on a plinth, a diesel engine the size of a wardrobe, turning a pump with a flywheel and a belt. It should have seized decades ago. It hasn't. It chugs, slow and uneven — *chuff... chuff-chuff... chuff* — and the whole building trembles faintly with it. A fat iron pipe runs from the pump, out through the wall, on short legs across the terraces, and discharges into the pool with a brown gush. Another pipe, larger, rusted through in lace patterns, brings marsh water in when the tide is high. Between them, cables on sagging poles, black and shining with wet, run to a transformer box that hums, a high thin note you feel in your teeth more than hear. The one lamp is wired to it. At night, moths that shouldn't be out in the cold batter it.
+
+Everything else is fragments. A catwalk of grating, half-collapsed into the water, its legs grown thick with mussels until they look like stalactites. Duckboards sunk in mud. Mooring posts with rope grooves worn deep. A collapsed shed that is now just a rectangle of foundation and a scatter of corrugated sheets, each sheet colonized underneath by crabs. A hand winch frozen with rust. Faint marks: stenciled numbers on concrete, 3 and 7, half-legible under calcite; boot prints preserved in mineral; a shovel handle become stone.
+
+The rock — if you can call the concrete rock now — has reached an agreement with water. Edges are round. Cracks are sealed with new stone. The rust runs are not eating through anymore so much as painting. It feels long-existed, settled. Even the machines are being slowly included: the base of the discharge pipe is swaddled in a collar of cream travertine two inches thick, built drip by drip. In another fifty years it will be a natural formation with a pipe inside it like a fossil.
+
+The rules here are tidal, but not the sea's tide.
+
+The pump breathes the pool up and down. When it gulps, the level drops four inches, exposing a fresh band of mussel and mat. Instantly the crabs move down, the turnstones move in, the gulls lean forward. The eels slide for cover. When the pump rests — it does, for minutes at a time, shuddering and sighing — the seep and the inlet bring the level back up, cold marsh water sliding in grey over orange mats, and the amphipods rise. Twice a day the real tide overtops the inlet and the whole bowl goes brackish and cold, and everything closes up tight. Then it opens again.
+
+It is mostly quiet. That's strange, for how much is alive.
+
+The engine chuff is softened by fog. The discharge gurgles. Drips count themselves off the catwalk: *plink... plink... plink-plink*. The crabs tick. The silt sighs with bubbles — marsh gas, slow. Occasionally a mussel snaps shut. A heron shifts its foot with a suck. The transformer hum never stops, so you stop hearing it until you hold your breath and there it is. No wind inside the berm. The fog mutes the gulls. They have learned not to waste sound here.
+
+The strangeness is not dramatic. It accumulates.
+
+No plants, but the bacterial mats grow in perfect rings around the warmest seeps, yellow inside orange inside black, like contour lines, and the animals respect them. Crabs graze only the outer ring. Eels nose only the inner. If you toss a pebble in, it will in an hour be nudged by currents and feet back to the ring it belongs to by weight — silt to center, shell to edge. And the condensation: on cold days the droplets form first on the undersides of things, under the pipes and the catwalk and the eaves, before they form on top, as if the water is rising out of the pool into the air and condensing from below.
+
+Stand long enough and your own boots begin to be investigated. A crab tests your laces. Midges find the warmth at your collar. The herons decide you are another post and resume fishing around you.
+
+If you leave — up the slick steps, over the berm, back to the marsh road where grass actually grows and the air moves — you will wring out your cuffs and find orange silt under your nails and the smell of iron in your coat for hours. Behind you the lamp stays on in the grey, the engine keeps its slow heart going, the water keeps weeping out of stone that has learned how to make more stone, and the bowl keeps eating and being eaten, dense and cold and dripping, with no need for green at all.

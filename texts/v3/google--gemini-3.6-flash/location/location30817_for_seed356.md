@@ -1,0 +1,25 @@
+It is a continent-sized basin of pitch darkness, suffocatingly warm, where the line between living tissue and heavy machinery was never drawn. 
+
+There are no animals here—no insects, no burrowing things, no eyes to receive light even if there were light to be had. There are no built structures: no metal girders, no poured concrete, no rivets or welds. Yet the landscape operates as a singular, infinite industrial refinery, constructed entirely from high-tension cellulose, silica-reinforced timber, and pressurized vascular flesh.
+
+The scale is oppressive. The ground is not soil or rock, but a dense, layered floor of living wood and compacted root-cables that extends downward for miles before touching crust. Above, a ceiling of lightless, intertwining canopy-vaults seals the basin away from any sky. Between floor and vault lies an endless grid of vertical trunks—some as wide as city blocks—standing like the pistons and cooling towers of a titan-scale manufacturing plant. 
+
+Everything here is young and sharp. The bark is not rough or flaking; it is extruded in smooth, razor-edged plates, crystalline with deposited silicates. The leaves are heavy, glass-hard sheets of carbon-rich cuticle that overlap like scale armor, stiff and un-eroded by wind or decay. There is no rot here, no mold, no fallen litter breaking down into soft loam. Tissues are maintained in a perpetual state of fresh, rigid tension.
+
+The air is saturated with moisture, held at a steady, feverish warmth. It does not rain in drops; the atmosphere simply condenses continuously onto every surface. Water sheets down the smooth bark of the piston-trunks in thin, silent films, pooling in the crevices between floor-cables before being sucked back into root-valves under immense negative pressure. The smell is thick and clean: hot vegetable oil, wet starch, distilled water, and the faint, iron-like tang of bio-electric potential.
+
+The "technology" of the place is entirely botanical, yet undeniably mechanical in function. 
+
+Vast, fibrous manifolds—thick as iron conduits—snake across the basin floor. Inside them, sap is pumped at hundreds of pounds per square inch, driven not by a central heart, but by millions of microscopic osmotic pumps aligned along the inner vessel walls. Every few hundred paces, these conduits enter colossal, bulbous swellings: organic heat-exchangers where volatile chemical compounds are separated, refined, and redirected through internal capillary arrays.
+
+In the dark, you do not see these processes; you feel their thermal and mechanical weight. A giant root-piston, forty meters across, draws in cold subterranean brine through its base, its lignified walls expanding with a dull, wet creak that vibrates through the substrate. Higher up, high-tension vines, wound like mechanical springs, hold thousands of tons of structural canopy in static equilibrium, storing energy that is never released, only maintained. Long, conductive fibers of metallic-rich xylem trace through the dark, carrying low-voltage direct currents between distant regions of the basin, balancing the chemical charge across thousands of square kilometers.
+
+It is a world of absolute density. There are no open fields or empty corridors. To move here—if anything could move—would mean squeezing between taut, wet cables, crawling through narrow thermal vents formed by folded leaves, or stepping over interlocking networks of pressure-valves. Everything touches everything else. The space is filled to capacity with function.
+
+And yet, it is almost entirely silent.
+
+The industrial processes of a continent proceed without clanking metal or explosive combustion. The sounds are subterranean, deadened by the overwhelming mass of damp fiber: a deep, sub-audible thrumming that shakes the fluid in your inner ear; the soft, rhythmic *shhh-shhh* of pressurized sap passing through membrane filters; the faint *click-tick* of silica-sheathed joints shifting by millimeters under tremendous load. 
+
+There is no time here. There are no seasons, no day-night cycles, no weather fronts moving across the ceiling. The temperature does not drop by a fraction of a degree; the moisture levels do not ebb. The system is in a state of perfect, frozen equilibrium. It does not grow larger, nor does it wither. New shoots do not sprout from the crisp, sharp nodes, because the current leaves have achieved ideal surface area and structural balance. It is a factory that has completed its setup phase and now runs endlessly on idle, cycling millions of tons of water, starch, and electrical charge through its dark vascular grid without ever producing a finished product, changing its output, or breaking down.
+
+You stand—or float—in the warm dark. The air presses against your skin like a damp towel. A few feet away, invisible in the black, a wall of glass-hard fiber pulses once every forty seconds, radiating a slow, steady pulse of heat into the dark. Below your feet, deep within the floor-cables, a thousand gallons of high-pressure fluid pass quietly through an organic valve, heading nowhere, forever.

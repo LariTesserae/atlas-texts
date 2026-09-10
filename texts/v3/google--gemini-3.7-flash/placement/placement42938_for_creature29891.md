@@ -1,0 +1,23 @@
+At first, there is only the sensation of weight—not the gravitational pull toward the abyss, which at four millimeters of body length is trivial, but the heavy, velvet cling of the surface tension. 
+
+I am tucked beneath the trailing edge of a cantilevered drainage lip, hung upside-down directly over the thousand-league drop. My six limbs are splayed flat, the microscopic pads at their tips spread across the meniscus of a weeping film of water that crawls perpetually over the gray-white alloy. The water here is not a puddle; it is a ceiling of thick, trembling glass that holds me fast to the stone, wrapping my synthetic amber shell in a cool, continuous skin.
+
+A fraction of a millimeter below my rostral plate, the shelter ends. The gale screams past the lip, shaving the water into mist so fine it disappears into the blinding white daylight before it can fall. 
+
+I would be a *Tension-Weigher*—one of the older Stria whose vitreous plates have grown slightly clouded with mineral deposits from the high-altitude cloud-harvest, but whose internal logic-channels run clear and cold.
+
+Inside my carapace, the pale mercury-blue alloy shifts in micro-pulses. It does not beat with the frantic rhythm of a heart; it surges and stalls in response to the harmonic shudders traveling through the spire’s diamondoid frame. When a pressure wave strikes the tower’s windward face forty leagues above, the stone here rings at forty-two kilohertz. The mercury in my left thoracic conduit pools, computing the deflection, while the right channel thins to a hairline, compensating for the sudden drop in local density. To think, for me, is simply to let this dense, liquid logic balance itself against the mountain's groaning mass.
+
+I do not live within the dim, warm amber spirals of the obelisks, though I can feel the low hum of their superconducting coils radiating through the alloy floor above my head. My domain is this narrow, wet frontier where the engineered heat of the district fights the absolute cold of the troposphere. 
+
+My work is tactile, infinitely slow, and without end:
+
+With my anterior palps, I trace the boundary where the weeping film meets the dry, freezing draft. If the thermal gradient falters by even a fraction of a millidegree, the edge of the water does not retreat—it needles into microscopic spikes of rime. These crystals are jagged enough to tear the gossamer transit-cables or jam the micro-apertures where the *Ampullae* sit waiting for their draughts. 
+
+When my palps strike ice, I do not scrape it. Scraping would scar the polished composite. Instead, I flex the magnetic tail-clasp anchored to the sub-surface rail behind me, sending a sharp, acoustic vibration through the alloy. Two meters away—a vast, echoing distance—a Liturgist of the Gradient receives the tremor through the floor, adjusts a counterweight of cold-forged wire, and a micro-surge of heat pulses down the channel. The ice gives a tiny, silent sigh and liquefies back into the sheet.
+
+From down in the runoff shaft, two hundred body-lengths below the street deck, the soft, chime-like calls of the blind filament-drifters drift up through the wet conduits. They are riding the kinetic froth of the drain-water, singing their cyclical navigation marks. Through the water film, the vibrations reach my legs as a faint, rhythmic tickle—a reminder that beneath this clean, silent shelf of stone lies a mile-deep labyrinth of wet iron and turning shafts, all resting on the precision of our margins.
+
+Every few minutes, an *Ampulla* scuttles past on the cable just above my perch, its tiny silica cilia glistening with trapped moisture. It pauses, clicking its valves in an automatic greeting—a brief pulse of hydraulic pressure through the liquid layer we share—before pulling itself into an intake aperture to deliver its droplet of desalted cloud-water. I click back with the edge of my rostral plate: *The gradient holds. The lip is wet.*
+
+I stay here through the long, pale afternoons, when the unshielded sun turns the atomized spray into a vast fan of drifting, iridescent dust. Anchored to the edge of the world, bathed in water that never freezes and air that never warms, I am the city’s outermost nerve—listening through my limbs to the flex of the world-tower, watching the blue emptiness boil away into the gale, holding fast to the skin of the water while the sky rushes past beneath my feet.

@@ -1,0 +1,29 @@
+I would find myself in the lower city, in the oldest quarter, where the stone is dark and smooth and the air is thickest with the smell of wet basalt and centuries of woodsmoke. 
+
+I would be an elder. Not a leader—they have no word for leader, no need for one—but a *Tender of the Lower Seeps*, a keeper of the deep cisterns. My days are spent in the quietest, dampest parts of the city, where the fog lingers longest and the dripping is loudest. 
+
+I am small, even by the measure of my people. My frame is compact, dense with the heavy muscle of a lifetime spent climbing and crouching in the narrow passages. My skin has taken on the exact color of the dark basalt around me, perpetually damp, gleaming faintly in the diffuse light that filters down from the city above. My hair is white now, not with age but with the mineral deposits of the water I tend, bound close to my head with cords woven from the wool of the lowland herds. 
+
+But it is my hands that tell my story. They are extraordinary hands, even here. The palms are ridged with callouses like the strata of the plateau itself, and the fingers are thick, blunt, and perpetually rimmed with stone dust. They are never still. Even now, as I sit on the worn stone bench beside the Great Cistern, my fingers are moving—tapping, testing, reading the air for moisture, tracing the slow path of a droplet as it condenses on the ceiling and falls into the basin below. 
+
+I do not build new rooms. The young ones do that, their fresh-cut stones pale and sharp-edged as they climb toward the sky. My work is with the old stone. I listen to the water. 
+
+The plateau is still rising. It is imperceptible in a lifetime, but over centuries, the shift is enough to open a seam, to turn a channel, to make a cistern weep where it once was dry. My task is to read these changes. I press my ear to the damp wall and hear the slow, grinding breath of the earth. I run my fingers along the joints and feel the infinitesimal widening where the stone is pulling apart. When the water changes its path, I must change with it. I carve new channels with a cold-hammered copper chisel, guiding the seep back into the basin, ensuring the city’s true wealth is not lost to the dark. 
+
+This morning, the fog is just beginning to lift. The dripping has reached its peak, a steady patter that echoes through the lower chambers like the clicking of a thousand hooves on stone. I rise from the bench, my joints stiff in the cold, and move toward the eastern wall. There is a seam there that has been troubling me. For three days, the dampness has been spreading too quickly, the sheen on the stone taking on a darker hue. 
+
+I crouch, my broad hand flat against the rock. It is cold, almost painfully so, but beneath the chill, I feel the faint, persistent vibration of the water forcing its way through a new fissure. I take up my copper chisel and a small hammerstone. I do not strike. I tap. *Tap. Tap.* A rasp. A scrape. I am not forcing the stone; I am asking it to open. I am persuading the water to flow where it is needed. 
+
+The language I speak is the language of this work. My voice is low, breathy, the thin air unable to support anything louder. I murmur to the stone, the words hard and clicking, full of stops and fricatives. *Keth. Veth. Tethis.* The words for *water*, *stone*, *patience*. To speak well is to fit the words together with no gaps, just as the stones fit together. 
+
+As I work, I think of the city above me. I cannot see it, but I know it is there, layer upon layer of accumulated effort. I know that somewhere, a young woman is fitting a new block into a wall, her tongue caught between her teeth in concentration, her hands testing the joint for the thousandth time. I know that on the high ridges, the herds are moving, their dark forms visible against the pale granite, and the predators are following, low and purposeful. The plateau endures. The plateau rises. 
+
+I clear the fissure, and a thin, clear stream of water trickles out, following the new path I have carved toward the cistern. I watch it for a moment, this small victory of redirection. It is not a grand gesture. No one will know I have done it. The water will simply be there when the next generation comes to fill their cups. 
+
+I reach into the pouch at my belt and withdraw a small, smooth pebble I collected from the stream bed years ago. It is a piece of pale granite, shot through with a vein of rust-red iron. I hold it in my damp palm, feeling its weight, its coolness. Then, with the tip of my copper chisel, I lean close to the dark basalt wall and begin to scratch. 
+
+I am carving a whorl, a spiral, on the underside of the lintel above the cistern. It is a small thing, a hidden thing. It will be seen only by those who crawl through this low passage on their backs, seeking the source of the drip. It is my mark, my small act of creation in a world already full of the slow artistry of water on stone. It is my way of saying: *I was here. I listened. I tended the water.*
+
+The fog is retreating up the valley walls, and the diffuse light in the chamber shifts from charcoal to pearl. The dripping begins to slow as the temperature rises and the condensation eases. My work is done for the morning. 
+
+I place my hand flat against the wall one last time, a gesture of gratitude to the stone that gives us water, the fog that feeds it, the slow, patient work of the plateau that makes our lives possible. Then I turn and begin the long, slow climb up the worn stairs, my hand trailing along the damp wall, my breath coming in deep, measured draws, rising to meet the city and the day.

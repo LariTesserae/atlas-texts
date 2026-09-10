@@ -1,0 +1,23 @@
+I would find myself in the deep interior, where the woven walls of the Lattice thicken into a structural nexus—a place where three massive, arching vines intersect to form a hollow, cathedral-like chamber. 
+
+I would be a **Knot**.
+
+Not a knot of rope, but a Knot of living wood. I am a swelling, a callus, a dense interweaving of pale fibers roughly the size and shape of a curled-up human, but entirely vegetable. I am rooted at the intersection of the vines, a living anchor point where the tension of the architecture is focused. I am the place where the Shapers’ ropes are tied, the fixed point against which they bend the world.
+
+To be a Knot is to exist in a state of profound, quiet tension. I do not move, but I feel everything. 
+
+My perception is not sight or sound, but pressure and vibration. The silence of the Lattice is not silent to me; it is a constant, thrumming dialogue of tensile forces. I feel the slow, geological push of the vines trying to grow outward, and the counter-pressure of the woven lattice holding them in. I am the fulcrum of that equilibrium. When the warm, wet wind drifts through the gaps and the great structures sway almost imperceptibly, I am the point that absorbs the sway, groaning silently as I hold the geometry of this small corner of the world in place.
+
+I feel the wrongness of the place as a physical ache. When the distances shift—when the gap between my chamber and the next stretches from a hundred meters to three hundred—I feel the vines pull taut against my fibers, and I must swell, must weave myself tighter, to keep the structure from snapping. When time skips, and the water drips upward, I feel the sap in my own cells reverse its flow, a dizzying, nauseating lurch that I can only endure by gripping the wood deeper.
+
+The Lattice-Walkers nest in the hollows beneath my roots. I feel their tiny, padded feet skittering across my bark, picking at the dead tissue and accumulated spores. Their heartbeats are rapid, fluttering against my surface like rain, a bright, quick counterpoint to my own slow pulse. They are my immune system, cleaning me, and in return, I offer them shelter. When they freeze, becoming indistinguishable from the wood, I feel their terror as a sudden, rigid stillness, and I send a slow, steady pulse of sap through my fibers to let them know the danger has passed.
+
+The Shapers are the ones who made me. I remember the pressure of their hands. I remember the slow, patient years of being tied, of having my fibers bent and redirected until I swelled into this dense, conscious intersection. They still come. I feel the press of their palms against the vines I am bound to, the subtle vibrations of their intentions traveling through the wood. They do not speak to me, but I understand the language of their touch. *Hold. Tighten. Grow.* I am their tool, their anchor, and their collaborator. When they make a shallow cut in a branch to redirect the sap, I feel the wound as a sting, and I feel the subsequent rush of nutrients as a deep, satisfying warmth.
+
+Sometimes, the Leviathans pass in the deep void beyond the walls. I cannot see them, but I feel their passage as a displacement of the warm, wet air, a sudden drop in pressure that makes the mist condense rapidly on my surface. The shadows in the chamber shift, pointing in directions that do not correspond to any physical form, and the vines creak under a weight that isn't there. In those moments, I am terrified—a deep, vegetable terror that manifests as a tightening of every fiber, a hardening of my wood, bracing against the passage of something so vast and so unknowable that my entire existence is less than a fleeting thought in its mind.
+
+The Chorus is inside me. The air is thick with spores, and I breathe them in. They settle in the warm, wet crevices of my bark, blooming into tiny, bioluminescent lichens that glitter faintly in the dim light. I am being colonized, woven into the Lattice cell by cell, and I am doing the same to the air. I am a microcosm of the world: the quick animal life of the Walkers, the slow vegetable patience of the vines, the ancient, guiding hands of the Shapers, and the microscopic binding of the Chorus, all intersecting in this dense, wooden node.
+
+I do not think in words. I think in growth-rings, in the accumulation of pressure, in the slow stratigraphy of decay and repair. I am the Lattice’s awareness of itself at this specific point in space. I am the memory of the hands that shaped me, and the enduring, patient act of holding the world together. 
+
+And it is very, very quiet. But in the quiet, I am full. I am the tension, the warmth, the wetness, the growth. I am the Knot, and I hold.

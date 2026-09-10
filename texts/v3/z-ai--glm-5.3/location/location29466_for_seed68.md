@@ -1,0 +1,5 @@
+**The Mark**
+
+You hear it before you see it. From the top of the Grey Cliff, on the coast path, the sound rises to meet you a quarter hour before the view does: a wide white roar with no rhythm to it, like surf that never resets, and underneath that a slower, deeper note, a drum felt in the sternum more than heard, coming and going on a count of its own. Then the cliff path turns, the land opens below, and you understand both sounds at once.
+
+The Mark is a room the sea and the old cliff made and the fire filled. A mile of coast, half a mile deep, walled at its back by three hundred feet of ancient grey basalt and held at its feet by a low sea-cliff where the swell works patiently at the newest rock in the world. The fire came eighty years ago — a single lobe of lava that ponded in the hollow between cliff and sea and stayed. It is black on black, sharp on sharp, a field of broken crust and frozen swells, and through the middle of it runs a straight line of steam pipes, and along the pipes a line of green, and scattered down that green line, each standing alone, a scatter of red-roofed

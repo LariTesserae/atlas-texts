@@ -1,0 +1,63 @@
+# The Warm Dark
+
+---
+
+You are standing in a place that should not be alive, and yet it is *thick* with life.
+
+The chamber is small — perhaps forty paces across, roughly oval, with a ceiling that rises and falls between two and eight meters like the interior of a lung. You cannot see the walls. You cannot see the ceiling. The darkness is not the darkness of a closed room but the darkness of *depth* — a darkness that has weight, that presses against your face, that tastes of mineral and wet and something faintly organic, like the breath of a sleeping animal.
+
+The air is warm. Not hot — warm in the way that blood is warm, in the way that the inside of a body is warm. It holds moisture the way a held breath holds moisture: close to saturation, trembling on the edge of release. Condensation beads on every surface. It does not fall so much as *accumulate* — gathering in heavy droplets on the tips of stone formations, on the edges of fungal shelves, on the fur of the creatures that live here, until the weight overcomes the surface tension and the drop falls, and the sound of it hitting the floor is one of the thousand small sounds that make up the constant, layered, overwhelming *noise* of this place.
+
+The noise.
+
+It is not loud in the way of a storm or a machine. It is loud in the way of a crowded room where everyone is speaking at once and no one is listening. The drip of water — from a hundred points on the ceiling, at a hundred different rhythms, some fast as a pulse, some slow as an hour. The rustle of bodies — small bodies, many bodies, moving over and under and against each other in the dark. A high, thin chittering that comes from everywhere and nowhere, rising and falling in waves. The occasional wet *thump* of something larger shifting its weight. And beneath it all, a low, almost subsonic hum — the sound of air moving through stone, the sound of the mountain breathing, the sound of geothermal warmth rising from below and meeting the cold dark above and creating, in this one small pocket, a place where the temperature never drops and the water never stops and the life never, ever stops.
+
+The floor is not flat. It is a landscape in miniature — a topography of deposits and formations built over centuries, over millennia, by the slow patient work of water and gravity and biology. Stalactites hang from the ceiling like the roots of an inverted forest, some as thin as fingers, others as thick as thighs, their surfaces slick with moisture and furred with pale, hair-thin growths that are not quite moss and not quite fungus and not quite anything that has a name in the language of the surface world. Between them, the floor rises in mounds and ridges — some of stone, built by the slow accretion of dissolved minerals, others of *material*, of accumulated organic matter, of guano and shed fur and the compressed remains of generations of small bodies, built up over so many years that they have become geological, have become *terrain*, have become hills and valleys in this tiny world.
+
+And on and over and through all of it: the fauna.
+
+They are everywhere. They are the reason the chamber is warm — or rather, the warmth is the reason they are here, and they are the reason the warmth *matters*. Bats. Or something like bats. Not the small, nervous bats of surface caves but something larger, something that has had time and safety and abundance to grow. Their bodies are the size of a human hand, their wingspans half a meter, their fur a dark, damp brown that glistens in the faint bioluminescent light that comes from — 
+
+From the fungi.
+
+The fungi are the only light in this place, and they are not bright. They grow in patches and streaks and veining networks across the ceiling and the walls and the surfaces of the organic mounds, and they glow with a cold, blue-green light that is just enough to see by if your eyes have had time to adjust — which they have, because you have been here for hours now, or days, and your eyes have learned to gather every photon, and the chamber has resolved itself into a landscape of soft, wet, living light. The fungi grow thickest on the organic mounds, where the nutrients are richest, and there the light is brightest, and there the bats are densest, and the whole system feeds itself in a loop that has been running for longer than anyone can say: the bats eat the insects that come to the light, the bats deposit the guano that feeds the fungi, the fungi attract the insects that feed the bats, and the water comes and the warmth comes and the cycle turns and turns and turns.
+
+But the bats are not the only fauna.
+
+There are the insects — the ones that come to the light, the ones that feed on the fungi, the ones that feed on each other. Beetles with shells like wet leather. Pale, many-legged things that move in quick, nervous bursts. Flies that have lost their eyes and their wings and their color and have become nothing but hunger and reproduction, pale maggots that writhe in the softest parts of the organic mounds like living foam. There are the predators — spider-like things that hang from silk threads in the darkest corners, their bodies translucent, their internal organs visible as dark shapes beneath the skin. There are the scavengers — small, furred things that are not bats and not rodents and not anything else, things with too many toes and whiskers that twitch constantly, things that move through the organic mounds like fish through water, eating and being eaten and reproducing and dying and becoming part of the mound themselves.
+
+And there are the others.
+
+You have seen them only in glimpses — in the corner of your eye, in the moment between one drip and the next. Larger shapes. Slower shapes. Things that move through the chamber with a deliberateness that the bats and the insects do not have. Things that pause. Things that *look*.
+
+They are not bats. They are not insects. They are something else — something that lives in the deepest part of the chamber, where the organic mounds are oldest and the fungi glow brightest and the warmth rises strongest from below. You have not seen them clearly. You have seen a limb — long, jointed, covered in the same damp fur as the bats but thicker, darker. You have seen an eye — large, dark, reflecting the fungal light with a faint, wet shine. You have seen what might have been a tool — a stone, held in something that might have been a hand, used to crack open the shell of one of the large beetles that live in the upper reaches of the mound.
+
+You are not sure what they are. You are not sure they are not watching you.
+
+---
+
+The water comes from above. It seeps through the stone — through cracks and fissures that extend upward and upward, through hundreds of meters of rock, to the surface, to the high slopes of the mountain where the air is thin and cold and the rain falls intermittently, collecting in pools and streams that find their way down through the stone, filtered and cooled and mineral-rich, until they reach this chamber and emerge from the ceiling in a thousand slow, steady drips. The water is the reason for everything. The water brings the minerals that build the stone formations. The water brings the moisture that feeds the fungi. The water brings the warmth — or rather, the water carries the warmth up from below, from the deep geothermal sources that heat the base of the mountain, and releases it here, in this one small chamber, creating a pocket of warmth and wet in the midst of the cold, dry, thin-aired heights.
+
+The chamber is high. You know this because you climbed to reach it — climbed through passages that narrowed and widened and narrowed again, that twisted and turned and doubled back on themselves, that required you to crawl and climb and squeeze through gaps that seemed impossible until you were through them. The elevation is extreme. The air outside the chamber is thin and cold and offers little. The chamber is an oasis — a small, bounded, impossible oasis of warmth and moisture and life, perched near the summit of a mountain that rises above the tree line, above the snow line, above almost everything.
+
+The vegetation is sparse. There are no plants — no roots, no leaves, no green. The only primary producers are the fungi and the chemosynthetic bacteria that live in the warm, mineral-rich water seeping up from below. The fungi are the base of the food web — pale, shelf-like growths that spread across every surface, digesting the organic matter, recycling the nutrients, glowing with their cold light. Some of them are enormous — shelves a meter wide, layered and ridged, their surfaces damp and slightly warm to the touch. Some of them are tiny — hair-thin filaments that spread through the organic mounds like a nervous system, connecting everything to everything else.
+
+The bacteria are invisible but essential. They live in the water, in the warm seeps, in the thin films of moisture that coat every surface. They convert the minerals — the sulfur, the iron, the dissolved stone — into energy, and they feed the fungi, and the fungi feed the insects, and the insects feed the bats, and the bats feed the mounds, and the mounds feed the fungi, and the cycle turns.
+
+---
+
+The chamber is old. You can feel it in the stone — in the smoothness of the formations, in the depth of the organic mounds, in the way the water has carved its channels over centuries, over millennia. The erosion is established, settled, in balance. The water follows the same paths it has always followed. The stone grows at the same rate it has always grown. The mounds accumulate at the same rate they have always accumulated. Nothing is new. Nothing is sudden. Everything is slow, patient, gradual — the drip of water, the growth of fungi, the accumulation of guano, the slow, imperceptible rise of the floor.
+
+And yet it is not static. The chamber *changes* — but slowly, so slowly that you cannot see it happening. A stalactite grows a millimeter in a decade. A fungal shelf expands a centimeter in a year. A bat is born, lives, dies, and is absorbed into the mound in a season. The population of insects rises and falls with the availability of fungi, which rises and falls with the availability of guano, which rises and falls with the population of bats, which rises and falls with the availability of insects. The cycles are long and slow and interconnected, and they have been turning for so long that the chamber has reached a kind of equilibrium — a dynamic balance, a steady state, a place where everything is changing and nothing is different.
+
+---
+
+The density is the thing that strikes you most. The sheer *density* of life in this small space. The chamber is not large — you could walk its length in a minute, its width in half a minute — and yet it contains *thousands* of bats, *millions* of insects, *billions* of bacteria, uncountable fungi, uncountable spiders, uncountable scavengers, and the others — the large, slow, watching others — whose numbers you cannot guess. The air is thick with them. The floor is thick with them. The walls are thick with them. They are layered — bats hanging in clusters from the ceiling, their bodies pressed against each other, their wings folded, their breathing synchronized; insects crawling over the bats, feeding on their fur, on their skin, on the moisture that condenses on their bodies; spiders hanging between the bats, their webs invisible in the dark, their vibrations telling them everything they need to know; scavengers moving through the mounds below, their bodies disappearing into the organic matter like stones dropped into water; and the others, the large ones, moving slowly through it all, their eyes reflecting the fungal light, their hands — if they are hands — holding their stones.
+
+---
+
+You do not know what the others are. You do not know if they are intelligent. You do not know if they are watching you with curiosity or with hunger or with something that has no name. You know only that they are here, that they have been here for a long time, that they have learned to use the stone and the bone and the shell, that they have found a way to live in this small, warm, dark place at the top of the world, and that they have made it theirs.
+
+The chamber is theirs. You are the visitor. You are the stranger. You are the one who does not belong.
+
+And the water drips, and the fungi glow, and the bats chitter, and the mounds grow, and the others watch, and the mountain breathes, and the warm dark holds everything.

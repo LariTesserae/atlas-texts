@@ -1,0 +1,19 @@
+The air hits first, thick and sweltering, carrying the heavy, tallow-and-iron smell of a closed subterranean engine room.
+
+This is the Lower Sump of Fracture-Nine, a sunken pocket trench less than two hundred yards long, sheared directly out of raw, dark-grained basalt. The rock face overhead and along the trench walls is violently fresh—its edges are knife-sharp, unsoftened by water or age, marked by the long, parallel scars of massive diamond drills and sudden thermal fracturing. No ancient erosion has smoothed the stone; it is raw, jagged, and cold at its heart, though the air trapped within its bounds bakes at a dry, punishing heat.
+
+Squeezed into this confined subterranean trough is a dense, multi-tiered urban density. There are no streets, only a vertical web of narrow, riveted-iron gantries, corrugated zinc shelters, and brick shanties stacked four and five levels high against the raw stone faces. Everything is joined by brass conduit, sweat-slicked copper pipework, and suspended catwalks so tightly packed that from the floor of the trench, the ceiling of fractured basalt is almost entirely obscured by a dense lattice of industrial infrastructure. 
+
+It feels like a city block dropped into a furnace shaft and forgotten, but it is continuously, quietly alive.
+
+Moisture here does not come from the sky, but from the thermal war between the hot interior air and the deep, cold stone. Where raw basalt meets the heat of the lower steam conduits, heavy condensation gathers in continuous, slow cycles. Dew forms on the undersides of iron floor plates, beads into fat globes on suspended cast-iron pipes, and trickles down vertical rust-stains in clear, rhythmic pulses. In places, this water drops onto high-pressure steam headers with a sharp *hiss*, immediately evaporating back into the hot air; in others, it collects in narrow, lead-lined troughs that slope into small water-traps and automated boiler feeds.
+
+Despite the intensity of the build, light is scarce and localized. Dull amber carbon-filament bulbs, encased in thick glass cages and heavy bronze wire, cast long, heavy shadows across the ironwork. The illumination is dim, thick with heat-shimmer, turning the stacked metal dwellings into silhouettes of soot, lead, and wet rust.
+
+There is no animal life here. Not a fly circles the lanterns; no rats scramble along the copper conduits; no birds nest in the web of steel girders. The precinct is sterile of eyes and breath. 
+
+In their absence, a sparse, specialized flora has taken hold along the moisture margins. In the narrow gaps where wet metal touches the freshly sheared rock, thin carpets of pale, thread-like liverwort and rubbery, sulfur-yellow lichen cling to the damp basalt. They do not grow green; under the dull orange glow of the filaments, they are a ghostly cream, feeding on the mineral-rich sweat dripping from the ironwork and the constant, humid warmth.
+
+The sound of Fracture-Nine is restrained, almost muted, but constant. It is not the noise of a bustling crowd, but the resting pulse of a dense, automated industrial organism. A distant, slow *thrum-thrum-thrum* vibrates through the iron catwalks from a pump station hidden deeper in the rock. Overhead, cooling pipes expand and contract with dry, metallic *tinks*. Every few minutes, a pressure-relief valve somewhere in the upper gantries clicks open with a soft, breathy sigh, releasing a localized cloud of vapor that drifts down through the catwalks like warm rain before dissolving into the dry, hot air.
+
+Nothing moves quickly, yet nothing rests. A counterweighted water bucket tips itself with a heavy metal clack, spilling collected condensate into an evaporator tray. Relay switches inside grease-sealed iron junction boxes snap shut with a faint, oily *clack-clack*. The place is an enclosed ecosystem of heat, metal, and steam, locked inside a newly broken scar in the deep earth, quietly processing itself in the hot, dark silence.

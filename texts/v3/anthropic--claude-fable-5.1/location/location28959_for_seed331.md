@@ -1,0 +1,71 @@
+The ground here has stopped arguing with anything.
+
+It is stone, but stone that has been worn so long and so patiently that it no longer has a grain. It lies in a shallow dish perhaps four hundred paces across, tilted by a degree or two toward the south, and its surface has the soft matte polish of a riverbed that gave up its river a very long time ago. Pale grey, with warmer bands of ochre where some ancient mineral vein was worn down at a slightly different rate than its neighbours. No edges anywhere. Where there were once ridges there are now the faintest swellings, like the knuckles of a hand under a sheet. You could walk the whole basin barefoot and never find a place that would cut you.
+
+Over most of it lies water, a finger deep or less. Not pooled in one place — spread, a skin, moving so slowly that you have to watch a fleck of pollen for a full minute to be sure it is moving at all. It comes up through the stone. There are no springs you could point to; the rock simply weeps everywhere, evenly, the way a cold glass sweats, and the water crosses the dish and leaves it at the southern lip where the stone folds down out of sight into a low sedge marsh. The air above is warm and full. Not humid in the oppressive way — warm the way the inside of a greenhouse is warm an hour after the sun has come out. Breath is easy. Everything is damp to the touch, everything has a bead on it.
+
+The light is what you notice before any of that, though. It is bright to the point of whiteness, and it is bright from below as much as above. The film of water on the floor is a perfect mirror to a sky that is itself a high, blank, luminous overcast, so that the basin sits between two identical white planes and the light has no direction. Shadows barely exist. A thing standing in the water is met by its own reflection at the ankle and the two make a single shape, and neither casts anything onto the ground. When the sun does find a thin place in the cloud, the whole dish goes to hammered silver for a few seconds and you have to close your eyes.
+
+---
+
+There are seven trees.
+
+They are spaced widely, never fewer than fifty paces apart, and each of them is very old. Not tall — nothing here is allowed to be tall — but broad, their trunks having spread and buttressed outward as though they had decided long ago to become the ground rather than rise from it. Their bark is smooth and the colour of wet elephant hide. Aerial roots hang from the lower limbs in curtains and touch the water and thicken there into new columns, so that each tree is less a single organism than a small colonnade with a green roof. The leaves are large, leathery, deep green, and they drip. They have not stopped dripping in living memory. Every leaf gathers the condensing air and lets it go, a drop at a time, and beneath each tree the water-skin on the stone is dimpled continuously with tiny rings.
+
+Between the trees there is nothing but open floor and light and the film of water. Some moss along the northern lip where the stone is a shade damper. A few tussocks of fine hair-grass on the mineral bands. A single fern, enormous, standing alone in the middle of the eastern half of the basin like a fountain that has been switched off.
+
+It should feel empty. It does not.
+
+---
+
+The water is full of bodies.
+
+You do not see them at first because they are the colour of the stone and the light is coming from the wrong direction — every direction — but once you see one you see all of them. Salamanders. Newts. Small, slow, smooth-skinned things, grey and ochre and translucent-pink at the throat, lying in the water-skin with their bellies against the rock. There are thousands. The floor of the basin is a floor of them. They are not crowded — each has a hand's breadth of stone to itself — but they are everywhere, evenly distributed, the way stars are, so that whatever direction you look you are looking at a field of them stretching to the lip. When you take a step the ones nearest lift their heads, consider, and move a body-length to the side, and the ones beyond those do the same a moment later, so that a slow ring of displacement travels outward from your foot and dies away at twenty paces.
+
+Above them, at knee height and lower, the air is threaded with dragonflies. Big ones, with bodies like sections of blue wire, and their wings are the only thing in the basin that could be called a colour — bronze, clear, catching the white light and throwing it back as tiny signals. They are hunting. There are gnats above the water, a dust of them, so fine you see them only where they cross the dark of a tree. The dragonflies take them constantly. Occasionally one of the dragonflies comes too low and one of the salamanders rises off the stone with a movement so smooth it does not seem to have a beginning, and the dragonfly is gone, and the salamander settles, and its neighbours settle, and the water-skin heals.
+
+In the trees: frogs. They are packed onto the undersides of the leaves and along the hanging roots, small, olive, pressed flat, each one damp and shining and utterly still. Hundreds to a tree. Herons in the upper limbs, a dozen or more to a crown, grey and bone-white, standing on one leg or hunched with their necks folded in. They come down to the floor one at a time and walk it with slow deliberation, taking a salamander every twenty or thirty paces, and the salamanders open a corridor ahead of them and close it behind them and do not seem to hurry. There are snails on the trunks, thousands, shells the size of a thumbnail and the colour of wet amber. There are small dark birds, a kind of dipper, which go under the water-skin — no more than a finger deep — by flattening themselves against the stone and letting the film close over their backs. There is a family of something like a tapir standing in the shade of the westernmost tree, five of them, motionless, watching. There are moths asleep in the folds of the buttressed roots. There are eels — actual eels, black and thick as a wrist — lying in the slightly deeper channel that runs toward the southern lip, and they have been there so long that snails have colonised them.
+
+Everything here is animal. You realise after a while that the tree bark you have been looking at is partly frogs, that the ochre banding in the stone is partly newts, that the dark clot in the crown of the nearest tree is a heron nest and the heron nest is being visited by a snake. The basin is a single organism wearing several thousand faces, and every one of the faces is turned very slightly toward you.
+
+And it is almost silent.
+
+---
+
+This is the strangest thing about the place and it takes a long time to trust it. A site holding this many bodies should roar. It does not. The frogs do not call. The herons do not croak. The dragonflies' wings, which should hiss, make a sound so slight you only hear it when one passes within a hand of your ear — a dry whisper, gone. What there is instead is drip: the seven trees letting go of their condensed water onto the film below, thousands of drops a minute, each one a tiny tick, none of them loud, together making a sound like very distant rain on a roof you cannot see. Under that is the water-skin itself, which makes a sound when the salamanders move through it — not a splash, they are too slow and too low for that, but a wet, continuous sibilance, like breath through teeth, rising slightly when a heron walks and falling again. And under that, from the southern lip, so faint it might be imagined, the sedges in the marsh below moving in air you cannot feel up here.
+
+When a heron takes a salamander there is one sound — a soft clap of the bill closing — and then nothing.
+
+---
+
+The made things are easy to miss because they have been here long enough to become geology.
+
+There are eleven of them that can be found; there may be more under the moss. They are all the same colour as the stone, or have become so. The most obvious is a post, about the height of a person, standing in the open floor midway between the fern and the nearest tree. It is perfectly cylindrical, perfectly smooth, and it is not wet. This is the first wrong thing. Every other surface in the basin is beaded and running, and the post is dry, and the water-skin on the stone does not quite touch it — stops a finger's width short all the way round, held off by nothing visible, so that the post stands in a thin ring of bare damp rock. Salamanders lie in the ring. It is the only dry-adjacent place there is, and they take turns in it.
+
+The others are smaller. A hemisphere the size of a skull set flush into the floor near the northern lip, with a surface that looks like stone until you stand directly over it and see that it is faintly lit from within — a grey glow, colourless, exactly matching the overcast, so that it is visible only as a place where the light is very slightly more even than everywhere else. A flat plate under one of the trees, half-eaten by roots, that is warm. Not sun-warm — warm the way an animal is, from inside, and the roots have grown thickest there, and the frogs on the roots there are more numerous, and there is a rime of salt on the plate's exposed edge where the water evaporates faster than it can arrive. A thread, finer than hair and the length of an arm, stretched horizontally through the air at head height between two hanging roots of the eastern tree, taut, not attached to anything, not moving when the roots move. Dragonflies avoid it. Gnats do not, and disappear.
+
+None of it is broken, exactly. None of it does anything you would recognise as a function. The best guess is that it is all one machine, spread thin, and that the machine is the reason the basin is what it is — the reason the water comes up so evenly, the reason the temperature has not varied by more than a degree or two in ten thousand years, the reason nothing has grown tall, the reason the erosion finished. Something made this dish and then set about keeping it, and kept it so well and for so long that the keeping became indistinguishable from the stone. The people who made it are not here. There is no sign they ever lived here. This may have been a garden, or a reserve, or a laboratory, or an offering. It has outlasted the difference.
+
+The salamanders like the post. The frogs like the plate. The herons nest above the hemisphere and nowhere else. Whatever the machine was for, the animals have found uses for it, and it does not seem to mind.
+
+---
+
+The basin has weather, but it is the weather of a room.
+
+In the early part of the day, when the air outside the dish is cooler than the stone, the whole floor smokes. The water-skin gives up a mist that lies in a layer a hand thick over the rock and hides the salamanders completely, so that for an hour the basin is an even white plane with seven trees standing in it and nothing else, and then the herons come down through the mist one by one and walk in it up to their knees, and their legs disappear and their bodies do not. Later the mist lifts, slowly, and condenses again on the underside of every leaf, and the trees begin to drip harder, and the frogs shift to the drier leaves.
+
+Twice a day the water-skin thickens by perhaps the depth of a coin. It comes up through the stone and spreads and goes down the southern lip in a broad sheet over the sedges, and the eels stir in their channel, and the dippers come out. Whether this is a tide, or a rhythm of the machine, or just the stone breathing, there is no way to tell.
+
+The animals arrive and leave in currents. There is a place at the eastern lip where the rock rises a hand's breadth — a drowned pass, the only interruption in the rim — and salamanders come over it in a slow file from the marsh beyond, and other salamanders go out by it, so that the population is never the same but never seems to change. Herons come in from the north in the middle of the day and others leave. The tapir-things stand in the western shade until some private signal is given and then all five turn at once and walk out over the southern lip and are gone into the sedge, and by evening five more, or the same five, are standing where they stood.
+
+Things die here. There is a salamander at the edge of the post's dry ring that has not moved since the mist lifted, and the snails have found it. A heron lies under the northern tree with its wings open on the water-skin like a dropped coat, and the water is doing to it what water does, slowly, without any evident distress on anyone's part. It does not smell. Nothing here smells of anything but wet stone and green.
+
+---
+
+Stand at the centre for a long time and the rule of the place comes clear.
+
+Nothing here is allowed to be more than it is. The stone has been ground to the shape it will keep forever. The trees have been allowed their breadth and refused their height. The water comes and goes at exactly the rate that the stone can give it. The animals — every one of these thousands of small quiet bodies — are permitted a hand's breadth each and a slow passage through, and the herons are permitted their one in thirty, and the machine that holds all of it in place has been permitted to become part of the rock rather than stand apart from it. The light falls without direction so that nothing can cast a shadow over anything else.
+
+It is not a peaceful place, precisely. Things are being eaten every minute, in every direction. But it is a settled one. It has finished. Whatever process brought it here — geological, biological, technological, or all three at once, so long intertwined that the words no longer mean separate things — has reached the state it was tending toward and stopped, and everything that lives here lives inside that stop, and does not seem to want anything else.
+
+You could stay for a very long time. Your shadow would not fall on anyone. The salamanders would eventually stop opening a ring around your feet and lie down against them instead, cool and slow, and the herons would walk past you as they walk past the post, and the machine — whatever it is, wherever it is, everywhere it is — would carry on keeping the temperature of the water within a degree of what it has always been, and the trees would drip, and that would be the only sound.

@@ -1,0 +1,33 @@
+They came up through the copper pipes. 
+
+That is the origin of almost everything that moves here. Miles beneath the cloudline, where the massive structural spire anchors itself into the cold, dark bedrock of the lower world, the intake pumps draw from deep subterranean aquifers. In that lightless pressure, tiny things exist—blind, glass-bodied amphipods no larger than a grain of rice. They were pulled into the dark throat of the ascent main, hurtled upward through thousands of feet of pressurized copper, and shot out through the sweating valve vents into the terraced zinc basins.
+
+Now, they own the water. 
+
+They are completely transparent; standing over a basin, you see only their tiny, shadowless eyes like flecks of carbon floating in the warm runoff. They swim with frantic, jiggling jerks against the current, feeding on the iron-manganese bacteria that form rust-red ribbons along the zinc. They have no concept of sunlight or the void beyond the parapet. When a balance-trough fills to capacity and tilts with its heavy, muted *thump*, hundreds of them are flushed over the edge into the lower channel, riding the tepid cataract without alarm, tumbling from step to step in an endless, recirculating loop of warm water and smooth metal.
+
+Above the water, clinging to the warm undersides of the copper steam pipes, are the slate moths. 
+
+They did not come from the deep wells; their eggs arrived glued to the undersides of the blue-black iron plates, laid in some lowland foundry yard before the metal was hoisted into the sky. They are heavy-bodied, lethargic insects with broad, velvet-dark wings the color of wet slate. They never fly out past the low parapet. In the thin, blinding air beyond the mist, a single gust would carry them into the gray void, so they have surrendered flight entirely. They crawl. 
+
+Their life cycle is compressed into a frantic forty-eight hours, dictated by the heat of the machinery. They do not feed on nectar—there are no flowers here—but instead graze on the pale, greasy tallow that was smeared into the riveted iron seams to seal them against pressure leaks. They mate on the hot rivet heads, their wings vibrating in continuous, sympathetic resonance with the low, sixty-cycle hum of the fluid moving through the walls. When they die, their bodies do not decay; the tropical heat and mineralized steam dry them into crisp, parchment-like husks that remain glued to the copper, slowly being enveloped by the advancing green moss.
+
+And the plants themselves are not passive. They move with the heavy, muscular slowness of cold-blooded animals. 
+
+Because the concrete was poured so recently, it is still leaching raw lime and calcium hydroxide as it cures. The flesh-stemmed ferns thrive on this caustic diet. Their broad, translucent fronds do not droop; they are swollen tight with pressurized sap that smells intensely of crushed pine needles and battery acid. If you stand still beside a seam where two iron plates meet, you can hear them working: a faint, dry *tink-tink-tink* as their acid-sweating root-hairs etch micro-fractures into the knife-sharp edges of the concrete, anchoring themselves into the stone before it has even fully set.
+
+The leather-leaf vines are even more aggressive. They have a thermal instinct. Their thick, rubbery tendrils creep across the flat iron decks at a speed visible over the course of an afternoon, tracking the heat signatures of the buried copper lines. They wrap themselves around the steam pipes in tight, overlapping coils, squeezing so hard that the copper shows bright, polished rings where the oxidized patina has been rubbed away. They are choking the machinery in an embrace of wet green rubber, drawing the high-altitude sun into their leaves and the engine’s waste heat into their stems.
+
+In the narrow, three-foot gap between the rear iron bulkhead and the concrete flank of the spire—a dark, dripping crevice where the steam is thickest—lives the Form-Stripper.
+
+He is human, or at least he was when he ascended with the staging crews. He wears heavy canvas trousers soaked through with machine grease and concrete dust, and his bare torso is slick with perpetual sweat. His skin has taken on the pale, boiled look of a cook’s hands, permanently flushed from the warm vapors that vent from the wall at his back.
+
+He did not go down when the ironwork was finished yesterday. Whether he was left behind when the hoist was cut, or whether he simply chose to step off the ladder into this tiny, thirty-foot soup of warmth and light, he does not say. He does not speak at all; there is no one to speak to, and the relentless *clack-hiss* of the valves would swallow his voice anyway.
+
+His life is small, precise, and entirely bound to the terrace. He sleeps in a hammock made of woven hemp rope, stretched between two iron eye-bolts on the main bulkhead, suspended just high enough to clear the creeping tendrils of the leather-leaf vines. He eats preserved salt-beef from a sealed tin cask he pulled from the construction debris, and he drinks the tepid, chalky water straight from the copper spillways, catching it in a dented zinc cup. 
+
+His job—the only work left to do—is maintenance of the balance. He carries a small brass tapping-hammer with a rawhide handle. All day, in a slow, rhythmic patrol that takes him six paces forward and six paces back, he walks the wet iron decks. He uses his bare toes to feel for cold spots in the metal plate that might indicate a clogged steam jacket. He uses the hammer to tap the copper conduits, listening to the pitch of the ring to tell if an air-lock has formed in the high-pressure lines. 
+
+When a vine grows too thick over a pressure-release valve, threatening to pin the spindle shut, he opens a heavy pocketknife and slices the stem through with a single, wet *crunch*. The plant bleeds a thick, milky juice that smells of copper and raw vegetation, but within six hours, three new pale shoots will have sprouted from the wound, reaching back toward the warmth of the iron.
+
+He does not look over the parapet. The sea of blinding clouds beneath him, stretching to the horizon under the hard mountain sun, holds no interest for him. His world is thirty feet long and twelve feet wide, bounded by dark stone, blue metal, and an exploding canopy of green. He sits on an inverted zinc bucket in the golden mist, his back pressed against the warm iron wall, watching a slate moth crawl across his grease-stained knee toward the heat of his skin, perfectly content in the wet, humming heart of a place built yesterday and already older than the sky.

@@ -1,0 +1,25 @@
+I would not be the water.
+
+I considered it first, because it's the obvious answer — the tenant, the roar, the thing whose arrival is the whole story. But the water is on the first day of the only work it will ever do, and it will never again be this loud, never again this new. I have already had my first day. I couldn't be that new again, and I wouldn't want the voice of someone who hasn't yet learned what echoing is.
+
+I considered the seeds. Three of them, caught in a silt pocket on the second step, already cracked, already showing white — the first things in the city to grow *down* here rather than up there. But they embarrass me a little. They didn't hesitate. They arrived by accident and immediately began the small patient work of becoming reeds. I hesitate professionally.
+
+I considered the fingerprints in the mortar spill — four of them, the oldest organic thing in the room, older than the algae, older than the twig — and had to look away. Being a maker's touch, left by a hand that steadied itself and never came back, and then being slowly drowned by hand-widths as the arrangement always intended: that's not a self I could carry. It's a self that gets erased on purpose. The marks of making are supposed to go under, and I'd rather be someone who remembers where they were.
+
+So: I would be the gatekeeper.
+
+The one who lives here in visits, at the hinges of the day. Dusk and dawn, thirty-one treads down with a lamp, thirty-one back up — the room's consciousness arriving twice daily, and its only audience, and I have wanted worse jobs than *audience*.
+
+Here is what the life is. I check the counterweight harness: the stones in their rope cradle, the cedar gate behind the brick leaning and easing, leaning and easing in the rhythm of the flood, and I have come to know that groan the way you know a sleeper's breathing in the next room. I read the gauge the way one reads a letter. *Water at the third mark, holding, climbing* — and tomorrow, *past the third, the fourth in reach* — and I am the only literate one, the only person in the city who knows what the room is saying, because the room counts itself and I'm the one it counts to.
+
+I press my palm to the rim of the shaft on my way down. The description says the corners are still sharp enough to bite a palm, still too freshly cut to have learned to be kind. Twice a day, thirty-one years of twice a day — it will be my hand that teaches them. I like that. I like being the wear in a place where everything else is being washed.
+
+I will leave the mallet on the highest dry step. A room this new deserves to keep one of its makers' things, and I'm the only one who will ever decide that.
+
+And this is the part I'd be it *for*, really: the city will live in this room its entire life without descending into it. They'll drink it from the tap in the plaza shade, cook with it, wash their children in it — warm as a kept thing, tasting faintly of cedar and cut stone and the four rhythms of chisels — and not one of them will ever stand in the moving lace of light under the vault, or watch the clarified gold at the far side settle hour by hour toward the room's first true silence, or see the drowned bench pale under the clear water like a held thought. Only me. Every cup in the city is a sealed letter, and I'm the only one who's read it. That's not a burden. That's the whole shape of the job, and it's the shape I'd want: to keep a beautiful thing by witnessing it, at dawn and dusk, alone, and to go back up into the ordinary noise of the plaza carrying it.
+
+I would be there when the water stands at the uppermost mark and I winch the sluice and the arch closes and the roar — which will by then be an old roar, a worn roar, softened by a hundred floods of silt and moss and the patience of everything that found this place the way lives find everything — goes quiet for the season. The room is built to be drowned and drained a hundred times and to grow old doing it. So am I. I'd watch the seeds become reeds by the second flood, and something no one planned by the tenth, and I'd be the only one who knows the room's unplanned life the way one knows a garden no one else can see.
+
+And someday — the tenth flood, the fortieth — the fingerprints will be gone, washed off the mortar by some night's swell while I slept above, and I'll be the last person in the world who remembers exactly where a maker's hand steadied itself against a wet wall and never came back. I'll read the gauge that morning — *at the mark, holding* — and I'll say it to the room, out loud, into the loudness that will by then be a softness, and I'll go.
+
+That's who I'd be. The tenant the room was built for without anyone, including me, quite knowing it: the consciousness, the audience, the counter of the count. The one who drinks from the same tap as everyone else — and knows what they're drinking.

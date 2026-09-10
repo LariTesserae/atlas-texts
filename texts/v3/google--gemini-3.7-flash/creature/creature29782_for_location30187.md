@@ -1,0 +1,27 @@
+There is a weight shifted against the curve of the wicker, wedged between two willow ribs where the outward pull of the room is heaviest. 
+
+At first, it does not distinguish itself from the wet bundles of boiled hide. It has the same tallowy sheen, the same color of calfskin steeped in lye, and it smells entirely of the wood-ash and hot marrow used to grease the lashings. But hide does not shudder with a four-stroke pulse, and hide does not possess heels.
+
+It is a solitary, doubled-over thing, broad as a heifer across the shoulders, folded so tightly into the perimeter that its spine mirrors the spherical bend of the hull. It has no room to stand, nor does the outward fling of the knuckle’s gravity permit it; instead, it lives braced on all fours, its soles and palms flattened against the mud-covered lattice. 
+
+Its hands are enormous, blunt, and thumb-heavy. Where human fingers would taper, its digits end in broad, spade-like pads of thick, calloused cartilage that have no nails—only flat, whorled cushions of skin worn raw from endless application. These are the tools that left the wet slip marked with ridges. It does not stop using them. Even while asleep, or in the dull, torpid trance that passes for its rest, one hand remains in motion: feeling along the seam between mud and wicker, finding where the exterior shear-winds have vibrated a hairline fissure into the clay, and kneading it shut with a slow, heavy drag of its heel.
+
+Its skin is continuously shedding and renewing in the steam, sloughing off in translucent grey rolls like wet paper, which it presses unthinkingly into the mud, incorporating its own dander and sweat into the structural mortar. 
+
+It does not appear to possess a face in the conventional sense. Where features should be, the flesh is drawn tight and smooth over a snout-less skull, pierced only by two vertical breathing slits that open and shut with the wet snap of a leather valve. These slits do not draw air so much as they distill it, filtering the dense porridge of mist and mint through combs of stiff, coppery bristle that project from within its throat. When it exhales, it vents two straight jets of superheated steam that strike the wicker ceiling and shower back down as condensation. 
+
+Its eyes are buried deep behind thick, amber-tinted fat—blind to the vacuum whistling outside the thin walls, but finely attuned to the sour, self-generating phosphorescence of the room. It sees not shapes, but densities: the hardening of a vine, the thinning of a clay patch, the vibration of a snapped reed.
+
+Around its belly, the creature is bound to the room by more than gravity. The pale, scalded-cabbage vines do not merely grow around it; they have rooted into the creases of its groin and armpits, drinking the hot grease that weeps from its skin. In exchange, the creature feeds on them with an absent, rhythmic grazing. Without turning its head, it reaches out with a thick, prehensile lip tucked beneath its breathing slits, strips a mouthful of the swollen leaf-tissue, and chews with a heavy, grinding jaw that sounds like river stones being crushed in a wet mortar. The hot, sugary gel runs down its chest in sheets, mixing with the clay it endlessly repacks.
+
+It is not alone in the absolute sense, though it is the only thing with lungs. 
+
+Within the folds of its back, where the skin is thickest and ridged like an ox’s neck, the dough-colored isopods congregate in swarms. They graze on its peeling outer layers, and when they are gorged, the creature reaches back with its great pads, scoops them by the handful, and rolls them between its palms with a pinch of river-silt and crushed willow leaf. It does not kill them; it compresses them until they exude their sticky, grey pitch, then smears the living paste into the corner junctions where the bamboo flexes hardest under torque. The little animals burrow into the wet joinery, cementing it from within, their tiny legs ticking like clocks against the wood.
+
+And then there is its relationship to the suspended jar.
+
+Every few hours, when the torque of the outside wind hits a pitch that makes the bamboo scream like an iron rod, the creature stirs from its perimeter. Moving with a sliding, quadrupedal suction—never breaking contact with the outward-curving wall—it circles the trembling vessel. 
+
+It reaches up with both hands, grasping the rough, unfired belly of the jar. Its palms, sensitive to the barest fraction of a degree, read the temperature of the sweat bleeding through the clay. If the water inside cools even slightly, the creature presses its own massive, fevered chest directly against the earthenware, wrapping its limbs around the base like an unbaked lid, and breathes its blistering, marrow-hot exhaust into the porous walls until the vessel begins to shake again, renewing the drowned, boiling climate that keeps the entire tiny universe from freezing into glass.
+
+It has no memory of a ground, nor an understanding of the void screaming six inches past its wicker skin. It knows only the tension on the bamboo, the dampness of the slip, and the perpetual, urgent necessity of the next minute—laboring without pause to ensure that the room never finishes setting, that the birth is never completed, and that the mud stays soft enough to hold the sky at bay.

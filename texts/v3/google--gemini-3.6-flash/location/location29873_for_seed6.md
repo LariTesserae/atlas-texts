@@ -1,0 +1,19 @@
+This is the interior of the High Cistern of Spires, a single chamber perched seven thousand meters up the face of a structural pylon, completely filled with clear, bath-warm water. 
+
+There is no natural stone here. Floor, walls, ceiling, and structural trusses are all fabricated: heavy, dark-enameled iron plates bolted together with fat, pristine rivets, lined with white ceramic tile that shows not a single crack or rounded edge. The construction is extraordinarily fresh. The corners of the iron beams are as sharp as if they were milled yesterday, their black protective lacquer still glossed and unmarred by rust. The brass fittings—valve wheels as large as wagon wheels, manifold clusters, thick conduits running in parallel bundles—gleam with a pale, buttery sheen beneath three meters of standing liquid.
+
+The water does not rush or flow; it sits. It is sun-warmed, held at a constant, heavy temperature that matches a summer noon. Sunlight enters from above, passing through massive overhead skylights made of thick, iron-framed glass panels sealed against the sky outside. The light is bright and neutral, casting long, clean-edged shadows of pipes and catwalks onto the white tile floor four stories below.
+
+The space is small—scarcely larger than a parish church or a compact factory floor—but it is packed to the limit of its volume. Space here is a dense matrix of industry and botany, intertwined so tightly that there are no open avenues, only narrow, navigable channels through the growth.
+
+Every surface that is not actively moving is coated in plants. Because there is no soil, the flora anchors itself directly to the sharp-edged metal and the smooth tiles. Dense, emerald-green mosses, thick as cushions, wrap around the steam pipes and pressure trunks. Long, ribbon-like water-ferns with translucent, ribbed leaves erupt from the open grates of floor drains, their fronds rising in vertical sheets toward the surface glass. Heavy, buoyant vines with broad, wax-coated leaves wrap in spirals around brass drive-shafts and vertical ladders, their tips wavering slightly in the gentle thermal plumes rising from the floor plates. 
+
+The vegetation is insanely lush, a wall-to-wall saturation of chlorophilic green, yet there is no decay. No dead leaves float in the clear water; no silt gathers in the corners of the tiled steps. The water is pristine, filtered continuously through microscopic grates built into the baseboards.
+
+And yet, there are no fish. There are no water-beetles, no snails crawling over the brass gauge covers, no microscopic copepods drifting through the sunbeams. The water is entirely sterile of animal life. The plants grow in complete solitude, sustained by the dissolved minerals pumped silently through the perforated walls.
+
+The sound within the chamber is almost non-existent. To be inside the cistern is to be wrapped in a heavy, liquid hush. The dense water dampens all resonance. The only sound is a faint, rhythmic *thump-clack* that occurs once every forty seconds—a massive hydraulic piston cycling somewhere deep within the pylon wall, its motion so slow that it barely registers as a wave in the water, only a subtle pressure against the eardrums and a momentary shift in the alignment of the floating leaves.
+
+Nothing changes quickly here. The plants do not sway in currents, for there are no currents, only the infinitely slow convection of warm water rising toward the skylights and cooling slightly before sinking back down along the iron walls. A single brass gear, two meters across and buried in a tangle of aquatic ivy, turns one tooth every three hours. 
+
+You can look through three meters of liquid and ten meters of dense foliage to see a pressure gauge mounted on the far wall. Its glass face is spotlessly clean; its needle points steadily to a red line marked on a crisp white dial, held suspended in the warm, silent, bright green depth of the spire.

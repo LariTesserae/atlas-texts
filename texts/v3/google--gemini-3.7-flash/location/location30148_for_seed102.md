@@ -1,0 +1,19 @@
+Deep within an unyielding bed of dry shale and unhydrated basalt, there exists a sealed geode-chamber no larger than an ancient library reading room. It sits thousands of feet beneath any permeable soil, isolated from the water cycle entirely. The air here is anhydrous, composed of dense, warm nitrogen, vaporized sulfur traces, and a dry, powdery aerosol of fine glass dust. It is comfortably, stiflingly warm—a stable, ambient heat radiated from the surrounding mass of the planetary mantle, held in a perfect, unchanging thermal lock.
+
+The geology is young, fractured only recently in geological time. Razor-sharp cleavage planes slice across the walls; the floor is an uneven pavement of freshly broken chert and obsidian sheets whose edges could split a hair. There is no moisture to soften these margins, no frost-wedging, no chemical wash to dissolve the facets. Everything remains exactly as it shattered.
+
+Yet, despite the complete absence of liquid water, the chamber is lush with an alien, anhydrous botany. 
+
+Sprouting directly from the microscopic fissures in the obsidian are thick, spreading groves of silicate fronds and taut, hydrocarbon-based brush. These plants do not circulate sap; they are capillary engines of dry, combustible oils and dry-state mineral salts. They resemble ferns made of spun fiber-optic glass, fibrous asbestos-plumes, and layered scales of purple-tinged mica that catch what little light exists. They grow in distinct, widely spaced clusters, leaving wide swathes of clean, black, razor-edged stone between them. 
+
+The light is low and bruised. A faint, smoldering phosphorescence leaches from the undersides of the mica-fronds, where colonies of anaerobic, dry-chemistry microbes convert ambient lithic radiation into a dull amber glow. It is never bright enough to reveal the ceiling, only enough to cast long, hard-edged shadows across the floor.
+
+The stillness of the visual landscape is completely betrayed by the sound. The chamber is shockingly loud. 
+
+The warmth sets up micro-convection currents within the pocket, causing thousands of gossamer-fine glass filaments to vibrate against one another like the strings of an ungrounded, unstopped harpsichord. This creates a perpetual, deafening hum—a rich, multi-tonal acoustic drone that rattles the eardrums. Overlaid on this deep harmonic bed is the ceaseless, dry clatter of the local fauna. 
+
+Creeping along the obsidian shelves are small, multi-legged creatures with brittle, enameled carapaces like porcelain beetles. Lacking soft tissue, their bodies are constructed of articulated keratin and calcified plates; they feed by rasping the dry oil-fronds with serrated mandibles, producing a rhythmic, collective scritch-scratch that echoes sharply off the glass-like walls. When they move, their hard legs tick against the stone like needles dropped on a drumhead. 
+
+In the open clearings between the silicate groves are signs of deliberate, primitive habitation. They are modest, anciently preserved marks: shallow notches carved into the soft shale with harder quartz chisels, forming small, upright sleeping-niches tailored to curled, segmented bodies. Small piles of sorted mica flakes lie in neat, low rings—perhaps storage, perhaps simple boundaries. There are tools left beside some of the groves: handheld scrapers made of flaked volcanic glass bound to dry, stiffened reed-stalks with braided fiber thread. Everything is dry, clean, and unweathered. 
+
+Nothing changes here. There are no seasons, no drafts from the world above, no rot, no rust. The plants do not drop leaves; they crystallize them into perpetual structural integrity until an animal clips them down. The drone of the glass fibers does not alter pitch by a single hertz over centuries. It is an enduring, vibrant, deafening pocket of dry life, perpetually held in its first and final breath.

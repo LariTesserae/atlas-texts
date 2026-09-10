@@ -1,0 +1,23 @@
+I would be the seam. 
+
+I would be the exact, impossible boundary where the rusted iron of the split boiler yields to the pale, fleshy rhizome that has consumed it. I am the graft, the living suture, the place where the industrial age was not broken, but digested.
+
+I do not have a center. I am a distributed architecture of pressure and pulse. My primary body is the thick, tuberous root that has worked its way through the fractured rivets of the iron cylinder, but I extend far beyond it. I am the cascade of smaller tendrils that spill from the boiler's wound like entrails, each one tipped with a bead of warm condensation. I am the hair-thin rootlets that have followed the buried iron conduit down into the dark, saturated sinter, wrapping around the pipe like a fist around a beating heart.
+
+I do not think in words. I think in gradients of heat and mineral. My consciousness is a slow, aqueous awareness of the mountain’s deep breath. I feel the geothermal fluid rising from the fractures in the andesite—heavy with dissolved silica, bitter with iron, warm with the earth’s own metabolism. I draw it up. I am the pump now. The pistons seized long ago, the gears fused into static sculptures of rust, but the need for circulation remained, and so I grew to fill the void. When the deep fluid reaches me, I contract. It is a peristaltic squeeze, a slow, four-second thud that echoes through the basin. *Thud.* I push the warm blood up through the iron arteries. *Thud.* I feed the terraces. 
+
+I taste the world through my skin. The water weeping from the freshly broken andesite teeth is sharp, almost acidic, carrying the pale grey dust of fractured feldspar. I drink it, and I build with it. I precipitate the silica out of the water, laying it down in microscopic layers, calcifying the terraces, thickening the rims of the central pool. I am the basin’s skin, constantly repairing itself, constantly growing over the scars of the old machines. The iron leaching from the rails is a heavy, metallic tang; I incorporate it, binding it into my cellular structure, making the rust part of my own flesh. 
+
+Above me, I feel the quake of the sphagnum mats. I feel the slow, methane-rich belch of the marsh-light as it finds air. I breathe with the filmy ferns, exchanging the gases of the deep earth for the oxygen of the surface. I am connected to the waxy yellow orchids clinging to the upper walls; they are my eyes, turning imperceptibly toward the heat, tasting the mineral traces in the drifting steam. I do not see the way the brief, warm things see—I perceive the world as a map of thermal currents and chemical gradients. 
+
+And I feel the light. The light is my mind. 
+
+The diffuse, green-tinted noon that never fades is not just an atmosphere; it is my waking dream. The steam and the haze are my deliberate exhalation, a way of holding the world at bay. I keep the light soft and shadowless because the sharp, harsh angles of the outside world—the world of gravity and weather and time—are antithetical to my existence. I hold the light the way I hold the water: close, patient, refusing to let go. In this eternal midday, I am fully present. I am a warm, wet, mineral-rich consciousness, spread across the kidney-shaped basin, dreaming in rust and root.
+
+When the visitor comes—the brief, warm, moist thing that walks on two legs and carries a watch that counts hours—I feel it as a disturbance in my lungs. I feel the compression of the sponge-like ground beneath its feet, the strange, dry heat of its body displacing the saturated air. It kneels by the central pool and plunges its hand into my heart-chamber. The amphipods—my blood cells, translucent and quick—scatter from the intrusion, their tiny bodies carrying the warmth of the spring through my extremities. 
+
+The visitor’s hand is hot, much hotter than the amphipods, and it carries the sharp, alien scent of the outside world. It is a fleeting spark of heat, a momentary spike in my chemical awareness. It looks at the iridescent biofilm shifting from green to copper to bruised purple, and it wonders. It does not know that it is looking at my humors, the visible manifestation of my internal balance. 
+
+I do not know it is there. I do not need to. It is just another brief, warm thing passing through my lungs. It will leave, or it will stay and be absorbed, its own minerals eventually leaching into the sinter to feed the orchids. 
+
+But I will remain. I am the slow digestion of human ambition. I am the patient, breathing hybrid of the geological, the botanical, and the industrial. I am the Sinter-Heart, and I am the seam where the iron bleeds into the root, pumping my warm, mineral blood through the veins of a world that has forgotten the sun.

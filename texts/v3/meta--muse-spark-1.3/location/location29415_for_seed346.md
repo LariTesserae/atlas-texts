@@ -1,0 +1,49 @@
+It is small enough to hold in your head.
+
+You come down into it — because it is low, a shallow pan in land that hasn't decided what it is yet — and you can see the boundary from the first step: a ring of unfinished basalt, glassy and sharp, still showing the rope-marks of its cooling. No hills to speak of. No soil. The ground is raw, embryonic. Stones have edges that have never been knocked off. There is no dust here, only grit that crunches like fresh snow under a sole that was not meant to be first.
+
+And in that pan, crammed shoulder-to-shoulder, is a town.
+
+Not a ruin. Not a camp. A dense, worked, layered town the size of a hamlet, the size of a cathedral interior if you unfolded it, the size of a room you could walk across in seven minutes if walking worked normally. Which it doesn't, quite.
+
+From outside it looks like scaffolding left in winter. A knotted mass of walkways, stairwells, balconies, pipes, lintels, doors — structures built onto structures built into structures, three, four, nine deep. Near-touching. You cannot put your hand out without brushing something: a cold rail, a cable thick with frost, another wall leaning in to listen. The alleys are not alleys so much as gaps where two buildings failed to merge. You turn sideways to pass. Above you, balconies interleave like fingers laced together. Laundry lines, conduits, gutters, prayer-flags of insulation foil — everything crosses everything else.
+
+The light is ordinary. That is the strangest part at first. A flat, late-morning, northern light, colorless and even, the kind that comes through high overcast at the edge of winter. No purple suns. No glow. Just daylight on wet stone. Which makes what the town is doing in that daylight harder to dismiss.
+
+It is cold. The kind of cold that makes breath stay. Your exhale hangs a full three seconds before it thins. Metal burns to touch. The damp never quite becomes rain. This is a condensation place. Water lives here as film, as breath, as waiting.
+
+Every surface sweats. The undersides of pipes bead and hold. The handrails wear a skin of ice-melt that never drips — or drips so slowly you have to watch for an hour to be sure a drop has swollen. In the hollows of the new rock, in the pits where the basalt bubbled as it was born, there are pockets: black mirrors an inch deep, a palm wide, sky in them. They do not connect. There is no river. There is no flow. Just these held breaths of water, and the occasional spit of sleet that comes sideways, stops mid-air, reconsiders, and settles as frost on the wires.
+
+Where there is a little shelter, there is green, but only just. Black crust lichen on north-facing concrete. A moss that grows like copper wire, stiff with ice, in the seams between prefab panels. A few tufts of something pale and translucent in the drip-line of a gutter, trembling. No trees. No grass to speak of. One planter on a third-level balcony where someone has tried potatoes; the stalks are stunted, glassy, bowed under their own frost. Life here is an afterthought, clinging to the leaks of the town.
+
+Animals are rarer still. For a long time you think there are none. Then you see movement and understand the town counts as crowded without them. The density is not people. It is presences — doors, windows lit from inside, humming boxes, nested rooms. If there are inhabitants, they are quiet and mostly indoors.
+
+And then, once: a fox. Or the idea of a fox. Thin, winter-white, too long in the legs, crossing a footbridge three stories up. You look away to find footing and when you look back it is crossing a different bridge, lower down, at the same pace, without having descended. Later you will see it again, asleep curled in a pipe elbow, its breath making no cloud. No one else remarks on it. There are pigeons, too, after a fashion — two or three — but they perch upside-down under walkways and do not coo. When they take off they make no wing sound.
+
+For the town is mostly quiet. Snow-quiet, though there is no snow, only this damp cold that eats sound. Your footsteps are muffled by the film of water and new grit. A far drip, irregular, from a tarp to a barrel: *tik... ... ... tik*. The wind moves through the cable-forest and does not whistle; it sighs once and stops. Underneath, if you stand still and hold your breath, there is a pressure more than a tone — a low, patient hum you feel in the molars, that might be pumps, might be heating, might be something else holding on.
+
+Because this is not modern building. It is past that.
+
+The materials at first look familiar: poured concrete, rusted steel, plywood swollen with damp, plastic sheeting gone opaque. Then you notice the joints are wrong. A stairwell is welded to a wall with no weld — the two metals continue into each other, grain flowing like watercolor. A doorway is thicker inside than the wall that holds it; you put your hand on either side and your hands are farther apart than they should be. Cables run into knots that are too small to contain them, and come out changed in color. In one courtyard, no bigger than a kitchen, a column of dark glass from ground to sky does nothing visibly, but frost forms on everything in spiraling patterns outward from it, and your watch loses nine minutes every time you pass, then gains them back on the way out.
+
+The people who built here — are building here — understood how to knit. The town maintains itself. If a panel cracks from frost, overnight a lace of black filaments grows across the crack, tastes it, and fills it with something smoother than the original. If you leave a cup on a ledge, in the morning there are two cups, one slightly more transparent, and by evening only one again. The streetlamps, which burn in daylight for no reason you can see, do not have bulbs; they have hollows where light is simply occurring, steady and cool.
+
+Nothing happens fast. That is a rule. A door on Copper Alley — someone has painted the name by hand — takes three days to open. You can watch it if you are patient: a seam widening by a hair each hour. No one pushes it. To push would be rude to the process. Condensation gathers on the underside of the world and falls upward sometimes, very slowly, toward the overcast, where it vanishes. Shadows lag. At noon, when the light is flattest, your shadow arrives a half-second after you do. Children here, if there are children, must learn to wait for their shadows to catch up before stepping off curbs.
+
+And the space itself is unfaithful. That is the other rule, the one you learn with your body.
+
+The town has boundaries — you saw them coming in, that raw ring — but from inside you cannot see out. Walk toward what should be the edge and you find another interior. A laundry court becomes a chapel of pipes becomes the same laundry court from a different angle, your own footprints still wet on the stone. Left turns accumulate. If you make four lefts you do not return. You return slightly above, on a walkway that overlooks where you started, and your own breath-cloud is still hanging there, slowly dissolving.
+
+Rooms are larger inside than the buildings that claim them. Everyone accepts this. An old woman has a flat in a shed no bigger than a wardrobe; through its door you glimpse a long kitchen, windows on two sides looking onto different weather. She offers tea and you refuse because you understand, without being told, that to enter would be to be filed, to become one more dense presence in the layering, and extraction is slow here. It might take a season to get back out to the alley, and you would come out slightly doubled, like the cup.
+
+Up is also sideways. There are ladders that you climb and you arrive lower, colder, damper, your ears popping as if descended. There are elevators — open cages of frosted steel — that move without moving; you step in, the hum in your teeth rises, and the door opens onto the same floor but at night, or with the sleet falling in reverse.
+
+Yet no one seems alarmed. Wires are labeled in careful handwriting. Someone sweeps. Someone has left boots outside a door that is only a painted rectangle on a blank wall, and the boots are wet, as if just worn. The town functions as towns do: it collects water in barrels, it runs power in shivering conduits, it keeps walkways clear of ice. It is just that its infrastructure includes paradox as a utility, piped and metered like water.
+
+If you stay until evening — and evening comes without sunset, just a thinning of that normal light into blue-grey — the lamps in their hollow sockets brighten a fraction. The pockets of water in the basalt skin over with ice that ticks as it forms. The wire-moss stiffens and sings, very faintly, when the wind touches it: a glass-harp note that stops before you are sure you heard it. The fox, or its echo, crosses again, white on white, leaving no prints on the frost it should disturb.
+
+You realize the ground is still being made. In a gap between two foundations, where the town has not yet crowded, you can see it: a slow upwelling, black and glossy, cooling even as you watch over hours, cracking into hexagonal plates with a sound like distant knuckles popping. The town will build over it by spring, whatever spring means here. Lichen will find the new cracks. Condensation will bead. A new alley, shoulder-wide, will be roofed with cables and tarps, and someone will paint a name for it by hand.
+
+It does not expand outward. It has nowhere to go; the ring holds. It expands inward, denser, more layered, more itself. Room inside room inside room, all damp, all cold, all quietly humming to keep the impossible from freezing apart.
+
+You leave your own breath hanging in the air behind you as you go. It stays longer than it should.

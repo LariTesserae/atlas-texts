@@ -1,0 +1,17 @@
+Here at the crown of the world, the sea does not lie in a basin; it caps the peaks. 
+
+Miles above the lowlands, high mountain ridges thrust upward in violent, young geology—knifelike basalt crests, sheer terraces of unweathered obsidian, and jagged granite horns that have had no time to be ground down by ice or smoothed by rain. Yet there is no cold air here, nor snow. Instead, these alpine summits are drowned beneath a warm, crystalline mantle of suspended liquid, an elevated ocean that fills every valley and submerged pass with bath-warm, sun-saturated water.
+
+The light here is rich and untroubled. Brilliant sunshine penetrates deep into the submerged sky-valleys, refracting through the clear liquid to cast shimmering, amber-and-emerald caustics across the sharp black stone below. Because the rock is young, its edges are needle-point and razor-sharp, but almost every surface is buried under an immense, smothering volume of plant life. 
+
+The density of this underwater forest is suffocating and magnificent. Thick, muscular vines—translucent magenta and deep jade—coil tightly around the black volcanic spires, binding the raw rock like bandages. From every crack and fault line sprout dense, fan-shaped fronds the size of sails, swaying in currents so faint they are almost imperceptible. Massive, bulbous water-mosses, spongy and saturated, fill the narrow canyons between ridges, forming unbroken green carpets that stretch for miles across the high-altitude seabed. Where the light strikes directly, tiny oxygen bubbles bead along the leaf-margins like strands of mercury, shimmering in the golden sun shafts.
+
+It is a world built entirely of mineral, water, and leaf. There are no roads, no ruins, no mark of hands or tools; even the rock itself feels unvisited, forged recently in thermal fires and immediately wrapped in living tissue.
+
+Animal life is strangely absent. Occasionally, a cluster of microscopic, glass-shelled drifting pods will float through a sunbeam, or a single ribbon-like organism, pale and eye-less, will trail lazily from the tip of a giant kelp-stem, moving with agonizing slowness. But there are no shoals of fish, no swimming leviathans, no darting hunters. The ecosystem does not depend on flesh; it is an engine of pure photosynthesizing biomass, quiet and self-contained.
+
+The silence is profound. The warm water acts as a heavy acoustic blanket, muffling sound until the world feels insulated from time itself. There is no roar of surf, no crash of waves—only a faint, low-frequency hum that seems to vibrate directly through the stone, the deep resonance of thermal vents far below the root systems. Once in a long while, the tiny *clink* of a stress-fracture in the young basalt will travel miles through the liquid, sharp and clear, followed instantly by the returning hush.
+
+Everything here moves at a patient, botanical pace. The currents do not surge; they drift in slow, continental loops driven by gentle subterranean heat. A single leaf takes hours to turn toward the sun; a floating spore-cluster hangs motionless in the warm, bright water for days before settling into a cleft of obsidian. 
+
+Looking out across the submerged landscape, the horizon stretches away in a series of glowing, underwater mountain ranges. Crest after crest rises into the clear, sunlit warm depth, their sharp peaks softened only by the thick, velvety mantle of green, untamed life floating silently in the high ocean.

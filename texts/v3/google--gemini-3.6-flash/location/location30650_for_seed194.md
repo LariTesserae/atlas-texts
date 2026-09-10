@@ -1,0 +1,27 @@
+There is no light here. Not a spark, not a seam of bioluminescence, not the faint purple rot of deep-cave fungi. The darkness is absolute, pressuring the eyeballs with an unvarying, velvet blackness. 
+
+Yet the space is far from silent. It roars.
+
+The sound is immense, a low, oceanic thunder that never stops. It is not the sound of water or wind, for there is no liquid here, and the cool, dry air is almost entirely still. It is the acoustic resonance of the chamber itself—a vast, hollow instrument carved from ancient, desiccated plant tissue. Miles above or miles away, the faint, microscopic grinding of continental plates travels through the earth, meets this buried pocket, and is amplified by millions of dry, fibrous channels into a deafening, bass-heavy hum that vibrates directly in the teeth and sternum.
+
+This place is a seed-vault, or a root-knot, or the petrified heart-chamber of a flora that died before the continents settled into their present shapes. It lies low in the strata, trapped beneath layers of dead shale, a single contained pocket no more than a few hundred yards across, yet entirely empty at its center.
+
+The world here is made of only one substance: wood. Not living, green timber, but a bone-dry, silica-infused lignite—petrified cork, fibrous bark, and dense heartwood that has long since shed every drop of moisture. It is a pure-plant universe, completely devoid of stone or soil. The floor underfoot is a sweep of polished growth rings, each ring the width of a highway, worn smooth by eons of drifting micro-dust. The ceiling, invisible in the pitch, arches overhead in a massive, fibrous dome.
+
+Clinging to the inner curve of this cavernous wooden shell is a city.
+
+It is a settlement built at the scale of an urban center, but its density is strangely inverted. The center of the pocket is a vast, open void—a quarter-mile of cool, dark nothingness. The city exists only as a thin, complex crust scraped into the perimeter walls, rising tier upon tier toward the ceiling. 
+
+There are thousands of structures, but they are empty. They were not built with steel or mortar, nor were they grown by advanced biological magic. They were carved by hand, using the simplest tools—flint adzes, scraper-stones, and hardened wooden wedges. You can feel the tool-marks under your fingers: small, rhythmic gouges in the dry pith, millions of them, stretching up into the dark.
+
+The architecture is entirely acoustic and tactile, designed by and for a population that inhabited total night. Streets are not paved pathways; they are deep, resonant grooves cut into the heartwood that guide the feet and bounce sound in specific directions. Dwellings are honeycomb cells hollowed out of the fibrous layers, their doorways framed by intricately woven, dry-bark rope. Long, narrow aqueducts crisscross the city's facades—not for water, but built as hollow speaking-tubes, carrying whispers across the entire diameter of the pocket through the dry resonance of the wood.
+
+Nothing moves. There are no insects in the fiber, no dry-rot beetles, no rats, no spores floating on damp air. The atmosphere is cold, crisp, and smells faintly of old starch, cold spice, and ancient burnt carbon. 
+
+The vegetation here is not dead, though it contains no sap. It exists in a state of eternal, dry suspended animation—a non-aqueous ecology that feeds on dry atmospheric nitrogen and ambient mineral dust. Wall-vines made of brittle, chitinous cork crawl across the carved doorframes, their growth so slow that a single frond takes three centuries to unfurl a fraction of an inch. Beneath the streets, microscopic networks of glass-brittle, dry-root filaments slowly knit the carved structures back into the solid wood, steadily erasing the handiwork of the builders over tens of thousands of years.
+
+Erosion here is not a matter of rain or rushing rivers, but of endless, patient time. The edges of every carved staircase have been rounded down until they resemble smooth waves of dark horn. The lintels of the doorways are polished where millions of hands once brushed against them, though those hands have been gone so long that even their dust has settled into the deep, quiet cracks between the growth rings.
+
+To stand on one of the high, carved balconies is to loom over a abyss of pure, dry air. You cannot see the city below you, or the ceiling above, or the opposite side of the vault. But you can feel it through the sound. The roaring hum of the earth hits the curved wooden walls, bounces through the empty dwellings, travels along the carved sound-tubes, and creates a complex, three-dimensional map of acoustic standing waves. By listening to the pitch of the thunder, you can hear the shape of the empty streets, the height of the dry towers, and the vast, hollow void sitting quietly at the center of the world.
+
+Nothing is happening here, yet the landscape is slowly, imperceptibly settling. Every few decades, a shift in the temperature by half a degree causes a mile-long band of dry heartwood to contract. When it does, a sound like a cathedral-sized bell cracking echoes through the darkness—a single, dry *boom* that rings for hours through the empty city, before the dark returns to its slow, deafening, eternal hum.

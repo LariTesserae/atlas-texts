@@ -1,0 +1,27 @@
+The basin is no larger than a district of seven or eight city blocks, dropped like a broken seal into a cold sag between knife-edged basalt scarps. Its boundaries are absolute: sheer walls of dark, unweathered stone rise on all sides, untouched by rain or frost, retaining the sharp, vitreous facets of their original fracture. No water has ever run down these cliffs. The air is cool and thin, carrying the dry, metallic tang of cold zinc and crushed slate.
+
+At the floor of this small depression stands what appears at first glance to be a ruined or abandoned city. The density of its construction is astonishingly high—layered, piled, crisscrossed by elevated Causeways, narrow blind alleys, and stacked cellular chambers that rise twenty stories high in tight, geometric clusters. Yet there is no mark of the chisel, no mortar, no beam, no metal fitting, and no sign that a tool has ever been swung here. 
+
+The architecture is self-generated. It is a mineral deposit of unprecedented discipline, extruded directly from the cold dry basin floor by a slow, non-aqueous chemical breath. 
+
+Great rectangular pylons, hollow as elevator shafts and edged like fresh obsidian, push upward through the gloom. Between them, paper-thin sheets of pale, translucent selenite span the voids, creating covered thoroughfares, subterranean plazas, and tiered balconies that look down into silent light-wells. The shapes are stubbornly urban: there are grand avenues that narrow into claustrophobic stairwells, overhanging tenement-like grids of hexagonal cells, and open, amphitheater-like depressions lined with sharp, bench-like steps. Everything is crisp-edged and undamaged by time; the geometry is so fresh that the corners of the buildings can slice skin.
+
+Despite the structural complexity, the place is almost completely empty. 
+
+Space predominates over matter. The towers are hollow skins; the streets lead to vast, quiet chambers where nothing sits. The scale is intimate—a walk from the eastern cliff wall to the western edge takes less than ten minutes—but the vertical layering gives the impression of a deep, uninhabited labyrinth. The light is dim and sour, filtered through a permanent ceiling of dry, stationary haze that hangs just below the lip of the surrounding cliffs, casting no shadows and smoothing the grey-white stone into a uniform, leaden monochrome.
+
+There is no sound. The silence is thick, dry, and absolute. Even the active processes of the place proceed without audible sound.
+
+And the place is intensely active. 
+
+Though there are no winds and no liquid drops, the environment is in constant, systemic motion. The cold mineral structure grows, sheds, and reconfigures itself at a visible, deliberate pace. From the faces of the stone towers, thin needles of chalk-white calcite slowly extend into the air, creeping forward by centimeters an hour until they meet an opposing wall and form a new, bridging lintel. Elsewhere, under the pressure of internal subterranean gas-jets that release no moisture, entire wall-sections crack along microscopic fault lines and slide sideways with a smooth, silent friction, altering the street grid from one cycle to the next.
+
+A fine, velvet-like dust—pure dry graphite and pulverized bismuth—flows down the inclined alleys like a liquid, pooling in dark, mirror-smooth basins before being drawn back down through porous floor-grates by thermal suction. It creates the illusion of rivers and fountains, but it is bone-dry; a handful dropped from a balcony falls like soot, without a whisper.
+
+Ecology here is scarce, specialized, and dry. 
+
+Vegetation exists as hair-like filaments of flexible glass, rooted in the sharp seams where the buildings meet the floor. These pale, wire-like tufts do not seek light; they bend toward the cold gas vents in the alleyways, trembling silently as they absorb invisible vaporized sulfur and heavy metals from the earth's crust. They bear no leaves or blooms, only tiny, hard knots of dark resin that occasionally snap open with a faint, imperceptible shudder to drop dry, powder-like spores into the graphite currents.
+
+Fauna is rarer still. Every few hours, a pale, multi-jointed creature—no larger than a fox, with a body like segmented horn and pads of soft, dry felt under its limbs—emerges from the deep lower cells. It moves with a eerie, frictionless grace across the razor-sharp lintels, completely noiseless. It does not drink; it does not breathe air in the human sense. It grazes by pressing its lower mouthparts against the fresh, mineral-rich extrusions of the growing walls, scraping away the softest, newest crystals before retreating back into the dark interior of the city-lattice.
+
+To stand in the central plaza of this place is to feel surrounded by an immense civilization that never contained a single citizen. The layered streets, the soaring arcades, the balconies overlooking empty courtyards—they have the form of an ancient, hyper-dense metropolis, but the origin of a coral reef and the temperature of a cellar. The architecture expands and adjusts itself continually around you: a wall to your left imperceptibly thickens; a dark archway across the plaza narrows as new white needles meet in the middle; a silent current of black dust turns a corner and disappears down a stairwell that did not exist yesterday.

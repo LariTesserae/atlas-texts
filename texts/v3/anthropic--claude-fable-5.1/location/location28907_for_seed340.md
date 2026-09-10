@@ -1,0 +1,79 @@
+You hear it before you see it, and you hear it for a long time. The way in is a slot in dry country, a crack in a pan of cracked yellow mineral where nothing has grown for as long as the surface has had a surface, and from the slot comes a noise like a river that has never been a river — a grinding, ticking, seething roar that has no low frequency to anchor it and no pauses to shape it. It fills your chest cavity. By the time you have climbed down far enough for the light to change, you have stopped being able to hear your own footsteps, and you have stopped trying.
+
+The slot opens into a space the size of a valley. It is a valley, in the sense that it has two long walls and a floor that runs away from you toward a distant closure you cannot make out. But it is a valley with a lid. Above you, perhaps two hundred metres up, perhaps more, the underside of the ground is a ceiling of pale fused crust, and the light comes through it — not as a glow, but as ordinary daylight, slightly yellowed, slightly milky, arriving evenly from everywhere the way light arrives on an overcast afternoon. The crust up there is thin and glassy and full of the same fibrous mineral as the floor, and it pipes the sun down. You can see the shadows of surface stones as dark blotches in it, like leaves pressed under ice. Occasionally a blotch moves. Something is walking up there, on the dead pan, on the roof of all this.
+
+And all this is plant.
+
+Not plants. Plant. There is no soil in the valley, no rock floor you could stand on, no bare wall. Everything from the base of the crust to whatever depth the cavity goes is a single continuous mass of growth, pale gold and amber and the colour of old horn, and it is all one thing, and it is not finished. It is still coming out. That is what the roar is. That is what the turbulence is. You are standing in a germination that has been going on for longer than there have been people to stand in it, and it has not yet decided what it will be.
+
+---
+
+The tissue underfoot is warm, warmer than the air, and the air is warm, a close dry heat like the inside of a bakery after the ovens have been shut. There is no water in it. There has never been water in it. Whatever this organism runs on, it does not run on water, and you notice this first in your own body — the way the heat does not raise sweat but instead dries your lips to paper within minutes, the way the dust in the air sticks to nothing, hangs, and falls in slow gold sheets that do not clump.
+
+The dust is pollen, or something like pollen. It is the plant's weather. It comes off the emerging growth in bursts, when a new stalk splits its sheath or a pod that has been swelling for an hour finally gives, and it drifts across the valley in visible fronts, catching the ceiling-light, so that the far end is always seen through a moving haze of gold and is never quite the same shape twice.
+
+What the plant runs on instead of water is heat and oil. Break a stalk — you can, with a stone; the outer skin is a dry brittle bark like the shell of a seed — and what comes out is not sap but a thick clear resin, hot to the touch, smelling of pine and burnt sugar and something mineral underneath, that hardens in the air within a breath into a glassy bead. The whole organism is plumbed with this. You can see it moving in the larger stems where the bark has not yet thickened: slow amber pulses, travelling up from below. Below is where the heat is. The valley floor, if there is a floor, is somewhere down in the rock where the ground is hot enough to cook, and the plant has its roots in that — not drinking, but warming, drawing heat up through itself as a tree draws water, and turning it, through a chemistry nobody here understands, into growth.
+
+The growth is fast. That is the second thing you notice, after the noise. Fast enough to watch. A shoot the thickness of your wrist, the colour of raw ivory, pushes out of a fold in the mass beside you and rises the length of your forearm while you watch it, its tip splitting and re-splitting into a fan of stiff blades that unfold with a series of sharp cracks like knuckles. Within a quarter of an hour it is head-high. Within an hour its bark will have gone from ivory to amber to brown and it will be hard enough to lean on. Within a day it may be gone, subsumed into a swelling of the main mass, or split by the thing rising under it, or eaten.
+
+Because the third thing you notice, once your eyes adjust to the fact that the whole landscape is faintly, everywhere, moving, is that a great deal of the movement is not the plant.
+
+---
+
+The animals are on everything. They are in everything. There is no surface in the valley that does not have them, and there is no volume of air that does not have them passing through it. The word that comes to mind is *infestation*, and then you set it aside, because that word implies a host that would be better off without, and it is not clear this is true. The plant grows; the animals eat it; the plant grows faster where it is eaten. They are its pruning, its motion, its circulation. They may be its idea.
+
+Mostly they are small. Mostly they are the size of a thumb-joint, or a thumb, or a hand, and there are so many of them that when you look at the wall of a large stem from a few metres away the wall seems to be crawling, seething, a bark made of backs. They are the colour of the plant, gold and amber and horn, and many of them are built along the same lines — plated, segmented, dry — as though the plant had made them out of itself, as though a stalk that was going to be a stalk had at some point decided instead to be a thousand things that walk. Perhaps that is what happened. Nobody here can tell you.
+
+They eat continuously. This is most of the noise. Ten million small hard mouths working on hard dry tissue produce a sound not unlike sand pouring over stone, and it is the ground layer of everything you hear, the drone under the roar. On top of it are the wings. A large fraction of the animals fly, in short blundering hops or long looping passages down the valley, and their wings are stiff and dry like the plant's blades and produce a rattling, clattering buzz, and there are enough of them airborne at any moment that the air itself seems to be vibrating, and you can feel it on your face like a wind that does not move. On top of that, the plant: the cracks and pops and creaks and reports of growth, of splitting sheaths, of bark tightening around swelling cores, of pods letting go. Some of the pods are the size of a person and when they open the sound is a gunshot, and there is one somewhere in the valley every few seconds.
+
+There are larger animals. You see them by their effect before you see them: a region of the seething wall where the seething is displaced, a wave in the small things as something moves under or through them. Then a shape — long, low, many-legged, plated in overlapping amber shields, a head that is mostly mouth — sliding along a stem at the pace of a walking person, leaving a trench of pale fresh tissue behind it where the bark has been sheared off. It is the length of a boat. It is one of dozens you will see. It does not notice you. Nothing here notices you. You are neither plant nor animal of the plant and so you are, to the valley, a kind of hole.
+
+And there are things that are larger still, and about those it is harder to say. Down the valley, in the gold haze, there are movements in the main mass that do not read as growth — a heave, a long shudder that travels along a ridge of tissue like something turning over underneath it. Whether that is the plant, or something inside the plant, or the boundary between those two ideas failing, you cannot tell from here, and getting closer does not help. Up close there is only bark and backs.
+
+---
+
+The floor is not to be trusted. This is the rule the valley teaches first and most insistently.
+
+Where you stand is a shelf of hardened growth, brown and creaking, that was probably a shoot the day before yesterday. It is holding you. It may not hold you in an hour. Underneath it, something is rising — you can feel it as a slow warm pressure through your soles, and see it in the way the shelf's surface has begun to dome and craze — and when it comes through, the shelf will split along the crazing and the halves will tilt and shed you. Nothing here is level for long. The mass rises unevenly; ridges swell and subside; a stem you climbed will be leaning at a new angle by the time you come down, and the gully you came up may have closed.
+
+It is not violent, exactly. It is not a storm. It is more like standing on the surface of something very large that is breathing irregularly and has never once been still. The far end of the valley is a different shape every time you look at it, not because it has moved but because everything between you and it has rearranged. Ridges become walls become terraces become nothing. Deep folds open in the mass with a sound like tearing cloth amplified past bearing, and warm air rushes up out of them carrying a stronger version of the resin smell and a dusting of finer, whiter pollen from whatever is growing in the dark below, and the animals pour down into them in cataracts, and an hour later the fold has swallowed itself and is a ridge.
+
+It is not destruction and it is not construction. The plant is doing something that does not have a name in a world where things get finished. It is an embryo the size of a valley, and embryos do not build; they *differentiate*, they try forms and revoke them, they are all potential all the time. The cavity under the crust is not a cave the plant has grown into. It is the space the plant has made by growing, pushing the roof up, and the roof is not done rising either. There are places along the ceiling where the crust is domed and thin enough to see daylight properly through it, and places where it has split and daylight comes in a hard white blade and new tissue is already climbing toward the crack.
+
+---
+
+People come here. Not many, not for long, but they come, and they leave marks, and the marks are the only stillness in the valley — or the only things that were once still.
+
+You find the first one on a stem so old it has gone black and stopped growing: a set of parallel scores cut into the bark with a stone edge, at chest height, deep enough that the plant has healed around them in ridges of amber. The scores were made straight. They are no longer straight; the stem has twisted a quarter turn since, and the marks spiral gently around it. Someone was counting something. Or claiming something. Or leaving a way back.
+
+Further in, a platform: six poles of dried stalk lashed together with cord twisted from the stringy inner fibre of the same stalk, laid across a fork where two ridges met. It was flat when it was built. Now one ridge has risen a metre and a half above the other and the platform hangs tilted like a shelf in a sinking room, and one of the poles has been swallowed to half its length by new growth that has come up around it and hardened. On the platform, under a drift of pollen, there is a bowl. It is not a made bowl. It is a pod-husk, one of the large ones, cut in half with something sharp and scraped smooth inside, and in the bottom of it there is a hardened puddle of resin with the impression of fingers in it. Somebody collected the plant's blood. To burn, probably. It burns beautifully, you find, when you try a bead of it with a spark from two stones — a clear steady flame, almost smokeless, with the pine-and-sugar smell — and the people who come here must have known this for a very long time.
+
+That is what they come for, you decide. Not to live. Nobody could live in this noise, in this heat, on a floor that revokes itself. They come down the slot with baskets and stone knives and they cut resin and fibre and the hard dry blades that can be lashed into tools, and they eat the small animals, which are easy to catch and taste — you do not try this — of whatever the plant tastes of, and they go back up into the dead country where the silence must feel like a physical blow, and they tell whoever they tell that the ground is alive underneath and that it is growing toward them.
+
+There are more marks the deeper you go, and they get older. Cords still tied around stems that have grown to ten times their girth, so that the cord is now a thin bright line sunk in a groove of bark. A stone axe-head, the haft long gone, embedded to its edge in a wall of tissue that came up around it and closed. A ring of hand-sized pod-husks set into a ledge, weighted with resin, arranged deliberately, meaning nothing you can read. A shape scored into a broad flat frond that has since gone rigid and curled, so that the drawing — it might have been an animal, it might have been one of the boat-length shearing things — is now inside a tube and you can only see it by putting your eye to the end.
+
+Each of these things was placed on a surface that was stable when it was placed. Each has been carried somewhere by the rising. Together they are a record, if you could read it, of where the floor has been.
+
+---
+
+There are rules. You work them out slowly, because the noise makes thinking slow.
+
+Nothing here is wet and nothing here will be. If you cut yourself, the blood dries on your skin in seconds and the pollen sticks to it and you look, briefly, as though you are becoming part of the valley.
+
+Everything that is soft will be hard within a day, and everything that is hard will be gone within a season, and nothing has ever been in its final form.
+
+The animals are not separate from the plant and they are not the same as it, and the valley does not care which side of that line you draw. They emerge, sometimes, from pods — you see this, a large husk splitting along its seam and something plated and many-legged unfolding out of it and standing up shaking in the pollen — and the plant grows fastest where they eat it, and their dead, when you find them, are already half bark.
+
+The light comes from above through the dead country, and the heat comes from below through the rock, and the plant lives in the gap between them and has made the gap by living there.
+
+And the sound never stops. This is the rule you understand last and never fully. Every other rule can be watched; this one can only be endured. It has no pattern to learn, no rhythm to fall into, no quiet to wait for. It is the sound of a very large thing being made out of nothing but heat and its own tissue, at speed, forever, and of everything that lives on it eating it as fast as it can, and the two processes are so evenly matched that the valley is never larger and never smaller and never once the same.
+
+---
+
+You climb out the way you came in, or the way that is now where you came in, and the slot is narrower than it was — a new ridge has come up on one side and the daylight through the crust above is more direct, harder, because the roof has thinned — and you squeeze up through it into the dead yellow pan with pollen in your hair and resin on your hands and the noise still in your body.
+
+On the surface there is nothing. Flat mineral, cracked, the colour of old bone, running to the horizon under a white sky. No wind. No sound at all, and the absence of sound is a pressure too, a vacuum in the ears, and it takes a long time to stop hearing the roar continue underneath it.
+
+You put your hand flat on the ground. It is warm. Warmer than the sun could make it.
+
+Somewhere a few metres beneath your palm, something is rising, and the ground is very slightly domed, and there is a crazing of fine cracks around your fingers that you are fairly sure was not there when you knelt.

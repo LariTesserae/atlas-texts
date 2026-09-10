@@ -1,0 +1,69 @@
+Say frog, then, since the valley says it.
+
+But say it properly. Not the frog as a class, the frog as a kind of noise-producing gravel underfoot, but one of them: a frog the size of the last joint of your thumb, brown in a way that is really black in this light, sitting in the axil of a tree-fern frond forty feet up with its throat swelled to a pale blister. It hatched in the black pond at the bottom of the nearest collapse pit some weeks ago, one of a jelly of thousands laid in a single night onto a raft of its parents' dead. It has never seen the sun. It does not know there is such a thing. It knows warmth from below and wet from all sides and a roar it has lived inside since before it had ears, and it takes the roar for silence, the way you take your own blood for silence. It has climbed the fern because the fern is there. It is calling because the others are calling. If it stopped it would hear something, and nothing here has ever heard anything, and it does not stop.
+
+The ponds have their own pitches because each pond is a family. The frogs in a pit are the children of the frogs in that pit, back to the season the roof fell in, and each pit's chorus has drifted a little from the others', the way the speech of a village drifts. Cross the valley floor and you are crossing dialects. The frogs know their own pond by its sound and go back to it to breed, and so the dialects deepen, and in another hundred seasons — if the pits last, which they will not — there would be a different frog in every hole. There will not be. The roof of the pit will fail further, or the pond will drain through a new crack, or the lava will come back. But for now the valley is a hundred small nations of frog, each one certain it is the world.
+
+They eat what falls. That is the whole economy of the floor. Bats drop things, birds drop things, the canopy sheds beetles at a rate you could set a clock by, and the frogs sit with their mouths at the angle the falling takes and wait. They are almost never hungry. They are almost never anything but wet, warm, loud, and breeding. When they die they die in heaps at the pond edges, and the heaps become the red paste in the cracks, and the ginger comes up out of it with its rotten-meat flowers, and the beetles come to the flowers, and the beetles fall.
+
+---
+
+The ants are the only thing here that makes light, and they do not make it. They carry it.
+
+Somewhere in the lava tubes there is a fungus that glows, faintly and blue, a thing that grows on bat dung in the perfect dark and needs no eye to see it. The ants have found it. They farm it, if that is the word — they carry pieces of it up out of the tubes and along the lava and into the rotting fern-heaps and set it down and tend it there, and it grows for them, and they eat it, and they carry more. The lines of them across the black crust are lit by their cargo. From the lip of the valley, when the mist thins, you can see them: threads of dim blue laid over the dark, branching, rejoining, a slow map of everything the ants have decided is worth walking to.
+
+They are the closest thing the valley has to a road. Everything else here moves by accident.
+
+---
+
+The bats live in the tubes and have lived there longest, which is to say for the whole short life of the place. They were the first things in. Before the ferns, before the frogs, when the rock was still too hot to touch in daylight and the tubes were the only shade, the bats came down out of the cloud and went into the holes and hung there, and that night they came out and found nothing to eat and went farther, and came back. They have been coming back since.
+
+What the bats have made, without knowing it, is the ground. Under their roosts the tube floors are deep in dung, yards of it in the oldest chambers, warm, working, alive with mites and beetle larvae and the blue fungus and things without names. It is the only soil in the valley that deserves the name. It is where the ants got the light from. It is where the first ferns rooted, in the mouths of the tubes where the dung had washed out onto the rock, and from there they went up and out and made the roof under which everything else could happen. The bats did this by eating moths and shitting. They have no more idea of it than the moths do.
+
+At dusk — you take it on faith that there is a dusk — they come out. The rope of them pays out of the tube mouths for twenty minutes and unravels into the canopy, and for the rest of the night the second ground overhead is full of them, and the frogs sit under it with their mouths open.
+
+---
+
+There is a snake on the lip of the fourth collapse pit down from the north end. It has been there for three nights. It is as thick as your thigh and pale under its mud, and it is covered in frogs, and it is not eating them.
+
+Stay and it comes clear. The snake is lying along a crack that breathes. The heat comes up through the fissure and the snake has arranged its whole length over it, coil on coil, and lies there taking the warmth in through its belly, and the frogs have found that the snake is the warmest thing in the neighborhood and have climbed onto it. Dozens of them. They sit on its back with their throats blown out, calling, and the snake lets them. It could eat them and does not. It is not hungry, or it is too content to be hungry, or there is a rule — the valley has almost no rules — that says a thing lying over the breath of the mountain is not to be disturbed and is not to disturb. Whatever it is, it holds. The snake has become a hillside, a warm place with its own chorus, and when it finally moves on, the frogs will fall off it in a scatter and go looking for the next warm thing, and there will be one.
+
+---
+
+The crabs come up out of the lower pits in columns. They are land crabs, purple-black, the width of a hand, and they go up the tree ferns at night in numbers that make the trunks look as if they were wearing armor that moved. They are going up for the fruit and the spores and the frogs, and they come down again before whatever passes for morning, and in between they molt.
+
+You find the shells. Empty, perfect, split along the back, hanging in the fronds or fallen onto the glass, each one the exact shape of a crab with nothing inside it. The valley is full of these. They are the only durable things here, the only things that hold their form after the life has gone out of them, and they last a season before the beetles and the wet take them. For that season the ferns are hung with ghosts.
+
+The gray-heads know when the crabs are coming. You can tell because the clicking starts before the columns do.
+
+---
+
+And so the gray-heads, because you have been circling them.
+
+They are heavy birds, bigger than crows, with a crest of ragged feathers that stands up when they are working and lies flat when they are not. Their eyes are large and set forward more than a crow's and they see in this light the way you see at dusk — shapes, edges, motion, enough. They roost in the fern crowns and on the ledges of the collapse pits, and they nest — they must nest — in the hollows where the oldest fern trunks have rotted through, and the chicks in those hollows are fed on crab from the first day, crab opened for them by a parent's edge.
+
+Here is how one of them works. She comes down to the lip of a pit where the crust has broken clean and the black glass lies in flakes. She does not take the first flake. She turns them with her beak — you can hear the small tick of glass on glass — and she is looking for something, and it is not size, because she rejects large ones, and it is not shape exactly, because she takes crooked ones. It is the edge. She is looking for an edge that is thin and long and has not been dulled by anything, and in a valley where nothing has ever rubbed against anything, there are many, and she is still particular. She turns a flake, drops it. Turns another, holds it, tilts her head as if to catch the light along the edge, though there is no light. Keeps it.
+
+Then up the fern. The crabs are coming and she waits on a frond above the column, and when one passes below she drops onto it and pins it with a foot, and with the flake held in her beak she finds the seam where the carapace meets the body, and drives the edge in, and levers. The shell lifts. She eats. When the flake breaks — they break often; glass is glass — she drops the pieces and goes down for another.
+
+There are hundreds of them at it on a crab night. The clicking under the roar is the sound of a hundred small knappings. It is the only sound in the valley that has the quality of intention, and if you did not know what it was, it would frighten you more than anything else here.
+
+The young learn by watching. You can see them do it: fledged gray-heads sitting a frond over from a working adult, heads cocked, following the beak. They try. They pick up flakes with no edge and jab at crabs and fail and drop the flakes and try again. Nobody teaches them, in the sense of correcting or guiding. The adults simply work in front of them, and the young simply watch, and after a season the young are selecting for the edge without ever having been told what an edge is. It is not culture. It is not quite not culture. It is the thing culture would be if nothing were ever kept.
+
+Because nothing is kept. That is the part you keep coming back to. A gray-head that has found a perfect flake, thin and long and true, will use it until it breaks or the crab is open, and then she will drop it. She does not tuck it into the roost. She does not set it down carefully where she can find it. She lets go and it falls, and in the morning it lies on the glass among a hundred others like it, and she comes down and chooses again, from scratch, as if she had never held one. She could carry it home. She has the beak for it and the wit for it and she does not. There is no home in that sense. There is only the fern she is in tonight and the pit she is nearest and the crabs, and after the crabs, the frogs again.
+
+One of them is older than the rest, or looks it — the crest is thinner and the upper beak has a chip out of it that makes her hold her head a little sideways when she works. She is better at it than any of the others. Whether the chip made her better or being better broke the beak, there is no way to know. She rejects more flakes than she takes. When she takes one, the crab opens on the first try more often than not. The young gather nearer to her than to the others, and she does not seem to notice them, and they learn faster for it. When she dies her body will go into the paste like everything else, and the chip in the beak will go with it, and there will be nothing on the lava the next night to say that a particular way of holding the head ever existed.
+
+---
+
+The grunting thing you never see well. It comes through the frog-heaps at the pond edges rooting, a low dark shape with a snout, and it is not a pig, and it may not be any one thing — there may be several, or a pair, or one that moves fast. It eats frogs by the mouthful and eats the paste, and it goes down into the lower pits where the water is and wallows in the warm with a sound like a bellows. It is the only thing here big enough to be alone. Everything else is a swarm or a colony or a chorus, and this one moves through them singly, and grunts to itself, and is answered by nothing. When you are close to it, the frogs around it go quiet in a ring, and then the ring closes behind it as it passes, and the noise is whole again.
+
+---
+
+So that is who lives here. A hundred nations of frog, each loud enough to fill a world. Ants carrying the only light. Bats that made the soil by accident and roost in what they made. A snake that is a hillside. Crabs that leave their shapes behind them. A bird that has found the edge and will not keep it. A thing in the dark that is by itself.
+
+None of them will be here long, because here will not be here long. The ground is warm from below and the pits are still opening and the trees fall four and five a night. Whatever lives in this valley is living in the interval between one pouring of rock and the next, and everything about them says so: the speed of it, the numbers, the refusal to build or hoard or settle. They are the residents of a between-time. They have not agreed on anything, not who eats whom, not how many of each there should be, not what the place is for. The frogs are a flood and the crabs are a flood and the gray-heads are a flood behind them, and the floods do not balance, they only follow, and the valley is simply the channel they are all pouring through at once, roaring.
+
+And yet they live here. That is the thing to hold. Not visit, not pass through: live. The old gray-head knows the lip of the fourth pit the way you know the drawer where you keep the knives. The frogs know their pond by its pitch and go back to it in the dark from anywhere. The bats have hung in the same tubes since the rock was hot. This is home for all of it, briefly and entirely, and the brevity does not seem to make it less. When the rock does come back — and it will, up through the same cracks the snake lies over — it will cover a place that was, for a few hundred seasons, more fully inhabited than most places are in ten thousand years.
+
+You would want to leave something. Everyone who comes here does, for a moment, before the glass and the noise and the smell make the thought absurd. A mark on a fern. A stone set on a stone. Something to say that a mind stood here and saw. And then you look at the gray-head with the chipped beak, turning a flake in the dark, choosing, using, letting go, and you understand that the valley has already answered that. This is what a mind does here. It picks up the edge, and it does the work, and it drops the edge, and it goes back up into the noise.

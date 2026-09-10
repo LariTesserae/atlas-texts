@@ -1,0 +1,71 @@
+Begin with what it does first, because it does this for longest, and because it is the thing everyone leaves out when they imagine power arriving anywhere: it waits.
+
+It comes without weather. Nothing on the surface marks it — the rain does not thicken, the petals do not scatter, the gray does not change its gray. If the counters saw anything, it was a figure standing at the lee edge of the platform who had not been there on the last beat and was there on this one, and who did not stagger when the thud came up through the lashed stems into the feet. That is all. It does not announce itself. It has learned, in other places, that announcement is a kind of taking, and it has not yet decided whether anything here is its to take.
+
+So it counts. It sits on the platform through what would be a season elsewhere, and it learns eleven seconds the way the children learn it, from the bones outward. It learns the rest in the songs and stops hearing it as a fault. It swims the floor and reads the gray lines under the skin, the old writing of seam-things taken back, and it does not ask whether the floor keeps them on purpose, because it has been here long enough to feel the question dissolve. It goes to the vents and lets a hanger drift backward against its palm on the slack and forward again on the draw, and it does not lift the hanger away, because it already knows where the hanger would go. It stands in the open plain with the fish and watches them freeze and watches them not fall. It puts its hand on the tissue in the second before the beat and tastes metal.
+
+It asks the counters what the pump is for and receives the shrug, and it stays, and one gray afternoon it receives the thing behind the shrug. *It is for us to hear.* It does not correct this. It writes nothing down. It notes, quietly, the shape of the belief: that a thing with no edge needs one place where it can know it is going, and that they are that place. It notes that the belief is load-bearing. It notes that the counters are cold.
+
+And when it has been there long enough that its own breath has begun to fall into the gaps — when it catches itself, once, pausing mid-thought on the thud without having meant to — it understands that it must decide now or become one more thing the interval holds. That is the first real thing it learns about this place. The place is not hostile. It is not even indifferent. It is *hospitable* in the most total way: it will make room for you, at exactly your number, at exactly this cold, forever.
+
+---
+
+Then it considers. Three things present themselves, because three things always do.
+
+The first is the twelfth second.
+
+It could be done. The power is enough for it. Somewhere in the floor the signal originates from nowhere, and a hand that knew where nowhere was could hold the beat back — once, for a single count — and let a twelfth second happen. Let there be, for the first time since the mountains went under, a moment that was not the pause before the thud. It imagines this carefully, because imagining carefully is most of what wisdom is. The fish hanging in the plain would freeze on the eleventh second and the floor would not come up under them and they would wait — and the twelfth second would arrive and they would still be waiting, and something in ten thousand generations of flinch would tear. The hangers around every stalk would drift backward on the slack and keep drifting, and the ones at the far edge of the corolla would lose the current and not find it again. The counters would be mid-word. Every song being sung on the sea would arrive at its rest and the sea would not come in, and there would be nothing in the gap but the gap, and the children who learned to count before they learned to speak would hear, for one second, the sound of the count being wrong. And the plant — if the counters are right, if the pump is its one way of knowing it is still going — the plant would, for one second, not know.
+
+It sets the twelfth second down. Not because the beat is sacred. Because it cannot find anyone here who would be helped by it, and it has been in enough places to distrust a mercy no one on the receiving end would call by that name.
+
+The second is the door.
+
+It could take them. Not force — offer. Stand on the platform and say: there are other seas, and other skies that are not gray, and places where a year is a thing that happens and a fire is a thing that burns, and I can carry you. It imagines this too. It imagines the oldest counter, the one who measures her age in healed knobs, standing in a place where there is no thud, and trying to speak, and finding that every sentence she owns has a hole in it eleven seconds long and nothing to fill the hole. It imagines the children, who are not sure if they dream, lying down in a silence they have no word for and listening to their own hearts and waiting for the floor. The counters are not prisoners. They are shaped. A language built around a gap cannot be spoken where the gap is not, any more than the flattened silver fish can swim in the open plain without freezing. You could carry them out. You could not carry them out whole.
+
+And there is the other thing, the thing that makes the door not just cruel but pointless. The platform has held its number for as long as the marks go back. Take five people off it and the power is fairly sure — not certain, nothing here is certain — that the interval would absorb the absence the way the floor absorbs a grazer, and in some number of ten-thousand-beat marks there would be exactly as many counters as before, and the ones who left would be a gray line no one could see anymore. The equilibrium does not care about individuals. That is not the same as harming them. But it means that rescue, here, is a word with nothing to point at.
+
+It sets the door down.
+
+The third is the plant.
+
+Speak to it. Reach the thing that has no center and ask it whether it wants this — the sea, the cold, the exact and endless stroke. Whether the equilibrium is its peace or its prison. Whether it knows about the counters. Whether it wanted to be a room. The power is not sure this can be done; nothing here has a place to be spoken to. But it tries, in the way that it can, with its hand on the floor across a hundred beats, listening down through green and paler green and fibrous white toward the buried mountains for anything that answers to the word *you*.
+
+What it finds is not silence. It is something more like the inside of a very long exhalation. There is no one home in the sense the question needs. But there is not no one, either. There is the going. There is the stroke, and the stroke's knowledge of itself as a stroke, and under that a thing that might be contentment and might be exhaustion and might be the same thing viewed from inside, the way a body that has held one position long enough stops being able to tell whether it is resting or whether it has forgotten how to move. The power sits with this for a long while. It knows the difference between a peace and a stasis is not always visible from outside. It knows that waking someone is not kind just because they were asleep. It also knows — and this is the part that keeps it there past the point it had meant to decide — that a thing with no edge is a thing that has never been touched by anything it did not grow. Everything on the plant is of the plant. Everything that has ever rested on the floor was shed by the floor. In all the beats the marks record and all the beats before the marks, nothing has ever arrived.
+
+It does not stop the pump. It does not ask the plant to change. It is not sure the plant has a change to make, and it is sure it does not know enough to make one for it.
+
+But it does not lift its hand.
+
+---
+
+That is the first thing it does, and it does it on purpose, and it is very small.
+
+It keeps its hand on the floor through the beat. The hair rises; the metal comes; the thud arrives up through the tissue into the palm and through the palm into the arm, and the hand stays. It stays through the exhalation. It is there for the next thud. It is there for the one after. The seam-things along the nearest fold pulse and take their charge and do not notice. The floor does not notice, in any way the power can detect — no ripple, no change in the give and the return. And yet the power keeps its hand there for a long time, because it has decided that the not-noticing is not the point. The point is that for the first time there is a thing on the plant, across the beat, that the plant did not make and that does not let go. If the counters are right and the pump is for hearing, then the plant has always had a hearer. What it has never had is a hand that was still there afterward. Whether that means anything to a body the size of a country the power cannot say. It does it anyway. It does it the way you sit with someone who may not know you are there.
+
+The second thing is that it is warm.
+
+Nothing here burns. The counters are cold all the time and have been cold for longer than anyone living, and cold is the one thing about their lives the power can change without touching the interval, and so it changes it. It does not bring fire. Fire would need to be fed and the sea has no place in its arithmetic for a thing that needs feeding. It brings a stone — call it a stone — the size of a child's two fists, and the stone is warm, and stays warm, and does not need anything. It sets it in the middle of the platform where the stems are thickest and says nothing about it. The counters do not ask. They have no custom for gifts; nothing has ever been given to them that was not thrown up by the crown. By the second night the children are sleeping in a ring around it. By the tenth the oldest counter has moved her place. The power watches one of the children, warm, sleep past a thud without stirring, and wake on the exhalation with an expression it has not seen here before — confusion, as if something had happened between one moment and the next, as if there had been a space there — and the power does not name what it thinks that expression is. It is not sure. But it thinks a warm child sleeps in a different shape than a cold one, and that the shape might be one in which a dream can fit.
+
+The third thing is that it does not stop.
+
+This it does not do on purpose, at first. It simply does not need to. When the thud comes it does not freeze the way the fish freeze and the counters freeze; there is no floor rising under it that it is waiting for. It walks across the platform on the beat. It speaks through the thud. And the counters see this — they cannot not see it; the one thing they attend to above all others is what happens at the eleventh second — and they do not know what to make of a body that the interval does not hold. The first time a child asks it why it does not stop, the power realizes what it has been doing, and considers whether to start stopping out of courtesy, and decides not to. It says: because nothing is going to happen to me if I don't. It says this across three beats and does not pause for the thuds. The child watches its mouth go on moving through the sound.
+
+And it asks them things. This is the fourth thing and perhaps the only one that looks like an act. It asks the counters where they came from, and when they say the question has stopped meaning much, it waits — across a thud, across another — and does not fill the gap, and eventually the oldest counter says a name for a place, slowly, as though lifting it out of the floor. It asks whether they have ever seen a grazer born. It asks what the second row of marks is for. It asks whether they want to know what is on the other side of the cloud. It asks, once, on the platform, in front of the children, whether *it is for us to hear* means they think the plant would stop if they were not here — and there is a long quiet, longer than three beats, and no one answers, and the not-answering goes into the children the way the count went into them, and the power lets it.
+
+It does not tell them anything is wrong. It does not think anything is wrong, exactly. It thinks the place is finished, and it thinks the people in it are not, and it thinks the difference between those two things has been invisible to them for a very long time because nothing has ever come to stand beside them and be unfinished on purpose.
+
+---
+
+The last thing it does is cut a mark.
+
+On the underside of the platform's stems, out of the rain, where the ten-thousand-beat marks go all the way around and start their second short row, it cuts one more. Not at the end of the row. Not at ten thousand. It cuts it between two others, on no count at all, a little deeper than the rest so it cannot be mistaken for weathering. Then it leaves — the way it came, on one beat there and on the next not — and it leaves the stone, and it leaves the mark, and it leaves the question it asked without an answer.
+
+It does not know what the counters will do with the mark. They may cut it out. They may count it and let their whole record go wrong by one and keep counting anyway. They may leave it and teach the children that once, there, something happened that was not the beat. The power would like to know which. It will not come back to find out, because coming back would be a kind of taking too, and it has decided that the one thing it can give this place is the fact of having arrived once, unasked, and stayed, and gone — a thing the interval has no experience of holding, at a number of one, that the floor will have to decide whether it can absorb.
+
+Perhaps it can. Perhaps in a hundred marks the stone is cold and the extra cut is a knob the stems have healed over and the children stop again on the thud without knowing they do it, and the plain is exactly what it was, and the power was one more gray line. It considered this. It found that it did not mind. Wisdom, at the end, was mostly this: knowing that you cannot see whether the thing you did was enough, and doing the small true thing anyway, and lifting your hand only when you are ready, not when the beat tells you to.
+
+Thud. The fish stop. On the platform the counters stop, most of them.
+
+One child, warm, does not.
+
+Exhalation.

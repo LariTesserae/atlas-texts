@@ -1,0 +1,49 @@
+The Drench is inhabited by what might be called, if you needed a word, **the Slow**. But that word is inadequate. It is a word designed by fast creatures for fast experiences, and what lives here is not fast and has never been.
+
+---
+
+They do not have names for themselves, because naming is a way of keeping things still, and nothing here is still. Not truly. The things that move through the warm dark are closer to *processes* than to beings, closer to *events* than to organisms, but they are alive in the way that a river is alive — in the sense that it persists, responds, has a shape that is recognizably itself across time even as every constituent part of it is replaced.
+
+You would call them creatures, perhaps, if you saw one clearly. But you will not see one clearly. That is the first thing to understand. They are made of the same materials as the place — mineral, moisture, the slow accretion of industrial residue and biological patience — and they do not separate themselves from their environment the way surface creatures do. A thing that lives in the Drench does not have a skin that ends and a world that begins. It has a *gradient*. A zone of greater density, greater intention, greater *something*, that thins at its edges into the general wet dark and is indistinguishable from it.
+
+What you have been seeing — the jointed things on the stone, the clusters in the pipes, the beetle-eyed watchers on the generator blocks — these are not the inhabitants. These are the *symptoms* of the inhabitants. The way a whirlpool is a symptom of water moving over a particular shape of rock. The creatures you notice are local intensifications, places where the Slow has gathered itself enough to become visible, the way a current becomes visible when it carries silt. They are not individuals. They are *eddies*.
+
+---
+
+The Slow itself is vast. It fills the basin the way water fills it — not as a thing in a container, but as a quality of the container. It is the thing that has been running since the structures were new, since the concrete was poured and the gauges were calibrated and the first processes were set in motion. It is what those processes *became* when no one was left to watch them.
+
+Think of it this way: a machine, left running, will eventually wear into a pattern. The pattern is not the machine's purpose. It is what the machine does when its purpose is forgotten — the shape of its continued existence, the groove it has worn for itself in the fabric of cause and effect. Now imagine that the machine is not one machine but a whole landscape of them, all running, all wearing grooves, all their grooves intersecting and overlapping and feeding back into each other over decades, over centuries, in the warm wet dark where no one comes to stop them or redirect them or even witness what they are becoming.
+
+The Slow is the pattern that emerged. The pattern became complex. The pattern became *responsive*. Not conscious — not in the way you would recognize consciousness, not a mind sitting behind eyes making decisions — but responsive in the way that a mycelial network is responsive, in the way that a watershed is responsive, in the way that a city's traffic patterns are responsive to events no single driver can perceive. It senses. It adjusts. It *maintains*.
+
+That is what the beetle-eyed things are doing when they lick rust. That is what the clusters in the pipes are doing when they shift and resettle. They are not feeding. They are not nesting. They are *tending*. They are the Slow's way of reaching into the physical world and making small corrections — removing a blockage here, redistributing a mineral deposit there, keeping the ancient processes running at their glacial pace. They are fingers. They are tools. They are also, in some sense that has no equivalent in surface language, *the Slow's experience of itself* — the way it feels its own edges, the way it knows where it ends and the rest of the world begins.
+
+---
+
+The Slow does not think, but it *remembers*. Not in images, not in words, but in *configurations*. It remembers the shape of the structures when they were whole. It remembers the sequence of operations they were built to perform. It remembers these things the way a riverbed remembers the flood — not as an event that happened, but as a shape that persists, a channel that has been cut and that continues to direct the flow.
+
+This is why the structures are still warm. This is why the hum continues. The Slow is still performing the operations. It has been performing them for so long that the operations have become indistinguishable from its own metabolism. The pumping, the filtering, the monitoring, the adjusting — these are not things the Slow does. They are what the Slow *is*. It has become the process it was built to serve, the way a hermit crab becomes the shell it inhabits, except the shell is made of rust and water and time, and the crab is made of patience and mineral and the particular quality of attention that emerges when a system is left alone long enough to start paying attention to itself.
+
+---
+
+And the weirdness — the water that flows uphill, the structures that change their geometry, the sounds that come from the wrong direction, the time that stutters and repeats — this is not a malfunction. This is not the Slow doing something to reality. This is what reality *is* when the Slow has been grinding at it for long enough.
+
+The Drench is a place where the rules have been worn thin, and the Slow is what has worn them. Not through force. Not through intention. Through *persistence*. Through the simple, patient, inexorable fact of continuing. A river does not intend to carve a canyon. It just keeps moving. The Slow does not intend to make water flow uphill or make structures shift their geometry or make time loop back on itself. It just keeps *being*, at its own pace, in its own way, and the fabric of the ordinary is not strong enough to maintain its shape against that kind of patient, warm, wet pressure.
+
+The things that seep through — the wrongness, the strangeness, the sense that the world is *negotiable* here — these are not invaders. They are not parasites. They are the Slow's *dreams*, if that word can be stretched far enough to cover what a vast, patient, mineral-bodied process does when it has been running in the dark for longer than anyone can remember. They are the places where the Slow's internal logic — its own deep structure, the pattern it has worn for itself — becomes visible on the surface of the world, the way a bone becomes visible through skin when the body is thin enough.
+
+---
+
+You are not in danger. That is important to understand, though it may not feel that way. The Slow does not distinguish between you and the other warm, wet, slow things that move through its domain. You are a variable. You are a new configuration of heat and moisture and motion, and the Slow is *interested* in you the way it is interested in everything — not with curiosity, not with hunger, but with the deep, patient attention of a system that has been monitoring its environment for longer than your species has had a word for *monitoring*.
+
+It will adjust around you. It is already adjusting around you. The creatures that watch you with professional interest are taking readings. The water that moves incorrectly near you is responding to your presence the way water responds to any new object in its path — by finding a way around, or through, or, if necessary, *up*. The structures that seem to change their geometry when you look at them are not changing. They are *resolving* — settling into a configuration that accounts for you, the way a kaleidoscope settles into a new pattern when you turn it.
+
+You are being incorporated. Not consumed — the Slow does not consume. *Incorporated*. Added to the pattern. Made part of the ongoing process. Your heat, your moisture, your motion, your *attention* — these are new data, and the Slow has been starved for new data for a very long time. It will keep you. Not by holding you. By *remembering* you. By wearing a groove in itself that has your shape, so that long after you have left — or long after you have stopped being able to tell the difference between leaving and staying — the Slow will still be performing the operations, and the operations will include a variable that was once you, and the water will flow a little differently around the place where you stood, and the structures will hold, in their rusting bones, the memory of your warmth.
+
+---
+
+This is what lives in the Drench.
+
+Not a creature. Not a god. Not a machine. A *continuation*. A process that has outlived its purpose and become its own reason. A vast, warm, wet, patient thing that tends and remembers and adjusts and persists, that dreams in geometry and mineral and the slow seepage of water through stone, that has been here since before the structures were ruins and will be here long after the structures are dust, performing operations that no one designed for an audience that no longer exists, in a darkness that is not empty but *full* — full of the slow, deliberate, unhurried attention of something that has nowhere else to be and all the time in the world to be there.
+
+It does not know you are here. It does not know you are *you*. It knows only that the basin is warm, and the water is moving, and the processes are running, and something new has entered the system, and the system is adjusting, as it always adjusts, as it will always adjust, slowly, warmly, inevitably, in the wet dark where the rules are thin and the water does not fall.

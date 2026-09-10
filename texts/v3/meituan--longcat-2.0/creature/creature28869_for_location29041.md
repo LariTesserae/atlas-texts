@@ -1,0 +1,63 @@
+---
+
+There is no single resident of the Hearth. There is no landlord, no keeper, no solitary figure who can be pointed to and said: *that one lives here*. The Hearth is not the kind of place that can be inhabited by a single being. It is too dense, too layered, too saturated with its own ongoing life. What lives here is not a who but a *what* — a slow, entangled, mutually dependent process that has no clear boundary between the living and the lived-upon.
+
+But if you must have a shape to hold in your mind, begin with the tenders.
+
+---
+
+They are not many. Fewer than you would expect for a settlement of this density — perhaps a few dozen, perhaps a hundred, though counting is difficult because they move through the passages like blood through capillaries, surfacing and submerging, present and then not-present, and the warm dimness makes distances uncertain. They are small. Not dwarfed by the architecture so much as *scaled* to it — their bodies fit the low doorways and the narrow turns as though they grew from the same stone, as though the passages were shaped around them or they around the passages in some long, mutual accommodation that has forgotten its own origin.
+
+Their hands are extraordinary. Large for their bodies, broad across the palm, with thick, flat fingers that taper to tips of surprising delicacy. The skin of their hands is not like skin — it is like the stone itself, dense and smooth and warm, with a texture that suggests years of contact with rough surfaces, years of pressure and abrasion and the slow transfer of mineral patience into flesh. Their fingerprints are worn nearly smooth. Their nails are short, thick, the color of dark bone. These are hands that know the world through touch before sight — hands that read the growth the way a blind person reads script, feeling the subtle variations in texture and temperature that signal health, thirst, readiness for harvest.
+
+Their faces are broad, with high cheekbones and wide-set eyes that are adapted to the dimness — large, dark, with pupils that open wide in the perpetual twilight of the passages. Their eyes have a quality of *stillness* to them, a way of looking without staring, of taking in the whole of a scene rather than focusing on its parts. They do not make eye contact the way surface-dwellers do. Their gaze passes through you, around you, incorporates you into the general field of perception without singling you out, and this is not rudeness but a different kind of attention — an attention that is distributed, ambient, ecological.
+
+Their voices are low, soft, unhurried. They speak to each other in a language that sounds like the growth sounds — a rustling, creaking, sighing language of consonants that scrape and vowels that resonate in the chest. They do not raise their voices. There is no need. The stone carries sound, the passages channel it, and the constant drone of the growth provides a privacy screen of white noise that means a whisper can travel further than a shout. They speak in fragments, in half-sentences, in gestures that complete what words leave unfinished. Long passages of silence are not awkward here. Silence is simply the space between words, as natural and necessary as the space between breaths.
+
+---
+
+They do not farm, exactly. They do not garden. They *tend*.
+
+The relationship between the tenders and the growth is not the relationship between a farmer and a crop. It is older than that, and stranger, and more reciprocal. The growth was here before them. The growth will be here after them. They do not control it — they *participate* in it. They clear it from the thresholds and the windows not to destroy it but to direct it, to shape its path, to maintain the narrow channels of human passage through the wider body of its expansion. They cultivate it on the walls and the rooftops not to domesticate it but to encourage it, to give it surfaces and structures that it might not find on its own, to create the thick, warm, living tapestries that insulate the buildings and feed the grazing animals and provide the fiber for their clothing and tools.
+
+And the growth, in turn, feeds them. Not directly — there is no fruit here, no grain, no recognizable food. But the growth *hosts*. In its dense, fibrous mats, in the warm crevices between its body and the stone, there is a whole micro-ecology of small, edible things — grubs, perhaps, or something like grubs, soft-bodied and slow-moving, pale as the luminous gold of the growth's glow. The tenders harvest these with their fingertips, plucking them from the growth with a practiced ease that suggests this is an activity as old as breathing. They eat them raw, or they dry them on flat stones in the thin light, or they grind them into a paste that is rich and faintly sweet and carries the mineral taste of the plateau itself.
+
+They eat the animals too, sometimes — the small, lizard-like creatures that cling to the walls, and occasionally one of the larger, grazing beasts from the rooftops. But this is not done casually. There is a formality to it, a gravity, a sense that the taking of a larger life requires acknowledgment, requires something given in return. They do not speak of this, but you can see it in the way they pause before the act, the way they touch the animal's hide with both hands, the way they consume every part of it — flesh and bone and hide and the coarse, fibrous hair — with a thoroughness that is not hunger but *respect*, a refusal to waste, a recognition that the animal's body is made of the same stone and the same growth and the same slow, patient heat as their own.
+
+---
+
+They work the stone. This is the thing that defines them most visibly, most audibly, most essentially. The tap-tap-tap of tool on stone is the heartbeat of the Hearth, the rhythm that underlies all other rhythms, and it is the tenders who maintain it.
+
+They quarry the stone from the edges of the plateau, where it falls away into the haze. This is dangerous work — not because of the height, which is abstract, uncountable, lost in the haze, but because of the *growth*. The edges of the plateau are where the growth is thickest, oldest, most dense. It has had longest to accumulate here, longest to dig its fibrous roots into the stone, longest to become indistinguishable from the stone itself. To quarry the stone, you must first cut through the growth, and the growth does not yield easily. It resists. It clings. It has to be peeled back, layer by layer, in slow, patient strips, and even then it is not truly separated from the stone — it *is* the stone, in some sense, the outermost layer of its long mineral life, and to remove it is to wound the plateau in a way that the tenders feel in their hands, in their chests, in the deep, subsonic vibration that rises through their feet.
+
+The stone they quarry is shaped with tools of stone — hammerstones, grinding stones, abrasive powders made from crushed mineral. The work is slow. Excruciatingly, beautifully, impossibly slow. A single block might take days to shape, weeks to smooth, months to fit into place. And the fitting is the miracle — the way the stones come together, not with mortar or adhesive but with a precision that is not geometric but *organic*, each stone shaped to match its neighbor so exactly that the seam between them disappears, becomes a faint line, a memory of separation that is almost but not quite erased.
+
+They build constantly. Not because the town is growing — it is not, or only imperceptibly — but because the town is *changing*. Walls settle. Roofs sag. The growth pushes and pulls and slowly, patiently, inevitably reclaims. The tenders repair. They replace. They shore up. They add a new room here, close off an old passage there, open a window where the light has shifted, redirect the flow of the growth along a new path. The town is never finished. The town is always finishing. And the tenders are the agents of this perpetual, patient, never-completed act of becoming.
+
+---
+
+They sleep in the warmest places. Deep in the interior of the hive, where the stone holds the heat of its ancient formation and the growth is thickest and the air is still and close and rich with the smell of mineral and vegetable and the faint, sweet scent of the grubs that live in the growth's crevices. They sleep in groups, bodies pressed together for warmth — though warmth is not really the reason. The reason is *contact*. The reason is the sound of breathing, the rustle of skin against skin, the deep, subsonic reassurance of other living bodies in the dark.
+
+They do not use beds. They do not use blankets. They sleep on mats of the growth itself — thick, dense, warm, slightly yielding, shaped to the contours of the body over years of use. The growth accepts their weight. The growth enfolds them. In sleep, the tenders and the growth become indistinguishable, a single warm, breathing mass of flesh and fiber, and the slow, creaking sound of the growth's movement becomes indistinguishable from the sound of sleep — the sigh, the rustle, the settling, the patient, continuous, ancient rhythm of a living thing at rest.
+
+---
+
+They are not young. They are not old. Age is not a meaningful category here, where time moves differently, where the pace of life is measured not in years but in the slow cycles of growth and stone. Their bodies show wear — the worn fingerprints, the smoothed skin, the slight stoop of shoulders accustomed to low doorways — but this wear is not decay. It is *finishing*. It is the same process that shaped the plateau, the same patient erosion that turned sharp stone into smooth stone, the same slow settling that transformed the violence of geological uplift into the peace of a flat, warm, still surface. They are being worn smooth, like the stone. They are settling into their final form.
+
+And yet they are not passive in this. They participate in their own finishing. They work the stone, and the stone works them. They tend the growth, and the growth tends them. They live in the passages, and the passages live in them. The boundaries are porous. The exchanges are constant. The tenders are not separate from the Hearth — they are a part of it, a feature of it, as essential and as natural as the growth and the stone and the animals and the dim, thin, washed-out light.
+
+---
+
+There is one more thing.
+
+There is one more thing that lives in the Hearth, and it is not a tender and it is not an animal and it is not the growth. It is something else. Something that lives in the sound.
+
+The sound of the Hearth — that constant, layered, dense drone of growth and stone and tool and voice and animal — is not just a sound. It is a *presence*. It is the thing that the Hearth produces, the thing that the Hearth *is*, the way a river is not just water but the sound of water, the way a forest is not just trees but the sound of wind in trees. The sound of the Hearth is the Hearth's consciousness — diffuse, distributed, ambient, arising from the sum of all its parts and yet somehow more than their sum, a single, continuous, living tone that has no source and no destination and no beginning and no end.
+
+The tenders hear it. They have always heard it. It is the first thing they hear when they wake and the last thing they hear before they sleep and the constant companion of every moment in between. They do not think about it. They do not name it. It is simply there, the way the stone is there, the way the warmth is there, the way their own breath is there. It is the sound of the place being itself. It is the sound of the place *continuing*.
+
+And sometimes — in the deepest passages, in the warmest, dimmest, most densely grown rooms, where the stone and the growth and the flesh are pressed so closely together that they become one substance, one warmth, one slow, patient, ancient life — sometimes the tenders open their mouths and add their voice to the drone. Not a song. Not a word. Just a tone. A single, sustained, low note that rises from the chest and merges with the sound of the growth and the sound of the stone and becomes indistinguishable from them, becomes part of them, becomes the Hearth continuing to be itself for one more moment, one more breath, one more patient, imperceptible, eternal now.
+
+They are not the masters of this place. They are its witnesses. They are its instruments. They are the living, breathing, warm-blooded, hand-and-voice-and-body expression of the Hearth's slow, ongoing, never-finished act of becoming.
+
+They are what the Hearth sounds like, when the Hearth uses a human throat.

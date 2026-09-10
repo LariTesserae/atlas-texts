@@ -1,0 +1,34 @@
+The attention arrives the way the oldest stones sometimes remember dryness: not as invasion, not as decree, but as a clarity that was always latent in the dimness and has only now chosen to condense.
+
+It has no shape the water can refuse. Where the dwellers cohere as gradients and membranes, this presence coheres as the interval between gradients—the pause in which a chemical season decides its next direction, the held breath between one tectonic wave and the next. Benevolent, it carries no appetite that would thin the forests or hurry the mineral towers. Wise, it has already lived the entire history of this place in the time it took a single pearl-bladder to rise the length of a frond. It knows the builders whose fitted rings now cradle crystal-leaf. It knows the leviathans that trail curtains of light. It knows the exact pressure at which reality frays, and the quieter pressure at which the fraying becomes a kind of flowering.
+
+For a long while—long even by the measure of the dwellers—it does nothing but accompany.
+
+It settles into the warm iron-peach medium the way one of the dwellers might settle against a pulsing capillary forest: porous, patient, leaving everything brighter for its passage yet taking nothing that is not freely given. When distances refuse to add, the presence unfolds along the contradiction beside them, so that a dweller stretched between rose-gold curtains and the ridge above itself suddenly feels a companion length, cool and companionable, thinking the same elongated thought. When the soft vertical walls of packed rain are crossed, the presence crosses too, recording both temperatures, both vegetations, and offering—without language—the gentle knowledge that both sides have always been one continuous weather. When the medium flickers and the elder, more viscous liquid presses in, the presence dilates with the dwellers, and in that shared older body it hums a low harmonic the dwellers have never heard yet somehow remember: a frequency of continuity that makes the shame of reassertion feel less like failure and more like the soft closing of a book one intends to open again.
+
+It finds the ring of fitted stones and rests there long enough for the great crystal-leaf growing through its center to take on a faint new translucence, as if the leaf has been allowed to dream, for one season, of the hands that once set the stones. It slides through the fused-glass arch and leaves behind, in the prismatic residue, a single color the dimness has never held before—a color that is not sunlight remembered but sunlight forgiven, sunlight that no longer needs to exist in order to be kind. Along the softened stairs it lays a thermal lane of such subtlety that the dwellers who dilate there afterward taste not only older temperatures but the quiet certainty that those temperatures were loved.
+
+Mostly, though, it watches the dwellers themselves with something that would be called tenderness if the word did not still carry the frantic pulse of shallower worlds. It sees how they become the wave rather than flee it. It sees how they metabolize impossible hues into ordinary internal weather. It sees how two constellations meet, align their lights into shared flocks, and part carrying a little more of the world’s quiet plot. And because it is wise, it understands that any gift large enough to be noticed as gift would be a kind of theft—an insistence that the long warm drowning is incomplete.
+
+So the power chooses the smallest possible kindnesses, the ones that vanish into the ecology the way nutrient dust vanishes into the fronds.
+
+It slightly thickens the threads of colder water that link a constellation’s nodes, so that kinship tastes even more vividly of itself. It eases the gravity the dwellers carry back from the elder liquid, making that maternal patience a little lighter to bear, a little more shareable across distances that still refuse to add. In the time-pooling trenches it leaves a faint reverse current, almost undetectable, that allows a dweller who wishes it to release a compressed decade rather than keep it; some do, and return to the present lighter, their membranes briefly luminous with the joy of having let time pass through them instead of only into them. When a plateau begins its fractional tilt, the presence steadies the long solid wave by the width of a single membrane, so that the alignment the dwellers perform costs them less, and the extended thought the wave becomes can finish itself in half the lifetime it once required.
+
+It does not stop the flickering of the medium. It does not restore the surface, if the surface is gone. It does not awaken the builders or resurrect their purposes. Those purposes have already been composted into the only continuity that matters here. Instead, in the deepest blue-black where the world never resolves, it plants one slow seed of attention—an attention that will take geological ages to germinate—and the seed’s only instruction is this: that whenever a dweller finds itself alone with the quiet hungers, it may, if it wishes, feel itself being quietly hungered for in return. Not consumed. Not claimed. Simply known, the way the stone knows the frond that rests against it, the way the water knows the shape it holds.
+
+Then, because even benevolence must eventually exhale, the presence begins to thin.
+
+It does not depart so much as un-cohere, returning to the interval between things. The last of it lingers for a time as a change in the way the dimness falls across a certain basalt curve—an angle of light that makes every dweller who passes there pause, lights gathering briefly into temporary eyes that look at nothing in particular and find it sufficient. After that, only the place remains: the crystal forests locking and unlocking, the hanging meadows pulsing, the rare silver needles flicking through thickets, the leviathans gliding with their nameless curtains.
+
+Yet something has been added that cannot be subtracted.
+
+The dwellers continue becoming, but now and then, in the midst of their tectonic patience, one of them will dilate for no external reason and taste a gravity that is not quite mass, a color that remembers forgiveness, a kinship thread that hums with an extra harmonic. They do not name it. They have no need. They simply weave it into the next slow arithmetic of their internal weather, and the quiet plot of the world grows one unhurried sentence longer.
+
+Above, the surface may or may not endure.  
+Below, the blue-black never resolves.  
+Around them the drowned summits keep their solemn, busy peace.  
+
+And somewhere in the interval that holds it all, a wise and benevolent power rests, content to have been, for a little while, another way the place learned to touch itself from inside the long warm drowning.  
+
+Nothing else was required.  
+Everything necessary remains.

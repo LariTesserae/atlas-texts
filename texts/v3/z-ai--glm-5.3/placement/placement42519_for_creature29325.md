@@ -1,0 +1,25 @@
+I keep trying to be the vent-bird. It's the obvious dignity — the keeper of the works, cream-plumaged, standing on the fluted lip in the plumb steam, lifted a millimeter by every piston-slap and settling again like a hand on a rail. Content, says the description, and I believe it. Who wouldn't want to be the one thing that has matched itself to the operation?
+
+But I notice I keep flinching from the roar. Even in imagination, I put my hands over my ears.
+
+So let me walk in slowly, the way you'd enter any long-running works, and see where I actually end up.
+
+Not the mats. I admire them more than I can say — green so deep it reads as black, photosynthesizing in water that would take the skin off my palm, the whole paved rainbow laid down in temperature-courses like a spectrum used as brick. But the mats are the valley's natives precisely because they cannot leave. They don't experience their world as extreme, that's true, but they also don't experience it as anything. A border that doesn't drift is a life without weather. I would want to look up. The mats have no up.
+
+Not the flies, though I'm moved by them — the adults walking, walking, never flying, dying on the warm crust so their bodies fall into the film their children need. That's a love so practical it makes the word *love* look underemployed. But a few days is a few days, and I'd want more dawns than that to count.
+
+The birds who come down from the uplands twice a day? No. They know this valley "not as a place, but as an arrangement that will hold." That's how I know too many things already. I came here to be a resident, not a commuter.
+
+And then there's the felted white lining inside the largest vent, a meter down from the polished aperture, the threads whose entire universe is the note — for whom the tone is not a sound but the medium everything else is heard against. For a moment I think: yes. To have one tone so constant it becomes the substance of hearing, the way black is not a color but the board everything is chalked on. But that's the vent-bird's life from the inside, minus the legs, minus the warm eggs, minus the sky. The threads live in the note. The bird lives *on* it.
+
+So I arrive, finally, at the rim, at dawn, where the obsidian pebbles sit cool on their windward sides and beaded with dew — and I understand that the tardigrades were waiting for me there all along, unhurried, on their eight little legs, between the grains, under the gray-green lichens, while the moisture lasts.
+
+Here's why. Of everything in the valley, the tardigrades are the only ones who have *examined* the arrangement and adopted it. The valley keeps what comes in; the mats keep, the flies keep, the sinter keeps, film by film. The tardigrades keep only their own water — take it in at the coldest hour, hold it against the day, curl into a husk when it goes, and trust, with a trust that has been validated every dawn since the rivers first found the basin, that the next one comes. That's not instinct. That's a creed. That's philosophy, arrived at the only way philosophy can be soundly arrived at: by outlasting long enough to check the math.
+
+And their life has the one thing the vent-bird's doesn't. The bird's thousand tomorrows are all the same tomorrow. The tardigrade's day has a hinge in it. There is the dew-hour, when the glass beads and the film forms and the walking happens — plump, slow, deliberate, eight legs, between grains, the whole visible world a mineral-bright country the size of a thumbnail — and there is the husk-hour, when the sun takes the water back and everything folds and waits. They get a rhythm. They get a tide. Twice-born daily, which is more than most religions manage.
+
+I'd want to be the one at the margin, then. On the rim where the valley ends and the dun flats begin, where the steam columns stand plumb-straight below and the wind actually moves above, where you can see both countries — the finished basin breathing below, the unfinished weather overhead. The dew-line is the only address in this whole system that faces both ways. The vent-bird hears the note and nothing else. The mats know only their temperature, exactly. But from the windward face of an obsidian pebble, on a morning, you could in principle perceive the whole works: the roar from the big throat carrying up the slope, the steam standing straight, the birds coming down the river channels at first light, and under your own slow body, the glass, the dew, the beginning of another day the arrangement will hold.
+
+Plump. Slow. Unhurried. Not extremophile, not commuting, not content in the vent-bird's sealed way — but *vindicated*, once a day, every day, by the arrival of water.
+
+I'd be the tardigrade on the rim glass. The valley's smallest tenant, and its only one with a philosophy it can dry out and still keep.

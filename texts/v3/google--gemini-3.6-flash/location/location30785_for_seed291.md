@@ -1,0 +1,27 @@
+The daylight here is bright and crisp, casting clean, hard-edged shadows across a valley floor that seems to have been snapped open only hours ago.
+
+The geology underfoot is strikingly raw. There are no smoothed pebbles or gently rounded hills; the ground is a chaos of freshly cleaved dark slate, knife-edged basalt, and crystalline quartz upthrusts that look unweathered, as if the mountain above them vanished yesterday and left their sharp subterranean joints exposed to the cold sky. 
+
+Yet this raw, unmade terrain is entirely buried under two competing, hyperactive floods: one of heavy iron and brick, and the other of dense, wet greenery.
+
+This is a lowland basin spanning miles, packed so tightly that the concept of an empty street, a clearing, or a yard does not exist. Brick tenements six stories high are built directly against the razor-sharp flanks of unweathered granite. Cast-iron steam pipes, thick as oak trunks, run alongside copper telegraph bundles and riveted zinc aqueducts, filling every gap between buildings. Where the stone ends, iron girders take over, forming multi-tiered scaffoldings that span narrow, canyon-like alleys. 
+
+And wrapped around every pipe, growing through every mortar line, and carpeting every flat expanse of cold iron is a lush, suffocating blanket of vegetation. Deep emerald liverworts, cold-hardy ferns with rubbery fronds, and thick, pale mosses thrive in the chilled, damp atmosphere. The air carries a constant, subtle moisture—a mist that settles on copper fittings and turns into cold, beaded condensation that drips endlessly into the dark spaces below. The temperature remains stubbornly low, hovering just above freezing, keeping the air clear, thin, and sharp in the nostrils, smelling of ozone, wet pine needle, wet brick, and cold grease.
+
+What makes the valley unsettling is its quietness. 
+
+By all rights, a settlement of this scale and industrial complexity—full of heavy flywheels, automated derrick cranes, reciprocating steam engines, and cold-rolling mills—should deafen anyone standing within a mile of its perimeter. But the sound here is smothered. The sheer volume of thick, fibrous moss covering the machinery acts as a acoustic dampener. Huge steel pistons plunge into cast-iron cylinders with only a soft, wet *thump*. Iron gears four yards wide mesh together under a thick salve of tallow and crushed lichen, turning with a muffled, greasy sigh. The frantic movement of the city is nearly silent, giving it the eerie, hyperactive quality of a overturned ant colony viewed through glass.
+
+And it is wildly, perpetually active. 
+
+The valley is in a state of constant, turbulent transformation. Architecture and infrastructure here do not stand still; they grow, collapse, and are rebuilt in real-time loops. On one side of a narrow aisle, a steam-driven derrick made of dark pine and iron straps is actively hoisting new granite blocks into place to extend a chimney stack. On the other side, the roots of a giant, pale-leafed ivy are actively tearing down a brick wall that was completed only days ago, its heavy red bricks tumbling silently into a bed of thick, damp peat. 
+
+Nothing stays as it was designed for long. Industrial machinery is constantly being adapted by the environment: copper condenser coils are diverted by local workers to warm cold-water terrariums; wooden waterwheels are choked by rapid-growing river grass, forcing steam engines to automatically re-engage with a soft hiss of released pressure. The city seems to possess a collective, blind intelligence, endlessly self-assembling, breaking down, and re-routing its own limbs.
+
+Animals have adapted to this silent, high-density engine-forest in strange ways. Pale, sleek-skinned quadrupeds—something like large, otter-shaped ferrets with dense, oily fur—run along the frost-rimed copper pipes, diving into hot steam vents to chase fat, translucent grubs that feed on engine grease. Large, silent owls with plumage the color of rusted iron sit perched on motionless gear-teeth, watching for the movement of long-legged subterranean lizards that navigate the crevices between raw stone and iron foundations. 
+
+In the lower levels of the city, where the daylight barely penetrates the lattice of pipes and ferns, the air grows even colder. Water collects in shallow, iron-lined basins where tiny, blind crustaceans swim through liquid kept just above freezing by the thermal bleed of buried boiler tanks. 
+
+Walk through one of the elevated thoroughfares—a catwalk made of perforated iron mesh lined with thick cushions of silver moss—and you look out over a landscape that feels neither completely constructed nor completely natural. A row of Victorian-style brick gables rears up out of a bed of razor-sharp, un-eroded slate; behind them, a massive cooling tower made of riveted zinc plates belches a slow, silent plume of white steam into the cold daylight. The steam drifts across a canopy of dense, dark-green ferns growing on the roof of a locomotive shed. 
+
+There is no room to step off the path. To move through this place is to squeeze through a saturated, living machine—a cold, bright, silent hive where iron, raw stone, and wet leaves are locked in a endless, hyperactive dance of creation and decay.

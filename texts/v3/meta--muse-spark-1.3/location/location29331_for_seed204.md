@@ -1,0 +1,43 @@
+In the high country there is a crack you could walk past without seeing.
+
+From above it is nothing — a dark seam in the pale scree, a fault-line where two shoulders of young mountain failed to meet. The range itself is new. The rock hasn't learned to be round yet. Every face is a fresh break, clean as knapped flint, black-grey granite and basalt with bright, unweathered scars where last winter pried slabs loose. The edges cut. The scree underfoot hasn't been tumbled smooth; it bites through boots. From a distance the peaks look soft with snow, but up close this notch is all angle.
+
+You find the way down by sound. Or by its absence.
+
+The wind up on the ridge is constant and thin and loud in your hood. Drop six meters into the cleft and it stops. The walls close over. The sky becomes a jagged ribbon, very blue-white and far away. The air drops ten degrees in a stairwell. It smells of wet stone and cold iron and nothing green at all.
+
+Because there is nothing green at all.
+
+Not a blade, not moss in a seam, not lichen on the north face. At this height, on this fresh rock, in this cold, life hasn't taken hold. There are stains that from a distance look organic — rust-orange and sulfur-yellow blooms where water has dragged minerals out of the stone — but put your glove to them and they are just damp grit, crystalline, dead. The whole pocket is mineral. Stone, water, sky.
+
+And the town.
+
+You don't see it at first because you are looking for a town spread out. This one is stacked. It lives in the walls.
+
+Both sides of the cleft, from the scree floor up about forty meters to where the walls lean out and the weather gets in, have been worked. Not carved, exactly. Grown and anchored. Terraces, cells, walkways, gutters — a vertical settlement perhaps a hundred and eighty meters long end to end, narrow enough that you can stand in the middle and touch both sides with your eyes at once. Three bridges cross the gap, high and thin as needles. Ladders and stair-ramps zigzag between levels. Pipes run everywhere, dull matte black and pale ceramic white, branching like veins.
+
+It is urban, unmistakably. There are doors with numbers etched beside them. There are lit windows, small and deep-set. There is a public stair with a handrail worn bright. There is infrastructure: cisterns, sluices, cable runs, landing pads no bigger than a table. But it is sparse. That is the strange part. For all the construction, most of it is emptiness. A platform with one sealed container on it. A terrace twenty meters long holding only a coil of cable and a bench. A whole level dark and shuttered, with space between lights. The town was built for more density than it holds, or it likes the gaps. The rock shows between every work. The air shows. You can go minutes seeing no one, hearing only your own breath laboring in the thin air.
+
+The cold is the rule here. It's a wet cold, which is worse.
+
+Every surface weeps. The mountain breathes cloud through the cleft several times a day — a white tongue of fog that noses in from the lower valley, condenses the instant it hits the shaded stone, and dies into droplets. The walls sweat continuously. The undersides of every walkway bead and drip. The fresh fracture planes are dark with seep. In the morning everything that was liquid overnight is rimed with a skin of ice, and by midday it has melted again and the whole pocket ticks and pings as it releases.
+
+Water is not a view here. It is the architecture. The floor of the cleft is not a street. It is a series of shallow basins, stone-lipped pools linked by runnels, so clear you see the bolt-heads at the bottom. Every roof is a gutter. Every handrail is a downspout. Drips are led, not stopped — led along etched channels, along cables, into troughs, into tanks. To block a drip is bad manners and bad engineering. You learn quickly to walk a half-step to the side of the drip-lines.
+
+Your breath fogs and does not quite leave. The air is thin enough that stairs wind you in twenty steps. Fingers go blunt quickly if you take gloves off to touch anything. The light helps and doesn't help. Around noon the sun finds the slit directly and drops a single hard shaft down the middle, so bright on wet stone it hurts, full-spectrum daylight that makes the puddles flash white-blue. The rest of the day the light is diffuse, bounced wall to wall, shadowless and cool. Shadows never quite pool. You can read by it, work by it. It is ordinary light made strange by where it falls.
+
+What holds the buildings up is the part you stop trying to understand.
+
+There are no foundations as you know them. The pods — faceted, windowless except for the one deep eye, surfaced in something between ceramic and frozen ash — sit a hand's breadth off the rock on nothing visible. Up close you see the shimmer, like heat above summer road, but cold. No bolts, no brackets. They are phase-locked, the maintenance woman tells you later, tuned to the resonance of the stone, and if the mountain shifts they shift. The walkways warm themselves. Not heated — there are no heaters, no glow, no hum you can hear — but the frost never forms on them even when the handrail beside them is white. You can put your palm flat and feel neutral stone, neither warm nor cold, while water beads and runs off to the sides and does not freeze. The tanks do something to water pressure that lets thin capillary threads climb uphill along the walls in braided sleeves, feeding the upper levels without pumps.
+
+No one treats this as miraculous. Children run across a bridge that should flex and doesn't. Someone has left a kettle on a ledge that stays just above freezing without a cord. A silent lifter, the size of a door, rises past you with a load of ice-cores without rotor or jet, displacing air so gently your hood barely stirs. Post-modern is the wrong word. It feels pre-physical, as if the builders decided friction and weight and cold were suggestions to be negotiated with locally.
+
+And it is always in motion, quietly.
+
+Freeze, melt, condense, run. Rock ticks as it warms. Ice needles grow in the shade and collapse. A cloud enters, dies, drips. A gutter overflows and a small silver automaton, crab-like and patient, unfolds itself from a wall niche and clears the leaf of ice — there are no leaves here, so it is always ice — then folds back. Somewhere above, a door sighs. Somewhere below, water moves from basin to basin with a glassy throat-sound. The town maintains itself in small, constant corrections. People appear rarely and briefly: a figure in dark insulated shells crossing a high bridge, breath puffing; two technicians crouched over an open panel whose interior glows faint amber; an old man slowly sweeping water off his terrace back into the channel, an endless, meditative task.
+
+Animal life is almost a rumor. No goats up here, no pikas in this bare crack, no insects. Once a day a bearded vulture tilts over the slit, impossibly large against that narrow sky, casting a cross-shadow for two seconds over the pools. It does not land. There is nothing to eat. Inside, a white cat lives on Level Three and is famous out of proportion because it is the only cat. You hear it sometimes, crying thinly in the cold, and then a door opens.
+
+At night — if you stay, and you should, because the pocket changes — the temperature drops hard. The weeping slows, then stops as every bead locks into glass. The bridges go silent. The windows come on, warm yellow, spaced far apart in the black walls like camps far from each other. The sky-slit fills with stars, sharper than below because the air is thin and dry above the cleft, while down inside you everything is rimed and still and wet-frozen. The lifter parks itself. The crabs tuck away. You hear, if you stand very still on the central bridge, the mountain itself: a deep, infrequent creak, settlement in new rock, and under it the faint, continuous hiss of water still moving under ice, down in the pipes, in the stone, unwilling to stop.
+
+The rule of the place, unspoken but obeyed, is this: keep the water moving, keep the stone bare, keep the quiet. Don't build out, build in. Don't warm the air, warm the path under your feet. Leave room for emptiness. The town could sprawl down the valley where it is easier, greener, lower. Instead it stays here, tucked, hidden, intimate as a held breath — a whole city in a crack in new stone, clinging high and cold and dripping, alive precisely because it asks so little of the rock except to let it weep.

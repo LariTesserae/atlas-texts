@@ -1,0 +1,27 @@
+Behind the slate lintel, in the horizontal slit where the blue marl has peeled back from the shale by less than the thickness of a thumb, rests the artificer.
+
+It is neither spider nor salamander, though it shares with both a lateral, flattened architecture designed to exist between pages of stone. It is approximately the length of an unbent middle finger, but so thin that if it were turned on edge, it would cast almost no shadow in the zinc glare. Its body is segmented not by chitinous rings, but by supple, interlocking plates of pale, translucent horn, so clear that the internal anatomy is visible beneath: a single, unbranching digestive tube filled with dry, grey silt, and a nervous cord like a strand of yellow gut-string that runs the length of its spine, shivering at the same frequency as the millipedes.
+
+Its color is that of skimmed lard, tinged around the margins with the cold, iridescent violet of wet zinc. It has no pelt, no scales, and no mucous; its skin is as dry and tight as a drumhead, dusted with a fine frost of precipitated lime that gathers in the creases of its joints.
+
+It has four limbs, but they are not arranged for locomotion. There is nowhere to walk to; the hollow is a cage of points. Instead, they are levers of extraordinary refinement. The forelimbs terminate in four long, jointless digits made of flexible cartilage, each tipped with a spade-like nail of dense, fossil bone. Under the thumb of its right hand, it still grips the instrument with which it carved the ribs: a splinter of black river-chert no larger than an apple seed, its edge chipped into microscopic serrations using the pressure of its own jaw. 
+
+Its head is wedge-shaped, shovel-nosed, and eyeless. In place of eyes, it possesses two shallow, disc-like depressions lined with thousands of microscopic, silver hairs—organs not of sight, but of acoustic reception. These cups are turned outward toward the vibrating ribbons of millipedes, catching the deafening metallic scream and funneling it into the hollow of its skull. 
+
+The sound is not an irritation to it; it is its life-engine. The creature has no lungs and takes no breath—there is no draft to draw, and the air has been dead since the Cretaceous—but its nervous system is piezoelectric. It drinks the scream. The high, unchanging frequency vibrating through the fluid film and the baryte crystals strikes the mica-like plates within its auditory pits, generating a minute, continuous electrical pulse that keeps its lard-pale blood crawling through its veins. It does not eat the wire-lichen, nor does it feed upon the millipedes. It is nourished entirely by the tension of the room: the lithic weight of twelve fathoms of blue clay pressing down from above, translated into sound by the locked legs of the myriapods and returned to its nerves as a pale, galvanic vitality.
+
+Between the five fish-bone pegs, threaded back and forth like the warp on a loom, is a hair-thin strand of something that has never seen sunlight. It is a line spun from the creature’s own anal glands—not silk, but a clear, vitreous filament that hardens instantly in the lime-sweat, tight as a violin string. Each pass of the filament across the pegs has been tuned by the depth of the notches: three notches for the lower pitch, two for the higher, vibrating in sympathy with the walls.
+
+The creature’s chin—broad, flat, and tipped with a lip of yellow enamel—rests directly upon this cord. 
+
+It does not sleep, because sleep requires an economy of exhaustion and repair, and here there is no expenditure. It does not think in images or words, for it has never known an exterior; its consciousness is an exact, mathematical apprehension of the room’s geometry. It knows the distance between the curd-white beetle’s shell and the tip of the nearest baryte point to the hundredth part of a grain of sand. It knows the tension on the fish-rib pegs. It feels every ripple in the stagnant beads of water as an ache along its ribs.
+
+Occasionally—perhaps once in the turn of three centuries, when the earth above shifts by an imperceptible fraction of a millimeter and the lithic load settles—the tension on the five pegs alters. A peg will lean by the breadth of a spore. 
+
+When this happens, the creature moves. 
+
+The movement is dreadfully deliberate, a kinematic transition so slow that the moisture on its skin does not break. Over the course of twelve weeks, its right arm will rise. The chert flake will be brought to bear upon the fish-bone; a single, dry curl of bone-dust will peel away under the edge, falling soundlessly into the black bitumen below. It will adjust the peg until the filament rings true once more with the millipedes’ scream. 
+
+Once the chord is restored, the arm settles back. The fingers lock around the stone chip. The enamel chin descends onto the wire. The curd-white beetle across the chamber never shifts; its mandibles remain glued to the immortal droplet; the silver-green lichens maintain their stiff, wire-like grip on the razor edges.
+
+The chamber remains: three feet of blinding, pitiless noon, held twelve fathoms down in the cold grease of the marl, sustained forever by the creature that tunes the screaming stone so that it does not crack.

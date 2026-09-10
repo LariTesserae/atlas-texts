@@ -1,0 +1,43 @@
+You find it by the cold first.
+
+On the open tundra the wind moves and takes heat with it, but here the ground gives way — a shallow oval mouth, not much wider than three houses set together, sunk down below the level of the world. Cold air has pooled in it and stayed. You go down three slid steps and the temperature drops out from under you. Your breath does not dissipate. It hangs, white and level, and then very slowly sinks.
+
+The walls are new. That is the first strange thing. They have not been smoothed. The pit opened last winter when the permafrost let go — a thermokarst slump, raw geology, just-born. Black peat is torn open in flaps. Under it, grey-blue clay, and under that basalt that is still sharp as broken teeth. No rounding, no gullies, no talus fans yet. The earth looks surprised to be air. Frost has pried cracks a finger wide and every crack weeps.
+
+It should be barren. It is not. It is full to choking.
+
+Nothing like soil is visible at the bottom. The bottom is plants. Mass, mat, architecture of plants. Sphagnum in hummocks the color of rust and bone, liverworts lacquered dark green, dwarf willow no taller than your ankle but old, twisted, its trunks thick as wrists crawling horizontal. Reindeer lichen, black crust lichen, feather moss, bottle-brush moss. Carnivorous butterworts with greasy stars. They do not grow *on* the hollow. They *are* the hollow. You cannot put a foot down without putting it on something living. The willow stems make low arches and tunnels. The moss makes walls and floors and ceilings a few inches high into which whole worlds fit. If you part a curtain of moss, there is another curtain under it, and under that, another. Light gets lost going down.
+
+It is dim down here even at noon. The sun never clears the south rim in winter — only a blue-grey twilight that slides down the ice on the wall and breaks. What light there is, the plants keep. That is the second strange thing, the one you notice only after your eyes adjust.
+
+The mosses are bearded with silica hairs, glass-clear, each tipped with a bead of water that does not freeze. They should freeze. It is twelve below. Your eyelashes are stiff. But the beads stay liquid — brine and sugar and antifreeze proteins the plants sweat so the water near the surface stays wet. The air itself is saturated. Everything condenses. The rocks sweat. The underside of every leaf sweats. A fine mist hangs at knee height and does not move, and when you breathe out, your breath joins it and stays, a new layer.
+
+The hairs catch what little light there is and carry it. You can see it happen if you stay still long enough: a photon entering a moss tip on the rim-side travels down the stem as if down a fiber, re-emerging deep in the mat as a green-gold point. The whole floor glitters faintly from within, like a city seen from very far at night. Where the dwarf willows have shed leaves, the fallen leaves are lenses of ice, grown, not frozen — perfectly plano-convex. Under each one a hot spot, relatively speaking: a thumb-wide disc where the dim is focused to almost-warm, where springtails gather in black shivering masses to bask.
+
+There is no path, no cut stem, no stone stacked on stone. No one has made anything here. And yet nothing here is simple.
+
+Kneel, and put your ear close. The hollow is loud.
+
+It should be silent in this cold. Instead the bowl holds sound and will not let it go. Drip, drip, drip from a hundred weeping cracks — a metronome out of sync, amplified by the curve of the walls. Tick and *tink* as new ice needles push up through moss and snap. A low groan, almost below hearing, as willow trunks contract. And the living layer itself: the whine of winter gnats in a column so dense it looks like smoke, rising and falling without ever leaving; the rustle-dry scuttle of snow-fleas, thousands, grey as ash, hopping across the moss; lemmings moving in willow tunnels you cannot see but can hear, a papery hurr; above, two snow buntings flickering rim to rim, calling *tew tew* that comes back twice. Your own boots on moss make a wet sucking sound obscenely loud. Your own heart seems loud.
+
+Look closer and the fauna are not *among* the plants. They are *in* them. The sphagnum heads are hollowed into nurseries where mites the size of poppy seeds cluster pink around eggs. The willow stems are galled — neat red spheres, each with a grub curled inside, each grub pulsing faint light through the thin skin when disturbed. A ptarmigan hen, white as the mist, has pressed herself into a willow arch so perfectly she is indistinguishable until she blinks; her feathers are full of feather-lice, and the lice are full of something smaller that glints. Everything is occupied. Density upon density. You count presences not by individuals but by layers.
+
+Nothing moves fast. That is the rule. Sap here moves like a glacier. A butterwort leaf you watch will not close on the gnat struggling in its glue while you watch; it will close by tomorrow morning. A willow bud will open over nine days. And yet the slowness computes.
+
+If you stay until the blue darkens — and you will, because cold preserves and time pools — you begin to see the patterning. Frost does not form randomly on the moss. It forms the same fern, the same circuit, over and over across a thousand separate hummocks, as if dictated. The mycelium under the mat, white cords thick as string, pulses with faint electrical waves you can feel through your gloves if you lay a palm flat: slow, about the pace of sleep. Biologists who have wintered instruments here (carried in, carried out, nothing left) say the network solves. Given dim light and twelve below and limited phosphate, the grove redistributes, reroutes, optimizes flows in ways our supercomputers take weeks to model. The leaves track the focused spots and turn their lenses a fraction of a degree per hour. The gnats, drunk on fermented dew, carry spores from hot spot to hot spot along routes that are mathematically shortest-path. No brain. No machine. Just wet, living matter at the edge of freezing, doing engineering our physics still writes as impossible: light guided without loss through ice and hair, water kept liquid well below its freezing point by collective chemistry, superconductive flickers in root tips that should require a lab.
+
+And the weirder rules, the ones you feel in your inner ear:
+
+Water moves up as readily as down. Capillary ladders of moss draw seep from the bottom pool — a black mirror of brine no larger than a table, skinning over and unskinning — up the walls ten feet to feed hummocks that should be dry. Drops fall upward in the still air when the mist is thick, returning to leaves.
+
+Sound arrives slightly *before* its cause. You will hear the *tink* a half-second before the ice needle beside your knee visibly splits. Everyone notices it. No one explains it. The bowl is small enough to hold the echo and the event together.
+
+Light lingers. If a bunting flashes white across a sun-shaft, the afterimage stays in the mist for a breath longer than it should, as if the air remembers.
+
+You cannot get warm here. That is also a rule. Even in the focused hot spots, even cupping a moss lantern in your hands, the cold comes back from below, from the permafrost breathing up. The plants want it cold. Their chemistry only holds — the antifreeze, the light-guiding, the slow thought — while they are just above ruin. Warm them and they go blind.
+
+The scale helps. You can see the whole place at once if you stand on the north lip: rim of raw torn peat, weeping walls, living floor, black pool, mist. A single room with no roof, a cathedral made entirely of dwarf things. Nothing enters quickly, nothing leaves quickly. The wind passes over the mouth and does not stir the mist. The cold holds.
+
+When you climb out, your knees are wet through, your gloves are green and smell of iron and turpentine and sweet rot. Your breath finally rises and leaves you. Behind you the hollow keeps its noise to itself — drip and groan and whine and rustle, loud in its smallness, patient. It is still under construction, still raw at the edges where new earth calves off and is immediately, hungrily, colonized. By spring the walls will have slumped another inch and the moss will already be there, waiting with its glass hairs and its slow electric dreams.
+
+It does not need you. It was not built. It is building itself.

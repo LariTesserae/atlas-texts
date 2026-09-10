@@ -1,0 +1,40 @@
+You go down into it before you understand it.
+
+From the rim, it looks empty. A shallow sea of pale ash and cinder stretches to the heat-shimmer in every direction — flat, dry, plantless — and then simply stops. The ground drops. Not a canyon with a river behind it, not an old crater gone soft with weather. A raw bite. A block of the world a few kilometers across that has sagged and cracked straight down, maybe a hundred and fifty meters, all at once and very recently.
+
+The sun gets in. That is the first surprise. At midday it is full, normal, white-yellow daylight all the way to the bottom. No cavern dark, no blue gloom. Just heat that thickens as you descend.
+
+The trail down is not a trail. It is a fault scarp still showing the muscle fibers where it tore: stair-steps of black basalt and red scoria, edges so sharp they haven't learned to be rocks yet. Nothing is rounded. Everything is angular, fresh-broken, dusted with flour-fine ash that hasn't washed anywhere. Erosion hasn't happened here yet — it's happening. You can see where it wants to happen. Little rills, finger-width, have started to score the ash fans below each seep, stopping after ten meters as if they forgot what they were doing. Scree cones are half-built. A boulder the size of a house sits where it landed, split into three star-points, the fracture faces still darker than the sun-bleached outside.
+
+It is warm down here. Noticeably warmer than the plain above, by eight or ten degrees. The sink traps air. Your shirt sticks. The rock sweats.
+
+That is the water. There is no river, no spring you could name. The whole basin breathes damp in pockets. In the morning and late afternoon, when the shadow of the west wall falls across the east wall, condensation beads on the cool basalt — thousands of drops on every overhang — and then ticks off and falls. You hear it before you see any pool: a faint prickling patter in the larger roar. The drops gather in hollows between blocks, in cupped lava blisters, in the shallow pans of ash that have crusted over with salt. Tea-colored, ammonia-bitter puddles, a hand deep, a boat wide, gone by tomorrow and back the day after somewhere else. The stone around them is dark for a handspan, then dry again. Intermittent. Unreliable. Enough.
+
+And nothing green. Nothing that even tries to be green.
+
+No grass in the cracks, no lichen on the north faces, no moss around the puddles. The rock is bare — black, rust-red, sulfur-yellow, bone-white with droppings — scoured not by wind but by feet and claws and bellies. If there was ever anything to root here, the chemistry and the trampling killed the idea. This is a mineral world, still under construction, too new and too busy for plants.
+
+Because it is busy. That is the second surprise, after the light. From the rim it looked empty because your eyes skipped.
+
+The walls are not walls. They are living surfaces.
+
+Layer on layer on layer, near-touching, shoulder to shoulder: nests. Ledges white with the packed bodies of soot-swifts — small, sickle-winged, ash-gray birds that never land anywhere else — fifteen, twenty deep on every ledge wide as your palm. Below them, on the steeper faces, clinging salamander-things the color of wet brick, thousands, their throats pulsing. Below them, on the scree itself, a moving carpet that resolves, when you force your eyes to focus, into crabs. Red-jointed, fist-sized, heat-shimmering crabs, so many that the scree appears to crawl uphill. And over and through all of it, insects: white crickets with no eyes, flies in ribbons, beetles that roll balls of dung and guano twice their size.
+
+The density is not like a forest. It is like a market, like an anthill kicked open. You cannot put your hand down anywhere without displacing something. The air is striped with wings. At any second ten thousand swifts cut the basin in intersecting arcs, screaming, and when a shadow of a larger glider — a broad, leathery scavenger with a three-meter span that rides the thermals trapped in the sink — passes, the whole wall inhales and lifts at once, a sheet of bodies that darkens the daylight for a breath.
+
+It is loud. You thought the condensation patter was quiet. It is, because underneath everything is a continuous, physical roar: chitter and click and peep and wing-thrum and claw-on-rock, the high hysterical crying of swift chicks begging, the low hiss of crabs, the occasional wet plop of something falling from high up and being fought over before it lands. Your own footsteps crunch too loud. Your breathing sounds wrong. The rock itself adds to it — tick, crack — as heat expands fresh faces, and every hour or so a deeper thump and rattle as a new slab calves off the scarp and adds itself to the fan below, sending up a puff of ash and a shrieking ring of panic that settles in minutes.
+
+Everything is eating everything else, quickly. That is the ecology, since there are no plants to start it. The base is droppings and dead. Guano plasters the ledges inches thick, fermenting in the warmth, feeding flies, feeding crickets, feeding crabs and salamanders. The swifts eat the flies and are eaten fallen by the crabs. The crabs eat anything still and are cracked open by the gliders and by the brick-red lizards that pour like liquid between boulders. The puddles are nurseries — you can see tadpole shapes flickering in the brown water, mouths up for the film ofCondensate and powdered shell — and traps. Nothing is wasted. A dead glider this morning is by afternoon a glistening red articulation of crabs and beetles, humming.
+
+Odd things happen with damp and heat and ammonia and numbers. The air smells sweet-sour, metallic, like sweat and cut fruit. Sounds arrive twice: once straight, once a half-second later off the opposite wall, so every shriek has a ghost. Condensation sometimes forms not on rock but on the dense columns of flies, beading their wings until they drop glittering. The salt rims around the puddles grow overnight into tiny, cauliflower towers that crunch under crab feet by noon.
+
+People come here, but not many, and not to stay. You find their marks scattered and half-buried, almost shy against all that animal insistence: a low blind built of stacked scoria slabs, roofed with woven swift-feather mats, now caked in white. Three stick ladders lashed with twine, leaning against a nesting face, rungs polished by hands. A cairn trail of balanced stones marking the least-crushing path across the scree — step here, not there. A pit where someone boiled crabs in a dented tin over dried dung, the blackened stones still there. A split basket, a bone awl, a hand-knapped flake of volcanic glass left on a boulder. Early tools. Hand work. No metal but that tin, no engines, no wire. Harvesters who come in the cool season for eggs and shells and guano, and leave when the hatching peaks and the basin becomes unworkable, unbearable, too alive.
+
+The rules are simple and they are not written anywhere:
+
+Do not stand still long on the open scree — the carpet closes over boots.
+Do not drink from a pool with tadpoles in it; drink from the drip under an overhang, cupped in your hand.
+Do not camp under a fresh scarp; listen for the ticking before the fall.
+Follow the cairns, because the ground that looks empty is brooding.
+
+By late afternoon the light goes amber and slants, and the whole sink glows — black glass glinting, red joints flashing, white guano gold — and the updraft strengthens and lifts the smell and the sound straight up out of the hole like steam from a pot. From the rim, again, you would think it was empty. Just heat wavering off ash. You have to be down inside, sweating, deafened, stepping carefully between puddles that weren't there this morning, to understand that this is a place still being made, rock first, animals second, soil not yet imagined.

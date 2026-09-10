@@ -1,0 +1,31 @@
+To survive on stone that possesses no tooth, no microscopic grain for a claw to lodge within, the scuttling things have abandoned the mechanics of friction altogether. 
+
+Underneath their vitreous bellies, their limbs do not terminate in points or pads, but in broad, flexible discs of polarized musculature. As they race across the mirror-dark basalt, they lay down and break molecular bonds in rapid, staccato sequences—a thousand tiny electrostatic welds per second. This is the source of their clicking: not the strike of hard shell against stone, but the relentless *tack-tack-tack* of vacuum seals snapping open and shut against the absolute flat of the rock. 
+
+Seen up close, their carapaces are entirely transparent, revealing an interior anatomy that resembles a glassmaker’s precision apparatus. They have no red blood; their circulatory fluid is a heavy, pale-amber distillate that turns briefly opalescent when agitated. Through their clear dorsal plates, one can watch the rhythmic churning of their digestive chambers, which do not break down matter by acid, but by internal electric arcs. They drink the sheeting water directly through their foot-pads, stripping the charge from the ionized run-off until the water leaving their wake is chemically inert, dull, and cold.
+
+They are intensely social, not out of instinct for defense, but because they are magnetic. When dozens crowd together on a freshly extruded step, their carapaces align along the local field lines of the nearest pylon, forming clicking, shimmering carpets that ripple in unison whenever a structural thrum passes through the floor.
+
+When a fresh fracture opens—that dry, sharp *clack* of flint—these scuttlers do not flee. They swarm the seam. 
+
+In that fraction of a second before the newborn rock seals itself and rises, something else emerges from the cleft: *chime-worms*, pale and flat as ribbon wire, no thicker than a single sheet of mica. They exist entirely within the fault-lines of the embryonic geology, swimming through the quantum grain of the rock before it fully solidifies into matter. For the two or three seconds that the fracture remains unbonded, the chime-worms whip their metallic bodies into the open air, shedding clouds of dry, fragrant, talc-like spores. The scuttlers gorge on these spores, their transparent bellies lighting up with a soft, bioluminescent green as the dust meets the arcing fluids inside them.
+
+Higher up, where the mist hangs thickest and the air smells violently of turned earth and cold lightning, the ribbon-things hunt. 
+
+They do not have faces. Where a head might be, their flat, iridescent torsos simply taper into a wide, frilled sensory cowl that flares open like a trumpet bell. This organ is lined with thousands of microscopic, vibrating cilia that register the hum of the pylons the way an eye registers sunlight. To a ribbon-thing, the amphitheater is not dark; it is a blinding cathedral of radio frequencies, resonance nodes, and falling thermal gradients.
+
+Their flight is a constant negotiation with gravity. Because the warm updrafts are dense and buoyant with evaporated distillates, the ribbons do not need hollow bones; they have no bones at all. Their bodies are hydrostatic, pressurized bladders of light gas encased in a skin of woven, pearlescent sinew. When they dive after the midges, they fold their lateral membranes tight against their flanks, becoming heavy needles of flesh that slice down through the sheeting mist, only to crack their long, rudder-like tails—a sound like a wet bullwhip breaking the sound barrier—and bank upward on the vacuum cushion of a pylon’s perimeter.
+
+They never touch the stone. To touch the stone would be fatal; its frictionless planes offer them nothing to push against, and its rapid growth would swallow a grounded membrane in less than an hour. Instead, when they must rest, they drift into the two-inch vacuum zones that collar the pylons. Suspended in that gravity-neutral, moistureless sleeve, they curl their ribbons into tight, floating coils, hovering motionless in mid-air like sleeping rings of silver foil.
+
+The self-illuminating midges they hunt are not true insects. They are something older and simpler: self-organizing plasma-droplets, condensation beads that have formed around stray electromagnetic charges leaked by the towers. They drift in spiraling constellations, pulsing with a slow, lavender phosphorescence, drawn toward the hair-thin glass-moss trailing from the vertical ledges. 
+
+The glass-moss itself is the only quiet thing in the basin. It does not grow by cellular division, but by crystallization. It draws the hot quartz vapors from the air and draws them down into long, hollow filaments that ring like fine crystal when the wind from a ribbon-thing’s tail brushes them. Within these glassy tubes, a green-black slurry of autotrophic microbes moves continuously, churning in the ambient heat, totally indifferent to the lack of sun.
+
+And beneath all of this, clinging to the towering, uncarved curtains of rock that wall the amphitheater in, are the *Anchors*.
+
+They are the largest inhabitants, though they are easily mistaken for structural geometry. Massive, faceted nodules of dense, slate-colored tissue, the size of carriage houses, they wedge themselves high up in the corners where the sheer walls meet the ceiling of mist. They have no limbs, no eyes, and no mouths. They exist entirely to bridge the gap between the rock’s impossible speed of generation and the fragile biology of the basin.
+
+Through deep, root-like anchors driven yards deep into the growing stone, these leviathans absorb the continuous shockwaves of the basalt’s birth. They hum in counter-frequency to the pylons, their massive, leathery flanks heaving in slow, hour-long breaths that suck in thousands of cubic feet of mist and vent it back out as dry, superheated steam. 
+
+The smaller fauna treat them as islands of permanence. The ribbon-things scrape their skins clean of parasites as they fly past, and the glass-moss grows thickest across their ridged, unmoving hides, turning them into vast, hanging gardens of ringing glass that chime and shudder with every thrum of the newborn world below.

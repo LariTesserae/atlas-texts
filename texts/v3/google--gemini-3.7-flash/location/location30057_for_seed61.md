@@ -1,0 +1,21 @@
+The fissure is no wider than an alleyway in an old quarter, but it drops three hundred spans into the cold belly of the shale, caught in an eternal, dripping twilight.
+
+Here, the air does not circulate so much as it sweats. It is cool—the precise, unchanging cold of deep well-water—and saturated to the point of fog. A fine, continuous precipitation drifts downward, not from clouds, but shed from the ceiling miles above, where warm surface air condenses against the deep crust and falls in a perpetual, micro-droplet drizzle. Every surface is coated in a luminous, unbroken skin of water that gleams dully like oiled slate.
+
+There is nothing green. Not a spore of moss or a thread of lichen clings to the walls. In their place is a geology of cold, hard slickness: black shale, dense ironstone, and terraces of pale flowstone built up over eons by lime-saturated seeps. The only organic presence on the stone is a dark, inorganic glaze—manganese rinds and iron oxide deposits that have settled into the grain of the rock, turning the cliffs into sheer slabs of gunmetal and bruised purple.
+
+Yet the fissure is not empty; it is built to the point of suffocation.
+
+Tiers of tiny, box-like dwellings are carved directly into the vertical cliff faces, stacked one upon another like the cells of a petrified hive. They are small—scarcely large enough for a body to stretch flat—hewn out with brute, manual patience using hard river-cobbles, antler tines, and cold-forged copper chisels. Where the rock refused to yield, terraces have been built outward on cantilevers of split slate and fossilized wood, mortared together with dense, grey river silt that has set as hard as granite over centuries of saturation. 
+
+Suspended across the narrow void are hundreds of ropewalks and swaying bridges made of twisted animal sinew and braided reed-fiber brought from elsewhere, blackened and preserved by the constant mineral bath. Narrow ladders of notched bone climb the sheerest drops, worn into deep, smooth scoops by the passage of thousands of bare, calloused feet. The entire canyon is an intimate, claustrophobic metropolis of stone and marrow, folded into a crack so narrow that neighbors on opposite sides can lean out from their carved thresholds and touch palms.
+
+It is violently loud.
+
+The acoustic geometry of the narrow, wet chasm turns every sound into an inescapable reverberation. The constant, thundering hiss of falling mist is the baseline, but within it echoes the percussive clatter of habitation: the *tock-tock-tock* of stone hammers shaping shale, the hollow rattle of bone scrapers, the shouts of workers amplified and multiplied against the slick stone faces until they sound like the roar of a contained cataract. Water sluices through thousands of hand-carved gutters cut into the door-sills, tumbling from tier to tier in a complex, multi-toned music of wooden spouts and hollowed-rock basins.
+
+Light is sparse, low, and cold. It comes from tiny, shallow dishes of baked clay set into niches in the wall, burning the rendered fat of deep-strata blind eels. The flames do not flicker; in the dead, draftless damp, they stand as rigid, yellow needles of light, throwing long, glistening reflections down the vertical streets and casting the carved reliefs into sharp, wet contrast. In places, where the water runs thickest over the limestone sills, a faint, milky phosphorescence bleeds from colonies of anaerobic, mineral-feeding bacteria, outlining the masonry in a ghost-glow of pale green.
+
+Fauna is sparse and ghostly. Occasionally, a pale, shell-less crustacean the size of a finger will drift down a drainage gutter, its translucent legs feeling along the groove, or a blind, flat-headed salamander will remain motionless on a wet lintel for days, indistinguishable from the grey mortar until it snaps at a midge born of the silt. 
+
+Nothing changes here. There are no seasons, no day or night, no shift in the barometer. A chisel mark made four centuries ago remains crisp under its glaze of calcium, while the stone staircase beneath it has been worn down by an unvarying rhythm of descent that has never paused. The water falls at the same speed; the air holds the same chill; the city remains clamped within its hidden rock, sounding like a vast, wet engine that has forgotten how to stop.

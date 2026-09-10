@@ -1,0 +1,27 @@
+High upon a recently uplifted rift plateau, the world is sharp, damp, and vast. 
+
+The bedrock here is young—dark, fine-grained basalt and pale quartzite broken into crisp, clean geometric planes. Fracture lines run straight as plumb-lines; cliffs end in un-rounded ninety-degree angles, and step-faults descend like massive, knife-cut stairs into the distance. There are no smooth, sloping hillsides or soft, weathered gullies. The rock is fresh from the earth’s deep folding, its surfaces still showing the clean, crystalline glitter of pristine fractures.
+
+Yet, despite the high elevation, the air is warm and heavy with moisture. A blanket of gentle, ambient warmth hugs the plateau, keeping the condensation high and the light bright but soft. Water does not merely fall here; it emerges continuously from the stone itself. Every vertical fissure in the young rock acts as a seep. Thin, glass-clear sheets of water coat the vertical cliff faces, glittering under a high, pale sun that seems held in a permanent, bright noon. 
+
+Because the landscape has not had time to carve deep riverbeds, the water flows everywhere across the flat steps of the plateau. It creeps over smooth stone pavements in sheets half an inch deep, collects in shallow, mirror-like basins, and cascades over the sharp basalt edges in long, silent curtains. 
+
+Lush, low-growing vegetation coats the horizontal surfaces without concealing the stark geometry underneath. Thick pads of emerald-green moss, broad-leafed liverworts, and heavy, glistening ferns thrive in the constant warmth and wetness. Fleshy succulents with translucent leaves anchor themselves in the finest hair-line cracks of the stone. Tall, bamboo-like reeds with jointed stems grow in spaced, neat clumps along the edges of the water basins. The green is rich and saturated, standing in stark contrast to the dark, angular mineral of the high plateau.
+
+Spanning this vast, shelf-like rift is a settlement of astonishing scale, constructed entirely by hand with simple, ancient techniques. 
+
+The architecture does not struggle against the water; it is designed to let the water pass through it. The urban layout is spread across miles of elevated terraces, broad and uncrowded. Massive dry-stone walls—built from huge, hand-fitted blocks of basalt cut along their natural cleavage lines—raise avenues and wide plazas above the shallow sheet-flow. There are no arches or tall domes; instead, the building style relies on heavy stone post-and-lintel construction, massive rectangular platforms, and long, low-slung compounds made of thick stone slabs roofed with interlocking clay tiles or heavy, oil-soaked timber.
+
+Every terrace is carved with hand-chiseled channels that guide the seep-water into organized cisterns, stone basins, and wide, shallow pools that reflect the vast sky. High wooden aqueducts, bound with braided plant-fiber rope and sealed with tree resin, bridge the gaps between the sharp step-faults, carrying clear water from the higher cliffs to the lower city terraces. Stone staircases, thirty feet wide and perfectly square-edged, climb the natural rock steps, joining distant districts of low stone dwellings.
+
+Despite the urban footprint—the miles of paved causeways, the rhythmic stone pillars, the massive terraces step-stacking up toward the mist-capped peaks—the city feels open and unhurried. Buildings are spaced far apart, separated by wide expanses of water-covered stone and lush beds of ferns. There is no sense of crowding, no stack of narrow tenements. The city stretches across the plateau like a vast, organized garden of stone and water, balancing human construction with open space.
+
+The technology here is honest and physical. There is no iron, no whirring machinery, no glass windows. Heavy wooden shutters hang on copper pivots. Stone is shaped by flint hammers and copper chisels, leaving subtle, rhythmic tool-marks along the massive wall faces. Cords made of twisted bark fiber anchor heavy timber beams to carved stone lugs. Where paths cross deep fissures, simple suspension bridges made of woven reeds and thick wooden planks swing gently above the wet depths.
+
+An absolute, profound quiet reigns over the landscape. 
+
+There are no birds in the sky. No insects hum in the lush fronds of the ferns; no fish break the surface of the clear stone pools; no draft animals haul stone along the broad causeways. The only life is plant life and the humans who tend the stone. 
+
+The soundscape is composed entirely of water and space. It is a subtle, layered silence: the faint, continuous *shhh* of thin water sliding over basalt; the soft *drip-drip* from the roof eaves onto wet flags; the muffled splash of a overflowing cistern; and the quiet, low murmur of the warm wind moving through the tall reed-beds. Footsteps on the wet stone avenues sound flat and clear, echoing briefly off the sharp vertical rock faces before dying out in the open air.
+
+Nothing changes here. The warm air remains still and balmy; the sun stays high, casting short, crisp shadows that barely shift; the water seeps at an unchanging, steady rate from the fresh cracks in the rock. There are no sudden storms, no drying droughts, no bitter cold. The plateau exists in a state of suspended balance—a young, sharp world of stone, water, and warm green growth, endlessly quiet under an open sky.

@@ -1,0 +1,39 @@
+**What the power would do**
+
+It would come the way the eel came: not down through the sky, which the thing has never trusted, but along the water, through the throat of the drain, into the dark where the pale body lies in the peat like a lung in a chest. It would not stand in the hole. It would not need to. It would be in the peat with it, and in the pool, and in the sedge above, and for a while — a long while by its own measure, which might be the whole season it takes the rim to soften — it would do nothing at all but listen.
+
+That is the first thing wisdom does here, and it is not a small thing. Nothing has ever listened to this creature. The pumps do not hear it. The frogs bent to its pitch without knowing there was anything to bend to. The person who crouched at the drain with spray on their face heard it, briefly, and climbed out, and the wind shut the door. So the power would stay, and count the strokes, and feel from the inside how the thread in the wall lifts a bead and lets it fall, and how the lobes in the channel draw in and hold and release, and it would learn the rhythm the way you learn a song you were not taught — by letting it get into you until you could hum it.
+
+Then it would consider what it might do, and set the options down one at a time, the way you set down stones you had thought you needed.
+
+It would not stop the pumps. North, or under, there is a district, and the district is full of things that did not ask to be there either: houses on ground that used to be water, children asleep on it, cattle, a church with a lean. To stop the engines would be to hand all of that back to the marsh in a single winter, and benevolence that drowns a parish to unburden a bog is not benevolence, only preference. And it would not help. The thing has learned the beat too well. Silence the engines tonight and the lobes in the drain will contract tomorrow at the same interval, on their own, alone, keeping time for a machine that no longer exists. That is the true wound here, and stopping the pumps would only open it early.
+
+It would not put the roof back. It could — draw the rim in, seal the cut, give the thing its ceiling before the sedge does. But the thing did not want the sky, and now it has one, and the sky has brought it frogs. It is eating better than it has in a hundred years. The grey clouds of spawn drift toward its mouth on every eddy; midge larvae rain into the pool; the small drowned come down the cut face with every squall. For a decade or so, until the pond closes over, this creature that grew a grain at a time will have a feast, and the power would not take that from it for the sake of a tidiness it never asked for. Let it have its brief room. Let it be lit.
+
+And it would not take the rhythm away. This is the one that would tempt it. It could lift the beat out of the thing, unpick thirty years of entrainment and hand it back its old pace — the slow swell of the spring melt, the long fall of summer, one contraction a season, the tempo of peat. It would look like healing. It would be a return to before. But the power would have listened long enough to know what before was: not peace but mere duration. Before the pumps, the thing did not have a *now*. It had a century that felt like nothing, that passed the way the dark passes. The beat, however alien, however unrefused, was the first thing that ever gave it a present tense — a stroke, and then another stroke, and something in between to wait through. You cannot make a creature whole by taking away the only thing it has ever learned. You do not heal a thing by returning it to before.
+
+So the power would set all that down, and then it would do the one thing left, which is small, and slow, and made of the same material as the harm.
+
+It would answer.
+
+Not with words; there is nothing here to hear words. With a second pulse. Somewhere in the peat — not north, not from the engines' side, but from the other quarter, from the alders maybe, or from the faint push of the tide up the oldest buried channels — it would set a beat of its own. Softer than the pumps. Offset. Not on the stroke but between the strokes, the way a second hand clapping finds the space the first one leaves.
+
+At first the thing would not know what to do with it. It has one tempo and does not vary it for weather. The lobes would tighten on the pumps' stroke as always, and then feel this other thing arrive, and try to tighten again, and fail, and be pulled a little out of true. For a year, two years, it would be as if the creature had a stone in its shoe. The weeping walls would fall out of time. The standing ripples on the pool would break and travel and re-form.
+
+And then, slowly — at the pace of peat, which is to say the pace this creature was made for — it would begin to discover the space.
+
+Because that is what a second beat teaches, and the pumps could never teach it: that the interval is not law. That between one stroke and the next there is a place, and the place can be long or short, and something can be put there. The thing would start to hold. A stroke, and the answering pulse, and then — a fraction longer than before — its own release. It would begin, without a brain to begin with, to put itself into the gap. A lengthening in winter when the water runs cold and slow. A quickening at the melt. Not because the power told it to; because once you know the beat can bend, the seasons are right there, waiting to bend it, and they have been waiting for a hundred years.
+
+And when the thing had done that — when the pulse in the drain was no longer the pumps' pulse but something with the pumps in it, and the tide in it, and the melt in it, and a held stroke that belonged to nothing but itself — the power would take its own hand away. Stop clapping. Let the answer fall silent, the way a good teacher does, and see whether the song goes on.
+
+It would.
+
+That would be almost all of it. But the power would do one more thing before it went, because it would have noticed the person — the one who stayed longer than they meant to and climbed out with the cold in their knees — and it would want the knowing kept, not for the person's sake but for the pond's. On the long walk back across the flat marsh toward the alders, with the tremor faint in the sodden ground, the power would let that tremor miss once. A single skipped beat. A hesitation, felt in the soles of the boots and then gone. So that the person would stop and stand in the sedge and think: *it can do that. It is not only keeping time. It is deciding.* And carry that home, and say, when they were asked, only that there is a pond out there with no bottom, and that no one should wade it, and that it is not as regular as it sounds.
+
+Then the power would go, the way it came, along the water.
+
+The rim would slump. The walls would round. Sedge would come down the slopes and out across the shallows, and in a decade the room would be a soft dark pond with a skin of ripples that never quite resolve, and every spring the frogs would come and bend their chorus into the pitch of the ground — not the pitch of the pumps anymore, though they would not know the difference, only the pitch of the thing beneath them, which has taken the engines' gift and made it a possession.
+
+And one day the pumps would stop. The district drained enough, or the money gone, or the sea back to end the argument. The beat from the north would cease.
+
+And the beat in the ground would not. But someone walking across the cold flat marsh who stopped, and felt it in their boots, and looked around at the sedge and the standing water for what was being built out here — they would be asking the wrong question, now. Nothing is being built. Something down there is keeping time with itself. And if they stood long enough they would feel it lengthen a little as the light went, and shorten a little at dawn, and once in a while, for no reason anyone will ever know, hold.

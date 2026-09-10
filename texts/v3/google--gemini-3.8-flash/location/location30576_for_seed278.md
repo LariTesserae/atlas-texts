@@ -1,0 +1,25 @@
+At this elevation, the sky is not a dome but a ceiling of cold, bruised slate, hanging so low that the higher rounded brows of the plateau are perpetually submerged in it. The air is thin, tasting of powdered hematite and tallow. Moisture does not fall as rain; it settles out of the windless air as an unceasing, greasy dew that slicks the stones and collects in the shallow, shallow depressions of the bedrock—broad pans of gray water that never freeze solid, kept just above slush by some slow, deep warmth that does not belong to the sun.
+
+The mountains are ancient beyond memory, their sharpness ground down across epochs into broad, undulating stepped shields of dark basalt. There are no screes, no fresh fractures. The edges are soft, rolled, almost molded, resembling melted slag left to cool over geological ages.
+
+Between these broad swellings of rock, the vastness swallows distance. The horizon is impossible to fix; a ridge five leagues away looks identical to one twenty miles off, a succession of dim, leaden curves disappearing into vapor.
+
+Vegetation has surrendered the surface. It exists only as a thin, felt-like lichen that creeps through the dampness—slate-blue, leathery, and smelling of machine oil when crushed underfoot. In the crevices, small tufts of brittle wire-grass grow, hair-stiff and dark, their roots drinking from the thin skin of condensed moisture that coats the stone.
+
+Yet the plateau is not empty. It is crowded to its limits by a staggering, slow-moving census of things that breathe like furnaces and move like iron cranes.
+
+They are animals, but of an order where physiology has converged with heavy mechanics. Herd-vessels the size of locomotives, but low-slung, oval, plated in segmented black keratin that has oxidized into the dull orange of weathered iron. They move across the damp stone on hundreds of short, pneumatic pads—feet that do not step so much as cycle, rhythmically gripping and releasing the slick rock with the muffled, rhythmic suction of rubber gaskets. 
+
+Their bodies are vast, quiet factories of cold digestion. Along their flanks, rows of spiracles open and close with a sluggish, hydraulic precision, venting plumes of pale, warm steam that immediately condense into the freezing mist. Within them, one can feel—more than hear—the heavy, lubricated grinding of gizzard-stones the size of anvils, processing raw mineral lichen and volcanic shale into a dark, viscous paste that leaks occasionally from their venters, leaving tarry, steaming slicks behind them.
+
+There are millions of them. They carpet the distant valleys like drifts of dark iron scrap, yet because of the scale—hundreds of miles of open, undulating tableland—they never form a solid wall. They are dispersed evenly, each maintaining an engineered separation from the next, grazing the leathery lichen with mouths that act like slow rotary shears.
+
+Above them, hovering in the cold laminar drift of the high atmosphere, are lighter creatures: massive, rib-caged bladders of skin and tendon that float through the mist without the beat of wings. They have no eyes. Beneath their bellies hang long, jointed linkages of bone and tendon, resembling dangling drive-chains, which drag silently across the highest crests of the rock to orient them against the mountain’s tilt.
+
+Despite the enormity of the biomass and the sheer weight of their mass-production bodies, the silence is total. 
+
+The atmosphere is too thin to carry sharp transients. The animals possess no vocal organs; their communication is an infrasonic shudder that travels through the basalt beneath them, a rhythmic vibration like a diesel engine idling three floors below a basement. The stone hums softly under the boots. When a plate shifts on the back of a six-ton grazer, the sound is smothered instantly by the condensation clinging to its carapace and the vast, deadening sponge of the fog. A hundred thousand tons of walking meat and bone produces only the soft, continuous rustle of wet velvet being dragged across wet slate.
+
+There are no ruins here, no roads, no abandoned scaffolds of iron. The industry of this world was never forged; it grew, bred itself out of the marrow of the damp plateau, and settled into this rhythm before the valleys below had finished draining. 
+
+Change happens at the speed of grease cooling on cold rock. Occasionally, one of the great herd-vessels reaches the end of its cycle. It does not fall over; its pads simply seal themselves to the stone, the internal boilers cool, and the moisture begins to settle uninterrupted over its carapace. Within decades, the lichen bridges the gap between the rock and the creature's back, turning its segmented hull into another low, rounded mound upon the terrace, indistinguishable from the ancient basalt except for the faint, geometric symmetry of its ribs under the damp moss.

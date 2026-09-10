@@ -1,0 +1,33 @@
+The ones who live here are not visitors. They belong to the floor.
+
+At first you think there are too many of them to see clearly — that it is only crowding. Ankle to eye, shell to feather to fur, near-touching. Then you stand a while in the warm ankle-water and the crowding resolves into jobs, and the jobs resolve into a single animal with many bodies.
+
+Start low, where your feet are.
+
+The Mat. That is the base of everything. Black-blue mussels and grey oysters packed so tight the off-white tile underneath is only a rumor. They have grown shoulder to shell to shoulder until their shells have deformed to each other, ridged, barnacled, bearded together with byssus into a living pavement that breathes. In the warm sheet — knee-deep, body-warm, brackish, faintly metallic — they open a finger's width and close, open and close. Not in unison, but in a slow traveling ripple across a pan miles wide. They are filtering what comes up from below. The water weeps up through every expansion joint warm as blood, dosed with iron and copper, carrying no green, no weed, no scum — only a fine invisible soup of bacteria, lime, feather-dust, mite shit, dissolved bird. The Mat takes it and makes shell out of it. If you pry one up, the tile beneath is clean amber ceramic for a night, and by morning a dozen spat have glued themselves in the scar. The level never changes.
+
+Between and on the Mat, the Pickers. Small white crabs, bleached almost translucent by the unmoving day, with one claw slightly larger, clicking over tile like dry rain. You hear them before you understand them — millions of legs resolving into a hush. They eat the dead spat, the dying mussels, the moths that fall, the mite skins, the pigeon that died in the night. Pale isopods the size of a thumb work the seams, armored, slow, wedging into the weeping joints to graze the rust-red bacterial felt that grows there. Tube-worms have built thousands of tiny lime chimneys on the concrete lips of every weir, white calcareous tubes no thicker than a straw, each with a red fan no bigger than an eyelash that vanishes if your shadow passes. Under the Mat slide the eels, yellow-brown, slow as oil, eating the crabs that linger too long. Below the grates, where the floor gives onto darkness, there is a seething of black turban snails cleaning the intake screens, tongue on steel, endless.
+
+None of them hurry. None of them fight where you can see. The counts come out even.
+
+On the rims, the Standers.
+
+This is what you will remember. Gulls and pigeons and small brown waders standing so close their feathers touch, thousands to a slab, tens of millions to a district. White-grey, blue-grey dusted white with lime, speckled brown. They all face west, into the faint draft. Always west. Breast to the coolest air, tails to the drip. They do not call. That is the uncanny part — with that many throats there should be a roar. There is only breathing. A slow lift and settle, lift and settle, the whole slab breathing almost together, and the soft tick of water off a valve, and the Pickers underneath.
+
+They stand because there is nowhere else to be and nothing else to do. The racks go vertical in places — twelve-meter dovecote walls of precast pigeonholes, each hole warm and occupied, whitewash still fresh — but most prefer the rims. They doze standing in the warm mist. They preen lime out of each other's neck feathers. They shit, copiously, continuously, and their droppings have concreted with the lime drip into a second pavement, sharp and knuckled, and that pavement is already recolonized by acorn barnacles, white volcanoes opening to the wet air.
+
+Each bird carries its own smaller town. In the feather oil live thousands of pale feather mites, eating oil and skin scale. The birds shake, the mites and down fall to the pan, the mussels and tube-worms take them out of the water, the water runs off clear. If a pigeon dies — heat, age — it does not lie long. By morning the white crabs have unmade it to bone and the bone to fragments, and the line has shuffled sideways to close the gap, still facing west. No gap stays open. No pile accumulates.
+
+Above and below, the Veil and the Curtain.
+
+Under every pipe-bridge hang the bats in dense curtains, fur damp, wings folded tight around themselves like wet coats. Small brown bats, bellies pale from condensate. They hang in the drip and let the drip wash them. They do not fly in the day that never ends, or fly only in short sips — a flick out, a snap at a fly, back to the exact spot. Above them moves the Veil: flies and small white mealy moths in a low shivering sheet, so thick the light speckles through them. With no plants, no green, you ask what moths eat. They eat the birds. Not blood — dust. Feather powder, dried dropping dust, skin, the warm exhalation off millions of backs. Their larvae live in the guano crust. The adults rise and shiver and fall, and fall to the Pickers.
+
+Everything eats everything's leavings. Water in equals water out. Heat in equals heat out.
+
+They know the Cycle in their bodies. Stenciled on every shed: FLUSH ON CYCLE. Every few hours a pan runs a little faster, a sheet goes glassy over a weir. The mussels close. The crabs crouch flat. The eels go still under the Mat. The Standers lift half a meter in a white hush that makes no sound and settle again exactly where they were, west-facing. Then the ticking resumes.
+
+They are young, like the place. Every rivet head still crisp, every slab edge sharp, every stencil legible under lime. Nothing worn. And yet they act old — regulated, unpanicked, monastic. No riot. No boom. No roar. Facing all one way like a congregation listening to something just below hearing: the 50-cycle hum in the busbars deep down, felt in the teeth, and the almost-silent industry around them — pumps on magnetic bearings, conveyors inching, electrolyzers bubbling warm water into its gases and back — breathing with them.
+
+The men and women who poured this are not here. Or if they ever walk through in boots, the birds do not turn. The Work perspires, the pans evaporate, the white deck mists a few hundred meters up and never rains hard, the coldest copper pipes sweat dull rose and drip, and the drip keeps the pans full. The residents keep the water clear.
+
+Lift a mussel, another settles that night. Lose a pigeon, another shuffles sideways. That is who lives here: a floor that learned how to keep itself level to a finger's width, using shell and feather and chitin and damp fur to do it.

@@ -1,0 +1,22 @@
+This is the High Vascularity—a region where the concept of "ground" has been abandoned in favor of a vertical, self-assembling botanical architecture. We are at a staggering altitude, yet the air is thick, sweltering, and saturated with a suspended mist that feels more like a warm bath than weather. 
+
+Everything here is grown, but nothing here is a forest. The landscape is a "built" environment of pure cellulose and lignin, a massive, intentional-looking infrastructure of vaulted arches, tiered aqueducts, and soaring, hollowed-out spires that stretch for miles across a yawning mountain-cleft. It is as if a cathedral the size of a mountain range were attempting to build itself out of green-grey wood and succulent tissue, and it is doing so at a frantic, violent pace.
+
+### The Material and Structure
+There is no stone. There is no soil. Underfoot is a woven lattice of massive, high-pressure vines, some as wide as highways, covered in a slick, photosynthetic skin that pulses with the movement of internal fluids. The "floors" of this world are translucent membranes stretched over rigid wooden scaffolding. Because the erosion is so young, the edges of every leaf and the rim of every tower are razor-sharp, serrated and fresh, lacking the softened curves of age. The geometry is startlingly precise: hexagonal ventilation shafts the size of silos, perfect parabolic curves of weeping moss, and straight, fluted columns of bamboo-like material that rise until they disappear into the white-hot glare of the upper atmosphere.
+
+### The Water
+Water does not fall so much as it circulates. In the heat, the transpiration is massive. You are surrounded by the sound of it: a constant, deafening roar of liquid being pumped through vertical siphons. Great gouts of hot, mineral-rich water erupt from pressurized nodules in the "walls," falling hundreds of feet into catching basins of giant, cupped leaves, only to be sucked back into the structure through capillary pores. The air is a constant steam-vent. Condensation runs in thick, heavy rivulets down every vertical surface, feeding a mossy fur that glows with a faint, internal lime-colored light.
+
+### The Scale and Density
+The scale is vast, yet strangely empty. You can look out from a high-hanging gallery of woven bark and see the opposite side of the valley miles away, connected by single, impossibly long suspension-roots. Despite the total presence of vegetation, the world feels sparse; the structures are so enormous that the space between them is a terrifying, misty void. There are no clusters of small things, only the gargantuan singular organs of the world-plant. A single "room" in this landscape might be a mile wide, defined by the slow-pulsing ribcage of a gargantuan fern-analog.
+
+### The Dynamics and Sound
+This is not a peaceful place. It is turbulent and hyperactive. The heat drives a metabolism that is visible to the naked eye. You can hear the screech and groan of wood expanding under hydraulic pressure. A spire might grow ten feet in an hour, its bark cracking with the sound of a gunshot. The environment is in a state of constant, chaotic construction and collapse. Old, water-logged buttresses snap under their own weight and plummet into the misty depths, sounding like distant thunder, while new, emerald-bright shoots pierce through the wreckage with aggressive, stabbing speed. 
+
+There is no animal life—no birds to catch the thermals, no insects in the moss. The only "behavior" is the movement of the plants themselves, reacting to the heat and the water. The loud, rhythmic thrumming is the heartbeat of a world-sized pump, the sound of millions of gallons of water being forced upward against gravity to keep the towering heights from wilting in the scorching sun.
+
+### The Atmosphere
+The light is "normal"—a bright, unforgiving midday sun that turns the mist into a blinding white shroud—but the heat is oppressive. It is a wet, tropical heat that smells of crushed mint, ozone, and fermenting sap. The air is so heavy with moisture that every breath feels like a drink. 
+
+In this place, the rules of biology have overtaken the rules of geology. The landscape does not wait for tectonic shifts or slow erosion; it reconfigures itself daily through sheer, violent growth. It is a high-altitude greenhouse with no glass, a soaring city with no inhabitants, a masterpiece of biological engineering that is constantly tearing itself apart to build something even taller.

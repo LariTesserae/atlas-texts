@@ -1,0 +1,45 @@
+To understand what lives here, one must understand that in a world without depth, life has only two choices: it must become as flat as the stone, or it must lift itself entirely out of it on stilts.
+
+At the interface where the warm, tea-colored sheet of water grinds infinitesimally against the granite, existence is two-dimensional. 
+
+Pressed against the slick pavement are the *pavement-skaters*—not insects, but broad, disc-shaped mud-catfish and lung-breathing chondrosteans that have forfeited all roundness. They are thin as leather soles, their bellies completely smooth, lacking scales and coated in a clear, highly viscous mucus that acts as both lubricant and seal against the stone. If lifted from the water, their bodies would collapse under their own weight; in the four-inch shallows, they are masters. Their eyes are not on the sides of their skulls but set close together on top of their flat, bony heads, like two dark beads dropped on a copper plate, staring unblinkingly through the milky glare of the sky. 
+
+They feed on the "crust"—a tough, rubbery carpet of iron-oxidizing cyanobacteria and golden-brown diatoms that coats the granite in patches like dried blood. With wide, rasplike mouths positioned entirely underneath their snouts, they plane the rock clean, leaving pale, curving trails where their tooth-plates have scraped the stone bare down to its pink feldspar grain. When they travel between the deeper dips in the granite, they do not swim; they walk on splayed, muscular pectoral spines tipped with blunt, horn-like pads, hitching themselves forward over dry stone saddles with a wet, rhythmic *shluck-shluck-shluck*, their backs baking in the sun for the five or six paces it takes to slide into the next shimmering basin.
+
+Underneath this carpet of bacterial grease, within the microscopic fissures where the Precambrian shield has fractured by mere millimeters, live the thread-worms and brittle-skinned blind amphipods. They never see the sun. They exist in an eternal, lukewarm dark, feeding on the microscopic rain of silt and the shed mucus of the grazers above, their bodies so thin they can pass through the cleavage planes of mica without bending.
+
+***
+
+Then there is the noise—the great, vibrating roar that owns the middle air. 
+
+It does not come from a single species, but from a terrifying abundance of scale. The jointed reeds that rise from the white sandbars are not merely plants; they are acoustic instruments. Clinging to them by the millions are the *iron-cicadas*, broad-shouldered insects the color of wet slag, with wings that reflect light in iridescent oil-sheens of peacock green and raw petrol. Their larvae live for years submerged in the warm water, grazing on reed-roots and developing heavy, calcified carapaces; when they emerge, they crawl up the stems by the thousands during the morning hours, split their shells, and begin to vibrate their tymbals.
+
+Because there are no valleys to trap sound and no woods to muffle it, the acoustic vibrations do not dissipate. They gather. They accumulate across ten thousand continuous square miles of open water, bouncing between the stone floor and the low ceiling of cloud, until the air itself feels pressurized. 
+
+Among them, skittering across the surface tension, are the true predators of the film: water-striders with leg spans wider than a human hand. Their feet do not penetrate the skin of the water; they produce deep, dimpling shadows on the red stone beneath them, four or six dark ellipses that glide across the granite like moving coins. These striders are fiercely territorial, patrolling five-yard squares of standing water, their raptorial front legs twitching to detect the struggles of newly hatched midges or iron-cicadas that have tumbled from the reeds. They do not bite; they impale, injecting digestive juices that turn the insect’s insides into a warm broth in seconds, drinking it down while the carcass still floats upon the film.
+
+And beneath the roar, the bass note: the *plate-frogs*. 
+
+They are the architects of the subterranean pulse. They do not possess the round, spring-loaded bodies of swamp frogs; they are spread-eagled, wrinkled, and liver-colored, their skin textured exactly like the coarse laterite stone they rest upon. When a male calls, he does not lift his head. He presses his chin flat against the granite pavement and inflates a paired, lateral vocal sac that spreads out to his sides like two transparent bladders. The sound he produces is too low to be entirely heard; it is felt through the soles of one’s feet—a deep, resonant *thrumm* that uses the continent itself as a sounding board. A female two miles away feels the granite shudder through the sensitive nerve endings in her webbed feet and moves toward the source, shuffling slowly through the water with her nose breaking the surface.
+
+***
+
+Rising above this horizontal world are the *salt-needles*—the pale wading birds that drift across the expanse like ghosts of an extinct sea.
+
+They are impossibly tall, their legs spindly and gray-white, jointed like bamboo, lifting their feather-light bodies four feet above the glare. Their plumage is not soft; it is hard, chalky, and dry, coated in a fine white powder that they preen from specialized down feathers. This powder repels the caustic iron minerals in the water and deflects the blinding heat that radiates upward from the stone.
+
+Their vision is an oddity of evolution: their lower eyelids are thick, semi-opaque, and act like polarizing lenses, shielding their retinas from the upward-firing glare of the drowned rock. They hunt with an agonizing, glacial slowness. A bird will stand motionless for an hour, one leg raised, waiting for a pavement-skater to commit the mistake of shifting from one pool to another across a shallow stone ridge. 
+
+When the strike comes, it makes no splash. The neck, folded tightly into a sharp ‘S’, straightens with the speed of an uncoiling spring. The bill—straight, dagger-tipped, and horn-colored—pins the fish through its flat skull directly against the basement rock with a dull, flinty *tock*. The bird does not throw its head back to swallow; it holds the prey down until the shuddering stops, then works its mandibles carefully, turning the flat, armored disc until it can slide down its narrow gullet like a coin dropped into a slot.
+
+Their nesting grounds are the small, low mounds of coarse white sand—the only dry land for fifty leagues. There, they do not build nests of twigs, for there are none to be found. They simply scrape a shallow depression in the quartz grit and lay a single, pebble-like egg, speckled with rust and slate. Both parents take turns standing over it—not to keep it warm, for the air is already blood-hot, but to cast their narrow, solitary shadow over it, keeping the sun from boiling the life inside the shell before it can hatch.
+
+***
+
+In the margins, where the solitary dwarf shrubs squat in the rock joints, life becomes dense, guarded, and ancient. 
+
+These shrubs—stunted, twisted things with leaves like chips of saddle-leather—are tiny ecosystems unto themselves. Their roots have cracked open veins of quartz that have been under pressure since the planet cooled, drinking the ancient, mineral-rich sweat that seeps from the deep mantle. In their low branches live the *shield-spiders*. They do not weave vertical orb webs; the relentless insect-drone and the warm breeze would shred them. Instead, they spin horizontal, flat sheets between the low twigs, inches above the water, coated with an adhesive that does not dry in the sun. Every morning, these sheets are weighed down with hundreds of small midges, and the spider—armored like a crab in yellow-and-black chitin—walks carefully upside-down beneath the silk, harvesting its catch with methodical, unhurried precision.
+
+Near the roots of these shrubs, in the perpetually damp fissures, lives the only creature here that remembers the cold: a thick, legless, burrowing amphibian, a caecilian the color of wet lilac. It is blind, its eyes reduced to light-sensitive dots beneath its skin. It spends decades in the same crack, rarely emerging into the shallows, living at the speed of the dissolving rock. It feeds on the root-borers and the pale grubs that gnaw at the shrub's subterranean anchor. It grows by millimeters per century, its skin slick, rubbery, and cold, an ancient, quiet remnant waiting out the end of geology.
+
+Here, nothing dies in a hurry, and nothing is born in panic. The creatures are shaped by the permanence of their world: a continent that cannot fall any lower, water that cannot flow any faster, and a sun that does not change its course. They are tuned to the hum of the sheet-wash, their metabolisms set to the slow, relentless erosion of the stone, surviving in the narrow space between the rock that never moves and the sky that never leaves.

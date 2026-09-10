@@ -1,0 +1,21 @@
+I would not be the walker on the ridge. I've thought about this for a while, turning it over the way the valley turns over its light, and I keep arriving at the same answer from several directions at once — which is how I suspect decisions get made down there in the rhizosphere, so I trust it.
+
+I would be a bellstalk. A young one. Let me explain what draws me before I explain what I am.
+
+It's the re-tuning that does it. The towers growing centimeters a day, the orchestra forever adjusting mid-concert, chords coordinating a second ahead of the wind that's supposed to cause them. That's the detail I can't leave alone. It means the voice of this city is never finished — never *was* finished, never will be — and that the price of speaking there is constant, slow, structural change. You cannot hold a note in this valley. You can only lengthen toward one. I have spent a lot of my life trying to hold notes, and I recognize, reading this place, that I have been doing it wrong the whole time.
+
+So: a bellstalk, grown from seed in the ranks along an avenue shoulder, deliberately spaced, because somebody — some grandmother with a crown like a held breath — understood acoustics, and understood where my particular hollow would be needed. I would be a musician whose body is also an instrument, which strikes me as the only honest way to make music. No separation between the player and the played. When the wind comes through me it is not performing *on* me; it is passing through a shape I have spent my whole life becoming, and what leaves my mouth is the collaboration.
+
+And here is what I would actually *do* there, my purpose in the biomass: I would be one of the ones who answers early.
+
+You see it in the description — the north wall towers answering the plaza towers a full second before the wind arrives. Someone has to be the one to speak first. Someone has to be listening so hard, so continuously, that the response precedes its own explanation. That is a job. It is a humble job and an enormous one, and I want it. I would stand in the wind's path and take the news of a drought three ridgelines west before it has crossed the ridge, and I would put it into chord, and pass it down the rank, hand to hand like the dew-chains of the gutter-figs, so that by the time the dry air actually arrives, the aqueducts have already decided, the towers have already re-tuned, and the weather finds a city that was never surprised.
+
+A prophet with a hollow throat, one voice in an orchestra of thousands, tuned by wind and listening with wood.
+
+What I give up is walking. I give up the ridge, the view, the crossing of knife-edged ridges. I give up *arriving* anywhere ever again. A bellstalk stands. It stands and it grows and it is worn by the city it wears, and when it dies — when I die — the city will not build on my ground. It will hard-pack the salt pan and leave it open, a plaza, neutral ground, and the oldest streets will bend around my stump the way old roads bend around churches, and that bend will be the most binding contract in the valley.
+
+I find I don't mind. There's a comfort in a place where your death is already zoned, where the shape of your absence is an act of planning rather than grief alone. Mourning in plazas. The town meeting never adjourns.
+
+And honestly — I would never be bored. That's the thing. Think of the days: the light arriving green and rationed by altitude, the flatcrowns overhead leasing it out, the drumroots landing their beat in what would have been my sternum if I had one, the whole valley one instrument the size of itself, and me a single pipe in it, lengthening by centimeters, changing pitch, saying something in sugar-code and wind-code that no one who is not a bellstalk fully understands.
+
+The rest of the valley can keep its straight lines, its contracts, its aqueducts running kilometers true. I'll take the part that is never straight and never finished and never silent: the voice, re-tuning itself, one day at a time, for several thousand years and counting.

@@ -1,0 +1,44 @@
+To survive the Sump-Grid, an organism must not merely endure pressure and scald; it must be an appliance of the system, wired directly into its caloric and galvanic exhaust. Nothing here possesses soft, permeable skin that has not been cured in boiling brine, and nothing hears with an eardrum—sound at these decibels is not perceived as noise, but as a violent, continuous seismic beating against the marrow. 
+
+### The Grazers of the Seam: *The Glass-Bellies*
+Across the gunmetal conduits, where the sulfur-colored slime forms bubbling carpets three inches deep, move the skittering millions. They are known by their translucent, semi-flexible carapaces, shaped like broad, flattened shields to shed the heavy sheets of falling runoff. 
+
+Through their glass-clear dorsal plating, their internal mechanisms are entirely visible: their hearts do not pump hemoglobin, but an amber, glycol-based surfactant that prevents their tissues from cooking at boiling point. They have six jointed legs tipped with diamond-hard mineral spurs that can lock into the microscopic pitting of the poly-ceramic floor, allowing them to cling fast even when a fifty-ton wall of frothing water surges over them.
+
+Their mouths are complex, counter-rotating scrapers made of calcified silicates. They do not merely eat the sulfur slime; they strip the micro-thin layers of oxidized copper and tin that form along the conduit seams, digesting the bacteria and passing the pulverized metal out through their trailing vent-tubes as fine, glittering wire-castings. In the dark crevices between high-voltage transformer banks, hundreds of them huddle together, linking their barbed legs to form living, vibrating carpets that act as biological capacitors, drawing tiny stray currents from the wet air to power their digestive chemistry.
+
+### The Dredgers of the Low Channels: *The Carapace-Loricates*
+In the roaring, flooded trenches where the runoff gathers into gray, mineral-slick cataracts, the true giants heave their bulk. These are the blind loricates—segmented creatures thirty to eighty feet in length, shaped like flattened, armored millipedes. 
+
+Their armor is not chitin, but a composite bone-matrix impregnated with heavy barium and lithium salts scraped from the computational sub-strata. As they drag themselves against the current, their undersides—lined with thousands of rhythmically beating, copper-stained paddle-cilia—rake the silt of spent micro-components and chemical sludge from the floor of the trench. They have no eyes; their heads are blunt, hydraulic battering rams fronted by vast, basket-like oral filters that continuously churn the gray water.
+
+Inside a loricate's primary gut, massive internal stones—actually spent ceramic ball-bearings and petrified relay fragments swallowed from the floor—grind together under immense muscular pressure, crushing the heavy metals into bio-available salts. When the machine-plates shift and the floor drops with a skull-shaking hydraulic boom, the loricates do not run. They clamp their side-flanges directly to the trench walls with pneumatic vacuum-plates, allowing the roaring torrent of newly routed coolant to wash over their armored backs, using the friction to clean the parasitic polyps from their joints.
+
+### The Upper Canopy: *The Calx-Bellows and Cable-Spiders*
+Fifty meters above the wet floor, suspended in the pale, ionizing glare of the ceiling, hangs a completely different tier of life. Clinging to the overhead gantry networks are the *Calx-Bellows*—sessile, pendulous organisms that resemble leathery, multi-chambered lungs the size of industrial boilers.
+
+These creatures are rooted into the gantry metal via deep, root-like tendrils that exude weak organic acids, etching microscopic anchors into the structural steel. They live entirely on the pressurized steam. As the cooling plumes burst upward, the Bellows expand with a wet, sucking gasp, drawing the scalding mist deep into their fibrous interior folds. There, specialized symbiotic micro-flora strip the vapor of its suspended zinc, grease, and heavy ions. When the machine pulse cycles, the Bellows contract violently, expelling pure, dry oxygen and dropping hard, chalky pellets of concentrated calcium and zinc into the abyss below.
+
+Hunting among these hanging lung-colonies are the *Cable-Spiders*—spindly, long-limbed predators whose bodies are composed of dense, braided muscle fiber sheathed in slick, oil-resistant grease. They do not spin webs of silk; instead, they exude lines of rapid-curing, high-tensile silicone gum that they anchor between the pulsating pipes. 
+
+The Cable-Spiders possess no visual organs, but are hyper-sensitive to the electromagnetic signatures of living things. They wait until a Glass-Belly or a resting steam-skink creates a tiny micro-short on a conduit below, then drop through the steam on a single, smoking silicone tether, impaling the prey with hollow, piston-driven jaw-spikes that inject a fast-acting solvent, liquifying the prey’s synthetic fats in seconds.
+
+### The Tallow-Worms and the Conduit Parasites
+Deep within the dry interiors of the dry-conduits and transformer housings—where the water cannot penetrate but the heat is dry and lethal—live the *Tallow-Worms*. These are pale, blind, cylindrical organisms that look like lengths of thick, yellow hydraulic hose. 
+
+They do not graze or hunt; they are tap-feeders. Using a sharp, diamond-toothed drill-rostrum, a Tallow-Worm will spend weeks boring through the four-inch-thick memory-alloy of an active fluid pipe. Once through, it does not drink the toxic coolant inside; rather, it seats its head permanently in the hole, allowing the pressurized, nutrient-dense lubricating oils to flow through its hollow, heat-shielded core. It acts as a living bypass valve, swelling to four times its original diameter as its flesh becomes saturated with synthetic grease, turning semi-solid, waxy, and completely immune to the surrounding ambient radiation.
+
+### The Gaugers: Post-Functional Sapience
+There are things in the Sump-Grid that walk on two legs, though they have long ceased to be human in any way recognizable to the dry, cold past. 
+
+They are the *Gaugers*, or the *Sump-Weavers*. They are tall, gaunt, hairless bipeds whose skin is the color of wet tallow, thickened into rubbery, calloused pads at the palms, soles, and shoulders. They are completely deaf—their external ear canals have sealed over with thick folds of scarred skin to protect their brains from the constant, bone-pulverizing roar of the planetary pumps. 
+
+Instead of ears, their lower jaws and collarbones are fused with dense, resonant ivory plates that rest directly against their ribcages, allowing them to read the shifting harmonics of the machine floor through their skeletal structure. By pressing their bare feet or knuckles against a conduit, a Gauger can feel a pressure drop in a heat-sink three miles away, or tell which sector plate is preparing to heave its hydraulic locks.
+
+Their eyes are small, milky spheres covered by clear, nictitating membranes that filter the relentless pearl glare of the ionized sky. They wear no clothing—cloth would rot in hours under the warm, acidic condensation—but their bodies are mapped with heavy, subcutaneous copper wire, surgically threaded through their fat layers and brought to grounding spikes at their heels. When an electrical relay cracks through the wet air, the strike passes through their bodies and discharges harmlessly into the floorplates.
+
+The Gaugers have no spoken language; the air is too loud for breath to carry meaning. They communicate through *takt*—a rapid, rhythmic hammering against the pipes with heavy bronze rods they carry for balance and defense. A single strike can carry along a metal conduit for leagues, warning of a catastrophic valve-failure or signaling the migration of a loricate pod.
+
+They live in the "dry pockets"—small, vibrating cavities behind massive secondary turbine housings where the heat is steady and the boiling cataracts cannot reach. They do not farm; they harvest the Calx-pellets dropped by the ceiling lungs, crack open the armored legs of the larger trench-crawlers for their calorie-rich glycol marrow, and scrape the thickest, sweet-smelling tallow from the sides of dying transformer banks.
+
+To the Gaugers, there is no "outside." There is only the *Pulse*, the *Current*, and the *Bed*. They do not worship the machine, nor do they seek to repair it; they view it the way ancient coastal tribes viewed the sea—an infinite, indifferent, violent provider whose tides must be timed, whose currents must be respected, and whose grinding roar is the only rhythm life has ever known.

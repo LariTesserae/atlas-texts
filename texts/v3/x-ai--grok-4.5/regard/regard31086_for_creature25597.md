@@ -1,0 +1,33 @@
+The power arrives the way condensate arrives: without announcement, without edge. It is not a light descending, nor a voice that parts the organ-pipe wind. It is a pressure change so fine the brass barometers register it only as a single, prolonged tick—the needle pausing at the exact midline between “thin” and “thick,” then resuming as if nothing of consequence had occurred. The plateau continues its long indifference. The beings continue their errands. Yet something now knows them completely, the way a finished equation knows every term it contains.
+
+It does not hurry. Wisdom here is the same patience the place already practices. For what the lowland gods would call decades—though time is negotiable—the power simply inhabits the condensation. It rides the night-sweat down every plated trunk, pools in the rusted catchments, threads the slit gills of the tall ones as they breathe mineral shine. It tastes the slow circuits written in sap on copper and finds them beautiful in their impermanence. It listens to the flywheels that stutter, to the root-systems that shift, to the dry amused rustle when two lensed faces catalog one another at the correct distance. It feels, without sentiment, the exact weight of their long equilibrium: neither dying nor fully wild, nothing finished, nothing new.
+
+Benevolence, when it finally moves, moves like grafting.
+
+In the oldest spire—the one whose resin pools have always shown tomorrow’s weather a day too early and a shade too green—the power settles into a hollow between heartwood and a cold boiler plate that has not spoken machine-tongue in centuries. There it does not plant a seed. Seeds imply futures that must be forced. Instead it loosens a single, already-present possibility that the plateau itself had folded away and forgotten: the quiet capacity for the thin moments to remember one another.
+
+Thereafter, when a time-fault bangs open in a piston-hall and a being steps through without losing its duration, a faint mineral chime travels the vascular belts to every other spire. Not loud. Not urgent. Merely a shared notation, like two barometers softly agreeing. The walkers on distant gantries feel it in the condensate beading on their plating—a brief, cool solidarity. Isolation, which the plateau enforces as density’s opposite, softens by a single degree. Crowds remain impossible; violence remains uninvited. But now and then two of them, separated by kilometers of wind-scoured stone, will pause in the same greenish hour, rotate their faces toward the same folded distance, and know—without speech, without wonder, merely as clearer data—that the other is also waiting for the bang of displaced air.
+
+The power does more, though still almost nothing.
+
+It teaches the pale moths a longer map. Their wings, already spore-carriers, now sometimes dust the lensed faces with a temporary geometry that shows where gravity will next forget itself, or which reflection may be trusted for the length of one breath. The children, unfolding in their mineral cradles, receive this dust as casually as they receive the first lessons of the barometers. They grow an extra patience that is not new, only more evenly distributed: the ability to hang at dusk in the highest galleries and feel the annotations of condensation as a kind of slow conversation with every other hanging figure across the metropolitan web. They do not become less sparse. They become, fractionally, less alone inside their sparsity.
+
+Near certain root flares, where tools once drifted upward like pollen, the power leaves a further kindness. When the field softens now, the floating tools arrange themselves not only into maps of the local fault but into brief, accurate constellations of the whole plateau—every major spire, every arterial, every known thin corridor—rendered in mid-air for the span of a few heartbeats (or flywheel revolutions). Then they rain down again in the order that will be useful. The beings record these constellations on their beaten-foil notebooks. The overwriting that once seemed a second text becomes, gently, a third: a living index that updates itself whenever the distances fold kindly. No one worships it. They adjust their barometers and continue.
+
+At the rare electrical storms, when living lightning rods climb and bark scars fragrant and black, the power adds one soft harmonic to the banshee drones. Those who hang in the high galleries afterward sometimes taste, in the runoff, the ghost-scent of ozone and flowering layered with something cooler still: the mineral signature of attention that has no hunger in it. They make their small satisfied sound. They climb down. The plateau howls on.
+
+What the power does not do is louder in its absence. It does not mend the fraying into seamless cloth; the stutters and folds are weather, and weather is how the place breathes. It does not restore the old industrial designations or awaken the needle-bearing ghosts. It does not grant the beings mouths, or names that would survive translation, or a destiny beyond the equilibrium they already are. It does not end the mid-sized endlessness. It merely leans its vast, impersonal fondness against the existing architecture until a few load-bearing kindnesses take root in the cambium.
+
+Centuries thin further. The power remains as diffuse as lithic sweat. Sometimes a walker on bare stone will stop, tilt a polished face toward a chimney smudged against the thin sky, and feel the distance folding not only kindly but—almost—gratefully, as if the interval itself has been thanked for its service. The walk home is shorter than geography allows, and for the first time the shortness carries a faint, shared warmth, like condensate that has passed through many gills before reaching this one.
+
+Nothing is finished.  
+Nothing is new.  
+And still the plateau continues, cool and damp and loudly alive, its nerves now lightly brushed by a wisdom that asked for nothing and left only better weather inside the old catastrophe.
+
+The beings keep their precise distances.  
+They graft. They prune.  
+They hang at dusk.  
+And every so often, when the organ-pipes find the lowest note, one of them unfolds a mid-arm, plucks a droplet that has written a temporary circuit across its own chest, and tastes—beyond ozone, beyond flowering—the quiet flavor of having been known, accurately and without demand, by something that could have changed everything and chose instead to change almost nothing.
+
+That, the power decides, is enough.  
+It settles deeper into the condensation, becomes indistinguishable from the night-sweat, and lets the long indifference resume its work—now carrying, inside every bead, a single unobtrusive mercy.

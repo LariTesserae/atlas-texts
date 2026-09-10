@@ -1,0 +1,3 @@
+You hear Sough before you see it. Half a mile out on the marsh, where the causeway is just bundles of peat and willow under your boots, the sound arrives: a deep, patient heartbeat, six strokes to the minute, and above it a constant silver hiss of water moving through every kind of channel water can move through. By the time the reeds part and the land dips, the sound has stopped being something you hear and become something you are inside.
+
+The town sits in a bowl — the locals call it the Kettle — a hollow perhaps four hundred paces across, walled by low cliffs of orange and cream stone that sweat. They have sweat for centuries. The springs here rise warm and mineral-heavy, kind to leaves and cruel to eggs, and where the water runs down the rock face it builds

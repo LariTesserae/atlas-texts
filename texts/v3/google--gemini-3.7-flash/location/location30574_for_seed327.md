@@ -1,0 +1,25 @@
+The rock here does not form a valley; it forms an eye.
+
+At this altitude, the air is thin, sharp, and constantly scrubbed by updrafts, yet the rock itself is soaking wet. It is an immense, hollow chimney—a solitary breach punched through the spine of a mountain range that sits far above the lower cloud deck. From wall to wall across the interior span is perhaps only two hundred yards—the scale of a great cathedral’s nave, or a deep quarry—but beneath the open floor and above the overhanging lip lies sheer, unobstructed void.
+
+The space within the chimney is almost entirely empty air. There are no scree slopes, no stacked terraces, no central spire. It is a vast cylinder of negative space, an upright drum of cold daylight that drops straight down into blue-tinted nothingness. 
+
+Yet the vertical walls are alive.
+
+Water condenses out of the mountain's breathing. Heavy, wet cloud-masses are perpetually dragged up the outer flanks by the wind, forced through the clefts, and sheared against the cold stone, where they liquefy on contact. The rock does not merely drip; it weeps in broad, shimmering sheets that slide silently over blackened schist and pale, water-smoothed limestone. Centuries of this continuous wash have carved the walls into fluted runnels, polished ribs, and shallow hanging basins the size of tubs, all lined with dense, rubbery liverworts and thick cushions of wet, emerald-green moss.
+
+Because the rock never dries, a cold, vigorous jungle clings to the verticality. Hanging sedges with roots like braided wire trail ten feet down the sheer drops, their tips dripping water into the abyss. Dwarf mountain laurels with thick, waxy leaves wedge themselves into microscopic joints, their trunks bent sideways by the updraft.
+
+The noise is immense and continuous. It is not the roar of a single waterfall, but an acoustic trap: the howling whistle of the high-altitude jet screaming across the upper rim, blended with the hollow, drumming resonance of thousands of tiny water-drops falling through empty space, and the thrumming hiss of rising air. The chimney acts as a mammoth whistle. Every gust from the south produces a low, organ-pipe rumble that vibrates through the soles of your feet before it registers in your ears.
+
+Through this loud, wet emptiness, animal life moves with furious speed.
+
+Colonies of scissor-tailed cliff-swallows and pale, broad-winged prions nest by the thousands in the solution-pockets of the rock. They do not fly in horizontal lines; they drop from their roosts into the void, plummeting hundreds of feet to gather speed before banking on the violent thermal currents that shoot up the center of the shaft. Their calls are sharp, metallic clicks that bounce between the wet stone facets, multiplying into a ceaseless clatter. Fat, slate-colored skinks with webbed, suctioned toes skitter across the dripping vertical moss, hunting water-striders and long-legged stoneflies that hatch from the hanging pools. High up, where the mist catches the hard, unshielded sunlight, the whole interior is sliced by shifting diagonal shafts of brilliance, illuminating swarms of midges caught in the updrafts like bright dust.
+
+Human presence exists only as an anchor against gravity. 
+
+Tucked into a horizontal undercut on the leeward wall—a dry recess no deeper than a hay-wagon—sits a cluster of timber platforms. The wood is mountain pine, grayed by frost, tied together with thick braids of boiled rawhide and rot-resistant sedge cordage. Bone and stone wedges, driven deep into the bedding planes with wooden mallets, hold ironwood pins from which suspension cradles dangle. There are no bridges across the empty center; travel here is entirely perimeter-bound, moving along wet ledges no wider than a handspan, assisted by taut guide-ropes anchored to carved stone bollards.
+
+At the edge of the timber platform, a heavy wooden winch of rough-hewn beam-work sits greased with animal fat. Its basket—woven from split willow and counterweighted with smooth river stones dragged up from some lower world—hangs out over the drop, catching the spray. A line of small, hand-chipped niches in the stone leads down to a lower seep where shallow clay baffles have been pressed into the rock face to direct sweet, clean condensation into hanging skin bladders.
+
+The air smells of crushed fern, cold granite, ozone, and the sharp, ammonia trace of bird guano continually diluted by rain. The temperature hovers just a few degrees above freezing, keeping the lushness tight, compact, and tough. When the wind lulls for a fraction of a second, the light shifts, the sheets of water on the far wall flare like polished mirrors in the noon sun, and the great hollow falls into a momentary, ringing clarity—revealing the immense, pale blue drop below, where the water-mist vanishes into the lower sky before it can ever find the ground.

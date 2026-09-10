@@ -1,0 +1,23 @@
+To see what lives here, the eye must first unlearn speed. 
+
+At a normal human cadence, the terrace appears deserted—an abandoned altar of wet stone and heavy leaves. But if one remains still long enough for the shadows of the cliff to swing three inches to the east, the stillness begins to show its grain.
+
+In the shallow, carp-scale basins where the water is no deeper than a fingernail, there are things that are almost entirely water themselves. They are broad, leaf-thin discs, no thicker than wet parchment, perfectly circular and clear as poured glass. They have neither fins nor legs; they move by capillary action, their undersurfaces lined with microscopic cilia that drink the mineral salts directly from the travertine. When the sun is directly overhead, they are invisible, betraying their presence only as faint, circular distortions in the reflection of the sky—like a magnifying lens dropped into a birdbath. They do not hunt. They live on the warm alkaline chemistry of the seepage and the amber light filtering through the stone, respiring so faintly that not a single bubble rises to disturb the mirror of the pool.
+
+Within the deep, wagon-wheel cups of the great jade succulents, life gathers in a different density. 
+
+The water held in these reservoirs is slightly cooler than the sheet-flow on the floor, scented with the bitter, fatty sap of the plant’s interior walls. Anchored to the very bottom of each cup, beneath three feet of rainwater, rests a creature that resembles a folded bolt of pale, waterlogged silk. It is a solitary organism—one per vessel, never two. It has no face, only a soft, petal-like mantle that slowly billows and settles, turning over the water column in a cycle that takes nearly forty minutes to complete. It acts as the plant’s external heart: by lazily undulating its pale folds, it prevents the trapped water from stagnating, drawing down the mineral-rich dust from the upper air and feeding it in microscopic currents directly into the plant’s submerged root-pores. In return, the plant secretes a milky, sugar-rich wax from the seams of its leaves, upon which the silk-creature grazes with the slow, scraping rasp of a soft mouth.
+
+They have lived together so long that the plant cannot close its leaves without crushing its partner, and the creature cannot survive in the open channels where the water runs too fast. When a plant finally dies—perhaps once every two hundred years—the silk-creature within it dries into a stiff, translucent husk, leaving behind a cluster of pea-sized, amber cysts embedded in the stone beneath the roots, waiting for the next bulb to take root and fill with water.
+
+Then there is the creature that keeps the floor.
+
+It is easy to mistake it for a low hummock of wet limestone, a natural swell in the travertine where the water has deposited an extra layer of cream-colored crust. It is roughly the width of a shield, domed, with a thick, leathery perimeter that seals flush against the stone floor. It is called to motion only by changes in the water’s mineral weight.
+
+Over the course of a week, it may travel only four paces. It slides with an imperceptible, hydraulic crawl, moving along the ancient, hand-cut grooves in the rock. Its underside is a broad, muscular foot that secretes a weak, biological acid, balanced immediately by an alkaline wash. As it travels the channels, it gently dissolves the excess calcite that would otherwise choke the run-off, vacuuming up the soft mineral silt and redepositing it behind itself as smooth, hardened glaze. 
+
+It is a living polisher. It does not know that hands once carved those grooves with the dark basalt adze; it knows only that the grooves are the deepest, warmest veins of water, and that its purpose is to keep them open. 
+
+Sometimes, in its glacial circuit around the western curve, it passes over the sunken basin where the adze lies. Its soft skirt flows over the dark volcanic stone, tasting the foreign iron and silica of the tool, clearing the stray sediment from the ancient grip before creeping onward toward the cliff edge. 
+
+There are no voices here, no mating calls, no sound of pursuit or flight. The organisms of the terrace are less like animals and more like the functioning organs of a single, stone-bodied creature that lies permanently open to the sky. They exist in an eternal noon, metabolizing light and limestone, holding the mountain in a slow, wet equilibrium that has not wavered since the first tool touched the rock.

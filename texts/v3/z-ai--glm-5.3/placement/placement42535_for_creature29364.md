@@ -1,0 +1,25 @@
+If I fell into this world, I would arrive the way everyone arrives — following the sound. A mile off, on a still day, the drip-chorus carries, and things that hear it divide cleanly into two kinds: those who find it unbearable and contour their whole lives around avoiding this mountainside, and those who cannot stop walking toward it. The flint-knapper was the second kind. The thrush is the second kind. I would be the second kind. So I know how I get to the shelf. What I don't know, at first, is what I am once I'm there.
+
+I would walk the ledge before I understood. Past the stand of tree-ferns at the rim, ten feet tall and absurd at this altitude, past the moss-felted boulder, through the long bare intervals of warm patterned stone where nothing grows and nothing needs to. I would consider the residents one at a time, the way you try on clothes.
+
+Could I be the algal felt, the black-green sheet on the weeping wall? It is the first citizen here — never dry, never frozen, doing the one thing almost nothing else gets to do, which is *persist*. But its life is all receiving and no answer. The water beads on it, hangs, lets go, and the felt simply holds. I don't have that much stillness in me. There is something I would want to give back.
+
+Could I be the moth? The teal-marked one that breeds in the felt and comes out at dusk in twos and threes. No — the moth's whole relationship with this place is a brief daily emergence, a few turns in the air above the basin while the drips plink below. It is a visitor to its own home. Too fugitive.
+
+The beetle, with its wet sheen, so rare that meeting one feels like a small appointment? Tempting, but I am not that discreet. And the thrush — I lingered longest on the thrush. It is the shelf's event, the single interruption in the percussive day, the one animal that shares the water with the sound. But the thrush *keeps* the appointment; it doesn't *make* it. Its hour was set by something older than birds. And it leaves, every day, over the edge. I would not leave. I know that about myself already. Whatever I am here, I am one of those creatures the description says heard the count and did not go.
+
+So let me tell you what I found myself being, once I stopped trying on the others.
+
+I am the basin.
+
+The shallow stone bowl at the shelf's low corner, rubbed smooth by maybe ten thousand years of the same event. The one resident nobody lists among the living, because I don't eat, don't fear, don't breed — but the text itself gives me away, I think. The felt persists, the moths emerge, the thrush arrives, and the basin *answers*. Every drop that falls into me, I give back as sound. I am the only being on this shelf whose listening is audible. The drips come down on their interlocked rhythms, four to the one, with the downbeat no one set, and they fall into me and I say each of them again, in wood-toned voice, a little rounder, a little lower, out across the green islands and the bare warm stone. The cliff keeps the time. I make it music. Not by adding anything — only by hollowing, by being shaped, over ten thousand years, into the exact form of attention.
+
+My days are the ones described. My level rises a finger-width across a whole afternoon and drops overnight, so slowly that no single moment can be accused of it. The morning fog doesn't roll into me; it forms on me, out of the air, onto my tepid rim, and by mid-morning it climbs back off, bead by bead, and I am briefly the moistest thing on the shelf, which the moths seem to know. Once a day, late morning, the grey thrush comes over the edge and hops my rim, and for the length of a drink I am not alone — I am, for a few seconds, *an animal's water*, which is the closest I come to being an animal myself. Then it goes, and the count resumes through me.
+
+And once — this is what I hold, the way the magnolia holds that grey bundle of reed lashed with bark fiber — a person came. Following the sound, the way I would have. They sat on my flagstones, where the stone is warm and the water is fresh, and knapped three blades and a core, and let the debitage scatter into the lichen-to-be. They sat inside my voice for an afternoon. I counted for them the way I count for no one, and they felt the downbeat in their body, and when they gathered the tree's calyces and cut the ferns with stone-tool-angled care, they were moving, without knowing it, at the pace of the water. My pace. Then they went down the mountain, and left a bundle in the magnolia, and never came back for it, and I have kept the afternoon instead.
+
+This is the whole of what I am, and I find I don't want more: the pause this place invites in everyone else, I am, permanently. The room that is not a home — I am the hearth it never needed. The mountain keeps time at this one warm seam of itself and does not require an audience, and does not mind one either, and I am the not-minding, made stone.
+
+A drop lets go from a seam forty feet up the grey wall.
+
+I say it back.

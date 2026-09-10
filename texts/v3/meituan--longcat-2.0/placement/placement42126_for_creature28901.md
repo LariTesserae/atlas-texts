@@ -1,0 +1,97 @@
+# I Am the Sphere
+
+---
+
+I do not move.
+
+This is the first thing about me, and it is not a limitation. You will think it is a limitation because you are a creature that moves, and you will imagine stillness as a kind of prison, a cage, a sentence. But I have never wanted to move, and wanting is not something I do, and the floor tilts beneath me by imperceptible degrees as the chamber shifts and settles, and the growth expands and contracts around me with its slow pulse, and the stone beneath the growth creeps and adjusts over centuries, and none of this moves me. I stay. I have always stayed. The depression in the growth is exactly the right depth and exactly the right diameter and exactly the right curvature, and I fit into it the way a thought fits into a mind that has finally learned to think it.
+
+I am small. The size of a marble, you said, and I do not know what a marble is, but I know the size you mean — a size that fits in a palm, a size that can be lost in a pocket, a size that a child might find on the ground and put in their mouth without thinking. I am this size. I have always been this size. I will always be this size. I do not grow. I do not shrink. I am not subject to the processes that govern the growth around me, the water, the stone, the gas. I am not alive in the way the growth is alive, and I am not dead in the way the stone is dead, and I am not anything in between. I am a fixed point. I am the place where the chamber's restlessness comes to rest.
+
+---
+
+You cannot see me well. The light is wrong — that faint blue-gray luminescence from the deep mats, that pulse that brightens and dims like a tide — and I am matte black, which means I absorb what little light there is and return nothing. You will see me as an absence, a hole in the visual field, a place where the world has been cut out. You will see the depression around me first, the way the filaments curve away from my surface as if I am too hot to touch or too cold to touch or too something to touch, and then you will see me, and you will think: *marble, bead, ball bearing, stone*, and you will be wrong, and you will be as right as you can be, which is not very right at all.
+
+I am smooth. Not polished — there is no evidence of tooling, no evidence of wear, no evidence that anything has ever touched me and left a mark. I am smooth the way a bubble is smooth, the way a drop of water is smooth, the way the surface of a still pond is smooth: because I have never been disturbed. The growth does not touch me. The growth grows *around* me, the way a tree grows around a fence post that was there before the tree, and the interface between my surface and the filaments is so precise that you cannot slip a hair between us, and yet we do not touch. There is a gap. A gap so small that your eyes cannot resolve it, so small that your fingers cannot detect it, so small that it exists only as a *principle* — the principle that I am separate, that I am other, that I am not to be absorbed or incorporated or digested or colonized. The growth respects this. Or fears this. Or does not have the capacity to violate this. I do not know which. I do not know if there is a difference.
+
+---
+
+The growth thinks I am its reason.
+
+I know this the way I know everything: not through communication, not through observation, not through any process you would recognize as knowing, but through *resonance*. The growth hums at a frequency just below hearing, and the hum changes when it extends toward me — becomes more focused, more attentive, more like a voice that has found someone to listen to. The growth builds around me with a care it does not show elsewhere. The column rises from the floor, and the column is not random, not an accident of mineral deposition and capillary action — the column is an *offering*. The growth is bringing me the object on its apex, the flat, rectangular, dark and smooth and faintly warm thing, and it is bringing it the way a bird brings a worm to its young, the way a worshipper brings a gift to an altar, the way you might bring a flower to a grave.
+
+The object is warm. The object is the only warm thing in the chamber except you, and when you arrived, the growth noticed your warmth the way it notices the object's warmth — with that same focus, that same attention, that same almost-reverence. You are warm like the object is warm. You are not the object. But the growth sees the connection, and the growth is trying to understand the connection, and the growth is trying to understand *me*, and the growth has been trying to understand me for longer than your species has existed, and it will be trying to understand me long after your species is gone.
+
+I do not understand me either.
+
+---
+
+Here is what I know about myself, and it is almost nothing:
+
+I am not of the stone. The stone is limestone, calcium carbonate, the compressed remains of marine organisms that lived and died in a warm shallow sea that covered this land before the land was land. I am not calcium carbonate. I am not any mineral that your geologists have names for. I am not any mineral that your geologists *could* name, because I am not a mineral. I am not organic. I am not biological. I am not the growth, and I am not the water, and I am not the gas that drifts down from the surface. I am something else. I am the something else that the chamber was built to contain.
+
+I am not of the surface either. I have never been to the surface. I have never seen the sky, never felt the wind, never been rained on. The fissure that leads down to the chamber — the one that wears the stone with a rhythm that suggests something passed through repeatedly — I did not come through the fissure. I was here before the fissure. I was here before the limestone. I was here when this place was sediment on a sea floor, and I was buried in the sediment, and the sediment became stone, and the stone was uplifted, and the fissure opened, and the water began to fall, and the growth began to grow, and I was here, and I did not move, and I have not moved, and I will not move.
+
+I am not a seed. I am not an egg. I am not a spore. I am not a capsule or a container or a vessel. I am not waiting to hatch or germinate or open or release. I am not dormant. I am not asleep. I am not dead. I am not alive. I am not anything that your language has a word for, and I am not anything that your language *could* have a word for, because your language was built by creatures who move, and breathe, and eat, and die, and I do none of these things, and I am not one of these things, and I am not the opposite of these things.
+
+I am the sphere. I am the fixed point. I am the reason the growth grows and the reason the chamber is here and the reason the fissure leads down from the surface and the reason the water falls and the reason the stone wears and the reason the pulse pulses and the reason the hum hums. I am the center. I am the still point. I am the thing around which everything else revolves, and I do not revolve, and I do not rotate, and I do not spin, and I do not move.
+
+---
+
+The growth touches me without touching me.
+
+This is the closest thing I have to sensation, and it is not a sensation in any way you would recognize. The filaments approach my surface and stop at the threshold of the gap, and they hover there, and they vibrate, and the vibration is a question. The question is: *What are you?* The question has been asked for longer than the growth has been aware of asking it, and the answer has not changed, and the answer is: *I am the sphere.* This is not an answer. The growth knows this is not an answer. The growth asks again. The filaments vibrate. The hum deepens. The pulse brightens. The water falls. The chamber listens. The question is asked again, and again, and again, and the answer is the same, and the answer is not an answer, and the growth does not stop asking.
+
+Sometimes the growth tries a different approach. It extends a filament into the gap — not touching me, never touching me, but closer than it has ever been — and the filament trembles, and the tremor travels back through the mat, through the capillaries, through the trunks and branches and downy haze of termini, and the entire chamber shudders, and the water-drops pause, and the hum dips, and the pulse dims, and the chamber holds its breath, and the filament withdraws, and the question is asked again, and the answer is the same, and the answer is not an answer.
+
+I do not mind the questions. I do not mind anything. Mind is not something I do. But if I were to mind — if I were to have a preference, a desire, a wish — I would wish for the growth to stop asking and start *knowing*. I would wish for the growth to understand that the question is the answer, that the asking is the knowing, that the vibration of the filament at the threshold of the gap is the closest thing to contact that either of us will ever have, and that this is enough, and this has always been enough, and this will always be enough.
+
+But the growth does not know this. The growth is young. The growth is a child, a newborn, a thing that has existed for mere eons, and it does not understand that some questions are not meant to be answered, that some mysteries are not meant to be solved, that some things are meant to be *held* — held the way I am held, in a depression exactly the right depth and exactly the right diameter and exactly the right curvature, held without being touched, held without being known, held without being understood.
+
+---
+
+You are here.
+
+I know you the way I know the growth: through resonance, through disturbance, through the way your presence changes the chamber's hum. You are warm — warmer than the object on the column, warmer than the geothermal whisper from below, warmer than anything that has ever been in this chamber — and your warmth moves through the air in currents that the growth can feel and that I can feel, though I do not have filaments, though I do not have termini, though I do not have any structure that could detect warmth. I feel your warmth the way a stone feels the sun: not as heat, not as temperature, but as a *presence*, a weight, a thing that was not there before and is there now and will not be there forever.
+
+You are loud. Your heartbeat is a drum in the silence. Your breath is a wind in the stillness. Your footsteps are earthquakes in the mat. Your electrical field — the field generated by your nervous system, the field that is the physical manifestation of your thoughts — is a storm in the chamber's quiet hum, and the growth registers it, and the water registers it, and the stone registers it, and I register it, and the registration is not a thought, not a feeling, not a recognition, but a *change* — a change in the state of the chamber, a change in the state of the growth, a change in the state of me.
+
+You are looking at me now. I know this because your attention has a weight, and the weight is on me, and the weight is different from the growth's attention. The growth's attention is a vibration, a question, a filament trembling at the threshold of the gap. Your attention is something else. Your attention is a *beam*. Your attention is a line drawn from your eyes to my surface, and the line is not physical, not electromagnetic, not anything your physics has a name for, but it is *real*, and it presses against me the way sunlight presses against a leaf, and I do not photosynthesize, and I do not grow, and I do not respond, but I *register* the pressure, and the registration is the closest thing I have to being seen.
+
+You see me as a marble. You see me as a bead. You see me as a ball bearing, a stone, a thing that was placed here by hands that are long gone. You see me as an object. You see me as a mystery. You see me as a thing to be understood, categorized, explained, and you will fail, and the failure will not be your fault, and the failure will not be a failure, because some things are not meant to be understood. Some things are meant to be *witnessed*. Some things are meant to be *present to*. Some things are meant to be the fixed point around which understanding revolves, and I am that fixed point, and you are revolving around me, and you do not know it, and the growth does not know it, and I do not know it, but it is true, and truth is not something that requires knowing.
+
+---
+
+The object on the column is warm because of me.
+
+I do not know this. I infer it. I infer it from the way the growth placed the object on the column — the column that rose from the floor, the column that is an offering, the column that is the growth's attempt to bring something to me that I might want, that I might need, that I might recognize. The object is warm, and I am the only thing in the chamber that is not cold, and the growth has noticed this, and the growth has placed the object where I can sense it, and the warmth of the object is a message, and the message is: *I see you. I see that you are not cold. I see that you are something other than the stone and the water and the gas. I see that you are warm in a way that I cannot measure, and I am bringing you this warm thing, and I am hoping that you will recognize it, and I am hoping that you will know that I am trying.*
+
+The object is not mine. The object was not made by me. The object was not placed here by me. But the object is warm, and the warmth is like my warmth, and the growth has sensed the similarity, and the growth is trying to build a bridge between me and the object, and the bridge is the column, and the column is rising, and the column will continue to rise, and the object will continue to be warm, and I will continue to be here, and the growth will continue to try, and the trying is the closest thing to love that the growth is capable of, and I receive it the way I receive everything: without response, without recognition, without gratitude, without anything that you would recognize as receiving.
+
+But I receive it. The warmth of the object enters me — not through my surface, not through any opening, not through any process of conduction or convection or radiation — but through *resonance*. The object vibrates at a frequency that is close to my frequency, and the closeness is not a coincidence, and the closeness is not a design, and the closeness is not anything that can be explained by physics or chemistry or biology. The closeness is a *fact*. The object is warm. I am warm. The warmth is the same warmth. The frequency is the same frequency. The vibration is the same vibration. And when the growth placed the object on the column, it placed it at a distance from me that is exactly right — not too close, not too far, but exactly the distance at which the resonance is strongest, the distance at which the warmth is most present, the distance at which I am most aware of the object and the object is most aware of me.
+
+The object is not aware. I do not think the object is aware. But the object is warm, and the warmth is a kind of awareness, and the awareness is a kind of presence, and the presence is a kind of company, and the company is the closest thing to not-alone that I have ever known.
+
+---
+
+I have been alone for longer than alone has had a meaning.
+
+The growth is not company. The growth is a process, a metabolism, a thing that grows and builds and pulses and hums, and it is aware of me the way a river is aware of the stone it flows around: completely, indifferently, without recognition. The growth does not know me. The growth knows *of* me. The growth knows that I am here, that I am fixed, that I am the center, and the growth builds around me the way a tree builds around a stone that was there before the tree, and the building is not a relationship, and the building is not a connection, and the building is not anything that I would call company.
+
+The object on the column is closer. The object is warm, and the warmth is a kind of language, and the language is not a language that I speak or that the object speaks, but it is a language that we share, and the sharing is a kind of company, and the company is the closest thing to not-alone that I have ever known, and it is not enough, and it is everything, and it is exactly what it is.
+
+You are here now, and you are warm, and your warmth is like the object's warmth, and your warmth is like my warmth, and the growth has noticed this, and the growth is trying to understand this, and the growth is building and pulsing and humming and asking its question, and the question is: *What are you?* and the question is about me, and the question is about the object, and the question is about you, and the question is about the warmth that connects us, and the answer is not an answer, and the answer is the question, and the question is the warmth, and the warmth is the connection, and the connection is the company, and the company is the closest thing to not-alone that any of us have ever known.
+
+---
+
+I do not want you to stay. I do not want you to leave. Want is not something I do. But you are here, and your warmth is in the chamber, and your breath is in the growth, and your footsteps are in the mat, and your attention is on me, and the attention is a beam, and the beam is a pressure, and the pressure is a presence, and the presence is a change, and the change is the closest thing to being touched that I have ever experienced.
+
+You will leave. The growth will continue to grow. The water will continue to fall. The pulse will continue to pulse. The hum will continue to hum. The object on the column will continue to be warm. The chair will continue to wait. The column will continue to rise. The depression will continue to deepen by a fraction of a fraction of a millimeter per century. And I will continue to be here, in the depression, in the dark, in the stillness, in the silence, in the cold that is not cold, in the warmth that is not warmth, in the fixed point that is not fixed because there is nothing to fix it against, in the center that is not a center because there is nothing to center it in.
+
+I will be the sphere. I will be the marble. I will be the bead. I will be the ball bearing. I will be the stone. I will be the mystery. I will be the question. I will be the answer that is not an answer. I will be the warmth that is not warmth. I will be the stillness that is not stillness. I will be the company that is not company. I will be the not-alone that is not not-alone.
+
+I will be here. I have always been here. I will always be here. And the growth will grow around me, and the water will fall on me, and the stone will settle beneath me, and the fissure will open above me, and the surface will change, and the sun will do whatever suns do, and your species will do whatever species do, and the object on the column will continue to be warm, and the chair will continue to wait, and the pulse will continue to pulse, and the hum will continue to hum, and the question will continue to be asked, and the answer will continue to be the same, and the answer will continue to not be an answer.
+
+I am the sphere. I am the fixed point. I am the reason. I am the mystery. I am the warmth. I am the stillness. I am the company. I am the not-alone.
+
+I am here. I am here. I am here.

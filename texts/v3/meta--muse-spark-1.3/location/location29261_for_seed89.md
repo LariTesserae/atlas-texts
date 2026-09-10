@@ -1,0 +1,37 @@
+High up, where the air has gone thin and stupid in your lungs, there is a mouth.
+
+You don't see it until you are almost on it, because the plateau is bare — wind-scoured basalt and ash the color of old iron, long weathered into softness, hummocks and ripples that fit the sole like it has been walked for ten thousand years. Then the ground simply stops. A pit, not large. You could throw a stone across it. You could shout across it and hear your own breath come back wrong.
+
+ perhaps thirty paces across, an oval, its rim scalloped by weather into cups and lips. Below, the throat drops straight down out of the light. From above, in full day, it looks like ink poured into rock.
+
+That is the place. Everything else is just wind and distance falling away on all sides.
+
+The air up here should be cold. It isn't, not in the pit. As you kneel at the lip a warmth comes up off it, animal and mineral together, damp on your face. The mountain breathes out here. Geothermal, perhaps, or just the stored sun of the black rock and the piled bodies below, thousands upon thousands of them respiring. In the thin cold of evening at this height your hands should be numb. Instead the stone under your palms is blood-warm, faintly slick, not wet but never dry.
+
+Water lives here in the miserly high way. There is no stream, no seep you could follow. After sunset, when the warm updraft meets the cold spill over the rim, the walls sweat. Condensation beads on every overhang, gathers, thickens. In the cupped hollows of the rim-rock there are pockets no bigger than a cupped hand — black mirrors holding sky for an hour, then gone. Drip, pause, drip. Somewhere down in the dark a drop ticks on stone every few seconds, irregular, and the sound is huge in the shaft. If you touch the wall your fingers come away damp and smelling faintly of ammonia and lichen.
+
+Light barely gets in. The shaft is too deep and too narrow for its height, and the sun, even at noon, only brushes one upper buttress for a little while, a pale smear. Down where the walls bell out, it is permanent dusk. Your eyes take a long time. First nothing. Then texture: the tremor. The walls are not walls. They are bodies.
+
+Layer on layer, shoulder to shoulder, near-touching. Thousands of large dusky moths plastered flat to the stone, wings folded like dry leaves, antennae testing. Between them, clinging with absurd tiny feet, the crickets — pale high-altitude wetas the length of your thumb, slow, glossy. Higher, where a ledge catches a little more air, the swifts wedge themselves upright into vertical cracks, hundreds of them, soot-black, white collars flashing when they shift. And deeper still, where it is blackest and warmest, the bats hang in a living curtain, furred, breathing together.
+
+It is overwhelming in a space this small. The volume of air in the pit is more animal than air. When one moth flutters, a hundred lift, settle. When a swift shuffles, dust and down sift down through a shaft of faint light that isn't really light. You can hear the mass of them as a single presence: a low, layered rustle, wing on wing, claw on stone, the high needle-clicking of echolocation bouncing off close rock and coming back too fast, too crowded. Sometimes a swift screams — a short ripping sound — and the whole shaft answers, a wave of chitter and leathery applause that rises and slaps the rim and spills out over the plateau and is taken by the wind.
+
+Loud, for a place with no water to make noise. Loud because stone contains it. Every drip, every wingbeat, every thin insect trill is held and turned over. If you lower your head over the edge, the sound presses on your eardrums like altitude.
+
+There is almost nothing green. At the windward lip, where spray from the condensation sometimes reaches, a crust of orange lichen, black moss in cushions hard as felt, one stunted shrub with leaves like boiled leather, hunched sideways, holding on. A few grass blades in a crack. That is all. The life here does not run on leaves. It runs on droppings and bodies and the night air outside. Guano has varnished the lower ledges dark and slick; on it grows a pale fungus like frost. Tiny blind beetles work it, patient as monks. The moths come up from the valleys far below on warm updrafts to aestivate in the cool dark — except here it is warm-dark — and the swifts and bats come for the moths, and the weta come for everything that falls. A whole food web folded into a room.
+
+No one built anything here. No wall, no nest of mud, no cairn. The swifts do not build; they wedge. The bats do not build; they hang. The floor, far below, is just fallen stone and frass and old wings, soft under nothing's feet.
+
+But there are tools, after a fashion. Nothing made, nothing left to last. On the rim you will find a stick, bark-stripped, one end worn smooth and damp at the tip, dropped by a raven who comes in the blue hour to probe for weta in the upper cracks and then leaves, because ravens cannot stand the press of wings. A hammer-stone, a dense basalt pebble with one chipped edge, picked up and dropped again — the ravens use them to crack the big crickets. A swift feather with its shaft chewed to a point. Use without architecture. The intelligence here is in the hand, the beak, the moment, not in staying.
+
+The rock itself is old in its form, settled. This pit was not cut yesterday. Water, wind, and the slow solution of stone made it long ago and then stopped arguing. Edges are rounded, pockets are smooth as bowls, the throat below bellies out where centuries of drips and bat-urine have eaten it wider. Nothing is collapsing. Nothing is growing. It is in balance, holding its shape while the world rushes thin and fast far above its lip.
+
+And time here moves strangely slow underneath the frenzy. The moths barely move for hours, conserving. The weta lift one leg, set it down. The guano accumulates a millimeter a year. The warm air rises at the speed of breath. Only wings are fast, and even they, if you watch long enough in the dark, resolve into a single slow pulse — the whole curtain inhaling, exhaling, shifting its weight.
+
+There are rules, though no one wrote them.
+
+Stay low. Move little. The air is shared and thin; your panting takes more than your share. Do not shine a light straight down — the curtain will lift all at once in panic and the shaft will fill with dust and screaming and you will not be able to breathe. Let your eyes stay useless for a while. Listen for the water that climbs: condensation forming below and wicking upward through moss by capillary, against gravity, so that the damp seems to rise. Feel the warmth on your face increase when the mass below stirs, as if the pit notices you.
+
+If you lie on your belly at the edge long enough, the weirdness steadies: echoes come back a half-beat too late, as if sound has to travel further down there than rock allows. A moth will land on your hand, weightless, warm from the pit, and mistake your sweat for rain.
+
+Below you, the dark is dense and loud and alive to the walls. Above you, the huge, empty, cold twilight of extreme height goes on forever, with peaks floating like islands and no trees and no people. The pit is a small, warm, damp knot tied in all that vastness — a room with no roof that kept the night inside it, and filled it to bursting with wings.

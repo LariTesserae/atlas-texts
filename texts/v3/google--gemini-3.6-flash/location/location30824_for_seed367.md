@@ -1,0 +1,25 @@
+High on the face of a wind-smoothed bluff, tucked into an alcove no deeper than a man’s reach and no wider than a wagon, lies a world that has forgotten water.
+
+The rock surrounding this pocket is primordial sandstone, worn so down by millions of years of dry gales that its edges have long since dissolved into soft, undulating contours, like poured wax cooled in a draft. There are no sharp fractures here, no fresh scree or jagged talus. The rock has settled into its final, ancient state: a butter-colored, fine-grained shelf that radiates a steady, gentle warmth drawn from the sunlit air outside, though the alcove itself rests in perpetual crepuscular shadow.
+
+It is bone-dry. No rain ever curls under the lip of the stone overhang; no springs seep through the dense, baked strata. Yet the alcove is choked with growth. 
+
+Without liquid water, the flora has evolved along a path of oil, wax, and dense dust-pith. Massive, velvet-textured tapestries of silver-leafed succulents carpet the floor and scale the rear wall, their fleshy discs pressing so tightly together they form a springy, living floor. From the upper curve of the ceiling hang thick, ropey curtains of golden beard-lichen—dry as tinder to the touch, yet supple, living on the microscopic mineral dust swept up from the canyon floor below. Bushes of wild resin-thorn, their bark like polished mahogany, squeeze into every crevice, thrusting out dense clouds of dry, paper-thin blossoms that smell faintly of cinnamon and hot iron. The growth is lush, saturated, and completely arid—a jungle of fibrous pulp and heavy oil.
+
+Clinging to this vegetation and embedded directly into the hollowed curves of the stone is a city. 
+
+It is a settlement built at a microscopic human scale, or perhaps for something smaller still. Hundreds of tiny, domed dwellings are stacked twenty-high against the cliff wall, constructed from pulverized sandstone mixed with sticky plant resins and reinforced with woven grass stalks. Hand-formed mud bricks, baked hard by the ambient heat, form narrow terraces, tiny spiral stairways, and grain-silos no larger than gourds. Bridges made of braided gut and dried vine-fiber span the narrow gaps between the succulent mats and the stone ledges. 
+
+Every square inch of the alcove’s volume is utilized. There are lower districts nestled under the roots of the resin-thorns, where the dust settles thickest, and upper tiers woven directly into the hanging lichens, swaying gently in the warm draft. The architecture is purely manual: no metal supports or scorched forge-marks exist here. The stone has been scraped with harder river-pebbles brought up from the plains; the wood is notched with flint blades; the joints are bound with dry sinew. It is an intensive, organized urban density, an ancient pueblo miniature packed tight inside a natural hollow.
+
+And the place is alive with an overwhelming, frantic abundance of fauna.
+
+The air inside the pocket is thick with tiny presences. Thousands of dusty, iridescent-shelled beetles—some as small as pinheads, others the size of walnuts—clamber along the resin-brick walls, carrying harvested dry-spores into the city's granaries. In the woven canopy above, colonies of dwarf gliders, their fur the color of dried thyme, leap between the lichen fronds with dry, papery clicks of their patagia. Lizards with skin like beaded suede scuttle along the terraced streets, their movements flick-sharp and constant as they hunt the swarms of dust-moths that rise from the succulent beds.
+
+The sound is immense. It fills the small space like the inside of a beehive. There is no quiet here; the alcove amplifies every scratch, chirp, and rustle. The air vibrates with the collective buzzing of thousands of dry-winged insects, the rhythmic *thrum-thrum* of glider calls from the roof, the dry rasp of lizard scales on baked mud, and the soft, continuous tapping of the city's tiny builders reshaping their resin walls with wooden mallets.
+
+Light reaches the enclave only as a soft, reflected amber haze. The harsh glare of the high-altitude sky outside is intercepted by the deep overhang, turning the interior into a warm, dim sanctuary. In this twilight, dust motes drift in slow, heated convection currents, catching the faint glint of beetle wing-cases and the polished surfaces of the resin-paved walkways.
+
+Nothing stays still. The biological and mechanical pace of the enclave is furious. A wind-draft sweeps across the lip of the cave, and instantly a thousand dust-moths burst from the brush; gliders drop from the ceiling to intercept them; handlers on the bridges pull in their drying ropes of resin-pith to keep them from being coated in displaced silt. Somewhere in the dense lower quarters, a wall of sun-dried mud crumbles from age, and dozens of small, nimble hands immediately begin clearing the rubble, slathering fresh plant-glue onto stone flakes to rebuild the threshold before the warm evening sets in.
+
+It is an old world contained in a handful of shadow—dry, crowded, deafening, and relentlessly, fiercely alive.

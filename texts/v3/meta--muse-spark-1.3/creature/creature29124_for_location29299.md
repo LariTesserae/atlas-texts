@@ -1,0 +1,37 @@
+At first you think nothing lives here.
+
+That is the density of it. You can stand in the middle of the basin and turn a full circle and count what moves on no hands. Stone, damp, lichen, roar. The white bird on the tor is so still for so long you decide it is a knob of quartz. The cloven trail ends in nothing, so you decide its makers are gone. The fur coil under the overhang is old, white, stiff — shed and left. The windbreaks and cairns and the little folded hut are empty in the way of very old sheepfolds. Shelter without sheep.
+
+Then the bird blinks.
+
+Not quickly. A slow, nictitating shutter, grey lid over black eye, and then it is still again. But it has re-tuned the whole valley. Once you have seen one blink, you see the second bird on the second tor, and the third. Dirty-snow color, ptarmigan-sized, but the legs are wrong — too long behind, jointed both ways, like a folding stool. They do not perch so much as brace. They do not fly. There is not enough air to fly properly here, and too much noise. Instead they sit and watch with the patience of something that knows time will not pass to rescue it.
+
+They are not birds. Not quite. That is the first loosening.
+
+If you watch long enough — and here you will watch long enough, because walking does not get you anywhere — you see one shift its weight. It unbraces one of those wrong legs, reaches down with a foot that is not a foot, split in front into two black, cloven toes, and scratches deliberately at the orange lichen. Flakes fall. It bends — impossibly far, neck folding down between its legs — and licks them up with a flat grey tongue. Then still again.
+
+The herd-trail makes sense after that. It is not a herd. It is these, on the ground, walking single-file from tarn to tarn. The prints lead and then stop in the middle of bare rock because at a certain lightness they stop walking. Up is thin here. You have felt it yourself, your pack going weightless for a step, pebbles hanging a finger’s width above the ground. They know how to do it on purpose. They step, and step lighter, and the third step does not land. They lift — not fly, lift — a slow drift a hand’s breadth up, legs dangling, fur fluffed to catch what air there is, and scud without wind to the next damp seam. That is why the trail vanishes.
+
+Fur. They are furred. White, but not clean white. The white of old snow with grit in it, of lichen-pale and granite-grey, perfect against the tors. Dense underwool that beads with condensation and holds it. Everything here sweats and never drips. They are the same. In this cold that never becomes storm and never eases, you do not drink from streams because there are no streams. You drink from yourself and from each other and from stone. You press your belly to a boulder on the leeward side and soak up the beads. You sit in the moss sponge until your fur is heavy. Then you go under an overhang out of the suspended ice-rain and shake, and comb out the stiffened outer coat with those too-long fingers, and leave it coiled to keep. Nothing rots here. The coil you found is not litter. It is a reservoir. A second skin kept dry for when the first is waterlogged.
+
+And the hands. You keep coming back to the built things. No metal. No wood. No right angle. Only stone placed on stone. Horseshoes open always to the east, though the wind comes from everywhere. A flat slab inside, swept clean.
+
+It is them. The perched ones and the walking ones are the stacking ones.
+
+When they are on the ground they fold. That wrong-leggedness is really wrong-bodiedness: shoulders that hinge extra, spine that doubles. That is why the beehive hut is too small to sleep in unless you fold yourself double. They do. They tuck beak to tailbone, knees up around ears, elbows out, and fit. They sit in the horseshoes the same way, tucked tight on the swept slab with their backs to the stone and their faces to the east, to the paler smudge that is the sun that never arrives. Not for shelter — there is no wind to break. For listening.
+
+Because the slab is swept clean so the hum comes through unmuffled. The roar. The low organ-pipe from the rock itself overlaid with the high thin whistling just behind your ears. You thought it was weather. It is not. It is them, and it is also what they tend.
+
+Put your ear — or, if you are them, your whole folded belly — to the slab and you feel it: the basin ringing like a struck bell that never decays. Stone set on stone all those years ago changed the resonance a fraction. A windbreak here, a cairn there, a ring flush around a tarn like a hearth with no ash. Each placement tuned it. They are not houses or markers. They are frets. Dampers. They keep the loud stasis *on*, at fixed volume, everywhere and nowhere. That is their work and their food and their speech. In air this thin you cannot shout far. In noise this loud you cannot call. So you stack. Stone on stone says: I was here, I am still here, keep ringing.
+
+The young ones — if young means anything where nothing grows to replace — learn by the tarns. Every tarn is black and still and reflects wrong: not the sky above but the ridge opposite, not the now but a stored then. Kneel long enough and a secondary roar rises from the surface, tuned just under the main, and in it you can hear footsteps, breathing, stone set on stone. The sounds that made the windbreaks, still circulating, unable to decay. The perched ones bring the folded ones to the edge and dip their beaks and let them drink the memory. That is history here. Not story. Condensate.
+
+That is why they duplicate. You swore you passed the same split boulder with the hand-shaped lichen three times walking straight. You did. They do too. There are very few of them — perhaps a dozen presences in a township-sized cirque — but distance is negotiable, cairns ten paces apart take a hundred paces, and a single white watcher seen from three slightly different angles is three white watchers. They use it. One individual tending three slabs by walking a straight line that returns. One herd that is one file that is one animal lifted and set down again.
+
+They do not get warmer. They do not get colder. Their breath, like yours, hangs a second too long in front of their folded faces, too tired to disperse. Occasional ice-needles hang around them glittering and never land, and gather on their fur. They do not brush them off. They let them gather. Bright, unfalling.
+
+If you sit long enough in one of the horseshoes, cold through your trousers, wet through your trousers, roar filling your skull until you cannot tell if it is outside or in your blood, one of them will lift from a distant tor without wingbeat and drift, dangling those cloven feet, and brace on your tor. And watch you. Not curious. Collegial. Another damp, stone-warm thing become for a while part of the established balance.
+
+You will understand then that no one lives here now in the lowland sense of making a living. There is no living to make on lichen and condensation and thin air. They *remain*. White, folded, cloven, perched, stacked into the sound and the damp that never evaporates and the dim that never resolves. The hands that placed stone on stone never left because leaving would require change, and flow stopped long ago, leaving only the shape of flow.
+
+Stone, damp, lichen, roar — and the patient, double-jointed keepers who keep it exactly as loud and as still and as unfinished as it is.

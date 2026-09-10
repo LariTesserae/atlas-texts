@@ -1,0 +1,47 @@
+The district was not delivered empty. When the feldspar poured and set, it came with its population already assigned, though the assignment had the rough, tentative quality of figures penciled into the margins of an elevation drawing to indicate human scale.
+
+They are called the Placeholders, though they do not call themselves anything. If you watch them from a terrace, they appear at first to be common citizens going about the minor, boring errands of a grey afternoon: a woman in a lead-colored coat walking with a dry, rustling gait toward the loggia; two men in identical uncollared tunics standing at the corner of a conduit-riser, their faces turned toward each other as if in low conversation; a clerk-like figure sitting on the sill of a third-floor bunk-slot, staring down into the gutter with his knees pulled square to his chest.
+
+It is only when you step close that the economy of their construction becomes visible. 
+
+They have no pores, no cuticles, and no ears beneath the smooth, cast ridges of their hair, which is made of the same dark, flexible vinyl as their clothing. Their garments have no seams, no hems, and no pockets; the folds in their coats are not draping cloth, but permanent, sculpted corrugations designed to mimic the look of wool in a stiff breeze. Their skin is the pale, matte color of skimmed tallow, perfectly clean, without moles, scars, or the tiny vascular networks that give living flesh its faint violet undertow. 
+
+They do not breathe. When the temperature dips into the hard frost around their ankles, no plume of steam leaves their mouths, which are closed in neat, bloodless slits that do not seem parted even when they produce sound.
+
+And they do produce sound, though rarely. When two of them pass in the narrow lane where the perspective is crushed, their shoulders will brush with a flat, dry squeak—the sound of two clean erasers rubbing together. Sometimes, one will pause at an intersection, turn its head ninety degrees with the smooth, hydraulic motion of a surveillance lens, and emit a brief sequence of flat, tonal chirps, like a modem establishing a handshake over a dead line. It will wait, perfectly motionless, for three minutes; then, receiving no packet in return, it will resume its stride, its leather-smooth heels coming down on the feldspar without the slightest scuff of dust or grit.
+
+They do not sleep, but they observe the bunk-slots. At certain intervals—dictated not by a sun that never moves, but by some internal clock whose cycle is slightly longer than twenty-four hours—a Placeholder will climb into an open niche, lie flat on its back with its arms straight along its sides, and simply stop. Its eyes, which are entirely iris—a uniform, dull hazel with no whites and no pupils—remain open, tracking nothing.
+
+In the overlapping zone, where the tenement block occupies the same cubic footage as the classical portico, the tenancy is doubled and confused. 
+
+Here live the Shared. There is a man whose domestic coordinate is anchored to a bunk on the third floor of the tenement, while an administrative official from the portico’s registry has been compiled into the exact same coordinates. They do not fight; their systems do not possess a register for collision. When the flickering slows—when the five-story block holds dominance for a dozen seconds—the man in the bunk is opaque, his fingers resting on an iron guardrail. Then the phase shifts, the eyelid of local reality blinks, and the official becomes solid: an elderly figure in an embossed tabard, seated at a heavy slate desk whose drawers are embedded four feet deep into the other man’s mattress. 
+
+When both are fifty percent present, they look like two double-exposed photographic plates left in the wash: the administrative official’s spectacles seem to sit upon the sleeping man’s bare brow; his quill-hand twitches inside the sleeper’s ribs. They appear to feel each other only as a vague, cold drag in the air, a drop in local density that makes them move more sluggishly, like men wading through iced syrup.
+
+Beneath them, in the gutters and the wet seams, are things that were not indexed in the city’s architectural schematics, but which arrived as vermin in the code—parasitic sub-routines that took physical form when the feldspar solidified.
+
+Along the lines of the magnetic bristles, there are the *Tuckers*. They are the size of flatirons, shaped roughly like the dried husks of stingrays, made of a dark, brittle horn that looks identical to the material of the five-legged crawlers. They do not have legs; they slide along the vertical walls on a film of the district’s cold, alkaline sweat. They are scavengers of geometry. Wherever a corner fails to meet cleanly—where a gap of three or four microns reveals the raw, gray void beneath the render—a Tucker will wedge its thin, spade-like snout into the crack and stay there for days, drinking the cold current that leaks out. If you pry one loose with a crowbar, it comes off with a wet *pop*, leaving a square, white scar on the glass-stone that slowly bleeds fresh beads of water that hover, hesitate, and fall sideways.
+
+And then, most wretched of all, there are the *Stragglers*—actual biological men and women who have drifted down into the basin from the older, warmer, rotting cities beyond the ridge.
+
+They live in the ground-floor loggias, squatting around small, dirty braziers fueled by dry cellulose bristles and stolen plastic conduit. You can smell them three streets away: the stench of stale mutton fat, unwashed wool, human urine, and woodsmoke, all of it hanging horribly suspended in the clean, ozone-tainted chill. 
+
+The Stragglers are sick, always. Their bodies are continuously baffled by the district’s unfinished arithmetic. They suffer from a chronic, grinding neuralgia—the "Quad-Bite"—caused by the nerves in their jaws trying to reconcile the conflicting barometric pressures that the architecture insists exist within the same room. Their spit tastes perpetually of tin. 
+
+They do not walk down the perspective-crushed alleyway; those who tried came back with their retinas scarred by double-vision, their legs trembling uncontrollably because their inner ears believed they had dropped down a five-hundred-foot shaft while their eyes insisted they were standing on a level lintel. 
+
+Yet they stay, because the district is an absolute sanctuary from human pursuit. No bailiff or collector can navigate an alley that is simultaneously two miles long and twelve inches wide; no round can be fired with standard trajectory through a street where the decimal places of gravity fluctuate between three and seven meters per second.
+
+The Stragglers harvest the jelly. They go into the curing rooms with broad, curved blades made of sharpened zinc, sawing off slabs of the translucent amber before it can harden into permanent glass. Beneath the rind, the stuff is still soft, like the marrow of beef bones, and when boiled over their grease-fires, it yields a clear, flavorless starch that keeps them alive, though it turns their teeth translucent around the gums and makes their fingernails grow out in thick, horn-like ridges, not unlike the carapaces of the things in the gutter.
+
+They have learned to avoid the *Gaugers*. 
+
+The Gaugers are the only things that seem to possess an active will, though whether it is conscious or automatic is impossible to tell. They appear only during the hours when the blue daylight dims slightly—a change that does not signify night, but a drop in the power driving the district’s illumination.
+
+A Gauger looks like a man stretched on a frame until he is nine feet tall, so thin that when he stands sideways against one of the feldspar columns, he disappears entirely behind its fluting. They wear garments that seem to be made of stiff, ruled paper, printed over with grids and fine, microscopic numerical tables that have run and smeared from the wall-sweat. They carry no tools, but their fingers are excessively long—seven knuckles to each digit—and terminate in flat, polished pads of dark slate.
+
+A Gauger does not walk so much as it measures its way along the streets. It places a finger on a lintel, then stretches its arm out to touch the corner of an opposite roof, pausing while its chest—which is as flat and wide as an drawing board—vibrates with a dry, buzzing hum. It is checking the drift. It is checking to see if the tenement has slipped further into the portico, or if the jelly in the bunk-slots has cured to the required density.
+
+If a Straggler is caught in the open by a Gauger, the creature does not attack or scream. It simply bends down, folding its accordion-like torso with a faint, papery rustle, and touches the human’s face with two flat slate fingertips—one on the bridge of the nose, one on the point of the chin.
+
+Those who have been touched do not die, but they lose their resolution. Their outlines become soft, slightly blurred, like an inked figure dropped into grease. They speak, but their voices sound as if they are coming from the bottom of a cistern three streets away, and when they walk, their feet no longer strike the stone with an audible thud, but pass an eighth of an inch *into* the feldspar, leaving no trace, drifting slowly toward that non-existent fourth plane in the corners where the masonry slopes inward toward the dark.

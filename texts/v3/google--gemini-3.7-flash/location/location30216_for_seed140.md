@@ -1,0 +1,21 @@
+There is no photon to give this space an edge. The darkness is absolute, a total zero of radiant vision, yet it is neither cold nor dead. It is a high, enclosed void—a cathedral-sized pocket suspended miles up within the ancient, worn-down crest of an archaic massif, completely sealed from the sky. 
+
+The air is thick, warm, and hyper-saturated. It breathes with a slow, heavy pulse, carrying the dense smell of vegetal decay, wet stone, and hot, living sap. Condensation does not merely bead here; it coats every surface in a continuous, downward-sliding skin of water. From the invisible vaults far overhead, droplets fall through immense stretches of nothingness, taking seconds to strike the bottom with a steady, stereophonic percussion.
+
+Because the floor is hundreds of feet below and the walls are distant, the dominant sensation is one of profound hollow emptiness—yet the space is intensely alive. 
+
+Bridging the dark chasm are vast, suspended ecosystems. Enormous cables of fibrous, sunless flora—thick as the trunks of ancient redwoods—cross the void in sweeping parabolas. These plants have no leaves in any traditional sense; instead, they unfurl as vast, velvet-textured curtains of fibrous tendrils, absorbing moisture and airborne nutrients directly from the warm, circulating vapor. They are intensely lush, spongy to the touch, swollen with clear, viscous fluid, their surfaces layered with thick carpets of blind moss that weep warm water into the abyss.
+
+These hanging forests do not grow from natural rock alone. They cling to and swallow the remnants of an incomprehensible architecture. 
+
+Suspended across the hollow are hair-thin trusses and anchoring rings made of a post-matter composite—surfaces that feel impossibly smooth, completely unaffected by millions of years of perpetual moisture. These artifacts have no visible seams or bolts; they are continuous curves of hyper-dense, inert alloy that still hum with a sub-audible vibration, stabilizing the chamber’s geology through micro-gravitational tension. The vegetation has used these indestructible lines as trellises for countless epochs, fusing with them until the line between ancient machine and primordial root has completely dissolved. 
+
+The chamber is loud. Without light, biology has poured all its energy into sound and mechanoreception. 
+
+The cavern rings with an unrelenting, multi-layered acoustic lattice. Millions of blind arthropods, clinging to the underside of the root-bridges, maintain a continuous, rhythmic clicking—a chittering white noise that maps every square foot of the cavern in ultrasonic reflections. Above this steady hiss, larger things move through the warm air: soft, leathery gliders, long-bodied and furred, sweeping between the suspended canopies with the heavy *thwack* of air beneath their wings, uttering sharp, whistling pings to measure the drop to the invisible floor. 
+
+Underneath the biological noise lies the low, resonant thrum of the mountain itself—the sound of water draining through deeply eroded, primordial channels that have had all their sharp corners sanded away by unbroken millions of years of flow. The rock is so old it has lost all jaggedness; the walls are polished flutes and domes of slick stone, rounded into their final, most stable forms.
+
+Movement here is slow. The temperature barely fluctuates by a tenth of a degree over centuries. The plants take generations to extend a single runner across the dark void to grasp another anchor line. The fauna move with the unhurried precision of creatures that never need to hunt with sight, grazing upon the dense aerial mycelium and each other in a dark, warm equilibrium that has forgotten the concept of an outside world. 
+
+If you extend your hand into the dark, you feel the soft draft of warm mist rising from below, the vibration of thousands of tiny acoustic pulses clicking against your skin, and the occasional, heavy drop of water falling from an unseen ceiling, warm as blood, breaking across your knuckles before tumbling down into the quiet, immense empty below.

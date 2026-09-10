@@ -1,0 +1,41 @@
+They do not live on it. That is the first mistake, and you make it for an hour.
+
+At first you think: birds.
+
+Because they are the ones you almost see. In the grey-green the eye makes of darkness, shapes detach and resolve into small brown bodies shoulder to shoulder along every stem. Not grand birds. No eagles, no sweep. Hand-sized, palm-warm birds built for close work. Their beaks are short and conical and endlessly busy — even at night, even in sleep-shifts, a beak worries a grass edge, tucks, pulls through, tucks again. The weavers. The finches.
+
+You watch one near your hand, so close its flank heat touches your knuckle. Its plumage is not sleek. It is fluffed, damp at the tips with condensation, smelling strongly of itself and others — that sweet feather-fat smell. Its feet are huge for its body, grey and long-toed, made to grip weave, to hang upside down while the beak works. Its eyes are bigger than a day bird's should be, black and wet and catching the firefly light as it turns. It does not look at you. You are weather. It chirps, low, a contact note — *I'm here, move over* — and the neighbor shuffles, and the whole hanging curtain of pouches sways with the transfer of ounces.
+
+Above them and below them, others.
+
+If you hold still and let your ears sort the roar, the birds separate into trades.
+
+High, where the hanging colonies stitch together overhead into a thatch roof, the weavers and honeyguides and finches are the thatchers. They live by the mouthful. A single male will fly down at dusk to the warm updrafts below the saddle where grass seed still grows and come back with three seed-heads and one long green strip in his beak, and then spend the whole night weaving that one strip in, foot braced, body swinging as counterweight. Their young hatch blind into a swinging pouch of grass and never touch anything hard in their lives. They learn weave before they learn flight: peck, pull, tuck. Their droppings fall through the weave and are caught below. Nothing is wasted.
+
+Mid-air, never landing where you stand, the plasterers work. You hear them before the grey-green gives them to you — a slap-slap close past your ear, a leathery whisper. Swifts and swallows, longer-winged, soot-dark, with wide gaping mouths and tiny feet they barely use for perching. They are mud-mouths. They go down to the cistern edges after rain and scoop a beak-round pellet and carry it back, hundreds of trips per night per bird, and press it with a quick side-flick of the head into the lip of the cup-cliff. Their saliva is the mortar. It dries glossy. Their bodies are torpedoes built for relays, for never stopping. When they cling to the pitted face of the cliff, hundreds to the square yard, throats pulsing, they look less like birds and more like scales on something larger breathing.
+
+And then you think: not just birds. Because the ground hums.
+
+You crouch, put your palm flat, and feel it through the thatch-mattress — a low vibration that is not birds. It is feet. Millions of them.
+
+The ants come first into focus, because they insist on line. An arm-wide column crosses the gully right in front of you, leaf-green confetti held overhead, moving with a slowness that is not slowness but perfect continuity. No ant hurries, no ant stops. Leaf-cutters. Their highway is worn into the dung-plaster smooth and dark as a rope, dipping and rising over hummocks. They are rust-red, thumbnail-long, jaws like shears. Where they go they prune the vines that stitch colony to colony, keeping the green from closing entirely. Their refuse pits, deep in the mattress, are gardens. They chew leaf to pulp, feed it to fungus, eat the fungus, and their warm waste becomes the mortar others build with. If you watch long enough you see smaller ants riding on the leaves, guarding. Presences on presences.
+
+Under and around them, the beetles. Dung beetles the size of your thumb joint, black and lacquered with damp, rolling and burying and tunneling. They are the gut of the place. Guano falls constantly — white splatter on green, on brown — sharp with ammonia, and before it can poison, they are there, breaking it, burying it, turning it into the crumble seedlings root in. Carrion beetles work the dead. A weaver that dies in the night does not fall far. By morning its feathers are loosened and taken for lining, its body cleaned by ants and flies and then sunk, slowly, into the mattress. Nothing leaves. The mattress grows a millimeter a year on death.
+
+Then the small damp skins. You hear them as a separate layer, bottle-chirp, bottle-chirp, hundreds per bush, and at last your light-adjusted eyes find them: frogs no bigger than your thumbnail, gold and soot and translucent belly, each sitting in its own kept water. They do not live in a pond. They live in ponds the size of a cup — bromeliad axils wedged into thatch, old wax-lined chambers holding a mouthful after storm, the cup of a leaf. Each male calls from his rim to keep it. Their tadpoles wriggle in tea-colored water full of mosquito larvae and fallen feather-down. They eat the biters that would bleed the birds. Their skins bead with the same condensation that beads on you. When you breathe close, they go silent for three heartbeats, then start again, as if you were rain passing.
+
+Above them all, when the insect needle gets so high it almost vanishes, the night wings pour out. Bats and oilbirds from the deeper chambers — hollows you thought were rot pockets until warm air breathed out of them. They come in a river, leathery and musky, wings almost brushing your hair, out to the valleys to feed and back before false dawn with fruit pulp and moths in their guts. They are the importers. Everything they ate below comes back here as droppings, as seeds spat into guano terraces. Where they roost, the thatch is thickest, almost hot to the touch with body heat. Oilbirds click in the dark, echolocating off mud-cups, their eyes huge and shine-green when a firefly passes. They smell of oil and fruit rot.
+
+And smaller still, until sight gives up. Moths that live only to eat shed feather and old silk. Feather lice flat as seeds that ride the weavers their whole lives, cleaning barbules. Mites in the down. Nest beetles blind and pale that never see even grey-green, living their whole generations inside a single weaver pouch, eating mold. Nematodes in the cisterns. Fungus glowing cool green-blue in rot pockets, digesting the stick platforms that sagged, softening them so new sticks can be pressed in. Orchid roots white as nerves gripping guano and bark, drinking drip.
+
+No one of them is the inhabitant. That is what takes all night to learn.
+
+Each body is small, warm, damp, built for dark and closeness — big feet, big eyes or no eyes, wide mouths, strong jaws, guts that can digest leaf and feather and dung. Each lives by touch and call and smell more than sight. Each adds a pellet, a strip, a dropping, a stitch. No one hurries because no one needs to finish. A mud pellet tonight, a grass strip tomorrow. The young hatch onto weave. The old die into weave.
+
+What lives here is not a flock or a swarm or a colony. It is a tissue.
+
+The birds are the skin and lungs, holding warmth, beating wings to move air. The ants and beetles are the gut, turning waste to soil that is not soil. The frogs and bats are the circulation, bringing water and seed from outside and keeping the biting flies in check. The mites and fungi are the decay and renewal inside the cells. And the plants — the ferns uncurling from pouches, the vines stitching colony to colony, the moss on the termite rise — are not separate. They are the green hairs on the animal's back, rooting in its sweat, holding its water in little kept amounts.
+
+Stand still long enough and you feel it as one pressure per cubic foot, one roar in your teeth, one warm breath condensing on your shoulders. Ten thousand ancestors chewed and pressed the footing you trust. Ten thousand living mouths maintain it tonight, dropping by dropping, while you stand, a brief weather, speckled with drip, brushed and landed-near and ignored.
+
+The mountain underneath is a rumor. What lives here has borrowed its shape and covered it over until the cover is the mountain — lush, warm, dark, damp, dense, building itself one beakful at a time, and never, ever alone.

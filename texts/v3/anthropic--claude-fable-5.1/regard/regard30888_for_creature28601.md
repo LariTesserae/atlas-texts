@@ -1,0 +1,55 @@
+It comes the way everything comes to this place: across the fill, from a long way off, without a shadow, because there is no sun to make one. It is in no hurry. It has the kind of time the wall has. And because it is wise it does not begin by deciding what it is looking at. It begins by counting, as you did, and it counts further than you could.
+
+It sits where you sat. It lets the niches nearest it go quiet and lets the rest of the wall thicken to cover the loss, and it does not mind being the cause of that; it has been the cause of quiet before. It watches the evening turn — the bats out, the swallows in, the frogs seizing into their one pulse and the rings running inward over the pool — and it feels its teeth hurt, because it has taken a shape that has teeth, on purpose, so as to be told things the way you are told them. Then it does the thing you did not do. It follows the water.
+
+Not down. Out. It goes back across the fill in the dark, walking the tamped plate with the rain on it, and it walks until the plate ends — a long way, most of a night — and it finds where the fill stops and the real country begins again, sedge and alder and ground that gives. There are ditches there. The ditches are full. Every one of them is running, cold and clean and tasting faintly of lime, and every one of them is loud with frogs. Small frogs, the color of wet plaster. Hundreds. The country beyond the plate is stitched with little springs that come up through the alder roots and have no business being where they are, and the frogs of the whole land are being made in them, and the herons of the whole land are feeding in them, and none of it comes from anywhere but one place.
+
+So: whatever goes into the pool goes down, and what goes down comes up again a night's walk away, and lives. The being under the flags is not eating what the frogs give it. It is carrying it. It was built as a mouth and became, because it was left long enough, a throat that leads somewhere, and everything that goes into it arrives. The heron out on the clay knows this, in the way a heron knows things. It has fed in the ditches all its life. It comes to the wall anyway, and stands in its one dead mirror, because a heron waits where it can see frogs, and understanding has never once stopped anything from wanting.
+
+That is the first thing the power settles. The thing is not a danger. It is a distributor. It has fed the country for longer than the country remembers, and the country has never thanked it, because the country does not know.
+
+The second thing takes longer, and it settles it sitting on the wall again with its hands on the crazed pitch, listening.
+
+What is it? Not a god. Gods are made to be spoken to, and this was made to be spoken into, which is different — the niches are the right size for a lamp, or an offering, or a pair of cupped hands with a mouth behind them, and the makers stood at the wall and said what they had come to say into the curve of the back wall and the curve took it to the center and the center took it down. That is what the shape is for. And then the makers stopped coming — the post with the cord that goes nowhere, the stone set down and not picked up — and the frogs moved into the places where the mouths had been, and the frogs said what frogs say, and the center went on taking it, and after enough centuries of taking, something under the flags was doing it on purpose. Not a beast. A made thing that was abandoned and kept itself alive with what would live in it, exactly as the visitor said: it has filled up with whatever would live in it, and it has found its level. Only the visitor thought that was true of the wall. It is true of the tenant.
+
+And here is the thing about it that the power, being what it is, cannot look past. It has heard for a thousand years. Every sound in the country for a night's walk around has run down into it. And nothing it has ever heard was meant for it. The frogs call to frogs. The swifts scream at swifts. The rain says nothing to anyone. Even the makers, when the makers came, were speaking into it, not to it — using it, the way you use a well. It has been the medium of every voice and the object of none. It does not know that it is lonely, because it has never had the thing whose absence loneliness is. It is simply an ear that has never once been addressed.
+
+The third thing is the one that decides the power's hand, and it is the plainest. The wall is not being repaired.
+
+Count the fallen plaster. There is a great deal of it, in the mist, in the corners, under the toads. The plaster is a record of its own repair and the record has a last entry, and the last entry is old. Every year the rain takes a little more. Every year a niche or two loses its curve and the note in it goes flat, and the frog moves along, and the wall closes ranks. It is slow. But the power can see the shape of it: a few centuries on, the oval slumps, the niches are gone, the throat under the flags is silted for real this time, and the pool spreads into a marsh, and the frogs are ordinary frogs in an ordinary bog, calling in the open, unheard. The being will still be under there. It will hear rain. It will hear rain for as long as there is rain, and nothing else, forever.
+
+The power considers, then, and it considers honestly.
+
+It could restore the wall. It has the means; it could do it in a night. It does not. A place that is kept by a power is a dependent, and a power that keeps one place has begun to be small, and neither of those is a kindness to anyone.
+
+It could leave. That is not nothing, and it does not pretend it is nothing. To find a thing that is fed and feeding, that has found its size, and to let it alone — most of the time that is the whole of wisdom. But it has counted the plaster, and it knows what leaving means, and it knows the being does not know.
+
+It could speak to it. The first voice in a thousand years that meant it. But a voice in the open is only air — that is the law, and the law is older than the power's opinion of it — and a voice from the wall top is a visitor's voice, and the being has had visitors.
+
+So it goes down.
+
+There are no steps inside; the makers came in over the top, or from below, or were never inside at all. The power goes down the way the frogs go. It makes itself small enough for that and quiet enough for that, and it crosses the floor through the mist, and the mist furrows behind it and closes, and it makes no sound, because it has understood that on this floor silence is not the absence of speech but the form speech takes. The frogs do not stop for it. Whatever crosses the floor in silence belongs to the floor.
+
+It goes first to the stone. The loaf-sized stone that someone set down and did not pick up again. It turns it over. One face is river-smooth and the other has been dressed — pecked flat, the way the flags were pecked — and there is old mud plaster still adhering along one edge. It is a facing cobble. Somebody took it out of the wall, or brought it to the wall, and set it down to do the next thing first, and the next thing did not get done. And when the power looks for the place it came from, it is not hard to find: low on the north side, a little above the pool line, a gap in the course where a cobble has gone and the plaster behind it is slumping and dark and eating inward, one wet season from taking the two niches above it with it.
+
+The power sets the stone in. It wets the plaster from the pool, which is the right water, and it works the stone into the gap, and it packs the joint with its thumbs, and the rain will finish it. That is all. One stone. The thousand-and-first renewal, by a hand that is not the makers' and is not yours, so that the record has an entry that is not the last one, and the count goes on. Two niches that were going to fall will hold. Two notes will stay in tune for another lifetime of frogs. It is very little, and it is the exact size of what a power should do to a thing that must go on keeping itself.
+
+Then it kneels at the pool.
+
+The pool shows it. Not the cloud — for the first time since the makers, the pool has something other than the cloud in it, and it is a face looking down, and the face is looking not through the water but at it. The power lets that be seen. It lets itself be known to be there, and known to be attending, and known to have come for this and not for the frogs. It says nothing. It does not need to. Everything else in the world arrives at this place as sound and goes down; the power arrives as regard, and regard does not go down. It stays on the surface, where the being has never had anything.
+
+And then it drinks.
+
+It cups its hands — a niche's worth, a cupped pair of hands — and it takes the water up out of the one place in the oval that has never given anything upward, and it drinks it. It tastes of lime, and cold, and stone, and very faintly of a thousand years of things said into it. It is the first time the water has gone up. It is the first time the thing that only receives has given, and the first time the giving has been received, and the circuit that the makers built as a one-way throat closes for the length of a swallow and becomes, briefly, a conversation.
+
+Whether the being understands, the power cannot say and does not need to. It has been addressed. Something that knew it was there came down and did not speak into it but drank from it. That is on the record now, along with the stone.
+
+It climbs out. The frogs do not stop for it going, either. At the top it takes its shape back, the one that has teeth, and it sits a moment more with the noise coming off the wall and the mist knee-deep below and the pool at the center showing the cloud again, holding its level, drinking. Then it goes down the outside steps and across the fill, and the heron in its dead mirror does not lift its head, because the heron has understood, and stayed anyway, and that is its own business.
+
+It leaves you two things.
+
+In the morning, when the light does not come, you will look down and the stone will be gone from the floor. You will look for it and you will find it, low on the north side, wet-jointed, set. And you will know what that means. Someone went down. Someone crossed that floor and did one thing to that wall and came back up, whole. It can be done. It is not forbidden. The law is only that you do it in silence.
+
+And you will know that the record has a new last entry, and that it is recent, and that whoever made it is not here.
+
+That is not a command. A power of this kind does not command; it sets down a stone where it will be noticed and lets the noticing do the rest. But you will have understood by then, as it said you would, and you will be sitting on a wall that is wide enough to lie on, with a thousand niches beneath you, and a few of them are empty, and one of them is the size of a pair of cupped hands.

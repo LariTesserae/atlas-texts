@@ -1,0 +1,63 @@
+What lives here is easier to say than to separate. You keep trying to draw the line — this is animal, this is stone, this is water — and the line keeps getting glazed over. So start with what will hold still for a moment, and work outward.
+
+---
+
+The builders first, because there are more of them than of anything.
+
+Up close, held on a palm, one is not much. A thumb-length of jointed body under a shell that is not quite white and not quite clear, so that you can see the dark thread of its gut through the plating and the pale bead of whatever passes for a heart. Six legs, or eight — they tuck them in when lifted and it is hard to count. No eyes that you can find. Two soft stalks at the front that never stop moving, tasting the air, and under them a mouth that works like a rasp. Turned over, it clicks its plates together in a fast nervous rhythm and goes still, and if you hold it long enough it begins, very slightly, to cement itself to your hand.
+
+That is the whole of its behaviour, more or less. It rasps the film of mineral and living slime off the surface it stands on, passes it through a body that is mostly gut, and lays it down again behind as a ridge of paste that hardens in the wet air. It moves toward water that tastes fresher than the water it is in. It moves away from water that has been grazed too many times. It follows the animal in front of it. When the one in front stops, it stops. When a thousand stop at once — because the seep they were heading for has dried, or because something has gone quiet nearby — the stopping runs back through the crowd like a shiver and the whole surface of a wall goes still for a heartbeat, and then starts again.
+
+They do not live long. A few weeks, perhaps a season for the ones that reach the deeper, hotter pools. Their whole life is the length of one terrace. They are laid as eggs in the fresh cement, and the cement is worked over them by the ones behind, and they hatch inside the stone and eat their way out through the soft new layer — you find the exit holes, pin-sized, in any surface that has grown in the last week. They graze for a while on whatever is nearest. They mate, as far as anyone can tell, in the thick of the crowd, without ceremony, without pausing. And when they die they die where they stand, and the ones behind cement over them, and that is what the stone is. Every column is a column of the dead. The bands you can read in the old stone, rough and smooth, are not just the record of fast and slow building. They are population counts. A rough band full of trapped shell is a season when they died in such numbers that there was no time to grind them down.
+
+They cannot see the thing they make. It is unlikely they know it exists. The terrace grows because a thousand animals wanted the same water, and the column grows because a thousand more wanted to be where the first thousand were. Nothing here has a plan. The plan is what the water does when it has been through that many bodies.
+
+---
+
+The others are the exceptions, and each of them is an exception to a different rule.
+
+The basin-combers are the exception to hurry. They lie in the milky water of the terraces, long and pale and jointed like a string of knuckles, and they do not move from their basin unless the basin is abandoned. Their limbs are fringed — fine, feathered, sweeping in slow arcs through the water — and they live on what falls in: builder eggs, builder dead, the flakes of shell that float off the crowd above. When a basin is thriving, the comber in it is thriving, fat and translucent, and you can see the pink of its meals in its middle. When the crowd moves on and the basin begins to dry, the comber has a choice it seems to make slowly: to leave, hauling itself over the lip on limbs not made for it, or to stay and be sealed in when the last of the water goes to stone. Many stay. Split an old terrace and you find them in it, curled, perfect, every feather of every limb held in lime.
+
+The mud-heavers are the exception to being seen. Nobody has a good account of one. They live in the wet floor of the lower chambers where the drip has never quite made stone, and they move under it, and the mud lifts over them and closes behind, and that is all. Something broad. Something that pushes rather than swims. The people who come here say a mud-heave is one animal; the people who come here also say it is a thousand, packed and moving together as the builders do. Both may be true in turn. When a heave passes under a crowd of builders the crowd rides it, and does not seem to notice, and a wall that was here is over there by morning.
+
+The fliers are the exception to weight. Soft, grey, silent, each smaller than your hand, with a body that is mostly membrane and a face that is mostly mouth. They roost in the dark of the intact roof, packed as densely there as the builders are on the floor — you cannot see them until they move, and then the ceiling comes off in a sheet. They eat the builders. They come down when the light shifts, when a slab falls, when the vapour thins after rain, and skim the crowd and take what they can and go back up. And what they leave behind, dropping through the vapour, is a fine constant rain of something rich and pale that the builders graze on and lay down again. The fliers are part of the stone too. The fliers are how the stone gets from the floor to the ceiling and back.
+
+The column climbers are the exception to change. They are small and hard and dark for this place, nearly amber, and they live only on the standing columns, never on the floor, never on the walls, and they moult against the stone as they climb, and each shed casing is pressed in by the passing builders and becomes a pebble in the column's skin. They are the only animals here that seem to prefer old stone to new. What they eat is not clear. Perhaps the mineral itself. Perhaps the remains inside it. They circle the columns endlessly, and the columns get their strange texture from them, and if you find a column smooth and bare it means the climbers have left it, and it means the column is going to fall.
+
+---
+
+And then there is the low one.
+
+The source calls it the size of a dog, low and many-legged, and it is those things, but that does not get at what it is like to meet it. You are standing knee-deep in the crowd, in the noise, and there is a change in the pressure of bodies against your shins — a bow-wave — and then the crowd parts and it is there, moving through them the way a boat moves through weed. Broad, flat, plated in something darker and harder than the builders' shell, with a fringe of legs along each side that ripple rather than step. A face that is low and blunt and mostly mouth, and a pair of eyes — the only eyes you will see in this whole country — set wide and small and wet and turned, as it passes, on you.
+
+It eats the builders in mouthfuls. It eats the combers out of their basins, cracking the terrace lip to get at them. It eats the eggs off the overhangs. And behind it the crowd closes, as the source says, and cements over the place where it fed, and it seems to know this, because it never feeds twice in the same spot and never stays.
+
+There are not many. Perhaps a dozen in all the chambers anyone has walked. They are long-lived — the same one has been seen, or one with the same notch in the same plate, across the years it takes a hearth to be roofed over. They are the only things here that remember. The builders carry no memory but the stone; the fliers know only up and down; the combers know their basin. The low ones know the chambers. They know which seeps are about to open. They are found at the fresh cracks before the builders are, waiting. They are found under the column that is about to touch the ceiling, at a careful distance, on the side away from where the slab will fall. Whether they hear it coming or feel it through the rock or have simply learned what a bare column means, they are there, and they wait, and when the slab comes down and the first hundred thousand small bodies pour toward it, the low one is already among them, eating.
+
+The people who come here have a figure for it. The hooked shape in ochre on the wall that is now a ceiling. Seen right, it is a back and a head and the curve of a mouth, low and coming toward you.
+
+---
+
+The people are the exception to staying.
+
+They live somewhere on the plain — no one who describes this place seems to know quite where, only that they come in from the dry with baskets and cord and a flint that was carried a long way. Small groups. A few days at a time. They come when the swarms are highest, which they judge from the plain by the warmth and the smell of the breath from the holes, and they go before the rain, which they judge by the sky.
+
+What they want is plates and eggs and fliers. The plates, dried, are hard and iridescent and can be sewn to things; they shine in a way nothing on the plain shines. The eggs in their ropes are food, and so are the fliers, netted in the dark chambers when they come down to feed. The people know the place well enough to walk it and not well enough to trust it. Every path they lay is provisional. Every mark they make is a mark for the next visit, and the next visit finds it half under stone. They speak of the chambers by what was in them last time, and correct each other, and are both wrong.
+
+They have a word for the region that means, roughly, the mouth. They say that everything that goes in is chewed. They say the low ones are the only things down there that are not being eaten, and that this is because the low ones are the teeth.
+
+Some of them do not come back. Not many. One in a generation, perhaps, goes too deep chasing the fliers, or is caught by the rain, or stops in the wrong place and waits for the chamber to be quiet and it is quiet too long. The others do not go looking. The hut of stacked slabs is theirs, and the sorted plates inside it, and the flint, and they leave those things because they will come back for them, and they do come back, and the hut is a little smaller each time as the curtain grows down over its door. One day they will not fit through, and they will stack another.
+
+---
+
+Deeper, where the light goes brown, what lives changes without lessening. The fliers stop because there is no roof-dark above them, only roof. The builders go paler, and slower, and thicker in the shell, and the crowd between the fat close columns is so dense that the distinction between building and being built loses its grip. The low ones do not go this far. The combers in the hot pools are long and colourless and very old.
+
+And whatever is at the source — the seep, the hot upwelling that all of this water and all of this dissolved stone comes from — nobody describes, because nobody who goes that far seems to bring back a sight of it, only a sensation. The walls getting closer. The animals getting denser. The noise, which up in the lit chambers you can hear as many sounds, becoming one sound, low and even, like a body's. The sense, as they describe it, of walking down the throat of something that is not swallowing you so much as growing around you, patiently, as it grows around everything.
+
+They come back up because they are frightened, or because their lamp goes out, or because the crowd gets so thick they cannot lift their feet. They do not describe the source because they did not reach it. It is possible no one has.
+
+---
+
+So: what lives here.
+
+Come back to the edge with that question and it starts to look like the wrong one. Up on the plain, in the dry, things live in places. Down there the place is what living leaves behind — the crowd's cast, the water's memory, a hundred thousand short lives a season laid down in lime and glazed over. The builders live there the way a wave lives in the sea. The low ones live there the way a memory lives in a body. The people come and go the way weather does. And the chamber that goes suddenly quiet, so total a silence that it feels like a change in the air — that is the nearest thing here to an inhabitant in the ordinary sense. Something has noticed something. A column has reached the ceiling and every small body on every wall has felt it through its feet, and stopped, and is waiting to see where the stone will fall. Then it falls, and the noise comes back, and the waiting thing is gone again into the crowd it is made of, and the crowd is already moving.

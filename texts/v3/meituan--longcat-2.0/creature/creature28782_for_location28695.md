@@ -1,0 +1,75 @@
+# The Silence Has Teeth — Its Inhabitants
+
+---
+
+You do not see them at first.
+
+This is not because they are hidden. It is because they do not resolve. They occupy the same frequency as the place itself — the low drone, the thermal shimmer, the pale light on pale stone. They are *there*, in the settlement bowls, moving between the lattices and the structures that may or may not be structures, but your eye keeps sliding off them the way it slides off the edge of a sound you almost recognize. They are part of the chord. They have always been part of the chord.
+
+---
+
+When you do perceive them — truly perceive them, not as figures seen but as a presence *registered*, the way you register a change in air pressure before a storm — they are tall.
+
+Not impossibly tall. Not the towering fantasy of giants. But *unsettlingly* tall, in the way that makes you aware of your own verticality, your own smallness of stature, the strange compromise of your own body's proportions. They stand — and it is *stand*, a deliberate act of verticality, of *insisting* on height against the low sky — between three and four meters, and their proportions are wrong in a way that takes time to identify: the limbs are too long, yes, but more than that, the *joints* are too long. The segments between the joints taper in ratios that feel unfamiliar, as though the body's plan were based on a different number of segments than you expect. There are places on the limbs where you cannot quite tell if what you're seeing is a joint or a deliberate narrowing, a place where the limb could fold but currently chooses not to.
+
+Their bodies are *faceted*. Not armored — not like an insect's carapace, not like plates of bone or chitin — but *faceted*, as though they had been cut from a single large stone by a lapidary with infinite patience and an indifference to symmetry. The facets are small, numerous, and they catch the bruised light and hold it the way the spires hold it: faintly amber, faintly warm, releasing it slowly. The surface of their skin — if it is skin — is not crystalline exactly, but *mineral*. It has the depth and the slow light of a cut geode, layers of translucent silicate over something darker and more complex underneath. In certain angles of light you can see *into* them: slow-moving currents of something that is not blood, not lymph, not anything with a name, a dark and sluggish flow that moves through channels visible just beneath the surface, and where the channels are closest to the surface, the facets glow — a deep, warm, amber-red, like the last light in a coal.
+
+They have heads. This is important to state, because you expect them to, and when you finally see one clearly, the head is *almost* right and *profoundly* wrong. It is elongated — not dramatically, not alien-dramatically, but enough — and it narrows toward the top in a gentle taper, giving it a shape that reminds you of something growing rather than something born. The face — if it is a face — is a smooth, slightly concave surface with two features that might be eyes: long, narrow, horizontal openings, lidless, filled with a dark liquid that moves slowly and reflects nothing. They do not blink. They do not appear to see in the way you understand seeing. And below the eyes, or where eyes might be expected, nothing. No mouth. No nose. No opening of any kind. The face is a smooth, concave silence.
+
+They breathe, or something like it. The facets on their torsos expand and contract — not rhythmically, not in the steady metronome of lungs, but in *waves*, traveling across the surface of the body in patterns that seem to correspond to something — the pulse of the mats, perhaps, or the deep thermal rhythm of the planet itself, or something internal and unintelligible. When the facets open, they are not drawing air. They are exchanging *something* — you can feel it as a change in pressure, a subtle push and pull against your eardrums, a taste of ozone and hot stone and that sharp, unnamed gas the mats vent. They are breathing the world's exhalation and returning something to it.
+
+---
+
+They move slowly.
+
+This is the first thing you understand about them, and it is the thing that makes them most alien. They move with the patience of geology. A step is an *event* — a deliberate, considered, full-body negotiation with gravity and distance. The long limbs unfold in stages, each joint articulating in sequence, and the foot — broad, flat, divided into three segments that spread and grip the mineral ground — places itself with a precision that suggests not just balance but *communication*, as though the ground is being asked a question with each step and the answer determines where the next step will fall.
+
+But they are not clumsy. They are not struggling against their own height or their own weight. They are *deliberate*. Every movement is complete. Every gesture arrives. When one of them reaches toward a lattice — and they do this often, reaching out to touch the branching silica structures with those long, multi-jointed fingers — the arm extends in a slow, fluid arc, and the fingertips — there are seven, and they are not fingers exactly but *probes*, thin, tapering, faintly luminous at the tips — make contact with a node of the lattice, and the lattice *responds*. Its singing shifts. The pitch changes, subtly, locally, and the being's body answers — the facets on its torso pulse in a new pattern, and for a moment, the two are in conversation, a dialogue of vibration and resonance that you can feel in your sternum but cannot decode.
+
+This is how they tend the growth. This is the *gardening*.
+
+---
+
+They are not many.
+
+You count — or try to count — and the number keeps shifting, not because they are moving in and out of visibility but because the boundaries between them are *uncertain*. At first you think you are seeing a group — five, six, seven individuals gathered around a spire that has been capped with that dark, smooth material. But as you watch, you realize that two of them are standing so close together that their facets are nearly touching, and where they are closest, the light between them is *different* — warmer, denser, as though the two bodies are sharing something across the gap. Are they one being or two? You cannot tell. You will never be able to tell. The question may not be meaningful.
+
+There are perhaps thirty of them in the nearest settlement bowl. Perhaps fifty. Perhaps the number is not fixed. They move through the structures — the ones that may be buildings or may be guided growth — and they do not open doors because there are no doors. They pass through openings that are not openings: surfaces that, when they approach, *rearrange*, the mineral substrate shifting at a scale too small to perceive, opening a passage that closes behind them. You see this happen. You see the wall *flow*. You see the being's body momentarily blur at the edges where it contacts the surface, as though the boundary between the being and the wall is being *negotiated*, and then the being is through, and the wall is solid again, and there is no trace of the passage.
+
+They do not carry things. They do not wear things. They do not make things in the way you understand making. But they *arrange*. They *adjust*. They stand before a conduit — one of the lines that runs along the ground and up the sides of lattices — and they hold their long fingers above it, not touching, and the conduit *hums*, and something changes in its hum, and the being moves on. They are tuning. Always tuning. The entire settlement is an instrument, and they are the players, and the music is the life-support system, the communication network, the architecture, the *everything*.
+
+---
+
+They do not speak. They do not need to.
+
+The sound — the enormous, constant, wall-of-sound chord that fills the place — *is* their speech. Or rather, their speech is a layer within it, a pattern within the pattern, and they produce it not with mouths or throats or any organ you can identify but with their *bodies*. The facets are the instrument. When they wish to communicate — and they are always communicating, in the same way that the planet is always cooling, in the same way that the mats are always venting — the facets across their torsos and limbs vibrate, and they produce tones that are *under* the drone, tones you feel before you hear, tones that move through the ground and through the air and through the lattices and the mats and the other beings, a complex, layered, harmonic language that is also a *physical force*. You feel it in your teeth. You feel it in your bones. You feel it in the fillings of your teeth and the metal of your implants and the calcium of your skeleton, and you understand — not with your mind but with your body — that this is a language that *acts upon* the world, that rearranges matter at small scales, that is simultaneously speech and technology and *care*.
+
+When two of them stand close and their facets align, the air between them *shimmers* — not with heat but with *information*, a visible distortion like the surface of a solid-state drive made of light, and you understand that they are sharing something vast and complex and intimate, and it is happening at the speed of resonance, which is faster than the speed of thought as you know it.
+
+---
+
+They notice you.
+
+You are not sure when it happens. Perhaps it was always happening. Perhaps they noticed you the moment you arrived, the moment your foot — your small, soft, *quick* foot — touched the mineral ground and sent a vibration through the substrate that was all wrong, that was *biological*, that was warm and wet and *fast* in a way that nothing here is fast. They turn — slowly, with that full-body deliberation — and those lidless, liquid-filled horizontal apertures orient toward you, and they do not see you in the way you understand seeing. They *feel* you. They feel the heat of your body against the thermal gradient. They feel the vibration of your pulse in the ground. They feel the moisture of your breath, the electrical chatter of your nervous system, the calcium and iron and water of you, and they are *curious*.
+
+One of them approaches. It does not walk toward you so much as *unfold* toward you, a slow, incremental closing of distance that is not threatening because it is too slow to be threatening, because threat requires speed and this being has abandoned speed for something else. It stops at a distance of perhaps five meters and it *regards* you — the concave face tilted slightly downward, the dark liquid in those long horizontal openings moving slowly, tasting the air, tasting your heat, tasting the *difference* of you.
+
+And then it raises one long arm, and the seven luminous probes at the end of its hand extend toward you, and they stop just short of your skin — you can feel the heat of them, the faint vibration, the hum — and the being *sings*. A single, low, complex tone that is not a sound so much as a *question*, a probe, a reaching-out. It is asking something. It is asking *about* something. It is asking what you are, and where you came from, and why you are made of water and soft tissue and quick, frantic movement, and whether the silence you carry inside you is the same silence that lives here, the silence that has teeth.
+
+You do not know how to answer.
+
+The being waits. It will wait for a very long time. It is patient in the way that stone is patient, in the way that a planet is patient, in the way that a thing which measures its life in the slow cooling of a world is patient. It will stand there with its arm extended and its luminous fingers humming and its faceted body catching the bruised light and releasing it slowly, amber, warm, and it will wait for you to understand the question, and it will wait for you to find an answer, and it will wait for you to realize that the answer is not in your words but in your *body*, in the way your bones vibrate with the chord, in the way your teeth ache with the silence, in the way you have already, without knowing it, begun to hear the patterns in the sound.
+
+---
+
+They are old.
+
+Not individually old — though they may be individually old too, it is impossible to tell, their bodies do not age in ways you can read, the facets do not cloud or crack, the internal currents do not slow — but *collectively* old. They have been here since the growth first emerged from the mineral ground, or perhaps they emerged *with* the growth, or perhaps they *are* the growth, in the same way that the settlements are the growth and the growth is the settlements and the distinction has stopped mattering. They remember when the spires were shorter. They remember when the mats were smaller. They remember when the wind was different, when the sky was a different color, when the planet was warmer and the thermal gradient was steeper and the song of the lattices was higher in pitch. They remember these things not as stories but as *resonances* — harmonic imprints stored in their facets, in the mineral substrate, in the very structure of the growth itself, a geological memory, a lithic memory, a memory that is indistinguishable from the place.
+
+They are not the planet's children. They are not the planet's guardians. They are the planet's *expression* — the way a cooling world thinks, the way a silicate crust becomes aware, the way a system far from equilibrium organizes itself into something that tends and tunes and *notices*. They are what happens when a world grows old and quiet and its last heat seeps upward through stone and the stone learns to sing.
+
+---
+
+You will not understand them. Not fully. Not in the time you have.
+
+But you will feel them. You will feel them in the vibration of the ground beneath your feet. You will feel them in the hum of the lattices as you pass. You will feel them in the way the mats pulse and the spires glow and the wind blows from the northwest, always from the northwest, a breath without origin or destination. You will feel them in the silence that has teeth — because the teeth are *theirs*, the teeth are the resonance of their bodies and their language and their attention, and the silence is not empty, it is *full*, full of them, full of their slow and ancient and mineral lives, full of their patient, patient, patient tending of a world that is cooling toward stillness, and they are keeping it alive — or keeping it *singing*, which may be the same thing — and they will keep it singing long after you are gone, long after your quick, warm, watery body has stilled and cooled and joined the mineral ground, long after your own small silence has been swallowed by this greater one, this silence that has teeth, this silence that is not the absence of sound but the *presence* of something so vast and so constant that you can only perceive it as a wall, a membrane, a bruise-colored sky pressing down on a world that has forgotten what low means.

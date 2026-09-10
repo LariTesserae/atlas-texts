@@ -1,0 +1,33 @@
+To see what lives in the small, square shelters, one must unlearn the expectation of breath.
+
+They are there, though a casual eye takes them for pillars of unhewn shale or dense knots of petrified root. They do not sit *upon* the rock; they have settled *into* its grain, their limbs pressed so tightly against the contours of the niches that the margin between skin and slate is merely a line where the color of the grey shifts from the hue of wet ash to the hue of dried bone.
+
+They are the Builders of the Cairns—the six-fingered ones—and they have not abandoned their tools. 
+
+In body, they are thin to the point of planar geometry. Their torsos are long, flat lattices of cartilage and calcified marrow, no thicker than a heavy oak door, designed to slide into the narrow horizontal splits where the shale steps overlap. Their skin is not leather or scale, but a dry, dense parchment, dusted with the same fine talc flour that covers the terraces. It has no pores, no hair, and no moisture to lose. Where a human elbow or knee would swell with muscle and joint-fluid, their limbs fold on triple-segmented hinges of horn, allowing them to tuck six long, spindly legs beneath themselves like the folded legs of a surveyor's tripod.
+
+Their hands are their most remarkable feature: broad, flat spades of bone ending in six long, perfectly symmetrical digits. The fingertips are not fleshy pads, but blunt, chisel-like implements of dense keratin, worn smooth by eons of splitting slate along its natural cleavage lines. 
+
+They do not sleep, nor do they watch. Their eyes are flat, amber-colored lenses set deep within narrow, browless skulls. These eyes contain no liquid; they are crystalline plates that do not rotate or blink. They do not perceive depth through perspective, for perspective is broken here; instead, they perceive the *seams* of the world. A six-fingered dweller sitting in a niche three feet wide looks out and sees the five-mile gorge not as a void, but as a continuous, flat sheet of rock folded four times, its distant floor touching the nape of its own neck.
+
+When one of these beings moves, it is not an act of locomotion, but an act of readjustment, like a shift in tectonic tension. A hand may remain clamped around the thumb-polished handle of an obsidian axe for three centuries. Then, without a sound, without a preparatory twitch of tendon, the six digits uncurl. The movement is instantaneous and entirely without acceleration; the hand is simply open where it was once closed. 
+
+They do not communicate with sound, for the air is too thin and dry to carry a voice, and they possess no lungs with which to push it. Instead, they interact through the sinew strings anchored to the chert pegs.
+
+These strings—woven from the dry, fibrous gut of the larger, shell-backed organisms—are stretched across the spatial folds, reaching from terrace to inverted terrace. A dweller in a lower niche will reach out a spade-like finger and tap a suspended line. The vibration does not travel down the length of the string through the air; because of the spatial stacking, the impulse manifests simultaneously as a dry, tactile click in the knuckle of another dweller sitting three miles away on an upside-down spire.
+
+Through this silent, delayed network, they perform their singular, endless task: they are the caretakers of the equilibrium. 
+
+They build the cairns not as monuments, but as counterweights. Where the geometry of the Spine begins to loosen—where a cliff face threatens to unfold or a suspended rock begins to drift from its stationary lock—a dweller will emerge from its niche. It moves with a slow, dry, mechanical precision, picking up a disc of slate that has been knapped to a precise thickness. It carries the stone across the spatial folds, stepping over miles of empty air as if crossing a threshold, and places the slate upon a cairn. The added weight, small as it is, pins the spatial seam back into place. 
+
+Beside the tool-users, the non-sentient fauna forms a living substrate that is almost indistinguishable from geology.
+
+Beneath the flat, tortoise-like organisms that shingle the vertical walls live the *Talc-Lappers*. They are tiny, ribbon-thin creatures no thicker than a sheet of heavy paper, with bodies made of translucent, segmented horn. They do not possess mouths or intestines; their pale underbellies are coated in a fine, dry chemical felt that leaches trace static electricity from the limestone. Millions of them lie stacked beneath the larger shells, acting as a dry, friction-reducing lubricant between the slate and the heavier beasts.
+
+Higher up, on the needle-like spires that pierce the turquoise sky, exist the *Plumb-Spinners*. These are the source of the sinew lines. They resemble long, five-sided crystals of pale amber, hanging vertically in mid-air without touching the stone. They have no limbs, no eyes, and no internal organs. They are living extruders. Over centuries, as they absorb the ambient mineral dust carried on the static fields of the upper sky, they slowly push out from their lower tips a single, continuous filament of dense, grey protein. The filament falls straight down—or toward whichever local gravitational well is pulling strongest—until a six-fingered dweller catches it, cuts it with a flint flake, and anchors it to a chert peg.
+
+Even the lead-colored moss that lines the quartz veins is not truly a plant. It is the dried, mineralized cast of an ancient, microscopic weaver-worm that died out when the mountains were young. The moss does not grow; it merely slowly absorbs the dry ochre dust blown from the shelters, turning from pale lead to a deep, rusty crimson over the course of a thousand years, marking the passage of time on a clock that has no hands.
+
+There is no death here in the sense of decay. When a six-fingered dweller finally exhausts its static charge—when the slow, mineral clock of its marrow finally comes to a rest—it does not soften or rot. Its parchment skin simply hardens into solid talc. Its amber eyes turn opaque and milky. It remains in its small, square shelter, its six fingers still resting near its obsidian tools, becoming one more dry, structural brick in the wall of the niche.
+
+The others do not bury it. They do not move it. They simply build the next cairn a fraction of an inch to the left, adjusting the sinew lines to account for the slight, permanent shift in mass, and continue to sit in the dry, thirty-degree sunlight, watching the motionless world hold itself together.

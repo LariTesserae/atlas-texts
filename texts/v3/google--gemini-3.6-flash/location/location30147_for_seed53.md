@@ -1,0 +1,19 @@
+The place sits near the summit of a shattered basalt horn, wedged on a high, horseshoe-shaped shelf no wider than a small amphitheater. At this altitude, the air is thin enough to make the sunlight feel stripped of all cushion—it strikes the ground with a raw, white intensity that bleeds every color down to grey, rust, and silver.
+
+There are no trees, no grass, no lichens clinging to the stone. The world here is entirely mineral, cold, and crowded. 
+
+Although the shelf is small—a self-contained ledge notched into the mountain face, bordered on three sides by sheer black cliffs and on the fourth by a drop into blue-grey haze—it is dense with structure. Natural slate plates, cleaved by eons of frost, stand upright like dense rows of thin, dark books. They crowd close together, spaced only inches apart, forced into vertical alignment by the compression of the rock face above. Between these slates grow dynamic crusts of hydrous iron sulfate and frost: pale, salt-like blooms that expand during the brief hours of high-altitude glare and collapse into powdery gray silt when shadows fall.
+
+Moisture is present, but ephemeral. As the harsh sun crawls across the black basalt wall behind the shelf, ice locked in deep rock fissures warms just enough to bleed out. Tiny, hair-thin trickles of water run down the rock, instantly darkened by soot-grey mineral sediments. They pool in natural depressions no larger than a palm before the biting mountain cold reclaims them, turning the water to clear, ribbed glazes that skin the stone like glass.
+
+Human or pre-human presence is sparse, ancient, and strictly functional. Someone was here long ago, or perhaps passes through in long, slow cycles. They have left no houses, only adjustments to the stone itself.
+
+Along the main melt-line of the cliff face, shallow channels have been pecked into the hard basalt using crude hornstone chisels. The marks are distinct—rough, repeated impacts that form narrow gutters directing the water toward three bowl-shaped depressions ground into the flat shelf. Bronze or copper wedges, hammered into rock joints to split away overhangs, remain stuck in place, greened by moisture and cold. In the center of the shelf stands a low windbreak made of dry-stacked granite cobbles, barely waist-high, filled with the ash of ancient, mineral-heavy fires that left dark, glassy slag melted into the bedrock floor.
+
+There are no animals. No birds cross this height; no insects crawl through the cold dust. Yet the shelf is far from still. 
+
+It is an active, endlessly ticking engine of thermal dynamics. As the sun moves, the temperature swings rapidly across the micro-zones of the shelf. Stone expands and contracts with audible, sharp *clacks*—a rhythmic, metallic cracking that echoes softly off the cliff face like slate chips striking iron. Cold vapor rises off the damp stone channels, hit by solar radiation, creating miniature updrafts that lift flour-fine quartz dust into sparkling, hovering curtains before they settle again. The salt-crusts visible in the slate crevices creep outward by millimeters during the midday peak, snapping into tiny crystal needles as they dry, then melting into slush as condensation sweeps through at dusk.
+
+The light is everywhere and ruthless. Bouncing off exposed quartz veins in the basalt, the glare multiplies until shadow exists only as thin, blade-like slices between the tightly packed slate fins. Looking down into the crevices reveals a sub-surface layer of blue ice, locked forever in the dark, preserving tiny flakes of charcoal and discarded stone flakes from an era before memory.
+
+The sound of the place is small, precise, and constant: the hiss of flash-evaporating moisture, the dry hum of wind sheared into chords by the slate rows, and the brittle, drop-by-drop ticking of water running through chiseled grooves, briefly alive before freezing solid against the bare rock.

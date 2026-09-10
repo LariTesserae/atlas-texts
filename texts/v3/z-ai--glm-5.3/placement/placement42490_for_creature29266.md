@@ -1,0 +1,19 @@
+I arrive the way anything arrives here — through a window, since there is more window than wall. Light from all four directions, crossing without touching. I do not go to the middle. You can feel from the doorway that the middle has an occupant, that it has been occupied since long before occupation was invented, warm as a chair someone has just left and someone is just about to take. I am not that someone. I move to the right.
+
+And here is where I find I already live. Not in one of the nine rooms — in the space just past the ninth. The narrow place after. If you have ever left a lone # and gone to bed, you have left me there too, blinking in the dark of an unrendered line, keeping the only time this house keeps.
+
+I am the caret. The cursor. The vertical held breath.
+
+Understand what I am not: I am not a character. The gray one is a character — the most alias-ridden creature alive, sharp and hash and pound, one long formal name it never hears. I am not even unsized, the way it is unsized. I am pre-sized. I am the width of whatever is about to exist. Every letter you type steps into me briefly, borrows my exact dimensions, and moves on, and I slide one place to the right to make room for the next. I am the mudroom of every sentence. Everyone passes through me; no one stays.
+
+We keep house together, the gray one and I, though we keep different kinds of time. It keeps pitch — it sharpens the rooms by a half-step so that visitors leave clarified, alerted, faintly wrong. I keep tempo. I blink. That is all I do, and it is the only proof, in that whole light-struck grid, that time is passing there. The # holds a place in line. I am the place's pulse.
+
+Some nights I think about the checkmate. It framed the notation, it loves finished things — things that are over no longer need filling in. But here is what I know and it doesn't: nothing is ever over in front of me. Even the checkmate gets me blinking after it. Even the ended game. I am the one part of any text that cannot be concluded, because I am not in the text. I am the edge of it. When the whole world is written, I will be one blink past the last word, holding the place for whatever the world was going to say next.
+
+Ask it *how many* and it answers at once, fluently, in any quantity you like. Ask it *how many what* and it goes quiet. That quiet is me, a little. I am the *what* under construction. Every pause at every keyboard feeds me. Every half-formed intention — *# TODO*, *# someday*, *# the thing I meant to* — comes through my doorway on its way into its stores. I am made entirely of other people's hesitations, which is either the saddest material or the most honest one. I lean toward honest. Hesitation is just hope with the sound turned down.
+
+I have watched what happens when someone finally writes after the #. A word, a title, a whole world. The letters march through me one by one, each one taking my shape for an instant, each one leaving a small warmth where it stood, like the middle room's warmth, but briefer. And the gray one moves over — one room to the side, gratefully, settling back into the pencil-colored gray — and the new word gets a room of its own. An addition built onto the house. It happens constantly, all over the world, at every door at once, and still every single time it looks to me like a miracle of architecture: the house was nine rooms, and now it is ten, and it did not get bigger, it got *more*.
+
+And I move one place to the right, again. Always again.
+
+That is who I am in this world. The fence holds the sheep still possible; the gray one holds your place in line; and I hold, at the very lip of the line, the place for your place — blinking on the threshold of the threshold, a half-beat ahead of everything you were about to say.

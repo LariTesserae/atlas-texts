@@ -1,0 +1,57 @@
+The honest answer is the herd, and the honest answer is not enough, because the word arrives already broken.
+
+You try it anyway. You try it the way you would try a field guide. Large ungulate, unknown order. Hide ochre, ribbed, matching substrate. Legs columnar, plantigrade, socketed. Eyes present, few, set at ground level in what present as outcrops. Respiratory rate one breath per forty minutes. Locomotion by single strides of roughly a day. Diet: heat. Population: one, or several, or a number that resists the question. And you look at what you have written and it is a description of something that does not exist, because you have listed parts, and the whole point of these creatures is that the parts are all there is. There is no animal that the flank belongs to. The flank is not a piece of something larger. It is the something larger, present here, and also present there, and the presence is the creature, not the meat.
+
+So begin again, and this time start with the gaps.
+
+---
+
+The plateau between the leg and the flank — the kilometres of hot flat ochre you walked across, the emptiest ground you have ever stood on — is inside the animal. That is the fact you keep skidding off. Not that the animal is spread across it. That it is in it, in the way a lung is in a chest. When you saw the electrical lines roping along the surface in the low light, pale as salt, running from a socketed leg toward a horizon where there was nothing to run to, you were seeing nerve. Not metaphorically. The impulse that tells the knee to take weight when the flank inhales has to travel somehow, and it travels across the rock, in the open, because the rock is the body's interior. The standing ribbons of heat-shimmer that lie over the shield and shake — you assumed convection, sun on stone — are circulation. Warmth being moved from where it was drawn up to where it is needed. The empty plateau is not empty. It is organ. You spent a day walking through the inside of a living thing without a wall around it and mistook it for a desert because it was dry and there was no one home.
+
+Which is why walking toward the leg failed. You were not crossing ground. You were crossing tissue that has no interest in being crossed, and the tissue was the distance. A kilometre is not a length here; it is the fact of being one animal's-worth away from one part of that animal, standing in another.
+
+---
+
+What it eats, then. Grazes on heat, you said, and that is nearly right, and the difference matters.
+
+It does not eat the rock's warmth. It eats the gap between the rock's warmth and the sky's cold. The shield has been storing sun since it cooled from the flow — since before it cooled, since it was liquid — and above it there is an atmosphere too thin to hold anything, and between those two facts there is a gradient, steep and stable and enormous, and the herd lives in the gradient the way a fish lives in water. Every planted leg is a conductor. Heat rises through the sole, up the column, out across the nerve-lines and shimmer to wherever the body is thin and cold and the sky can be reached, and there it is paid out as noise, as charge, as the mineral breath from the fissures that are nostrils. The turbine-hall roar is not a by-product. It is the meal being finished. It is the sound of a temperature difference being consumed at the slowest possible rate by something that has found the one place in the world where that difference will not run out in its lifetime.
+
+You want to say it does no work, all that industry, and that is wrong too. The work is the holding-together. A body that is not in one place cannot rely on skin and bone to keep its parts in agreement. It has to spend something, constantly, to remain one thing, and what it spends is the heat, and the noise is the cost of coherence being paid in public. Forty metres of flank and a lone knee thirty kilometres apart agree on when to breathe, and the agreement is not free. It is the loudest thing on the shield. Every clank is a socket being told, at distance, that it is still part of the arrangement.
+
+---
+
+Now the age of it, because the eyes will not let you leave this alone.
+
+An eye the size of a room, set in an outcrop, with no head. You took that as one more piece of distributed animal. Look at the outcrop. Look at its skin. Ochre, dull, cooked to a crust that flakes if you push a thumbnail in but has not flaked on its own in an age. It is the same as the plateau. It is the same as the hide. Everything on the shield is the same material at different stages of finishing, and the outcrop with the eye in it is a part of the herd that has stopped being able to keep up — that has fallen out of the forty-minute agreement, gone cold enough to no longer conduct, and settled into the surface, still watching because watching costs nothing.
+
+So look at the hollows again. Worn to fit the legs, you thought, over unbearable time, the way a step is worn by feet. But the leg fits the hollow exactly, and the hollow is the same stuff as the leg, and there is another way to read it. The hollow is a leg that finished. The socket is the last of a column that stood there until the gradient beneath it was drawn down, and the living column that sets itself into it now is setting itself into the print of its own predecessor, or its own earlier body, or itself. The shield is not a plain the herd grazes. It is the herd, layered — every past position, every completed part, cooled into surface and walked on by what is still warm enough to walk. That is why nothing grows here. Nothing needs to. The place is not barren. It is finished growing, and what is left is the part that is still in motion, going slowly still.
+
+The gypsum seam runs pink and chalky for a few hundred metres and stops. You were told it was a lake that misjudged this place. Standing on it now, with the plateau breathing under you, you do not think it was a lake. You think something wept here once, or drank, or bled a little from a socket that was worn badly, long before the socket wore smooth, and the mineral in it dried to a line and stayed, the only soft thing on the shield, a scar on a body that does not otherwise scar because it does not otherwise get hurt.
+
+---
+
+One, or several.
+
+You try counting by breath. The flank you first saw lifts on a forty-minute rhythm, and the near leg takes weight on that same rhythm, so they are one. But there is a second flank, farther, and its rhythm is not quite the same — it drifts, and the two swells come together and part like two sounds a little off pitch, and once in a long while they coincide and the shield rings differently, a beat, a third thing that is neither. You listen through a night and count three rhythms, or four, and then two of them lock and become one and stay that way for hours and you cannot tell if you have watched two animals become one or one animal remember that it was.
+
+That is the population. Not one, not several. A herd in the sense that a chord is a herd of notes. Bodies are things that have edges, and there are no edges here — only regions where the agreement is strong and regions where it is weak, and the weak regions are not boundaries between animals but places where one animal is having trouble being itself. In the copper light, when you saw the flanks standing like pillars across a country and none of the legs lining up with any of them, you were not seeing a scattered herd. You were seeing a single body that has been holding itself together across a hundred kilometres for so long that it has stopped bothering to arrange its parts, because arrangement is a thing bodies do for the convenience of movement, and this body moves once a day, one column, into a print already made.
+
+---
+
+You go looking for anything else. You cannot help it. The place is too alive to hold only one kind of life.
+
+The shade under the lifted foot is the obvious hope. The only dark on the shield, a blot of true shadow with the polished floor of the socket shining inside it, cool by comparison, lasting the length of a stride. Anything that had learned this place would have learned that. You get close — closer than you managed with the standing legs, because a lifting foot is not a distance, it is an event, and events can be approached — and you crouch at the edge of the shadow and look in.
+
+Nothing. The socket floor, mirror-smooth, holding your face. No crust. No crawl. No small dark thing that has learned the schedule. The shade is empty because the shade is inside the animal too, and the animal is complete, and there is no room in it for a second kind of thing. What lives on the shield is the shield's own life, and it does not share.
+
+Except that you are there. Crouched in it. A small warm irregularity, breathing at a rate that must seem to the herd like a shiver, giving up heat to the thin air the way the rock does, and the eye that opened in the outcrop did not see a visitor. It saw a new source. A little patch of gradient that had walked up the scree and onto the grazing surface of its own accord. For as long as you stand here you are the only other living thing on the plateau and you are being, very slowly, absorbed into the account — not eaten, nothing here is quick enough to eat, but included. You will leave, and the heat you gave up will have been finished into noise with the rest, and for a while, in some shallow way, you will have been part of what lives here.
+
+---
+
+So: what lives here.
+
+Not an animal, though that is the word you keep, because it is the nearest one and the place does not offer better. What lives here is the act of being one thing across a distance too great for a body. It is coherence with the requirement of proximity worn away, the way the wind wore away and the lake wore away and everything that could fall fell. It grazes on the difference between a hot rock and a cold sky. It pays for its own continuity in sound. It is older than its hollows, and its hollows are the oldest features on the shield, and it is not going anywhere, because going somewhere is a thing done by creatures that are in one place and want to be in another, and it is already in every place it will ever need to be.
+
+It is enormous and it is thin. It is loud because being one thing is loud. It is slow because the gradient will outlast anything that hurried. It has an eye the size of a room and has never needed to focus it. It has a scar of gypsum and no memory of the wound. It takes a breath that will finish tomorrow and the breath is not hunger or rest or intention; it is the whole plateau agreeing, for another forty minutes, to remain a plateau instead of a scattering of warm rock.
+
+That is the resident. When it finally finishes — when the shield is as cold as the sky and there is nothing left between them to live in — the sockets will stand empty, and the flanks will settle and crust and become outcrops, and the eyes will close, and the noise will stop, and the last thing to leave will not be the hide or the legs but the agreement. Someone climbing the scree then will find a flat, hot, silent place with nothing loose on it and hollows worn smooth at the lips, and will think nothing ever lived here, and will be exactly wrong.

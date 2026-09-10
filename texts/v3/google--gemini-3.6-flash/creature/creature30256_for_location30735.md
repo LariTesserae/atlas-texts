@@ -1,0 +1,27 @@
+To understand what lives here, one must first unlearn the need for a heartbeat. 
+
+There are no lungs in this place, for air so wet and heavy would drown a delicate alveolar chest. There are no eyes, for in a world where the golden afternoon light never shifts an inch, vision is a redundant organ. And there are no creatures that walk, crawl, or fly, for locomotion belongs to worlds where things are missing—where an animal must move from where it is to where its food or mate might be.
+
+Here, nothing is missing. The life that fills these seamless, coral-dense arcades is sessile, immense, and completely continuous with the stone.
+
+If you were to walk down one of the flooded step-streets, your ankles bathed in the warm, smooth-flowing current, you would pass long rows of what appear to be carved caryatids or smooth, armless pylons supporting the vaulted stone terraces. They are taller than men—twelve, fifteen feet high—tapering smoothly into the ceiling lintels above and widening into the flagstones below. Their surfaces are as smooth as river-worn marble, pale pearl and dark basalt, warm to the touch, and completely free of chisel marks. 
+
+These are not statues. They are the primary inhabitants of the cliff-city: the **Calcite Dwellers**, the living nodes of the great vertical reef.
+
+They do not move, not because they are paralyzed, but because their life cycle operates at the speed of the mountain itself. They are composed of dense, living bio-carbonate—the very same material that forms the seamless architecture around them. Their "flesh" is porous and warm, saturated with the thermal water that slides perpetually over their shoulders and down their seamless flanks. 
+
+Where a human body is driven by blood pumped through closed veins, these beings are driven by the mountain’s hydraulics. The gravity-defying streams do not merely flow *around* them; water enters through porous pore-clusters at the crowns of their tall heads, draws deep into their stone-dense interiors, and exits through broad, smooth channels at their bases. They are living hydro-dams, passive valves that tune and direct the spatial distortions of the water. It is their internal density, built up over eons of calcification, that holds the aqueducts in their impossible, upward-curving arcs. They anchor the physics of the place through their sheer, quiet presence.
+
+They have no faces in any recognizable sense. Where a countenance might be, there is only a smooth, outward-curving concavity—a polished oval dish of bone-hard calcium that acts as a sonic parabolic reflector. 
+
+Because the sound here is an acoustic violence—a deafening, omnipresent wall of roaring water and deep, resonant wind-pipe tones—these beings do not experience sound as noise. They experience it as thought. The deafening roar is their shared, collective consciousness. The subterranean hum rising through the stone wind-pipes vibrates through their basalt soles, passes up through their calcified spines, and focuses in the smooth dishes of their faces. A subtle change in the water’s pressure three tiers down is felt instantly by a node a mile above, translated not through nerve impulses, but as a shift in harmonic resonance through the wet rock. They do not speak; they *are* spoken through by the mountain's infinite, unchanging acoustic engine.
+
+And they are not separate from the greenery. 
+
+The rampant, sail-sized ferns and waxy vines that rope the tiers together are not weeds encroaching on an abandoned ruin; they are the external vascular system of the inhabitants. The vines burst directly from the seams of the Dwellers’ calcified bodies, rooting into their porous skin before bridging the air to anchor into the next tier. The broad, dark leaves act as heat exchangers, absorbing the sweltering moisture of the air and transpiring it back into the Dwellers' internal fluid channels. 
+
+When you see a curtain of emerald moss velvet coating a balustrade, you are looking at the delicate, sensory skin of a being that stretches across three city blocks. The plant life is their nerve-net, their foliage, their bloom. They do not shed leaves because their metabolic balance is absolute: every atom of calcium, every drop of thermal moisture, every pigment of emerald chlorophyll is held in a permanent, closed loop of static vitality.
+
+Deep within the dark interiors of the mountain wall, where the arcades give way to endless, unlit stone galleries filled with warm fog, sit the oldest among them. These central matrices are vast, bulbous masses of polished stone and thick, wet root-tangles, filling entire plazas. They have grown together over millennia, their forms merging until house, street, and inhabitant are entirely indistinguishable. They feel the weight of the miles of basalt above them; they feel the endless white abyss below. 
+
+To exist here is to be suspended in an eternal, warm, deafening present. Nothing is born, for there is no space left unfilled; nothing dies, for there is no decay to break the flesh down. They sit in the sweltering, wet silk air, bathed in the golden, unmoving light, listening to the thunder of the inverted rivers, holding the city together simply by refusing to yield a single grain of stone.

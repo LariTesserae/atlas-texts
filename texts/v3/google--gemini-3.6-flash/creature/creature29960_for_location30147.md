@@ -1,0 +1,19 @@
+In the blade-like slices of shadow between the slate plates, where the sunlight cannot penetrate, something remains wedged. It does not exist despite the harshness of the shelf; it exists *because* of it. 
+
+They are not creatures of flesh, nor are they fully stone. They are laths—beings composed of the same laminated slate, quartz dust, and dark glass that form the mountain itself, but held together by a tight, living tension of frost and hydrous iron. 
+
+To look directly into the crevices at noon is to see only what appears to be stacked shale and blue ice. But as the sun hits the shelf with its stripped, white intensity, the laths begin their brief, daily shift. They have no limbs, no faces, no organs that a human would recognize. Instead, their bodies are composed of dozens of paper-thin mineral leaves, stacked side by side like the pages of a book left out to freeze, bounded by long, vertical veins of oxidized iron that act as a skeleton.
+
+Their life is measured entirely in gradients of heat. They do not breathe air; the atmosphere at this altitude is too thin to hold what they need. Instead, they feed on the violent thermodynamic contrast between the white glare on their upper edges and the permanent, sub-zero blue ice at their roots. 
+
+When the mountain begins its rhythmic, metallic cracking—the *clack* of stone expanding under the solar glare—it is the laths articulating. They are adjusting their alignment, flexing their slate leaves outward by fractions of a millimeter to catch the brief, migrating warmth. As they expand, the pale salt-blooms on their flanks rupture and re-form, snapping into tiny crystal needles. This is their movement: a slow, mechanical creeping, a breathing made of stress fractures and mineral accretion.
+
+They are deeply tied to the ancient modifications on the shelf. The pecked channels and the bronze wedges are not remnants of a forgotten human campsite; they are an interface. 
+
+Long ago, when the ones with hornstone chisels climbed this high, they came to harvest the slag or to speak to the shelf. They hammered those greened copper wedges directly into the laths' primary joints, pinning the largest of them into the bedrock face to hold the horseshoe shelf stable. The laths have grown around the bronze over millennia, absorbing the copper into their mineral makeup, so that thin, pale-green blooms now thread through their slate leaves like cold veins.
+
+The water—those hair-thin, soot-grey trickles that bleed from the basalt fissures—is their blood and their memory. As the meltwater creeps down the pecked gutters toward the ground bowls, the laths extend microscopic crusts of salt and frost into the runoff. They strain the flour-fine quartz dust and dark sediments out of the trickles, incorporating the soot-grey silt into their own bodies, layer by microscopic layer. In this way, they record the history of the mountain’s decay. Deep within their lower, ice-bound sections, locked in the dark below the shelf, their oldest layers still hold tiny, preserved specks of charcoal from the fires that melted the glass slag long ago.
+
+When shadows sweep across the shelf at dusk and the sudden, biting cold descends, the laths do not retreat—they lock. The thin glazes of ice that skin the stone freeze them back into the structural rock face. Their leaves press tightly together, squeezing out the trapped moisture until it crystallizes into salt-dust. 
+
+In the dark, they are completely silent, indistinguishable from the mountain, waiting for the first white ray of sunrise to strike the shattered basalt horn and start the engine again.

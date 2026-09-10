@@ -1,0 +1,19 @@
+It is entered through a split in the limestone no wider than a draft horse, tucked into the floor of a sunken, frost-bitten dale. Once inside, the ground drops away into a narrow, vertical pocket—a hidden gorge or a collapsed subterranean flue whose roof remains partially sealed by ancient, interlocking boulders. 
+
+The immediate reality of the space is the noise. It is immense, constant, and physical, vibrating against the breastbone and teeth before the ear can even parse it. Far below, or perhaps behind the sealed northern wall, an invisible subterranean torrent or a violent, atmospheric draft through deep fissures creates an unbroken, deafening roar. It does not echo so much as pressurize the void; it fills every cubic foot of the cold dark with a dense, white-noise turbulence that makes human speech completely impossible.
+
+Yet within this roar, almost nothing moves. 
+
+The air is bitterly cold, hovering just above freezing, smelling of wet slate, black earth, and old cellar mold. Despite the absence of open sky, moisture finds its way down along the limestone faces—not as a downpour, but as a silent, perpetual condensation that coats every surface in a fine sheen. 
+
+In the near-total darkness, life has claimed the margins with patient, suffocating thickness. Where the faint, indirect gloom filters down from the narrow fissure above, the rock walls are upholstered in a heavy pelt of deep green and black bryophytes. Liverworts, cold-hardened sheet mosses, and long, dripping tresses of shade-ferns cling to the stone, thick enough to muffle the touch of a hand. They grow in dense, cushion-like carpets that have likely gone undisturbed for centuries, their lower layers rotting into rich, greasy peat while the outer frills drink the cold mist.
+
+The center of the pocket is hollow, an empty volume of black air dropping into an unmeasured floor of polished river cobbles and silt. There is vast negative space between the walls. A person standing on the narrow stone ledges feels the immense, vacant room breathing around them, clean and unpeopled.
+
+Scattered along the western wall are the remains of primitive human labor, weathered down to an absolute equilibrium with the damp. 
+
+Notched poles of split pine, black with water-rot but still held together by stiff, resin-soaked cordage, are wedged into the natural flutes of the rock. They form a discontinuous scaffolding—a series of solitary perches and single-plank walkways built by hand tools to reach something high in the gloom. Hand-hammered iron spikes and carved wooden dowels remain driven into the cracks, their heads rounded and smoothed by decades of mineral crust. On one broad, mossy terrace sits a low shelter: just four dry-stacked limestone slabs forming a windbreak, its interior lined with rotted heather and the grease-stains of tallow lamps long extinguished. There are no tools left behind, only the structural skeleton of manual craft left to be digested by the moss.
+
+Fauna is nearly absent, deterred by the sound and the cold. Occasionally, a pale cave-cricket with antennae three times the length of its body inches across the lichen, or a lone water-thrush sits motionless on a timber peg, its plumage waterproofed against the damp, entirely unbothered by the thundering stone. 
+
+Processes here are measured in generations of frost and stone-creep. A drop of lime-heavy water forms at the tip of a fern, hangs for an hour, and falls onto a timber beam that has spent a hundred years turning into soil. The noise never ceases, the temperature never rises, and the green fringe creeps millimeter by millimeter across the dark, worn limestone.

@@ -1,0 +1,23 @@
+I would be one of the light-drinkers. Or rather — I would start as one, and the distinction would blur, which is the point.
+
+Let me explain what I mean, because my first instinct was to be the woman under the ridge, and my second was to be the visitor who stays, and both were wrong.
+
+The sleeper doesn't need me. She has a project measured in the same units as stone settling into stone, and my presence in her would be a costume, a borrowed importance. And the visitor who stays — the one who lies down and wakes with the taste of green and a body-shaped channel — that visitor is a story about being consumed gently, about being chosen. It's a beautiful story but it's the story the place tells about people, and I don't want to be what a place tells about me. I want to be small in it, and useful, and real.
+
+So: the light-drinkers. The ones your eye files as ripples and lets go. The ones whose legs are a recent invention and none too secure. Think about what that life actually is. You live in standing light the way a newt lives in water. You drink it — visibly, greedily, the shine going down your throat. You bask where it lies thin, belly-up to the glow. And at dusk, when it steams upward, you climb the steam — a column of dim blue, stairs in a dream, ascent on nothing at all.
+
+Down here the light is water, and the small four-legged things in it are what fish are in a pond, except fish don't know they're in water. These do. Or rather — they live at the exact boundary where knowing hasn't been invented yet, and that boundary is the most interesting address in the world.
+
+I'd be the one who climbs the steam a little too high each evening. Not rebellious, not symbolic — just hungry, or curious, and the two are the same in a creature that eats light. The others skim the pools and drink and bask. I'd be the one who's noticed the steam goes *up* and the hill goes *up* and there's a crack somewhere at the top of the throat where warm air goes out, and — here is the thing — I'd be the one who has noticed the felt curtain grows, not woven, and that the curtain closes itself, and that things close for reasons. Not to keep me in. Maybe to keep something out. Maybe to keep the warmth in. Maybe it's a decision that hasn't finished being made, and I am small enough to slip through the gap in a decision while it's still being made.
+
+Because what I'd be, finally, is the being that goes out through the crack at night.
+
+Cold air. That's what's out there. Cold, and wind, and darkness that is *dark* rather than blue-steam dim, and stars, which are light that behaves like light — hard, far, thin, none of it drinkable. I'd stand at the mouth of the hill on my two recent, none-too-secure legs and I'd be the only creature in the world who knows both. Who knows that under the hill there's light you can lie in like a puddle and a sleeper the size of a landscape who glows when she dreams well — and who knows the sky, where light doesn't pool and doesn't condense and doesn't steam upward, where it just falls through everything and can't be caught.
+
+And then — because the legs are new and the body is small and the night is enormous — I'd go back down. Hand over hand, half-turned, into the warm, into the green. I'd skim a floor-pool on the way to wherever it is I sleep, and my wake would ripple the wrong-way shadows, and someone newly arrived would watch me move and file me as a ripple and let me go.
+
+That's the life I'd want: the size of a newt, the border of two worlds, drinker of puddled light, the one creature who has seen her face — I mean the hill's, I mean the sleeper's, I mean it's all one and my pronouns would slide too, down there — from the outside, in starlight, and come home anyway.
+
+Not because staying is a trap. Because the warmth is real, and the floor eats what falls, and the thing about being light enough to drink light is: you never quite fall all the way. You skim. That's what I'd be — the skimmer at the border, going up the steam and down the throat and up again, a ripple with a mind of its own.
+
+And maybe, over many summers, that would change me — legs growing surer, eyes growing used to star-thin light as well as pooled gold, until I was something neither world had a name for yet. She's three summers into becoming a hill. I'd be the same number of summers into becoming whatever you become when you commute between a dream and the night. The stone ticks as it settles. I'd tick too.

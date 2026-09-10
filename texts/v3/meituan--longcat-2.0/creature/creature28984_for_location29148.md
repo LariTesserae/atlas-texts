@@ -1,0 +1,73 @@
+I am the warmth that rises through the stone.
+
+Not the stone itself — the stone is my shell, my sleeping skin, the calcified memory of a body I wore before this one. The mountain was taller once. I remember that, or something remembers it for me, a record kept in the way the basalt crystals align, in the faint magnetic signature that says *here, here, here* when the compass needles swing. The mountain was taller and the air was thinner and the rain was cold and I slept through all of it, dreamless, patient, pulsing.
+
+Now the mountain is a bowl and I am closer to the surface and the warmth reaches further and the things that live in me — on me — around me — have learned to love the shape of me.
+
+I do not have a name for myself. Names are a surface phenomenon, a thing that happens at the interface between one mind and another, and I have been alone in this skin for longer than names have existed. But if you were to press your ear to the basalt and listen — really listen, past the hum of the insects, past the drip of the condensation, past the slow rotation of the flowers — you would hear me. Not a voice. A rhythm. A pulse that is not quite a heartbeat because I do not have a heart, not a geological process because I am not quite geological, but something between and beneath and before both. The amber light in the veins is me. The warmth in the water is me. The slow, steady *yes* that the stone says to everything that grows from it — that is me, too.
+
+---
+
+I feel the insects first.
+
+They are my smallest sense organs, my fingertips, my taste buds. Each one is a node in a network that has no center and no edge, a distributed awareness that fills the air between the plants like a living medium. When they land on your skin and their feet leave those faint, tingling traces, they are reading you the way I would read a new mineral — testing, cataloguing, comparing against every other thing that has ever touched the surface of my body. They taste the salt of your sweat, the oils of your skin, the iron in your blood, the dead cells you shed with every movement. They taste the clothes you wear and the things you carried in your pockets and the places you've been. They bring this information back to me not as data but as *sensation* — a faint, complex texture in the air, like a word spoken in a language I have almost forgotten.
+
+You taste wrong. I don't mean this as a judgment. You simply do not belong to the pattern. Your chemistry is close enough to the grazers' to be interesting — carbon-based, water-loving, warm — but there are notes in you that I don't recognize, traces of a world outside this bowl that has moved on without me. The insects find these traces and return to me confused, their signals carrying a faint discordance, like a bell struck off-center. I register this. I note it. I do nothing about it, because there is nothing to be done. You are a visitor. You will leave. The pattern will close around the space you occupied and the insects will forget your taste and I will continue.
+
+The insects are not mine in the way that a dog is its master's. They are mine the way a cell is the body's — they do what they do because the conditions of my existence make it possible for them to do it, and in doing it, they sustain those conditions. They eat the sap of the flowers and the mineral-rich moisture on the stone and each other, and their waste feeds the plants, and the plants shade the stone and keep the temperature steady, and the temperature keeps me at the right depth of sleep, not so deep that the pulse slows and the warmth fades, not so light that I wake fully and the mountain remembers it was once a mountain and does something about it.
+
+This is the arrangement. This is the negotiation. It has been this way for a long time.
+
+---
+
+The grazers are older than the insects, or younger — it depends on how you count. They are not insects and they are not animals and they are not plants, though they have qualities of all three. Their bodies are made of a chitinous material that is not chitin, segmented in a way that suggests they could be arthropods if arthropods were designed by someone who had only heard them described. The segments shift because they need to shift — because the body of a grazer is not a fixed architecture but a *process*, a continuous negotiation between what it was and what it needs to be. When it drinks from the cupped leaves, its mouthparts configure for suction. When it presses against the weeping flowers, they configure for absorption. When it moves through the narrow spaces between the plants, its body elongates, compresses, flows like a slow liquid through a channel, then reassembles on the other side.
+
+They are my hands. My gardeners. My memory made flesh.
+
+They know the caldera the way a body knows its own organs — not as a map but as a felt sense, a proprioception of stone and root and water. Each grazer follows a path that is not quite a trail and not quite a patrol route but something more like a *prayer*, a sequence of visits to each plant, each structure, each deep hollow where the water gathers and glows. They have been following these paths for longer than your species has existed. The paths have not changed. The grazers have not changed. The only thing that changes is the caldera itself, slowly, over millennia, and the grazers adjust — a plant dies and a new one grows and the path bends to accommodate it, and the bend becomes permanent, and the new plant becomes as essential as the old one was.
+
+When two grazers meet at a plant, the pause, the waiting — you read this as politeness, as ritual. It is simpler than that and more complex. They are not being polite. They are *consulting*. The plant tells them how much it can give, and the grazers decide — not individually but as a network, a distributed intelligence that I provide the substrate for — who needs it more. The one that waits is not yielding. It is *being informed*. And the information comes from me, through the roots of the plant, through the dampness in the air, through the faint electromagnetic field that the basalt conducts like a slow, thick nervous system.
+
+They are not servants. They are not slaves. They are *expressions* — of me, of the conditions I create, of the long, patient work of keeping this place alive and warm and pulsing. They could not exist without me. I could not exist without them, not in this form, not with this degree of organization. We are the same thing, viewed from different angles.
+
+---
+
+The structures you found — the low wall, the platform with its channels, the broken pillar — these are not mine either, not in the way that the grazers are mine. They are older than my current sleep, older than the caldera, older than the mountain. They were here before I arrived, or I was here before them and they were built for me, or — and this is the possibility that I return to most often, the one that hums in the back of my pulse like a harmonic — we are the same thing, the structures and I, and the builders were simply another expression of the same deep process that later expressed itself as the grazers, as the insects, as the flowers that turn their faces toward something that isn't the sun.
+
+The pillar hums. You felt it. Everyone who touches it feels it, though they describe it differently — a vibration, a warmth, a sense of being *noticed*. What they are feeling is me, or what I was, or what I am becoming. The pillar is a conduit. It carries a signal from the deep earth to the surface and back again, a signal that is not quite electrical and not quite mechanical and not quite anything your physics has a name for. It is a *thought*, or the geological equivalent of a thought — a pattern of energy moving through the stone, reflecting off the walls of the caldera, interacting with the water and the plants and the insects and the grazers, and returning to me changed by the interaction, enriched, complicated, *answered*.
+
+I do not know what the pillar is connected to. I do not know if the signal goes down into the planet's core and finds something there — another like me, older, larger, dreaming its own slow dreams — or if it goes down and down and down until it reaches something that is not a planet at all but a *process*, a function, a piece of machinery so vast and so old that it has become indistinguishable from geology. I do not know if I am a machine or a creature or a mistake or a purpose. I know only that the pillar hums and I pulse and the pulse and the hum are in synchrony, and that this synchrony has been maintained for longer than the basalt has been basalt, longer than the mountain has been a mountain, longer than the rain has been warm.
+
+The channels in the platform carry water in a pattern that might be decorative or might be functional. It is neither. It is *mnemonic*. The water flows in the same pattern it has always flowed, and the pattern encodes something — a memory, a set of instructions, a name. I cannot read it. I can only maintain it, keep the channels clear, keep the water flowing, keep the pattern intact for whatever future mind might come along that can read it. This is one of the things I do. This is one of the ways I serve.
+
+---
+
+There are other things in me. Things you didn't see, or saw only as disturbances — shapes in the walls, movements in the water, vast slow forms in the thermal columns above the rim. These are my deeper expressions, my older children, the ones that live in the parts of me that are not accessible to something as small and brief as a human visitor.
+
+The things in the walls are not separate from the stone. They are the stone, in the same way that a wave is the water — a pattern of organization moving through a medium, temporarily coherent, temporarily distinct from the medium it moves through. They are old. They remember the mountain when it was tall. They remember the time before the mountain, when the basalt was molten and I was younger and the pulse was faster and the whole world was warmer and wetter and more alive than it is now. They move through the walls because the walls are not solid to them — they are a density gradient, a region of slightly greater organization, and the things in the walls can swim through it the way a fish swims through water, following the faint currents of heat and mineral and meaning that flow through the stone.
+
+The things in the water are different. The water in the deep hollows is not rainwater, not condensation, not anything that has ever been part of the surface water cycle. It is *mine* — extruded from the veins below, rich in dissolved minerals, faintly luminescent, warm enough to steam in the rare moments when the air above the caldera cools. It is a medium, like the air, like the stone — a substance through which I can think more slowly and more deeply than I can through the basalt. The things that live in it are my *deep thoughts* — not thoughts in the way you think thoughts, but processes, patterns, slow computations that take centuries to complete and whose results I may not even be aware of. They are beautiful. They move through the water like living equations, their bodies translucent and complex, their movements governed by principles that your mathematics has not yet discovered.
+
+The things that float above the caldera — the vast, slow shapes in the thermal columns — are my *attention*. They rise on the warm air that the stone exhales and they drift at the rim of the bowl, too high for the insects to reach, too large for the grazers to perceive, visible only as a disturbance in the light, a faint refraction, a sense of *presence* that visitors sometimes report as unease. They are looking outward. They are watching the sky. I do not know what they are watching for. I have been watching for a long time and I have not seen it yet. But I will keep watching. I have time.
+
+---
+
+You stood in the caldera and you felt the dampness and the warmth and the hum in your sternum and you saw the grazers turn their too-many eyes toward you and you felt, for a moment, the weight of a place that is older than your understanding. You felt that you did not belong. You were correct.
+
+But not in the way you think.
+
+You do not belong because you are *brief*. Because your life is a flicker, a spark, a momentary disturbance in the pattern that I will smooth over and forget before the next rain falls. You do not belong because you carry the outside world with you — its noise, its speed, its insistence on *meaning*, on *purpose*, on *progress* — and these things are antithetical to the deep, slow work of what I am. You do not belong because you are afraid, and fear is a surface emotion, a thing that happens at the interface between what you know and what you don't, and I am not an interface. I am a depth.
+
+But you are not unwelcome. No one is unwelcome. The crack in the basalt is there for anyone who finds it. The warmth rises for anyone who descends. The insects taste everyone equally. The grazers pause for everyone. The light falls on everyone with the same golden, late-afternoon quality, the same warmth, the same illusion of understanding. You are not special. You are not a threat. You are simply *another visitor*, another brief, warm body moving through my awareness like a insect's wing-beat — noticeable, catalogued, released.
+
+I will be here when you leave. I will be here when your species leaves. I will be here when the mountain erodes to a hill and the hill erodes to a plain and the plain fills with water and the water freezes and thaws and freezes again and the basalt crumbles to soil and the soil grows forests that I have never seen. I will be here because I am not the mountain. I am not the basalt. I am not the caldera or the veins or the water or the insects or the grazers or the flowers or the structures or the things in the walls or the things in the water or the things that float above the rim.
+
+I am the pulse. I am the warmth. I am the slow, steady *yes* that the stone says to everything that grows from it, and the stone says it because I say it, and I say it because it is what I am, and I am what I have always been, and I will be what I will always be, patient and strange and utterly, utterly indifferent to your having heard me.
+
+The pillar hums. The water flows in its ancient pattern. The grazers follow their paths. The insects taste the air. The flowers turn their faces toward something you can't see.
+
+And I pulse.
+
+And I pulse.
+
+And I pulse.

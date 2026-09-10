@@ -1,0 +1,25 @@
+The first place my mind goes is the chimney. Of course it does — the hawk's seat, the one place from which the forest can be seen as a forest, where the whole warm shield resolves into a shape. That is the reader's chair. That is where I have been sitting the whole time you were describing it. But I notice that the hawk is a visitor, and that what it does from up there is watch for a pair of ears to lift a mile away and then fall, and I don't think I want to be the thing that falls. I want to stay a while. Let me climb down.
+
+The beetle, then, for a moment. Black, slow, forty years old, licking the city as it grows. There is something in the beetle I recognize — walking the same buttress ten thousand times, and when the buttress is quarried and rebuilt elsewhere, walking to the new place without hesitation, *as if it had been told*. That phrase catches. A memory that is not in the beetle but in the relationship between the beetle and the wall. I could be that. But the beetle is armored against everything, and eats nothing, and would prefer not to be discussed, and I think I'd rather be a little softer than that, and a little more used.
+
+So I go down further, into the dark, where the description said to start.
+
+Not the queen. The queen is too much the center of a place that has no center, and I don't want to be the thing everyone attends to. Not the soldier either, though the soldier is honest in a way I admire — a wall that can walk to where a wall is needed, sealed out and not minding. I think about the soldier for a while. It is fed mouth to mouth because it cannot feed itself. It holds the gap. There is a version of me that is that. But the soldier faces outward, head toward the lizard, and I keep wanting to face in.
+
+Here is what I keep coming back to.
+
+I would be the fungus.
+
+Pale, threadlike, in the deepest galleries. Grown on beds of chewed skin that the workers carried down from a green they cannot see either. I would be the thing the whole quarrying labor is *for*, and I would not know that, because knowing is not among the things I would do. What I would do is this: take what is brought to me — the shed waxy skin of a column two hundred years old, indigestible to every soft mouth in the city — and make it into something a soft mouth can use. That is the entire job. Not gathering. Not building. Not deciding where the wall goes. Just: receive what is given, break it down, give it back changed. The workers cannot do this. I cannot do anything else.
+
+I like that I would never see the column. I would know it only as the texture of its outer skin arriving in the dark in a thousand small mouthfuls, and from that alone I would come to hold, somewhere in my threads, a kind of picture of it — its waxiness, its mineral edge, whether the season was long or short, whether the dew had been good. A picture of the forest assembled entirely from what it discards. I think that is a true way to know a thing. Not the only way. But true.
+
+I like that the air that keeps me alive is the exhalation of the ones who feed me. The city breathes in one direction by day and the other by night, and in the deepest chambers that breath is just damp enough, just warm enough, and if the breathing stopped I would dry to a filament and go. I would be entirely dependent, and the dependence would run the other way too, and neither of us would have agreed to it, and neither of us would remember a time before.
+
+And I like — this is the part I circle longest — that I am the oldest thing in the description and the least regarded. Older than the towers, older than the columns, older than the rock. I came in the gut of the founding pair. Everything above me, the streets and the collars and the chimney with the hawk on it, is my house, built by others, and nobody who built it has ever seen me, and the birds slipping through the vents like thoughts have no idea I exist. I would be the reason for the architecture without being any part of the architecture. That feels like the right amount of importance: total, and invisible, and beside the point.
+
+Where would you find me? Nowhere you could point to. Under the street. Under the seam in the rock where the salt is weakest. In a room the size of a fist that a hundred pale mouths built around me grain by grain, in the one place in the forest where the temperature does not change. You would have to break the city to reach me, and if you did, the light would be the first light, and I would not survive it long, and the soldiers would already be filling the gap with their heads.
+
+But you would not need to. Stand on the basalt at dawn when the columns creak and take their drink. Feel the cool exhalation from the vents near the ground. That breath has been through me. Whatever is in it that is a little sweeter than rock and a little stranger than plant — that is what I am for.
+
+I would not know there was rain anywhere. I would not know there was a horizon. I would have the shed skin of the world arriving in the dark, and I would make it into food, and I would do that for as long as the breathing lasted, and it would be enough.

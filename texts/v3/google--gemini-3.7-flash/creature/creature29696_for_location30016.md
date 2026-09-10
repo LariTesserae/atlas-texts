@@ -1,0 +1,33 @@
+To survive in the basin is to maintain a constant, low-grade argument with the ground beneath one’s feet. 
+
+Because physical reality here is a processed state rather than a given constant, the creatures that dwell in the silt do not simply eat and breathe; they *insist*. Physical mass is an ongoing operational cost. Most life-forms are therefore quiet, pale, and economized down to the bare minimum of mass required to retain an interior state, drifting through the copper-colored fern-brakes like wet paper silhouettes.
+
+***
+
+At the lowest trophic tier, living in the dense, vulcanized mud, are the **Weft-worms**. They are not annelids in any classical sense, though they resemble them: long, jointless cords of translucent, rubbery tissue, no thicker than a violin string and often several yards in length. They do not consume the peat for organic carbon. Instead, they thread themselves through the micro-fractures of the petrified circuit-strata, acting as living shunt resistors. They feed on the voltage differentials between the deep subterranean drone and the pooling surface water. When pulled into the air, a weft-worm is completely clear, its internal anatomy consisting only of a single, dark, liquid filament that pulses with a slow, peristaltic twitch. If severed, the halves do not grow into two worms; rather, the cut ends immediately seek one another out, drawn by an aggressive electrostatic attraction, welding back together with a faint, audible sizzle and a smell like singed hair.
+
+Above the mud, moving slowly through the braided, uphill-flowing creeks, are the **Glass-bellied Grebes**—though they have more in common with lungfish than birds. They are heavy, broad-skulled amphibians, long-bodied and armored in scales that look like unpolished slate. Their bellies are entirely clear, revealing an internal cavity filled not with blood, but with a viscous, oily fluid that acts as an optical dielectric. Within this fluid, their vital organs do not sit in fixed positions; they shift, drifting slowly to compensate for the local gravitational shears of the basin. 
+
+The grebes hunt by waiting in the water-mirrors—those specific puddles that reflect an altitude fifty feet up or a moment twenty seconds away. A grebe will submerge its snout into a pool and watch the false reflection. When it sees an insect or a smaller amphibian enter the *future* frame of the puddle, the grebe snaps its jaws on the empty water; twenty seconds later, when the prey actually arrives at the spot, it drops dead instantly, its neck broken by an event that has already concluded. The grebes are thick with scar tissue along their flanks, where their flesh has repeatedly failed to synchronize with their skeletons during sudden parity shifts.
+
+***
+
+Deeper into the rolling swells of lead-sheathed bone-country live larger, solitary organisms whose forms are more ambiguous. 
+
+One of these is the **Pylon-strider**. It stands twelve feet tall on four needle-thin legs of bare, white cartilage that taper down to points no wider than a pencil lead. These legs do not penetrate the soft mud; they pierce the local electromagnetic field, grounding the creature’s immense, barrel-shaped torso above the damp moss. The strider’s body is covered in a thick pelt of wet, gray felt that weeps water continuously, like an over-saturated sponge. It has no eyes, only a wide, circular diaphragm centered on its chest, which pulses in exact counter-rhythm to the basin’s deep, mechanical hum.
+
+The pylon-strider feeds on acoustic and temporal drift. It wades into areas where the air crackles with the sound of breaking glass—the repair sites where the terrain is fixing its own geometry. There, it lowers a long, segmented proboscis made of interlocking rings of tarnished brass-colored chitin into the center of the distortion, drinking in the sudden spike of localized heat and entropy before the air can smooth itself out. To watch a strider feed is disquieting: its silhouette loses sharpness, the edges of its fur smearing out into a wide, gray aura that vibrates like a plucked string, until it steps back, swallows with a wet, heavy thud, and sharpens back into focus.
+
+***
+
+There is also something that could, with great hesitation, be called people. 
+
+They do not call themselves anything, as they lack vocal cords capable of speech; the air in the basin is too thick and chemically damp for delicate lungs, and their respiratory systems have long since calcified into passive gill-slits running along their collarbones and ribs. They are tall, double-jointed bipeds with skin the color of damp wet-suit rubber, smooth and hairless, streaked with fine, subcutaneous lines of deep, bioluminescent indigo that flicker when they exert themselves.
+
+These **Iterants** wander the basin in small, loose family groups of three or four, never remaining in one hollow for more than a few days. They wear no woven textiles, for fabric rots in hours under the weeping sky; instead, they coat their skin in thick layers of the black, electromagnetic lichen, which forms a living, insulating crust over their chests and shoulders. 
+
+The Iterants are not scavengers of the old world—they do not dig for artifacts or try to understand the machine that surrounds them. They are *stewards of parity*. Their long, five-jointed fingers are tipped with soft, pad-like sensors capable of detecting slight fluctuations in the local logic. When an Iterant finds a creek that is looping backward on itself until it begins to boil, or a patch of fern-brake where time has slowed to a gelid crawl, it will kneel in the freezing silt for hours, gently massaging the mud, rearranging the quartz pebbles, and inserting thin rods of carved basalt into the soil like acupuncturists soothing a seized muscle. 
+
+They work until the error reconciles with a sharp *pop*, the cold ozone smell washes over them, and the water flows smoothly again. They take payment for this work from the land itself: the moment the parity settles, their indigo vascular lines glow fiercely, absorbing the surplus energy of the resolution, keeping their pale, fragile bodies alive for another cycle of rain.
+
+At night, when the pewter sky turns the color of cold cast iron and the hum of the earth deepens until it rattles the water droplets off the ferns, the Iterants gather in the shallow depressions of the rounded hills. They lie down together, curling into a single, interlocking circle of slick black limbs and glowing ribs. As they sleep, their breathing syncs with the multi-tonal drone from below, their outlines softening and blurring into the damp peat, until it is impossible to tell where the sleeper ends and the calculations of the valley begin.

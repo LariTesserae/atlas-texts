@@ -1,0 +1,21 @@
+It is a pocket no larger than the engine room of a tugboat, caught between the riveted plates of an atmospheric manifold sixty thousand feet above any ground. 
+
+There is no soil here, nor has there ever been a stone. Every surface is rolled, pickled structural steel and hot-dipped galvanized grating, newly stamped, without a single fleck of rust or the softening roundness of wear. The edges of the beams are still factory-sharp, their sheared corners capable of slicing leather. Mill scale lies dark and gunmetal-blue over the flanges, marked here and there by the white grease-pencil strokes of long-departed assembly crews.
+
+Yet it is soaking wet, and bitter, thin-air cold.
+
+The moisture does not fall as rain; it is squeezed continuously out of the high-altitude slipstream by the compression of the intake louvers outside. A heavy, atomized fog fills the chamber, condensing instantaneously against the sub-zero iron. Cold water weeps down the vertical bulkheads in continuous, paper-thin laminations, slicking the zinc floor-plates and collecting in shallow drainage gutters that drain into unyielding, humming drain-valves. The water does not freeze, despite the air hovering just fractions above zero; it is laden with hydraulic trace-salts and mechanical surfactants, keeping it liquid, greasy, and bitterly cold to the touch.
+
+In the dimness—lit only by the dull, unblinking amber eyes of sealed relay housings and the pale phosphorescence of the mist itself—the chamber seethes with life.
+
+They occupy every cubic inch not claimed by pressurized conduit. Clinging six-deep to the damp underbellies of the I-beams are colonies of blind, flat-bodied iron-mites, each the size of a thumb, their translucent white carapaces shivering in unison to pump condensation through their gills. Between the conduits, strung in wet, overlapping mats, hang dense clusters of pale lung-leeches—fleshy, finger-length siphoners that root their calcified mouths into the rubberized seams of the valve seals, drinking the high-pressure glycol-sweat that leaches through the gaskets. 
+
+Every narrow recess between structural gusset and deck plate is packed with cold, writhing meat. Small, eel-like pipe-swifts, chalk-pale and devoid of eyes, weave through the perforated steel risers in tangled ribbons, their slick hides rasping against the raw zinc with a dry, continuous hiss. They have no natural predators here, nor do they migrate. They were either born from eggs dormant in the shipyard insulation or carried in on the mist as microscopic cysts; now they exist in a closed, frantic saturation, grazing on bacterial films that bloom over the fresh machine grease and digesting the nitrogen-heavy frost that gathers on the cold-air injectors.
+
+The noise in the pocket is absolute, physical, and paralyzing. 
+
+It is not a chaotic roar, but an immoveable wall of sound locked in absolute equilibrium. The massive, steady thrum of the intake turbines several bulkheads away provides a low, vibrating drone that shakes the marrow in one's shins, while the chamber itself is filled with the shrieking scream of pressurized fog forced through micrometric intake slits. Layered over this mechanical foundation is the deafening, collective stridulation of the mites—billions of micro-serrated legs scraping against mill-finished steel to maintain their grip against the draft—and the high, wet chatter of the pale eels beating their tails against the drain grates. The sound does not rise or fall. It has no rhythm, no crescendo; it is a solid, deafening block of acoustic pressure that never wavers by a decibel.
+
+The air smells of ozone, zinc, chilled lard, and the cold, ammonia-sharp musk of millions of crowded, fat-rich bodies. 
+
+Nothing changes here. The turbines do not cycle down; the compression mist neither thickens nor clears; the temperature sits rigid at its knife-edge above freezing. The creatures do not sleep, because there is no dark and no noon—only the constant, muddy amber twilight of the indicator bulbs reflecting through the sheeting water. The raw, embryonic steel remains uncorroded under its film of biological grease, caught in an eternal first day of operation, sealed away in the freezing sky, vibrating violently within its own deafening, perfectly sustained pocket of life.

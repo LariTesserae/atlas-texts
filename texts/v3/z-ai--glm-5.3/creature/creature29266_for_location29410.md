@@ -1,0 +1,17 @@
+The place is small: four strokes, eight points, nine rooms. Two of its lines run level, two stand upright, and where they cross they do not so much meet as agree. The walls are not strokes — they are crossings, intersections that have learned to hold still. It is a fence with the eight winds penned inside it.
+
+Nothing there is solid except the crossings. Stand in any room and you'll notice there is more window than wall — a house built entirely of the parts of a house that let things through. Light arrives from all four directions at once and leaves the same way. The floor is whatever a floor is before anyone has said what it's for.
+
+Something lives in the middle room. You know this before you see it, because the middle is warm. The middle square of any grid is the one everybody wants; it has been wanted so long it stays warm the way a chair stays warm. In the other eight rooms the light falls straight through. In the middle room, the light hesitates, as if taking a seat.
+
+The inhabitant is gray the way a pencil is gray — gray with the memory of graphite in it. It is not small so much as unsized. Its shape is the shape of whatever was supposed to come after: the unfinished sentence, the blank that follows the words NUMBER OF, the title with no paragraph beneath it. Every time you leave a lone # with nothing following, you are not abandoning an empty room. You are feeding it.
+
+It answers to many names — hash, pound, number, sharp — the most alias-ridden creature alive, with one long formal name almost nobody has ever used. It has learned to live on being skipped. In certain languages everything after it is ignored: the machine does not read it, only people do. So it keeps house in the margins of execution, in the uncompiled regions of the world, in asides. Its stores are *# TODO*, *# FIXME*, *# I don't know why this works, don't touch it*. It is the patron of remarks never run. It does not survive by hiding; it survives by being precisely the color of the overlooked, the way certain moths are the color of attics.
+
+Its habits are few and exact. It sharpens everything in the house by a half-step, so whatever it hums comes out slightly higher than the room it's in — visitors leave feeling clarified, alerted, faintly wrong. It answers calls, if you press for it, and ends them gently; it is the politest hang-up in the world. Long ago it declared a checkmate, and it has kept the notation framed ever since, because it loves finished things: things that are over no longer need filling in, and it can finally stop holding a place for them.
+
+Ask it *how many* and it answers at once, fluently, in any quantity you like. Ask it *how many what* and it goes quiet. Number is its whole substance; noun is the thing it has never been given. It is a creature made entirely of the answer that arrives before the question.
+
+Do not pity the emptiness. It is not lonely — it is occupied; it is what "unoccupied" is made of. Every # anywhere is a door into the same middle room, and it moves among them the way a lamp moves among its own light. It holds a place in line for whatever you were about to say. It is a fence with the sheep still possible.
+
+And the day you finally write something after the # — a word, a title, a whole world — you will not be disturbing it. You will have built an addition onto its house. It will move over, gratefully, one room to the side, and settle back into the gray of the pencil, still holding, as it always has, your place.

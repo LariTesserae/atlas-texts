@@ -1,0 +1,34 @@
+In a world without light, appearance is a phantom concept. Nothing here possesses a color that matters; skin, shell, and cilia exist as varying densities of pale, slick, or iron-crusted tissue. To understand what lives in this drowned metropolis, one must abandon the eye and feel the displacement: the shift of warm, thick water against a sensory line, the metallic taste of a predator’s wake, and the low, structural ringing of the stone itself under the weight of a million moving bodies.
+
+At the very bottom, down where the avenues slope into the ancient sediment of the basin floor, live the **Foundations**. 
+
+These are not individual beasts in any traditional sense, but sprawling, semi-amorphous leviathans—distant relatives of the nudibranch and the deep-sea sea-cucumber, scaled up to the size of city blocks. They do not walk or swim; they *flow*. Their pale, muscular bellies are studded with millions of microscopic, chitinous teeth that rasp along the melted ramps and plazas, grinding down the limestone and swallowing the bacterial sludge whole. They are the city’s cleaners and sculptors. As they creep through the lowest thoroughfares at a pace measured in yards per year, they leave behind trails of thick, calcifying mucus that hardens in the thermal water, patching the eroded bases of the towers. To smaller creatures, a Foundation is a landscape: its back is a folded ridge of soft, gray leather, forest-dense with parasitic barnacles, blind amphipods, and miniature vent-shrimp that live, breed, and die without ever touching the stone below.
+
+Where the Foundations ground the city, the **Chitin-Clans** claim its walls.
+
+These are the crab-like scavengers, though they bear little resemblance to their shallow-water cousins. Their carapaces are flat, disc-shaped shield-bosses made of dense calcium carbonate infused with iron sulfides from the vents, making them heavy, dull, and metallic. They possess no eyes, but their jointed legs are tipped with delicate, feathery palps that can taste a single molecule of rotting lipid diluted in a thousand gallons of water. 
+
+The Chitin-Clans live in the thousands of elliptical windows and hollow alcoves of the apartment towers, stacked one atop the other like armor plating. They do not speak, but they fill the city with its primary acoustic pulse. By striking their heavy claw-tips against the calcified bone walls, they create rhythmic, drumming vibrations that travel for miles through the solid masonry. A territorial dispute in a high spire is broadcast down through the architecture as a sharp, metallic tapping; a localized surge of warm, nutrient-rich vent-water is signaled by a low, rolling chatter that sets the entire neighborhood vibrating. Through the stone, the city talks to itself.
+
+In the mid-waters, navigating the vaulted archways and long, straight avenues with terrifying speed, move the **Eel-Swarms** and the **Glass-Rays**.
+
+The eels are translucent ribbons of pure, white muscle, six to ten feet long, their internal organs visible as faint, dark knots near their throats. They possess no scales; their skin is a smooth, lubricating gel that allows them to slip through the dense water with almost zero acoustic signature. Their snout-pits are packed with thousands of electro-receptors, so sensitive that they can detect the heartbeat of a tube-worm buried three inches inside a calcified pillar. 
+
+They hunt in synchronized, blind ribbons—hundreds of individuals moving as a single, undulating curtain. They do not use sound to coordinate; instead, each eel produces a faint, rhythmic electrical pulse. When the swarm flows through a plaza, their overlapping electrical fields create a three-dimensional "ghost-image" of the architecture in their collective nervous systems. They can sense a spire not by seeing it, but by the way its mineral mass bends and warps their shared current. When a stray scavenger steps out into the open water, the electrical map blinks, warps, and the curtain collapses inward with a sudden, silent snap of jaws.
+
+Above them all, slotted into the highest, narrowest tips of the tapered spires, dwell the **Organists**.
+
+These are perhaps the strangest inheritors of the city. They are large, sessile siphonophores—descendants of ancient, colonial jellyfish—that have grown so massive they can no longer float. Instead, they anchor themselves permanently inside the hollow, pipe-like crowns of the city’s tallest towers. Their lower bodies extend deep into the mineral flues of the spires, where the warm, subterranean currents build up pressure like steam in a boiler.
+
+By opening and closing their muscular siphons, the Organists regulate the flow of the thermal venting. They draw the boiling, sulfurous water up through the hollow stone, cooling it within their vast, chambered bellies before expelling it out through the top of the spire. In doing so, they act as the city’s heat-engine, keeping the surrounding water at its heavy, blood-warm equilibrium. 
+
+The byproduct of this process is the city’s voice. As the Organists force thousands of tons of fluid through the calcified flutes of the architecture, the spires produce a deep, sub-audible drone—a bass resonance so low and powerful that it vibrates the water in the chests of every swimming creature. It is a slow, rhythmic song of displacement, a breathing pulse that tells every inhabitant where the center of the basin lies, how hot the deep faults are burning, and how fast the current is rising.
+
+And between these major orders lies a dense, tangled fringe of micro-life:
+* **Glass-spiders** with legs as long as oars, spanning the gap between two towers with webs of sticky, collagenous silk that catch drifting organic detritus.
+* **Tongue-slugs** that cling to the arches, unfurling ribbon-like organs twenty feet into the current to taste the chemical wake of passing swarms.
+* **Velvet-cysts**, soft, gelatinous spheres that nestle in the dark doorways, waiting for a crab or eel to brush against their trigger-hairs before inside-out stomach tissue engulfs the passerby in a silent, digesting hug.
+
+Nothing in this city ever leaves it. When an Organist dies, its anchor rots away, and its colossal, translucent mass falls slowly down through the thoroughfares like a settling cloud, feeding millions of eels, crabs, and worms as it drifts toward the bottom. There, the Foundations roll over its remains, crushing its mineral shell into paste, pressing it back into the ramps and avenues, rebuilding the city out of the bodies of those who lived in it.
+
+It is a world without sky, without seasons, and without a single moment of absolute quiet. It is a warm, dark engine of flesh and bone, endlessly recycling itself in the silent deep.

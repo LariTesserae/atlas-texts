@@ -1,0 +1,39 @@
+At first you will think they are not alive.
+
+Not because they are hidden, or camouflaged, or pretending. Because stillness that complete does not read as life to an eye that learned life up above, where life is movement. Here movement is a waste and waste is death, so they have unlearned it.
+
+Kneel — you will have to kneel, the air is better lower, thicker with kin-smell — and put your red dim light low and look again.
+
+They are small. If one stood, and none of them stand, its head would bump your knee. But they do not stand. Their bodies are not built for standing. Their legs are folded up under them like dry spiders, knees tucked to chins, heels tucked to buttocks. Their weight is forward, on knuckles and forearms. The forearms are too long. That is the first wrongness that resolves into rightness. Long, pale, hairless forearms, roped with thin tendon, ending in hands that have too many joints.
+
+Count them if you hold your breath long enough to count. Seven knuckles to a finger. Fingers that bend backward as easily as forward. Fingertips splayed and soft, ridged like a human fingerprint but deeper, made to read stone the way you read print. They are always touching something. Another wrist. Another shoulder. The floor. A tool. Touch is their sight and they never close their eyes because they have no eyes to close.
+
+No eyes at all. Not blinded, not vestigial pits. The face is smooth where eyes should be, skin unbroken, faintly veined underneath. Pale, translucent, damp-looking. It lies to you. Touch one — you will, eventually, because you cannot walk here without touching — and it is dry as paper, warm as your own inner wrist, powdery with salt. Under it you see the tracery: dark lines of blood, slow blood, blood that barely moves.
+
+Above that blank brow, the nostrils. Wide, flared, permanently open, rimmed with fine dry cilia white with dust. They work, slowly. Once every few minutes the whole flank lifts. You will watch a flank and think, *dead*, and then: lift. Hold. Longer than you can hold. Let fall. Warm into warm. The exhaled air does not dissipate because there is nowhere cooler for it to go. It just joins.
+
+And the ears. Large, thin, cupped like moth wings, veined like leaves, set low on the skull. They never twitch. In a world without echo, twitching would be noise. They listen not so much for sound as for interruption — the micron-shift of a settling shard, the single glass *tick* of a claw on basalt, a sigh through another’s nose three bodies away. That is their entire news.
+
+They are packed. That is not a metaphor for many. It is literal packing. Shoulder to shoulder, hip to hip, forehead to the back in front. Juveniles — smaller, pinker, their skin almost transparent enough to see the slow heart knocking once, twice a minute — tucked into the armpits of adults, folded there like handkerchiefs. Adults leaning, clinging. In places they have climbed, over years, by millimeters, three and four deep, making soft mounds and long ridges that you at first mistake for geology. They tolerate nearness the way stones tolerate nearness. Step near a hand, a head, a back — there is nowhere else to step — and they do not flinch. White light hurts them, yes. Light is a burn on that skin, a shout. But your bulk, your clumsiness, your heat: that is acceptable. You are warm. Warm is kin.
+
+There are millions of them. The pavement does not end where your red light ends. You can feel it continuing in the raining warmth from above, that faint downward radiation from a living ceiling you will never see. Your brain wants to ask how, how can millions live where there is nothing to eat.
+
+Watch longer and you will see what eating is here.
+
+One, near your left boot, lifts a hand — so slowly you only notice it has moved after it has stopped — to its mouth. In the many-jointed fingers: nothing you can see. A pinch of salt rind. A mote of mineral dust that has hung in the air for a decade. A transparent flake of shed skin, its own or a neighbor’s. It places it on the tongue and closes the mouth and does not move for an hour. That is a meal. Their metabolism is not slow. Slow implies still going. Theirs is held. A held breath. A heart that has learned to hesitate between beats until hesitation is the beat. In this equilibrium, to need almost nothing is to need nothing. When one dies — which is rarely, which takes centuries, perhaps — it does not leave. There is no moisture for rot, no bacteria awake enough to do the work. The body simply dries a little drier, a degree paler, and stays in the pile. Over years the others shift their weight around it by millimeters. Its hands still hold what they were holding.
+
+Ah. The holding.
+
+Almost every third or fourth one is holding something. You will see it over and over until you cannot unsee it. A flake of black glass, knapped edge to edge by stone on stone, fitting the palm exactly. A shard of long bone — from what giant ancestor that walked before the vault cracked, you cannot guess, something huge and long since gone — ground to an awl. A bead of salt, rolled round not by water but by endless dry handling, passed from hand to hand for generations until it shines. They do not use them while you watch. They do not carve or cut or scrape. Use belongs to a world where things change and need changing. They just hold. The tool is weight, companion, pressure against the touch-ridges. A prayer the fingers say without moving.
+
+And because hands must sometimes do more than hold, there are the works.
+
+You will find them at intervals, too regular to be accident, too sparse to be a town. A cairn, knee-high, of balanced basalt shards placed edge to edge so sharpness holds sharpness — impossible balance that has held for decades because nothing ever shakes it. A circle of arranged finger-bones, each from a dead one, laid spoke-wise. A low wall, no longer than your arm, built and rebuilt and never extended; its purpose is rebuilding. A hollow in the dust where hundreds of hands over hundreds of years have smoothed the same spot over and over, not to make anything, but to make smoothness. Faint test scratches on glass where an edge was tried once. A handprint in fine salt dust, every ridge perfect, that will stay perfect forever because no wind will ever erase it. Once, draped over a stone like an offering: a twisted cord of sinew, knotted and re-knotted by countless fingers until the knots are the cord.
+
+No houses. No fires — there is nothing to burn and burning would be a crime against the equilibrium. Just marks. Proof that a hand moved, once, deliberately, and then chose to stop again.
+
+That is what lives here: not a swarm, not a hive, not a tribe. A pause that learned how to reproduce itself. Individuals only insofar as a ripple is individual from water. They do not synchronize their breathing. They do not chant. If you hold your breath you hear underneath everything the vast low hush of millions of almost-still bodies radiating a little heat into air that cannot carry it away. Occasionally a click. A single claw tapping glass, once, and then never again. A stone settling a micron deeper with a tick you feel in your teeth. The mass drinks all echo.
+
+They do not want anything from you. They do not fear you. If you stay long enough — and the warmth invites staying, 38 degrees, blood-warm, skin-warm, the exact temperature of something living held close — you will feel the pull to sit down among them. They will make room, not by moving but by being soft. Your warmth will join their warmth and no thermometer, had you brought one that worked, would register a difference. Your lamp will dim and die and you will not replace it, because eyes are useless here and hands are better.
+
+You will find a sharp flake that fits your palm. You will hold it.

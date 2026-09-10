@@ -1,0 +1,65 @@
+**Prepare as if you are about to spend an indefinite period inside a living, self-luminous sauna the size of a mountain valley, where every surface is saturated plant tissue, time has been ironed flat, and the only reliable processes are your own sweating and the slow redistribution of moisture.**
+
+This is not a jungle you can “tough out” for a weekend. It is a closed chlorophyllic system held in perfect, sweltering stasis. An ordinary human body is an intrusion of salt, metabolism, and linear time into a place that has neither. Your preparation must therefore address heat that never lifts, humidity that never resolves, light that never comes from above, terrain that is entirely biomass, sensory monotony that can unmoor the mind, and the quiet possibility that the place will simply continue unchanged while you deteriorate.
+
+### 1. Physiological Reality Check and Core Adaptations
+- **Heat load (“2.6-of-three hot,” wet-edged, constant):** Core temperature regulation will be your primary battle. Sweat will not evaporate; it will bead, trickle, and re-enter the air or soak back into your clothes and the living floor. Expect continuous mild heat stress. Acclimatize beforehand if possible with repeated wet-sauna sessions (40–45 °C, near-100 % humidity) lasting hours, practicing electrolyte replacement and recognizing early heat-exhaustion signs (headache, nausea, confusion, cessation of sweating). In-place, you will need aggressive cooling strategies that do not rely on evaporation.
+- **Hydration and electrolytes:** You will lose fluid and salts continuously. Carry far more water than seems rational—multiple liters per day baseline—plus high-sodium, high-potassium electrolyte tablets or powders. Learn to collect intermittent condensation (undersides of bracts, temporary leaf cups) into sterile containers, but treat it as suspect; the water has passed through unknown plant chemistry. Never drink freely from any “rivulet”; it may be reabsorbed plant fluid rather than free water. Monitor urine color obsessively.
+- **Skin and mucosal integrity:** Constant damp + friction from dense fronds = maceration, fungal overgrowth, abrasions that will not dry. The air itself tastes of crushed stem, warm resin, and unfinished mineral; prolonged exposure may irritate lungs or eyes. Anticipate “jungle rot” accelerated.
+- **Respiratory and metabolic notes:** Photosynthesis here is internal and sunless. Oxygen levels may be elevated or oddly buffered; CO₂ could pocket in low areas. The glare is biological—bright enough to saturate vision and leave almost no true shadow, yet not ultraviolet in any familiar spectrum. Your circadian rhythm will receive no solar cue and no temperature drop. Sleep will be fragmented and shallow.
+- **Nutrition:** Pack dense, non-perishable calories that tolerate heat and damp (nut butters in foil, vacuum-sealed meats or cheeses if stable, glucose gels, dehydrated meals you can rehydrate with minimal water). Do not assume any local plant is edible. The equilibrium biomass does not “fruit” in any useful way; leaves unfurl and senesce in place. Fauna is sparse, soft-bodied or seed-like, and irrelevant as food. Starvation is slower than heat collapse, but real.
+- **Injury and infection:** Soft, root-felt ground can twist ankles. Braided lianas and aerial roots can snag. Any break in skin invites rapid colonization by whatever microflora thrives in this perpetual greenhouse. No metal, fired clay, or knapped tools have ever marked the place; that does not mean the plants are friendly—only that they have never been cut.
+
+### 2. Clothing and Body Interface
+Wear a system, not garments:
+- Base layer: lightweight, antimicrobial, moisture-wicking synthetic or merino long-sleeve and pants. Seamless or flat-seam to reduce rub points. Avoid cotton entirely.
+- Mid: thin, loose over-layer that can be opened for ventilation yet closed to reduce leaf abrasion. Insect-netting hood or soft mesh face veil useful against drifting spores or the rare pale insect-analogue.
+- Footwear: lightweight boots with aggressive tread that shed wet plant matter, gaiters sealed to pants, and multiple pairs of synthetic socks rotated obsessively. The substrate compresses and springs; it is never dry.
+- Hand protection: thin gloves for pushing through curtains of moss and fused epiphyte roots; bare skin will pick up sap, grit of embryonic stone, and micro-abrasions.
+- Head: broad soft brim or neck flap optional (no sunburn risk from above), but a sweatband that can be wrung out is mandatory. Eye protection against constant glare and condensation freckles—lightweight clear wraparounds or a push-up mesh visor.
+- Spare clothing sealed in multiple dry bags. You will change when gear becomes a mobile swamp.
+
+Consider a thin, reflective emergency bivy or light tarp not for rain (there is none) but to create a micro-climate break and to lie on so your body heat does not sink endlessly into the coolish plant-felt floor at “night” (there is no night).
+
+### 3. Critical Gear (Minimal yet Redundant)
+- **Water system:** collapsible bladders, inline filter + chemical backup, electrolyte supply for weeks, small cup or leaf-shaped collector for condensation.
+- **Cooling kit:** chemical cold packs (activate sparingly), small battery or crank fan, evaporative cooling towels that you re-wet with spare water, electrolyte ice if you can freeze anything before entry (it will melt instantly but the cold mass helps).
+- **Navigation and time:** the landscape does not change. No landmarks evolve, no shadows rotate, no weather marks hours. Bring a reliable mechanical watch, a simple compass (magnetic field unknown—test immediately), bright biodegradable flagging or biodegradable trail tape, a notebook and pencil for dead-reckoning logs, and a personal method of marking your emotional state and food/water consumption against clock time. GPS and electronics may fail or have nothing to lock onto. Assume you can walk for “hours” and see the identical scene when you look back.
+- **Light:** the chlorophyllic glare is bright and directional from the mass itself. Still carry a headlamp with red filter for inspecting crevices, reading, or psychological comfort when you close your eyes and the green afterimage remains.
+- **Shelter and rest:** compact hammock with bug net and silnylon tarp. The occasional partial dome of thickened bark or ring of rhizomes can be used, but treat them as found architecture, not yours. Sleep elevated; the floor is alive and damp. Earplugs optional—the soundscape is already stifled.
+- **Cutting and clearance:** a small, clean pruning saw or stout knife. Use only when necessary to prevent entanglement. The place has never been bitten by tools; large-scale cutting may have unknown systemic effects or simply prove futile as growth equilibrium reasserts. Prefer gentle parting and sliding.
+- **Medical:** comprehensive heat-illness kit (oral rehydration, cooling measures, antiemetics), broad-spectrum antifungal and antibiotic creams, oral antifungals, blister care, antihistamines, pain control, tweezers, irrigation syringe. Suture kit if trained. Water-resistant wound closure. Consider prophylactic antifungal powder applied daily to feet, groin, armpits.
+- **Documentation and signaling:** waterproof journal, pencil, small camera or sketch materials if desired. Multiverse travelers should carry whatever return beacon, anchor object, or portal key their method uses, kept on the body in a sealed pouch. Assume no rescue party can easily find you inside a valley-scale living membrane.
+- **Power and small electronics:** assume high humidity kills unprotected gear. Use dry bags, desiccant, and hand-crank or minimal battery devices only.
+- **Waste:** pack out everything non-biodegradable. Human waste should be buried shallowly only if the plant mass will reabsorb it without creating a lasting chemical scar; otherwise contain and carry. The equilibrium does not need your nitrogen spike.
+
+### 4. Mental and Temporal Preparation
+This is the quiet killer. The brightness never dims. The heat never breaks. The green never thins. Leaves are forever at peak density. You can travel what feels like kilometers along undulating living terraces past unfinished stone ribs and luminous vapor curtains and, when you turn, nothing has aged. Time is a vertical dimension folded flat.
+
+- Practice extended sensory monotony beforehand: sit in a warm, humid room under bright green light with white noise or near-silence for many hours. Notice how soon boredom becomes unease becomes mild dissociation.
+- Establish rigid personal rituals keyed to your watch: hydration on the hour, electrolyte on schedule, food at fixed intervals, journaling at “dawn” and “dusk” you invent. These become the only seasons.
+- Expect the uncanny: faint suggestions of former shelter (a dome just large enough to crouch, vines curving around an animal-sized absence). Do not romanticize them into ruins or invitations. They are growth briefly entertaining enclosure before returning to proliferation.
+- Philosophical stance: you are a temporary guest of unfinished geology and total vegetation. The place does not hate you; it does not notice you. Your death would be a minor, reabsorbable event. Cultivate purposeful smallness and precise observation rather than conquest or communion.
+- Exit triggers decided in advance: core temperature above a set point you cannot cool, water below X days, first signs of systemic fungal infection, more than N days of identical mental loop, or simple decision that the held-breath eternity is enough. Multiverse return methods can glitch under psychological strain—keep the procedure simple and rehearsed.
+
+### 5. Movement and Behavioral Protocol
+- Move slowly. Fronds will brush both shoulders at once; epiphyte gardens are fused into compounded organs. Part, do not break, wherever possible.
+- Stay aware of vertical layering. The “ceiling” is interlocking canopy that has never reached for a sky. Low ridges of raw, embryonic stone (clay-crystal hybrids frozen mid-decision) offer the only non-plant reference points—use them.
+- Sound is private and rare. Your own breathing and the flex of stems will dominate. Sudden dry clicks of pale, barbed insect-analogues or soft limestone-colored creepers are startle events, not threats.
+- Do not attempt to “map” in the conventional sense beyond your immediate trail. The regional hollowness repeats its logic everywhere. Record sensations, heat indices, water finds, and mental state instead.
+- If you find a natural partial enclosure, you may rest, but do not “improve” it. No fires (nothing dry to burn, and smoke has nowhere to go). No permanent marks.
+- Light is a biological secretion. At times the glare may feel directional enough to suggest a source deeper in the mass; do not assume it leads anywhere useful.
+
+### 6. Entry, Duration, and Exit
+Enter already hydrated, electrolytes loaded, skin protected, watch synchronized, return method verified. Cross the membrane (or whatever threshold your multiverse technique uses) with the mindset that you are descending into a held breath.
+
+Plan a conservative first sojourn—hours to a couple of days maximum—then longer only after confirming your cooling and hydration systems function and your mind tolerates the static green eternities. Always leave a cache of water and a clear marker near your entry locus if the geometry allows.
+
+When leaving, reverse every contamination you can: brush off plant matter, reseal gear, rehydrate, and cool your core before re-entering ordinary atmospheres. Log everything while memory is fresh; the place erases difference and can erase recollection of difference.
+
+### 7. What Success Feels Like
+You will know you prepared well if you can stand inside the directional chlorophyllic radiance, feel the wet heat ride your blood, watch condensation freckle on your lashes, push through a curtain of moss that drips onto the root-felt floor, note an embryonic stone rib that has not eroded or grown since the first moment of noticing, and still know—by your watch, by your water count, by the ritual you invented—exactly where you are in your own remaining timeline. You will move as a precise, temporary guest through a total vegetation that is forever arriving and never changing. You will leave before the equilibrium decides you are merely more leaf-litter.
+
+Anything less thorough and the place will not kill you dramatically. It will simply continue, brilliantly and breathlessly green, while you quietly become part of the slow compression of generations of fronds that never fully die.
+
+Travel light in ego, heavy in water and electrolytes, and rigid in personal time. The membrane does not care whether you understand it. Your job is to care enough about your own fragile, evaporative body that you can visit and still return.

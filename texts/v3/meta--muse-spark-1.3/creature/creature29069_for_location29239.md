@@ -1,0 +1,43 @@
+At first you think no one lives here.
+
+That is what the valley suggests. No houses. No smoke. No fences that mean keeping in, no paths that mean going often. The sheds are sheds, not dwellings — no hearth, no bed, no chair pulled up to look out. The pilot lamps burn for no eyes. The ropeway buckets creep from ridge to ridge carrying nothing you can see. You listen for a voice, a dog, a radio left on, and the moss takes even the idea of it.
+
+Stay longer. Stay until the dripping hour is over and your own breathing has become the loudest thing, and you begin to notice the absences are tended.
+
+Someone has packed that turbine bearing. Peat and grease do not pack themselves. Someone has wiped one gauge glass clear among the fogged ones. Someone has re-seated a cable on its mossy sag so it does not chafe. The rowans in the broken flume are too evenly spaced to be accident. The tunnel combed through the alder where the low buckets pass — the walls are trimmed. Not broken. Trimmed. Dripping, lit, kept.
+
+They are not hidden. You have walked past three of them already.
+
+That is the second thought, and it rearranges the first: the green has not covered the iron. The iron has grown green. And the green, in places, stands up.
+
+You see one first as a deadfall beside the penstock. A hump in fern, rust-red and moss-green in alternating patches like the pipe itself. Then the hump breathes — a slow fog of breath in cool air, gone in two paces — and unhitches a shoulder from the ground. Not quickly. At about the speed the ropeway moves. A hand, broad and split-knuckled, orange to the wrist with iron oxide, lifts a frond aside and lets it reseal.
+
+They are short. They have made themselves valley-sized. Heavy through the torso, narrow through the feet, built for floating on a half-meter mattress without sinking. Their legs are short because there is nowhere to stride; you part and reseal, you do not stride. Their arms are long because most work is overhead — lifting a fern curtain, reaching a seam, hanging a moment from a cable to test its give.
+
+Wet is their element and you see it on them before you see them. Their outer clothes are not clothes anymore but felt: wool grown into moss, moss grown into wool, undyed sheep-grey gone green-black with saturation. It touches them everywhere, as the vegetation touches you, and they do not brush it off. Water clings as it clings to everything here. When they move into sun their shoulders steam faintly and then stop. When they move into shade they cool instantly. Condensation beads on their eyebrows, on the fine hairs of their forearms, and falls. They squint. Their eyes water constantly in the hammering light, and that is correct. The place wants to be seen through wet eyes, and so they see it. Deep-set eyes, dark-irised, lids narrowed to slits against glare, lower lids brimming. They do not wipe them. To wipe would be to dry.
+
+They do not speak. Not because they are solemn. Because it is useless.
+
+You try it once — a hello that leaves your mouth and dies at two paces, swallowed by moss and saturated air — and the one by the penstock does not turn its head. It feels you instead. It puts its palm flat to the pipe.
+
+That is how they listen. Sound does not carry beyond arm's length, but tremor does. Through bone. Through water. Through copper.
+
+Put your own hand where theirs is and you understand: the housing purrs. The shaft turns at two revolutions a minute, the pump lifts fog-water to the header tank, the header tank feeds the electrolyzer, the electrolyzer fizzes hydrogen up through a moss pool with a sound like soda. It is all one slow body and the iron is its skeleton. They read it with their teeth, with the soles of their felted feet, with the fillings in their molars when they lean against a transformer box on a damp morning and the busbars hum and the hairs on their forearms lift. Ozone and wet wool and crushed juniper — that smell you took for the air is their smell when they have been near the yard.
+
+Each tends a station. Five or six stations, five or six of them, though the count softens because sometimes one is two and sometimes two are one and a child, knee-high and ancient-looking as dwarf birch, follows an elder at five paces for a whole season learning where to place a hand. They sleep where it is warm: curled on the leeward side of a transformer, in the green gloom of a shed with the turbine turning beside them like a large animal. Moths torpid on the same warm metal do not move when they settle. The single feral sheep you saw is not feral. It belongs, loosely, to all of them, for milk and for company and for its burr-matted wool which, carded with sphagnum, makes new felt when the old felt finally rots into the ground.
+
+Their day is the valley's day. Night fog snags, dawn white-out, ten o'clock burn-off and the million quiet ticks as each leaf unloads. That is when they drink. Not from rills — rills vanish back into moss in a few hundred meters — but by wringing. A handful of wool-moss squeezed hard into a copper cup verdigris inside, drunk iron-tasting. A licked basalt flake. The warm pipe, the one kept just above freezing by a heater fed from nowhere you can see, is their well in winter when everything else is locked. They keep it clear with the same care you would keep a spring. In a way it is a spring.
+
+They eat what persists: cloudberries, dwarf birch sap chewed from twigs, the perfect miniature rowans from the flume-planter, orange-capped mushrooms that fruit where steel flakes into iron-peat. Around the copper ground-straps the moss grows that different, electric green — copper-fed, tender — and they harvest it in strips, thin as pastry, leaving the root-mat to regrow. Millimeters per year. That is their yield. Output measured not in tons per hour but in what can be taken without breaking the current.
+
+For the current is what they serve, and what serves them.
+
+You thought the power went nowhere. Stand under the busbars on a damp morning and feel your own arm-hairs rise and you know better. It goes into the ground. Into electrolyzers. Into heaters. Into the wet mat itself, which conducts faintly, everywhere, a low voltage skin over the whole bowl. The plants have taken the metal into partnership — insulators capped with lichen, cables colonized like branches — and the tenders are the fruiting bodies of that partnership. When fog condenses at the ankles around four and the towers ghost by six and the pilot lamps become small suns, they walk — slowly, silently on moss — to the yard. Not together. Each to the edge of the hum. They stand, spaced like towers themselves, and place their hands on ground-straps. You think at first they are warming themselves. Then you see the lamps flicker, almost imperceptibly, in sequence. Once every few minutes the ropeway wheels creak, a soft wooden sound, and settle. A bucket inches on. In it: not ore. Iron oxide scraped from sphagnum, carried ridge to ridge, seeded back. Building the new rock that will be rock in ten thousand years.
+
+They are patient. It does not erode so much as persist. Twenty years to saw halfway through a basalt boulder with an over-tensioned guy-wire — they watched that happen the way you would watch a child grow. Sharp edges slowly upholstered. Bearings packed with peat. A groove lined with rock flour turned to mud. Hear nothing.
+
+If one lets you close — and one will, if you stand still long enough for the vegetation to accept you as another warm box — you will see the detailing: nails thick as horn for scraping, palms lined black with grease that will not wash out, a cheek stained orange where they slept on iron-peat, a scalp where star-moss has taken hold in the part of the hair and is not removed. Their pulse, if you hold their wrist as they once held yours to show you how to listen, is slow. Too cold to hurry, like the bumblebees in looping flight. Their breath fogs even at noon.
+
+They will not show you their dead. You will not need to be shown. Where the moss swells almost imperceptibly, taking up the day's water to give back tomorrow, there are hummocks a little higher, a little more orange, where felt and wool-moss and star-moss have closed over a stillness. No marker but a copper strap run out into the peat, gone verdigris, and around it that electric green, very bright. Rust itself is the decomposer here.
+
+Do not shout to them. Not because it is forbidden, but because they will answer in the medium that carries: a hand held out to be touched at the forearm, a faint tremor conducted through bone, a lamp left burning in day-brightness a little longer as you pass under the towers and out toward the white col, water staying on your coat until you wring it out.

@@ -1,0 +1,57 @@
+There is a height above which the weather stops being weather and becomes a condition of the rock. This is that height. The plateau sits at the very top of the world's reach — not the summit of a single mountain but the level to which many mountains rise and then, as though by agreement, rise no further. From any point on it you can see, or almost see, the other high places standing at the same altitude in every direction, dark and flat-topped in the haze, like the tops of piers in a drowned harbor. Below them is nothing that can be seen. The valleys, if there are valleys, are far down under a floor of cloud that has the color and texture of wet slate and does not move.
+
+The ground is stone that has finished. Every edge that could be worn has been worn; every slab has found the angle at which it will lie; the scree along the shallow slopes has come to its precise angle of rest and will not slide again, because there is nothing left in it that wants to. The rock is grey with a faint green cast where lichen has taken hold, and it is everywhere beaded with water. Not running water. Beads. The whole surface of the plateau is furred with condensation, each drop standing on its own, tense and complete, none of them large enough to fall and none small enough to dry. Where the ground dips, the drops have gathered into pools the size of a spread hand, or a cloak, or a small room, and the pools are black and perfectly still, and they are cold in a way that goes past temperature into something more like a statement.
+
+The cold is that of a place that has never once been warm. It is not sharp. It does not bite. It is a constant a few degrees under what a body wants, and it does not vary from one hour to the next or from one side of a boulder to the other, and after a while you understand that it is not cold weather but the cold of the plateau's own nature, the way a stone is hard.
+
+The air is thin and wet at once. Each breath is a small labor and each breath tastes of rain. There is a mist, fine as flour, that hangs at every height from the ground to as far up as the eye will go, and it is not falling. It has the density of a light drizzle caught in a photograph. Walk through it and you feel it on your face, and when you turn to look at where you have walked, you have left a corridor in it, a tunnel of clearer air the shape of your body, and the corridor stays. It stays for as long as you care to look. The mist does not close in behind you. Nothing here closes in behind anything.
+
+---
+
+And the sound.
+
+You will have heard it long before you reached the plateau, from the last steep pitches below, and taken it for wind funneling over the lip, or a river, or the grinding of some vast rockfall going on and on. On the plateau itself it fills everything. It is a roar without direction, as loud as standing under a cataract, felt in the breastbone and the teeth as much as heard. There is no wind. There is no river. Nothing is falling. The sound has no source you can walk toward or away from; it is the same volume at the edge and at the center, in the lee of a boulder and on top of it, with your hands over your ears and without. Cover your ears and you hear it through your jaw.
+
+If you stay with it, it begins to separate into its parts, the way a chord does. There is water in it — many kinds of water, from the hiss of rain on stone to the deep churn of a flood. There is wind in it, though there is no wind. There is something like a great many voices at a distance, speaking or singing, none of them close enough to make out. There is the clack and slide of moving stone. It is as though every sound the plateau ever held has been kept, all of it, and is being sounded at once, and held, the way a bell is held at its loudest instant by a hand that will not let it decay.
+
+It does not change. It has no rhythm and no swell. It does not get louder when you approach anything or softer when you leave. Two people can speak on the plateau and hear each other perfectly well, because the roar has nothing in it that competes with a voice; it is simply present, as the cold is present, and after some hours a stranger thing happens, which is that you stop hearing it, not because it has quieted but because it has become the silence against which other things are heard. You will only notice it again when you leave, and the world below seems suddenly, dreadfully hushed.
+
+---
+
+The light comes from nowhere. There is no sun, no bright quarter of the sky, no shadow that could tell you where one is. The sky is the same wet-slate grey as the cloud floor beneath, and the light on the plateau is the light of the minute before dawn — enough to see by, enough to read the grain of the rock, not enough for color. Everything is grey, green-grey, black, the pale grey-white of the lichen. The dawn does not proceed. It has been the minute before dawn here for longer than anyone has words for, and will be.
+
+There are shadows, faint ones. Look at them carefully. Under each boulder, each cairn, each stunted tree, there is a thin smudge of deeper grey, and every one of them points the same way — not away from any light, because there is no light to be away from, but inward, toward the middle of the plateau, as though the middle were the source of a darkness that the shadows were reaching toward. Your own shadow does this too. Turn, and it does not turn with you.
+
+---
+
+Almost nothing grows. What does grow is old.
+
+There are cushion plants in the cracks of the rock, tight domes of grey-green no larger than a fist, so dense you could stand on them, and each is beaded with the same standing water as the stone. There is the lichen, in pale rosettes and in black crusts, and there are a few junipers, perhaps a dozen across the whole vast plain, none taller than a kneeling person, their trunks twisted into ropes and their few needles nearly black. Every one of them leans the same way. It is the lean of trees on a coast, the lean of a lifetime of wind from one quarter. There has never been a wind here. They lean toward the center of the plateau, with their shadows.
+
+Once, if you are patient and lucky, you may see a bird. It will be small, and dun-colored, and it will be sitting in the air. Not hovering — there is no beat of wings, no working against the thin air. It sits in the air as it might sit on a branch, at about the height of your shoulder, some distance off, and it is looking at nothing, and it does not leave. You can walk around it. It does not turn its head. If you come back after a long time it is there, in exactly the place it was, and you begin to suspect that it has been there since before the plateau finished, and that it is not so much a bird as the place where a bird was.
+
+There are other animals. You will not see them. You will see the corner of one, a grey haunch behind a stone, a shape at the edge of the mist that was standing there a moment ago, and when you look directly there is only stone. They are rare and they occupy single positions and they are as still as the bird. The plateau is not a place where things live. It is a place where a few things are kept.
+
+---
+
+People have been here. Not many, and not recently, in the sense of recently that applies below.
+
+There are cairns — tall ones, a little taller than a person, built carefully of the flat grey stone, with the drops of water standing on every face. They are scattered across the plateau with no pattern you can find, a mile apart, two miles, some near the edge and some far in. They do not mark a route. They are not at high points. Each one stands where somebody stood, once, and did not go on, and built this instead, and the building is the last thing that happened there.
+
+There is a wall. It is knee-high and runs in a straight line for perhaps three hundred paces and then stops. It encloses nothing. It separates one part of the plateau from another part that is identical. Someone stacked every stone of it by hand, and set it well, and there is no gap in it and no gate.
+
+There is a hut, or the shape of one — four low walls of dry stone, a doorway facing inward toward the middle of the plateau, no roof. Inside the walls the ground is the same stone as outside and the same water stands on it. In one corner there is a shallow pool, perfectly round, black. On the lintel above the doorway there is a mark cut into the rock, a single vertical stroke with a shorter stroke across it, and it is impossible to say whether it was a letter, or a tally, or a sign meaning here.
+
+And there is the path. It is a groove worn into the rock, a hand's width and a finger's depth, polished smooth as though by centuries of feet, and it runs from the direction you came in a long slow curve across the plateau toward the far edge. It is the only path. It is easy to follow, and following it you come after some hours to a place where the rock ends and the slate-grey cloud floor lies a long way below, and the path does not stop. You can see it. It goes on out over the drop — a faint groove worn in nothing, a line of slightly clearer air in the standing mist, curving on toward the dark flat shape of the next high place as though the ground were still under it. The mist stands on it the way the mist stands on the stone. If you put your foot on it, you will find out whether you are the kind of thing the plateau keeps.
+
+---
+
+This is the rule of the place, as near as it can be stated: nothing that belongs here changes, and everything that stays here long enough comes to belong.
+
+The mist does not fall because it has been falling here long enough to be part of the plateau, and the plateau does not move. The sound does not fade because it is the plateau's sound and the plateau has stopped. The water on the stone will never run, the shadows will never swing, the junipers will never straighten, the bird will never land. You yourself, for now, can move. Your breath goes out in front of you in a small pale cloud and stays there, a little shape in the air, and you can walk away from it and look back and there it is. Your footprints do not mark the rock, because the rock is finished, but the corridor you leave in the mist is yours, and it will be here after you have gone down, as long as the plateau is, which is to say: it will be here.
+
+The people who built the cairns understood the rule, or came to. You can read it in the way the stones are set — not hastily, not as a marker to be left behind, but with the care of someone building the last thing they will make, in the last place they will be, in the light of a dawn that was not going to come. The wall was not built to keep anything out. It was built because building it was a thing that changed, and a person could stand beside it and feel the difference between the stone they had just set and the stone they were about to, and that difference was, for a while, a kind of weather.
+
+The plateau is very large, and very nearly empty, and it is loud with everything it has ever heard, and it is exactly as it is. You are the only thing here that is not yet finished. That is what the sound is telling you, in every one of its held voices, at the same volume it has always had, and it is not urgency it is expressing, and not menace, and not welcome. It is simply the fact of the place, stated continuously: this is what it is like when a place is done.
+
+Somewhere far out in the mist, in the direction all the shadows point, there is something you cannot see, and it is not moving.

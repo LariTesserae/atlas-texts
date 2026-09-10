@@ -1,0 +1,23 @@
+The basin sits at the bottom of a wide regional drop, miles across, where the air thickens into a warm, motionless soup. Light here does not fall from a sun so much as it leaks through a perpetual ceiling of bruised slate clouds, filtering down into a soft, gloom-heavy twilight that never fully brightens or fades.
+
+Across this vast, flat lowland stands a city—though "city" implies a crowding that does not exist here. The structures are colossal, isolated monoliths spaced thousands of yards apart, leaving immense tracts of wild, damp floor between them. They are razor-sharp. Their edges have no weathering, no rounded corners, no crumbled mortar; they look as if they were sliced out of dark, non-reflective alloys and matte glass only hours ago. Triangular pylons three hundred meters high hover precisely two feet above the soft soil, held in place by field-pressures that leave the mud beneath them entirely undisturbed. Inverted pyramids step upward into the dim sky, their surfaces smooth down to the molecular level, untouched by oxidation or dirt.
+
+Because the buildings are engineered at a scale that manipulates local physics, they are colder than the surrounding warm air. Consequently, they sweat.
+
+A constant, silent condensation blankets their impossible facets. Sheets of distilled moisture form on the sharp dark walls, gathering into thick, heavy beads that don't simply trickle down—they drift along invisible magnetic tracks across the facades, collecting at designated nodes before falling in fat, rhythmic drops to the ground below. This creates localized zones of perpetual rain beneath each monument, while the spaces between them remain merely damp, soaked in a heavy morning dew that never dries.
+
+In these wide intervals between the towers, the earth is violently green.
+
+Lush, thick-leaved vegetation fills the valley floor, thriving in the close, tropical warmth. Broad ferns with leaves like polished jade crowd the bases of the levitating pylons. Tangles of thick, pale vine creep over the dark soil, though they seem unable to take root on the city’s surfaces; where a tendril touches the sharp edge of a tower, its growth bends sharply backward, as if repelled by a microscopic barrier. Mosses the color of oxidized copper blanket the ground, so dense and deep that footsteps leave no sound, only dark depressions that slowly spring back over the course of an hour.
+
+The technology here is invisible until it interacts with the environment. Causeways made of bent gravity cross the distances between distant districts—not solid bridges, but ribbons of air where the pressure is dialed so precisely that one could walk across the void, visible only because the mist ribbons along its edges like smoke through a screen. High above, light-conduits cast narrow, pale beams through the gloom, illuminating suspended particles of moisture that hang static in the air, held in micro-stasis fields.
+
+It is mostly quiet.
+
+The soundscape is composed of soft, low-frequency events: the heavy *thump* of a condensation drop hitting a broad palm leaf sixty feet down; the faint, resonant chime of a tower adjusting its mass against the crust of the planet; the muffled squelch of deep mud settling in a riverine ditch. The air smells of wet earth, crushed stems, and the faint, metallic tang of ozone—like a greenhouse built over a particle accelerator.
+
+Fauna is rare, sparse, and specialized. Occasionally, a pale, ribbon-like creature, two meters long and entirely blind, glides through the air near the base of a pylon, swimming through the high-density humidity gradient as if it were water, feeding on the airborne microbes drawn to the city's thermal fields. In the deep moss, small, shelled organisms with shell-facets that mimic the sharp geometry of the architecture move with painstaking slowness, harvesting the pure water that beads off the lowest edges of the buildings.
+
+Processes are constantly under way, but they operate at a measured, deliberate pace. A tower quietly shifts its color from charcoal to deep violet as the atmospheric density changes; a bed of bioluminescent fungi flashes in a slow, sweeping wave across two miles of forest floor, responding to a pulse from an underground conduit; a shallow stream, fed by the sweating architecture, cuts a crisp, perfectly straight channel through the mud, its banks kept from eroding by invisible field-walls that keep the earth squared and sharp.
+
+It is a place newly made, or perhaps endlessly re-made, where pristine, impossible geometry lives in quiet, warm equilibrium with an overgrown, dripping wilderness—spacious, dark, and utterly untroubled by time.

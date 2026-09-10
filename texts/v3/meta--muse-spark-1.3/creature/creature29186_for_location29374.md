@@ -1,0 +1,47 @@
+They do not come into view. That is the first thing about everything that lives here. They come into hearing, and then into heat, and then - much later - into shape.
+
+For a long time you think the dark is empty except for that sound.
+
+*chuff — chuff — chuff — pause — chuff.*
+
+It is too regular to be animal, too uneven to be machine. You turn your head trying to place it and the drum-rock under you answers with a low sympathetic *tong*, and somewhere far off a joint cooling goes *tink*, and the wiregrass rasps paper-dry, and you realize the dark is already full of bodies. You just haven't learned how to see interruption yet.
+
+Then the nearer black detaches itself from the farther black, and moves, and breathes orange.
+
+The kiln-beasts.
+
+At first only bulk. A shoulder as high as a doorway, a barrel side that goes on and on. A slowness so complete it doesn't look like walking until you see it has passed a dew-net you were using as a marker. Four column legs, impossibly straight. With each step the whole animal settles a fraction, as if accepting weight.
+
+Come closer. Let it become more itself.
+
+The hide is not hide. It is ash-gray, thick as your thumb, cracked in plates like kiln brick, like mud that dried around a fire and never cooled. Between the plates, heat leaks. Over the flanks arch the ribs - outside the body, that is what stops you - six, seven bands of dull iron on each side, grown, not forged, rising out of the shoulder hump and seating into the hip. They are cool to touch near the spine, warm toward the belly. When he breathes, when the bellows-lungs pull, you see between them: a deep furnace orange, pulsing up from inside, brighten-dim-brighten-dim. The light crawls in the cracks of his neck and lights the underside of his jaw from within.
+
+His legs are pistons. The upper leg, sheathed in that cracked hide, slides down into the lower leg, which is smoother, blacker, almost glazed, and as it slides there is a contained hiss and a puff of live steam jets sideways from a slit behind the knee. Then the wide, splayed foot comes down. *Chung.* Not a hoofbeat. A seating. A pressure valve closing.
+
+On his head - because he is a bull, old, scarred at the rib-edges white with slag-splash - two horns spread wide and fluted like condenser coils. They are cold iron. That is their job. While the rest of him throws off 40 degrees of excess, the horns stay ambient, and in this sweating air water wants a cold thing to be born on. By deep dark they are beaded, then running. Channels grooved naturally down his face carry the dew in two bright lines straight to the corners of his broad, shovel-lipped mouth. He drinks the air without lifting his head. Cows beside him do the same. Calves, their ribs still soft and rust-red, their furnace-light dimmer, stay close to catch the drip off their mothers' horns.
+
+Inside them, sealed behind ceramic plate like the lining of a crucible, a gut full of fire lives. Thermobacteria, a thousand degrees and thriving, colonies that have forgotten what cold is. The beast crops a mouthful of wiregrass - black-green, sharp as antenna, growing in defensive rings - strips a bottle shrub of its copper leaves, and then, deliberately, almost ritually, scoops with that broad lip a shovel of red iron dust off the scoria and swallows that too. No plant can unlock phosphorus from this basalt. No stomach acid touches it. Only smelting does. So they smelt. They walk and slowly smelt the plain itself, and what they cannot use they drop behind them, step by step, as perfect marble-sized pellets of slag-iron, cooling from orange to cherry to black as they roll. Miles of trail glitter with them. Ball bearings dropped by gods.
+
+He exhales. A plume of sulfur and steam rolls three feet out of those wide nostrils and hits damp air and instantly becomes weather - a brief, warm, sulfurous rain in a tight circle. For a day, moss-things, black-green velvet, will unfurl there where nothing else will grow. Flies come. Ash-flies, tiny and gray as the dust, ride that breath.
+
+And he crackles. Moving through warm air on insulated feet, every beast builds charge in that great plated hide until it has to go somewhere. When two animals pass close, shoulder to shoulder on a grazing line, it goes horn-tip to horn-tip - a blue-white arc three feet long, *tik*, ozone and burnt sugar, gone before you blink. At night you see it far out across the swells: brief jagged stitches, herd lightning, the only real light this country makes. Around each flash, converging out of nowhere, pale blind spark-moths, wings like ash, flocking to a sun that lasts a tenth of a second.
+
+They are never alone, even when they look alone. A herd of twenty will string out half a mile, cows, calves, that trailing old female with the left fore-piston misfiring *chuff—...chuff-chuff*, limping, steaming too much. And beyond them, where sound pools in the hollows, more *chuff-chuff-chuff*, herd after herd after herd, all walking slow freight-train lines across a continent that could hold ten thousand herds without touching. Millions of walking kilns, keeping the high country five or ten degrees warmer than physics says it should be.
+
+Where meat walks, hunger learns to walk quieter.
+
+The wire-jackals first. You hear nothing, then you see rust moving between rocks. Lean to starved, long-legged, tall-eared - ears so tall and thin they drip in the thinning dark, living dew-nets of their own. They trot for days between herds, not hunting, just attending. Licking condensation off a cold abandoned slag pellet. Licking salt off a bull's ankle-vent while he stands and lets them. Waiting. They hunt by listening, head cocked, for misfires. That old female - *chuff—...chuff-chuff* - they know her rhythm better than she does. They will not rush her. They will follow for three days until a calf stumbles on drum-rock and cannot get its piston to reseat, and then they are mouths.
+
+Worse are the ones you will probably never see clearly, even when you step almost on one.
+
+The hushers. Think not wolf, think stone that decided to be hungry. Low, flat, sprawled, the color and pitting of scoria exactly, fringed so its edge breaks against dust. No eyes - what would eyes be for under an ironed-shut sky? Instead a row of deep heat-pits along each side of the blunt jaw, open always, reading the plain as a map of warm shapes moving through cooler air. A husher lays itself crosswise in a dry wash where a herd must drop down to reach a seep, settles its belly into cold sand, and waits. A day. Two days. Rain condenses on its back and it does not shake it off. When the belly passes over - that glowing slit between iron ribs where the heart-furnace beats closest to the surface - it uncoils straight up, impossibly fast for something so flat, and drives two long, white, ceramic-insulated fangs straight into the slit to short the heart.
+
+There is no roar. That is its signature. There is a long sigh as six hundred kilos of steam lets go at once, a whiteout of warm fog that soaks you twenty feet away, a soft collapse, *chung* knees folding sideways. Within minutes the clatter comes: cinder beetles, black-domed, heat-proof, swarming over the carcass to claim slag pellets from the gut and lay eggs in the dung. The pale moths arrive. Within an hour the jackals arrive, circling the fog. By next dark cycle only the iron ribs remain, standing like a wrecked boat frame, *ticking* as they cool, scattered black marbles around them, and, for a week afterward, a startling green flush where blood and condensate soaked in - wiregrass seedlings in a perfect body-outline.
+
+Above all this, in the thickest air up under the cloud-base where the heat of a million furnaces pools, the sifters turn.
+
+You will think at first they are cloud. A slow shadow crosses a horn-flash and does not resolve. Then another flash catches a belly, pale gray, vast, and you see the wing does not flap. It holds. Twenty, thirty feet tip to tip, manta-shaped, silent as the hushers are silent, riding the thermal column rising off a distant herd, mouth held open - a black scoop - straining the air. They eat what the furnaces attract: spark-moths by the thousand, ash-flies, steam gnats. Occasionally hunger or thirst brings one down. It comes spiraling down the heat stair, silent, and settles over a basalt pothole, and for a moment its wings cover the brown water completely, night coming down inside night, and it drinks by pressing its whole underside to the surface. Then with two slow heaves it is gone back up into the black ceiling, leaving only ripples ticking against rock.
+
+And smallest: what lives in borrowed water and borrowed warmth. The cinder beetles that find each slag pellet before it is cold and roll it away. The flies that live their whole lives in the three-foot rain around a bull's nostrils. The hair-fine dew-nets themselves, not animal, but animal-tended - mats that glitter with trapped beads, each tuft a reservoir, each reservoir guarded by jackals and calves alike.
+
+Put your ear to the rock at deep dark and you hear them all at once, not as noise but as hum: piston steps miles away traveling through old lava tubes, steam sighing through blisters, charge building and snapping, water ticking off wiregrass onto stone. An industrial country with no industry. A herd that learned how to be a furnace, a jackal that learned how to listen for engines, a snake that learned to hunt by heat, a ray that learned to farm the sky - all of them keeping each other warm in the dark.

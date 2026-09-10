@@ -1,0 +1,33 @@
+**What lives in Masthead**
+
+The first inhabitants to understand are the children, because they are the only ones who are from here.
+
+There are a few hundred of them now — nine years' worth, some born in the nursery decks where the description breaks off — and they are a new kind of human, or at least a very particular one. They have never stood on ground that didn't move under their feet in the wind's long push. They flinch at horizontal motion and sleep through vertical shudder; the Mast's sway is their mother's heartbeat, and when the wind drops — it happens perhaps twice a year, some vast stillness when the Loose pauses as if holding its breath — the infants wake crying, because the quiet frightens them more than the noise ever did. They have dust in the creases of everything. Their lungs are said by the old men to be the wrong shape, shaped around a lifetime of it, and the old men may be right; the old men are wrong about almost everything else, having arrived on foot out of the basins with their certainties packed alongside their tools, but about dust they have standing.
+
+The children play a game called Sieve. Everyone plays Sieve slightly differently and every version is violent. It is understood among them that this is correct.
+
+---
+
+The adults are easier to describe because they are easier to divide: there are the ones who catch and the ones who keep what's caught, and a third class, smaller, who decide what is worth keeping.
+
+The catchers work the outer skin, the plate-terraces, in shifts that follow the wind rather than the ember. They wear felt. Everything here is felt, eventually — the dust itself, once it's been carded and pressed, becomes the substance of coats and mattresses and the soft grey bricks they mortise into the decks to sleep against — but the catchers' felt is different, burnished by the wind into something closer to hide. After a few years a catcher's coat stops being a garment and becomes a biography. It is stiff on the windward side and supple leeward. It is the color of the particular altitude where its owner works. The lower-deck catchers wear red-brown, the color of the old land's iron; the upper-deck ones wear pale bone-grey, and there is a quiet snobbery in it, the pale coats considering themselves catchers of purer grain, the red coats considering the pale coats effete, and both considering the Feltworks — who never touch the skin at all — to be a kind of indoor aristocracy, which the Feltworks do not exactly deny.
+
+The sorters are the third class and the strangest. Catching is mechanical: the plates and sieves do the work, and the catchers mostly maintain, shake down, haul. But sorting what the wind has brought is judgment, and judgment at Masthead is a specific craft. The wind delivers everything the Loose has lost, and the Loose lost more than soil. It lost seeds that waited decades for ground. It lost the husks of insects and sometimes, in certain months, living ones — moths riding the permanent river the way moths anywhere ride a season. It lost teeth, pollen, the light ash of long fires, and occasionally things no one has a word for, objects the sorters keep in a locked cabinet on the ninth terrace that the whole city politely does not ask about. A good sorter can feel a viable seed in a handful of grit. They are recruited young, tested with trays, and they develop a finger-sense that the miners of the old land were said to have for ore. It is the closest thing Masthead has to a clergy, and like clergy they are underpaid.
+
+---
+
+There is also the unintended life, the caught things that lived.
+
+The terraces on the leeward side, out of the combing floors, have begun to grow. Nothing intended it. The sorters simply couldn't bring themselves to winnow out every seed — a city built of caught dust develops, apparently, an allergy to waste — and so the seeds went into trays, and the trays into felt-lined boxes, and the trays are watered from the dew-condensers, and now there is a green thing happening on the leeward decks, small and stubborn and slightly obscene. Tomatoes, mostly. Tomato vines seem to be the great opportunists of the apocalypse of soil; the old men say there were tomatoes in the basins once, on poles, in gardens, before the gardens became the Loose, and what's growing now is those gardens arriving. The catchers eat them ceremonially, one slice each, and there is a superstition that the vines must never be shown to the windward side of the Mast, as if the wind might see what it has been robbed of and come to take it back.
+
+The moths, too, live here now. In the grain stores, in the felt, in the lightless seams of the decks. Nobody planned the moths. Nobody can get rid of the moths. The children keep them as pets and the sorters regard them as colleagues.
+
+---
+
+And there are the dead, who are also inhabitants, in the Masthead manner of thinking.
+
+Nothing here is buried, because nothing here has ground. A body is carried up — always up, this matters, toward the catching decks rather than down toward the basins — and given back at the top, into the wind that gave the city everything it is. The catchers' theology, if it can be called that, is a simple bookkeeping: the wind brought all of this, eleven thousand people's worth of flesh and bread and steel-wool and tomato vines, and the debt is repaid in kind, grain by grain, at altitude, so that whatever the dead become goes back into the river and might someday be caught again by some other Mast, some other shoulder of high ground, some other people combing the sky. They believe this literally. The sorters — who handle the wind's cargo daily and know better than anyone how long a thing can ride — are the most certain of it.
+
+Nine years is not long enough to know if a city can live this way. The riveters on the upper decks, the scrappers below them salvaging scaffold faster than it's finished, the eleven thousand stacked in their felt and dust — all of them are operating on the wager that the Loose will keep leaving and keep arriving, that the river is permanent, that the ember-sun will grudgingly light the work for however long the work takes.
+
+The children, who have never known anything else, are not worried. They play Sieve on the stair landings. They keep their moths in matchboxes. They are the first generation who find all of this — the sway, the grey, the two miles of air beneath their feet — to be simply what home is.

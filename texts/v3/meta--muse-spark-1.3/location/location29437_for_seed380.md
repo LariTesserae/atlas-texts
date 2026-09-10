@@ -1,0 +1,39 @@
+You go down to it.
+
+Not far, as distances go. The road ends at a railing and then keeps going without you, and you take the stair cut into the rock. Forty meters, maybe fifty. Enough that the light changes its mind.
+
+From the rim, the whole place fits in one look. That's the first strange thing about it — a town you can hold in your eye at once, rim to rim, like water in a cupped hand.
+
+It is a bowl. A drowned quarry, a solution pit, a collapsed working that somebody decided to roof with sky and then, instead of abandoning, floored with town. The walls are limestone and black brick and older stone patched with concrete, all weeping. Everywhere the rock sweats. You can see the damp darkening in horizontal bands where the water table breathes in and out. Near the top, gorse and a few stunted sycamores lean over the edge and drop leaves that spiral a long time before they land. Down here, they land and don't rot so much as bleach and flatten into the pavement.
+
+The light never fully arrives. At noon it comes straight down the shaft in a pale, dusty column that doesn't reach the corners. The rest of the time it is that blue-grey hour before rain, held all day. The town keeps its own lamps on — sodium oranges and one flickering white over the pump house — not because it's night but because it is always almost night. Your breath shows, even though it's not winter. It's just cool down here, cellar-cool, laundry-cool. The kind of cool that lives in stone.
+
+The town itself is sparse for a town. Streets laid for more feet than ever use them now. Two terraces of two-up two-down workers' houses in sooted brick, their doors swollen shut, their windows blind with condensation on the inside. A chapel with a missing roof that has become a tank for sky. A corner shop with its sign still legible: TEA FLOUR PARAFFIN. The spaces between them are too wide, as if several buildings were removed politely. Those gaps are now shallow black mirrors — standing water an inch deep over cracked concrete, skinning with oil rainbows and duckweed.
+
+Because this is still a works. That is the rule here: the machines must not stop, even if they are allowed to go very, very slow.
+
+In the center, taking up most of the flat floor, is the Dripworks: a low mill of riveted iron and glass louvres gone green with algae, a gantry crane straddling a canal, three boilers squat and ticking as they cool and warm and cool again. A chain drive turns a flywheel the size of a house door at two revolutions per minute. You can watch a single link go around and have time to forget it and remember it again. The dynamo hums, low enough you feel it in your sternum more than hear it. Cables sag on poles from building to building, heavy with droplets that travel slowly along them and fall with a plink you hear a second later.
+
+Everything is wet in a way that has stopped being an accident. Water is not an event here. It is the condition. It seeps up through the pavement in dark stars. It runs down the walls in braided threads and collects in the gutters that were built as streets. The canal that bisects Lowtown — straight, stone-sided, built for barges — now carries only six inches of clear, cold flow over silt, and under that, eels. So many eels. They lie like lengths of wet rope in the culverts, they knot at the outflow grates before the turbines shudder on for their hourly turn. The old men who built this place would have called them vermin. Now they are the shift workers.
+
+For there are almost no people. There is a caretaker's bicycle leaning forever against the pump house wall, its tires soft, its basket full of rain. There might be one caretaker still, somewhere, or the *idea* of one kept alive by habit. What there is, instead, is animal abundance out of all proportion to the greens.
+
+They own the quiet.
+
+Swifts cut the air under the rim in the summer, screaming once then hushed by the stone. Pigeons — hundreds — roost in the crane girders and on the north side only of every roof, for reasons no one has written down. Their cooing marbles around the bowl and comes back late, as if the pit remembers sound a moment too long. Rats trot the curb lines with terrible confidence, fat on grain spilled decades ago and endlessly re-spilled by weevils and damp. A grey heron stands in every view, absolutely still, fishing the mirrors. You look away and look back and it has moved to the next mirror without you hearing a wingbeat. In the pump house basement, where the water is knee-deep and warm from the culverts, blind white fish the size of your thumb hang in the dark and pulse.
+
+Moths come to the sodium lamps in slow snowfalls and do not burn. Slugs as long as your forearm cross the pavement between the houses after the daily rain, leaving silver sutures that glint for hours.
+
+Ah — the rain. The pit has its own weather, everyone down here will tell you, though there is no one to tell you. Warmth from the boilers and breath from the weeping walls rises, hits the cool lid of air at the rim, and condenses into a thin, low cloud that lives only inside the bowl. It circles. All day it circles, counterclockwise, patient as the flywheel. At about four it gets heavy enough to rain for twenty minutes — a soft, straight, needling rain that pocks all the mirrors at once and makes the whole town hiss, very quietly. If you climb the stair and look up, the sky above the rim can be perfectly clear and blue while it is raining down below. Stand on the rim and you can see the top of the cloud like the skin on cold milk.
+
+Nothing dries. That's the other rule. Paint blisters and stays blistered. Timber goes black and stays strong. Iron rusts to a certain deep orange-brown and then stops, sealed under a crust of lime and algae that the water has learned to lay down evenly. The erosion here is old, settled. Rills have cut exactly where they want to be in the concrete and no deeper. Steps are dished in the middle and stay dished. The town and the water have negotiated a balance and signed it in calcium.
+
+Vegetation, where it dares, is spare and pale and loves mortar. Hart's-tongue ferns unroll from the chapel wall. Moss makes green velvet epaulettes on every north-facing ledge. In the gutters grows a translucent, celery-like weed that leans toward the lamps at night. Nothing tall. Nothing ambitious. The animals eat most of what tries.
+
+If you stand still long enough — and down here, you will — you hear how quiet an industrial town can be when it idles. Not silent. Drip from a cable. Tick-tick-tick of cooling metal. The wet slap of an eel turning. Wingbeats folded into stone. The dynamo's low note under it all like a held breath. Your own footsteps too loud on the slabs, then swallowed.
+
+Slow is not stopped. Watch the lime growing over a doorway on Pump Row, a white lip advancing a millimeter a year, already halfway to closing a door no one opens. Watch the water clock stain on the mill wall, the tide-mark that rises an inch and falls an inch over twelve hours though there is no tide this far inland. The pit inhales, the pit exhales. The heron waits.
+
+From above, you could cover it with your thumb on a map. From inside, it goes on — house to gap to mill to canal to wall and back to house — until the walls curve up and hold you. It does not need to be bigger. It has everything it needs to keep happening: water coming in exactly as fast as water is pumped out, heat enough to make a cloud, animals enough to keep the gutters clean, machines slow enough never to wear out.
+
+You climb out colder and damper than you went in, with the smell of oil and guano and wet limestone in your coat. Behind you, the lamps stay on in the dim. The flywheel turns. The eels gather at the grate. It starts to rain, only down there, only for twenty minutes, only for itself.

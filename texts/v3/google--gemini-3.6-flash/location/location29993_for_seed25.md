@@ -1,0 +1,19 @@
+The air in the basin is cool, heavy, and wet, holding a chill that never quite freezes but sinks deep into stone. There are no trees here, no ferns, no moss, no lichens clinging to the rock. The world is entirely mineral beneath, made of ancient, dark basalt and smooth shale that has been worn down over uncounted ages into sweeping, low-sloping terraces and wide, shallow troughs. The erosion is ancient and settled; the edges of the rock are rounded like old teeth, slicked with a perpetual film of cold condensation that drips down from unseen heights into shallow, stagnant basins.
+
+It is a broad place—a regional depression miles wide, sunk low between smooth, invisible ridges—but you cannot see its boundaries. The light is nearly nonexistent, a smothering, velvet darkness that swallows sight past a few paces. 
+
+Yet the basin is not empty. It is suffocatingly full.
+
+Without plants to anchor the world, the ground itself is alive, moving in a continuous, multi-layered carpet of cold, segmented bodies. Life here does not rely on sunlight or green leaves; it feeds on the mineral-rich slime that exudes from the cold rock seeps and the endless, cannibalistic recycling of its own immense mass. 
+
+The density of fauna is overwhelming. Beneath your feet, if you could stand upon the stone, there is no stone to touch—only a squirming pavement of heavy, plate-armored burrowers, three deep, scraping at the basalt with jointed limbs. Above them, long-bodied, eel-like crawlers with pale, cartilaginous ribs thread through the gaps in the shells, their blind, spade-shaped heads quartering the damp air. Higher still, from the level of the knee to thirty feet up into the gloom, the darkness is thick with flying things—not birds, nor bats, but thin-rimmed, leathery ribbons that flutter with a wet, rhythmic snapping, colliding with one another in the air and falling into the mass below, only to be devoured or to climb back up the slick, stone walls.
+
+The sound is not a background hum; it is a deafening, physical wall that presses against the sternum and vibrates the small bones of the inner ear. 
+
+It is the sound of billions of hard, chitinous plates grinding against polished rock and against each other—a sound like a mountain of broken glass being stirred by a slow paddle. Added to this is the wet, sliding rustle of smooth bellies dragging over condensation, the dry rasp of feeding mouthparts stripping iron-tainted film from the slate, and a low, resonant, sub-bass thrum that rises from the floor as millions of larger, dormant creatures vibrate their chest plates in unison to keep their cold blood moving. The noise fills the valley completely, muffling any echo, turning the wide, open scale of the basin into an acoustic trap where sound has no room to die.
+
+Every few minutes, a shift ripples through the valley. It is a dynamic, predatory pulse. A wave of motion starts at the eastern lip of the trough—where the cold moisture pools thickest—and travels across the floor. Millions of pale, blind eyes turn; long, jointed antennae whip through the chilly mist; and the upper layer of armored crawlers surges forward to flee or feed upon whatever larger, subterranean leviathan is rolling through the soft, eroded channels beneath them.
+
+The air smells sharply of ozone, cold wet iron, and the dense, oily musk of cold-blooded bodies packed so tightly that their collective respiration creates a faint, cool wind that blows through the dark.
+
+Here, the rules of the world are simple and ancient. The stone provides the mineral spine; the condensation brings the solvent; the darkness hides the borders. Everything else is meat, shell, movement, and noise, endlessly feeding on itself in the cold, wet dark at the bottom of the world.

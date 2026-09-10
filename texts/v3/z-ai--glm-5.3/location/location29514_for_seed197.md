@@ -1,0 +1,11 @@
+You hear it before you see it. From the ridges a day out, it comes across the flat warm country like surf, except there is no sea here — only river, only lowland, the slow green latitude where water finished deciding the shape of the land a very long time ago and has not changed its mind since. The roar doesn't rise and fall like wind. It sits. It has been sitting there for centuries, the way a bell keeps ringing after nobody remembers striking it.
+
+What makes the sound is a basin — an old oxbow the river abandoned, ringed with silt bluffs a mere two arm-spans high, floored with black mud and fern. And in the middle of the basin stands one fig.
+
+From the outside it is only that: a fig of unreasonable size, a crown half a kilometer across, buttresses sloping up like wave-cut cliffs, the whole organism rooted in its own composted ancestors. There is a single entrance, a doorway of braided aerial roots, tall enough for a walking person, narrow enough that you must turn your shoulders. It was not grown for a person. It is exactly the size of the doorway a fig makes for a wasp, scaled up as if by a patient and literal-minded dream, and you should think about that before you go in.
+
+Inside is the city.
+
+That is the first impossibility, and the walls will not let you un-know it. The interior hollow of the fig is laid out like a settlement: lanes paved with root, worn smooth as river stones; plazas the size of churchyards; pillars of descended aerial roots in colonnades; terraces stacked up the inside of the trunk where shelf-fungus grows like balconies. Nothing was built. Nothing was cut, jointed, or lashed. The city was grown in place the way a burl is grown, and its districts are not streets so much as seasons — the whole metropolis is laid down in rings, year by year, so that the inner quarters are the oldest and the outermost suburbs the newest, still damp, still swelling. You can date a doorway by counting outward. The heartwood core, the old downtown, is dead and dry and dark as held breath. The living ring hums.
+
+What the city does not have, anywhere, is a crowd. The plazas are sized for processions of thousands and hold, in the largest of them, one heron — motionless, gray, the city's only statue, and alive. The lanes stand open all day. The volume of the place is enormous, folded somehow beyond what

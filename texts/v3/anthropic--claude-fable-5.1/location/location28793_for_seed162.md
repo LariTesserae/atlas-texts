@@ -1,0 +1,73 @@
+**The Shelf**
+
+It came up recently. That is the first thing the ground tells you, before anything else: this rock has not had time to soften. The edges of every outcrop are knife-clean, the fracture faces still glassy where they parted, and the scree at the base of the cliffs is not rounded scree but a heap of blades. You could cut yourself on the landscape. In places the stone still has the sheen of something that cooled with a skin on it, and when the light catches it at a low angle it shows the grain of the flow, the way metal shows its grain when it has been poured rather than forged.
+
+It is high. Not mountain-high, with peaks and a thin edge of sky. It is high the way a table is high: a whole country lifted level and left there, so that the horizon in every direction is the horizon and there is nothing above but a lid of cloud that never quite closes and never quite opens. The lid sits perhaps a thousand meters overhead. It glows dimly from within, a bruised color between green and pewter, and everything under it lives in a kind of permanent late afternoon that never turns to evening. There are no shadows sharp enough to name. Things simply have darker sides.
+
+The air should be cold at this altitude and it is not. It is warm, damp, close, the warmth of an engine room felt through a bulkhead. The heat comes up from below. You can put your palm flat on the stone anywhere and feel it—not hot, but bodily, the temperature of a hand held in another hand. And because the ground is warm and the lid is cool, the whole country condenses. Every surface sweats. Water gathers on the undersides of leaves and falls in single fat drops, gathers in the cups and creases of the new rock, runs in threads down the fracture faces and pools in the flat places until it finds a crack and vanishes. There is no river. There is no lake. There is only this constant sweat, this dew that never dries, and here and there a shallow basin of black water with a skin of foam on it that trembles for no reason you can see.
+
+---
+
+The vegetation took hold before the rock finished cooling, or so it seems. It is everywhere the rock is not vertical, and much of the rock that is. It grows in tiers. Lowest, on the stone itself, a pelt of something between moss and lichen, dark as wet felt, warm to the touch, which spreads over the fracture faces in sheets and softens their edges with a false roundness—until you press on it and feel the blade underneath. Above that, ferns, if they are ferns: fronds the length of an arm that uncurl and recoil on a cycle you can watch if you are patient, tightening back into their fists when a drop falls on them and opening again over the course of a minute. Above those, trunks. The trunks are the tall part. They are smooth and columnar and gray-green and they do not branch until very high, where they break into a crown of broad leaves that touch the crowns of their neighbors and form a second lid beneath the lid of cloud. Down here in the understory it is dimmer still.
+
+The trunks are close together. Closer than trees should be. In many places they stand nearly touching, and the space between them is filled with the ferns and with hanging things, cords and ropes of vegetable matter that drip, and with the felt that climbs everything. You cannot walk in a straight line for more than a few meters. You are always turning a shoulder, ducking, pushing something wet aside. The place is packed. It is as full as a forest can be and then a little fuller, as though it had been compressed.
+
+And it is quiet in the way that packed places are quiet. Sound does not carry. A drop falls and you hear it land and then nothing—no echo, no ring, the sound absorbed instantly by felt and leaf and damp. Your own footsteps are swallowed. When something moves nearby, and things move nearby constantly, you hear only the smallest part of it: a leaf letting go, a fern closing, a soft wet sound of contact. Underneath all of this there is another sound, but you do not hear it so much as stand inside it—a low, even pressure in the ears, a hum below hearing, the sound of the whole shelf working.
+
+---
+
+Because it is working. This is the second thing the ground tells you, once you have been here long enough to notice the rhythm.
+
+Nothing here was built. There is no wall, no path, no cut stone, no dropped tool, no mark of any hand. The rock rose on its own and the plants grew on it and nothing has been arranged. And yet the place has the character of a works. Not the appearance—the character. The ground moves in cycles. In the flat places you can see them: broad slabs of new rock that rise, very slowly, a hand's breadth over the course of an hour, and then sink back with a long exhalation of warm damp air that lifts the ferns and makes the felt shiver, and then rise again. Pistons. Not shaped like pistons, not made to be pistons, but doing what pistons do. Along the cliff faces there are vents, natural fissures, that breathe on a rhythm, and the breath is not steam but something heavier, a warm fog that carries a mineral taste and settles into the understory and beads on everything.
+
+In the basins of black water the foam trembles because something under the water is turning. You can see it if you lie flat at the edge and look down through the skin of foam: a slow rotation, a vortex with no visible cause, and at the bottom of the vortex a dim light, the same bruised color as the cloud lid, as if the cloud and the water were the same thing meeting itself.
+
+The trunks are part of it. Put your ear to one and you hear, faintly, something being conveyed inside—not sap, or not only sap, but a steady movement upward with a beat in it, a lift-and-pause, lift-and-pause, like a chain hoist. The crowns above are not just leaves. They are collectors. They take in whatever falls from the lid—light, water, the mineral fog—and they pass it down, and the roots pass it into the warm rock, and the rock does something with it, and the vents breathe out what is left.
+
+So it is a factory, in the sense that it produces. It is mechanized, in the sense that it repeats. It is industrial in scale, in the sense that it extends to the horizon in every direction and the same cycles are running everywhere, out of phase with each other, so that if you could rise up through the lid and look down you would see the whole shelf pulsing like a field of lungs, uncoordinated, tireless. But there is no one running it. There has never been anyone. This is simply what this country does, the way a delta deposits silt or a glacier calves. It is a geological process that happens to have the form of a works.
+
+---
+
+What does it produce?
+
+This is where the place stops being describable in the ordinary way.
+
+You find the first one in a hollow between two trunks: a small object, the size of a fist, lying in the felt. It is a stone, and it is also a beetle, and it is also a curl of wet leaf, and it is all of these at once without being a composite—not a stone shaped like a beetle, but a thing that is fully a stone when you attend to its stoneness and fully a beetle when you attend to that, and the shift between them happens not in the object but somewhere behind your eyes. When you pick it up it is warm and slightly damp and it has weight. When you put it down it has moved, or you have, or the hollow has. The two trunks are farther apart than they were. You are certain of this and cannot prove it.
+
+There are many of them. Once you know to look, they are everywhere in the understory, in every hollow, resting in the crooks of the ferns, half-sunk in the felt. Some are the size of grains. Some are the size of a torso. They are the product. The shelf makes them, and makes them constantly, and the ferns close over them and the felt grows over them and the warm rock takes them back, and makes them again slightly different. You never see one being made. You only see that there are more than there were, and fewer of the ones you saw before, and that the ones you find are never quite the ones you remember.
+
+And they are not all objects. Some of them are animals.
+
+---
+
+There is fauna here beyond counting, and it is the fauna that first makes the quiet uncanny. Because there are so many of them and they make so little sound. Things the size of dogs that move through the understory on too many legs, low and smooth, and stop when you stop, and are gone when you look again. Things in the trunks—you see the bark bulge and flow as they pass inside it. Things in the crowns overhead, which you know are there because the second lid of leaves is always shifting, folding, bunching, as though the canopy were a hide with something moving under it. Things in the black water, turning with the turning. Small quick things in the felt that you feel through your soles more than see.
+
+They are abundant and they are close and they are, most of them, almost recognizable. A long, damp creature with the gait of a salamander and the coat of a mole and something in the set of its head that suggests a bird—and then it turns, and the bird is gone, and there is only the salamander, but the mole-coat has become scales. A cluster of flying things the size of moths that hang in the fog near a vent, motionless, and then are on the other side of the vent without having crossed, and are fewer, and one of them is now a leaf, hanging in the air where it should not be able to hang.
+
+You come to understand that the animals are the product too. Or the product is becoming animals. Or the shelf cannot tell the difference and has stopped trying. It is making forms—stone-forms, leaf-forms, creature-forms—and pushing them out into the understory and seeing what holds. Most of it does not hold. Most of it flickers, half-decided, and is taken back. But some of it moves, and eats, and hides, and stops when you stop, and those it lets stay for a while.
+
+The ones that stay longest are the ones that have learned the quiet. There is a creature you see more than once, or several creatures of one kind—a heavy-bodied thing with a hide the color of the new rock and a face you cannot bring into focus, which sits very still at the edges of the black basins and watches the vortex. It does not eat, that you can see. It does not move, except to follow the rotation of the water with a slow turn of its head. It is the most stable thing here. It has, perhaps, given up being anything in particular, and so the shelf has nothing to revise.
+
+---
+
+The instability is everywhere once you accept it. It is the third thing the ground tells you, and it tells you continuously, and it is the thing that makes the place turbulent despite the quiet, despite the warmth, despite the way nothing seems to hurry.
+
+The shelf is rearranging. Not the way a landscape erodes, grain by grain over centuries; the way weather rearranges, on the scale of minutes, without pattern. You cross a flat place and turn and the flat place is a rise. You walk toward two trunks and the gap between them narrows as you approach, or widens, or there are three. You put a hand on a cliff face and the fracture lines under your palm are running a different direction than they were. Water pools where there was no hollow and then the hollow is gone and the water is somewhere else, running down a face that was dry. The felt grows across a fresh fracture in the time it takes you to look away and back.
+
+It is not fast, any single change. It is that there are so many of them and they never stop and they do not add up to anything. The shelf is not going somewhere. It is not becoming something. It is just—active. Restless the way a hive is restless, the way a market is restless: a thousand small transactions per minute, none of them consequential, all of them together making a texture of ceaseless motion. Create, revise, retract, create. The cliff face reforms. The basin turns. The pistons breathe. The crowns collect. The products lie in the felt and are almost stones, almost animals, almost leaves, and then are something else.
+
+You could stand here for a very long time and never see the same view twice, and never see anything happen.
+
+---
+
+Toward what you decide to call the edge—though the shelf has no edge you have found, only more of itself—the cloud lid comes lower, and the trunks rise to meet it, and the understory closes down to a warm, dripping, felt-lined passage where the dimness thickens toward dark. The hum below hearing is stronger here. The rock underfoot is newer, still faintly tacky, and the pistons are closer together and out of phase, so that the ground under one foot rises as the ground under the other falls, and you walk on a slow swell.
+
+Here the products are larger and less finished. Things the size of the trunks themselves lean in the passage, neither stone nor tree nor beast but a suggestion of all of them, warm and damp and waiting to be revised. You do not touch them. You have the sense that touching them would not be dangerous but would be a kind of vote—that whatever you attended to in them would be what the shelf kept.
+
+And you understand, finally, what the works produce, and why nothing is built here and never will be.
+
+It is making a world. Not this one; not the shelf, which is only the floor of the works, the bench. It is trying out the components of a world—the rocks and the leaves and the creatures and the distances between things—and it is finding that most of them do not hold, and it does not mind. It has time. It has heat. It has the lid, which gives it water and dim light and takes back the fog. It has abundance, more forms than it could ever need, all of them near-touching, packed into the understory, flickering. It has no plan and needs none. It will run these cycles until something coheres, and then perhaps it will make that, at scale, out to the horizon, and the quiet will finally break.
+
+Or it will not. Perhaps this is the finished thing. Perhaps the process is the product, and the shelf rose already complete, and the work it does is the only work there is: to produce, and to withdraw, and to produce again, endlessly, under a low glowing sky, for no one, a continent of warm damp machinery that has never known a hand and would not know what to do with one.
+
+You leave the way you came, or a way like it. The trunks have moved. The felt has closed over your prints. Something with too many legs stops when you stop, and is gone when you look again, and the drop that falls from the leaf above you lands with a small wet sound, and then there is nothing—nothing—and the whole shelf sighs, and lifts, and sinks.

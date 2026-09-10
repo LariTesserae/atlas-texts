@@ -1,0 +1,17 @@
+There is no bedrock here, only the upper flanges of immense iron box-girders, bolted and re-bolted over centuries, their web-plates broad as city squares and descending into an abyss of pale, sun-bleached cloud. 
+
+The landscape is a mountain range of pure framework: a stepped, colossal trellis of riveted steel, reinforced cast masonry, and copper-skinned flues that stretches across a horizon sixty miles wide. At this altitude, the air is thin and blindingly clear, struck through with an intense, raw sunlight that turns the wet rust to the color of crushed cinnamon and makes the brass housings of dynamos flare like small suns.
+
+Yet despite the sheer drop below—a fall measured in leagues of crisscrossing struts—the place is profoundly, overwhelmingly green. 
+
+Life does not merely cling to the steel; it has formed an unbroken skin over it. Epiphytic figs, broad-leafed philodendrons, and thick carpets of chartreuse liverwort have rooted into the accumulated silt of centuries, filling every gutter, drip-tray, and expansion joint. Warmth radiates continually from the architecture: giant steam mains, wrapped in decaying canvas and banded with brass, snake along the underside of every catwalk, leaking a steady, fragrant humidity. This escaped steam meets the chill of the extreme height, condensing instantly into fat, warm droplets that shower the under-canopy in a perpetual, intermittent drizzle. 
+
+Water does not gather in lakes, but in long, stepped cascades of mechanical catch-basins. Heavy cast-iron troughs, originally forged to quench giant roller-bearings, have become tiered wetlands. In them, dense beds of broad-bladed reeds filter the engine-wash, their roots tangled around submerged rivets and slowly calcifying intake screens.
+
+The machinery moves with a patient, tectonic slowness. Massive cast-iron balance-beams, fifty paces long and furred with moss, rise and fall once every ten minutes, driving subterranean piston pumps that circulate coolant through the marrow of the trestles. Immense flywheels, half-swallowed by climbing vines, turn with a low, bone-vibrating rumble that sets the dew trembling on the underside of broad leaves. 
+
+The sound of the region is a dense, layered roar: the rhythmic, wet *thung-shuck* of steam traps venting across the valleys, the heavy resonant chime of stressed iron expanding under the noon sun, and the deafening chorus of millions of tree frogs that live inside the hollow structural columns. High overhead, where the top chords of the arches meet the sky, flocks of pale-winged swifts dart between the exposed gear teeth of dormant gantry cranes, nesting inside the grease-cups and empty rivet holes.
+
+Small, agile mammals with leathery, heat-resistant pads on their feet travel along the suspended cable-stays like acrobats on highway spans, feeding on the greasy, oil-rich fruit of palms that grow straight out of the horizontal girder lattices. Bronze-backed beetles, broad as saucers, scrape algae from the glass panes of abandoned observation cupolas.
+
+Everything has arrived at a durable, weathered equilibrium. Where a girder has sagged under the weight of three hundred years of accumulated loam, a secondary truss has long since taken the strain, its rust oxidized into a hard, protective purple-black lacquer. The iron does not fail; it merely provides the dark, mineral-heavy bones for a jungle suspended between the bright sun and the void, fed by heat from forgotten boilers far below and watered by the breath of its own tireless iron lungs.

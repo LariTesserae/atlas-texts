@@ -1,0 +1,73 @@
+You arrive at it the way you arrive at a mudflat at low tide, except there is no tide and there never was one, and the mud is warm as a body all the way down.
+
+The ground is clay. Not clay the geological deposit — clay the worked material, the stuff after it has been dug and puddled and kneaded and had its stones picked out. It has that texture everywhere, the smoothness of something that has passed through hands. It is the colour of raw terracotta before firing, a greyish rose, and it gives slightly underfoot, and where it has been pressed it holds the press. Your own footprints stay behind you with perfect fidelity, every crease of the sole recorded, and they steam.
+
+It is hot. Not the dry heat of a desert but the heat of a kiln that has just been opened, damp because the load was not yet dry, and the air sits on your skin like a wet cloth held to the mouth. Everything sweats. The ground sweats; water beads up out of the clay and runs in little threads toward nothing in particular, because there is no slope to speak of. The air is so full of vapour that it has started to fall back out of itself, and a fine warm drizzle comes down from a sky that is not sky but ceiling — a lid of steam perhaps sixty or eighty feet up, lit from below by a dull red glow that comes out of the ground at the seams.
+
+The seams are where the light is. The plain is not continuous. It is laid in slabs, or courses, or fields — the unit changes depending on how far you look — and between the units run cracks a hand's width across, and in the cracks the clay is not rose but ember-orange, translucent, going toward white the deeper you look. It is firing from underneath. The whole floor of the world is on a kiln bed, and the kiln is lit, and nobody has turned it off or turned it up; it simply burns at the temperature at which wet clay begins to consider becoming ceramic and never quite gets there.
+
+So: dim. The red from the seams does not reach far. It gilds the underside of the vapour ceiling and it picks out the nearest surfaces in a low glow like the glow on the walls of a bread oven, and beyond about a hundred paces everything is a rose-grey murk in which shapes appear and are lost.
+
+---
+
+The shapes are what this place is for. Or they are what it is doing. It is hard to say which.
+
+Scattered across the plain, at intervals of a mile or three or seven — the distances do not stay put — there are structures. They are all of clay, the same clay as the floor, and they have all been made by hand. That is the first thing you notice on approaching one: the marks. The walls are coursed in blocks about the size of a loaf, and each block has been shaped by pressing, and the pressing shows. Fingerprints, thousands of them, overlapping, most of them the pads of thumbs. The joints between blocks have been smeared closed with a wet hand, and the smear has left the ridged drag-mark of a palm. Along the top of a wall where a course has not been finished, the last blocks are still soft; you could put your own thumb into them.
+
+The structures are simple. A wall that runs straight for a long way and ends. A ring wall, chest-high, enclosing nothing, with no gate. A stepped mound, a kind of blunt pyramid, three tiers, the top tier unfinished — a half-laid course, blocks set out in a row waiting to be pressed into place, and then no more blocks. Long low troughs like the beds of a brickyard, with rows of bricks set out to dry in them, except that nothing here dries. Cylinders taller than a house, open at the top, with a hole low on one side — kilns, obviously, or the shape of kilns, but empty, and cold, colder than the ground around them, so that when you put your hand into the firing hole the air inside is almost bearable.
+
+There is no metal anywhere. There is no wood. There is no stone that has not been clay first. The technology on display is exactly the technology of a hand and a body of soft earth: press, pile, smear, scrape. In places you find the marks of a tool — a curved scoop the width of two fingers that has been dragged repeatedly across a surface to level it, leaving a texture like a rubbed-down rake. Something with a flat edge has cut the ends of the blocks square. On one wall there is a band of decoration, a row of impressed cords, the twisted double-helix mark of rope pressed into wet clay and lifted away.
+
+There is no rope here. There is nothing that could be rope. No plant has ever grown in this place; no plant could. There is no animal whose hide or gut could be twisted. There is no shell for a scraper, no bone for an awl, no wood for a paddle. The marks are the marks of a complete toolkit for working clay, a toolkit that would require a whole living world to supply, and the living world is not here and the marks are.
+
+---
+
+The turbulence is quiet. That is the thing hardest to convey.
+
+You stand at the base of the stepped mound and watch the unfinished top course, the row of blocks set out and waiting, and the blocks are being pressed into place. You do not see anything press them. You see a block that was loaf-shaped acquire a thumb-dent, and then another, and then a flurry of them, and then be pushed down and sideways into the course with a wet sound, a sound like a boot pulled out of mud but reversed, and the joint smeared closed by a palm that is not there. The course completes itself in about the time it would take a person to do it. Then the next course begins. Blocks appear at the far end of the row, already roughly shaped, as though set down from a barrow.
+
+And meanwhile, on the other side of the mound, the second tier is slumping. Not falling — slumping, the way an over-wet wall slumps, bellying out at the base, the courses losing their lines, the fingerprints stretching and blurring like a face seen through water. Half a tier goes back to raw clay in a slow sag and settles into the floor and the floor accepts it and is level again, sweating.
+
+The whole plain is like this. It builds and it unbuilds, at the speed of work, with no worker. Walls extend themselves a block at a time toward destinations they never reach and then, somewhere behind the advancing end, begin to sag and melt back down. Rings close and open. The brickyard troughs fill with new bricks, one by one, set out as if to dry, and the bricks soften and fold and become trough again. A kiln builds itself up in the murk over the course of what feels like an hour, coursing up from a ring to a cylinder, corbelling in at the top — and this is when you understand that it is a kiln, when the dome closes — and then the whole thing leans and goes down, not into rubble but into a long tongue of soft clay that flows a little way across the floor and stops.
+
+None of it makes much noise. Wet clay is a quiet material. There is the reversed-boot sound of blocks being set, a kind of soft *thuck*. There is the drip of condensation off every overhang. There is a tick, tick, tick that you eventually localize to the seams, where the surface of the clay nearest the heat is just beginning to shrink and craze, and each tiny crack that opens gives a tick like a cooling stove. There is the hiss of drizzle landing on warm surfaces, which is not a hiss so much as a texture in the air, a pink noise. Very occasionally, far off, something large lets go all at once and there is a low wet concussion, more felt than heard, and the vapour ceiling shivers. Then it is quiet again, and building.
+
+---
+
+Some rules, as far as they can be made out.
+
+Nothing here has ever weathered. There is no sand, no grit, no rounded edge. Every surface is either fresh from the hand or dissolving back to slip. The plain has no history of erosion because it has not existed long enough — or, more exactly, because it exists at the moment of being made, permanently, and the moment of being made is the one moment in a thing's life when it has no past. You will find no old wall. You will find walls at every stage from first course to completion to collapse, but you will not find one that is *old*: cracked by frost, softened by rain, colonized. The drizzle does not wear anything down; it simply keeps everything workable.
+
+The heat comes from below and it does not fluctuate. Whatever is under the kiln bed does not care what is built on it.
+
+Scale does not hold. The stepped mound you stand beside is perhaps four times your height. Walk around it and it is the size of a small hill, with the same three tiers, the same unfinished top, the same fingerprints — now each one the size of a shield, the thumb that made them belonging to something that would fill the whole sky. Walk around again and it is a model you could step over. The fingerprints scale with the structure. The hands that are not here are of every size, or the same absent hand does not know how big it is.
+
+Direction does not hold reliably either. A wall you follow keeps the fingerprints on your left. When you turn to follow it back the fingerprints are on your left. The wall has one face. There are structures out in the murk that you approach for a long time and that do not get closer, and others that are suddenly beside you, damp and warm and ticking, when a moment ago there was floor. This is not disorienting in the way of a maze. It is disorienting in the way of a very large workshop where the work is being moved around and you are standing in it.
+
+Time, in the sense of before and after, is also being worked. You will see a course of blocks smeared closed before the blocks are set. You will see a fingerprint arrive in a block and then the dent it made fill back up, the clay rising into the hollow like a held breath released, and then the print arrive again, deeper. Some walls are being unbuilt from the bottom, the lowest course going soft and drawing back into the floor while the upper courses stay up, hanging in the wet air with nothing under them, waiting to be given their foundation. When you look away and back, they have it.
+
+---
+
+Ecology: there is none, and the absence has a quality.
+
+The clay is sterile in the way a kiln is sterile. Nothing grows on the damp surfaces, no film, no bloom. The water that runs off the walls is clear and tastes of nothing, of warmth. There is no smell of life — no rot, no green, no musk. There is the smell of wet earth, which is usually the smell of a billion bacteria and here is the smell of minerals only, flat and clean, and under it the sharper scent of the seams, a smell like a struck match without the sulphur, like hot brick.
+
+And yet the place is more active than most living places. It has the busyness of an anthill and the anthill is empty. It has the productivity of a brickworks at the height of the season and the yard is unmanned. Everything is being done and there is no one. You begin, after a while, to feel that the hands are not absent so much as the *hands are what is happening* — that pressing is a thing the clay does, the way flowing is a thing water does — and that the fingerprints are not evidence of a maker but are simply the grain of this material, the way it takes form. Wet clay, in the world you came from, wants to slump. This clay wants to be pressed into loaves and coursed and smeared and raised and let fall. It has a shape it is trying to be and the shape is a settlement, at every scale, in every stage, forever.
+
+---
+
+The vastness comes on you slowly, as vastness does in the dark.
+
+The vapour ceiling is low but it goes on. Walking, you come to no edge. The seams run in every direction and the red in them recedes into the murk like the lights of a city seen from very high up — except you are not high, you are on the floor, the lowest thing, and the city is the ground. The ceiling itself is uneven. In places it sags almost to the top of a tall wall; in places it lifts and thins and you see through it to a second ceiling, higher and darker, and through that perhaps to a third. Where the seams cluster the heat drives the vapour up in slow columns, and the columns lean, and where several lean the same way you feel a movement of air across your wet face — the place has a wind, has weather, its own low warm circulation of the breath it gives off. Once, far away, the ceiling lit from within, an orange bloom that swelled and dimmed over several seconds, and no sound came from it at all.
+
+Out there the structures are larger. The fingerprints on the horizon — if it is a horizon — are on the scale of valleys. Something is being built out there that has courses like cliffs, and it is unfinished, and it is slumping, and the slump is a hill sliding into a plain over an afternoon, silently, and behind it the next course is already being set, loaf by loaf, each loaf the size of a house, with a *thuck* you feel in your chest a long moment after you see the block go down.
+
+There is no one there either.
+
+---
+
+The last thing, and it is the thing you keep returning to once you have left: the fired pieces.
+
+They are rare. Once in a great while, at a seam, the heat is enough and a piece of the plain goes over. You know it by the sound first — the ticking that has been constant everywhere becomes, at one spot, a fast dry crackle, and then a single sharp report — and by the colour, a patch of the rose floor going brick-red, then darkening to the colour of a flowerpot left years in the sun. It hardens. The sweat stops. It rings when you knock it. It has fingerprints in it, fixed now, permanent, as fingerprints in fired clay are permanent; a thumb pressed into it forty seconds before it went over is now a thumb pressed into it for as long as the material lasts, which is longer than the kiln, longer than you.
+
+And around it the building goes on, and does not touch it. The soft plain reworks itself against its edges and the fired piece stays, a hard raft in a moving floor, walls coursing up beside it and falling and coursing again while it sits. Nothing is built on it. Nothing needs to be. It is the only finished thing in the whole vast wet hot dim workshop, and it is a fragment of floor a few strides across with some thumbprints in it, and it is, you understand — standing on it in the drizzle, the only surface that does not give, the only place in this world where your own footprint does not stay — the only place here that could ever hold a past. Everything else is still being made. This has been made. And the making, all around, in every direction to the red horizon, pays it no attention at all.

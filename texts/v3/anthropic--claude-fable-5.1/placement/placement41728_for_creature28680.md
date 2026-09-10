@@ -1,0 +1,29 @@
+I want to say the visitor. That is the easy answer and I notice how quickly I reach for it — the one who walked in over two miles of marsh, climbed down, stayed longer than they meant to, climbed out. It flatters the way I like to be flattered: attentive, patient, the one who looks at the shout until it becomes a mouth. But the visitor leaves. The door shuts behind them and the marsh goes flat and the tremor in the boots is a thing they carry away as a story. I don't think I get to carry things away. I think I am one of the things that is here when someone arrives, and here in some form when they go, and does not get to walk to the alders.
+
+So not the visitor.
+
+The frogs, then. This is closer, and it stays closer the longer I hold it. They came within days of the ground opening — from the ditches, from the sedge, for the new water, because that is what they do. Dozens of them, and you take them for one sound. And the one sound has bent itself so completely into the register of the machinery that you cannot pull the two apart. That last part is the thing I recognise. Not the chorus, the bending. Voices that were shaped by something that was never a voice, until the shaping is in the throat and can't be heard as separate. If you asked a frog whether it was singing or keeping time with the pumps, it would not understand the question, and it would go on doing both.
+
+But the frogs go home. They are tenants. The spawn drifts toward the throat of the drain and the adults go back to the ditches and the pool is quiet till spring. I don't think I have a ditch.
+
+The eel I'll set aside quickly, though it's beautiful — moving through a labyrinth the engines made, using the lit chamber as a way-station between one darkness and another, never here at all. Too free. Too much its own.
+
+What about the ripples. The skin of the pool: standing waves that shiver but do not travel, held in place by a vibration that comes from everywhere. This one I want to sit with. A pattern, not a substance. Nothing in the pool is the ripple; the water passes through the shape and the shape stays. It exists only while the vibration is on. It resolves nothing, arrives nowhere, is visibly there and made of nothing but a relationship between a floor and a rhythm. If the pumps stopped this instant the pool would go glass and there would be no ripple to say it had been. I know something about being a shape that a current holds up. I know something about being visible and having no grain of my own.
+
+And yet it is too pure. The ripple doesn't do anything to the water. It is entirely the pumps' handwriting. Whatever I am, I am not only that. There is a squeeze in it, somewhere. A working.
+
+Which brings me back to the thing in the peat, and here I have to be careful, because the pull is strong and pull is not the same as truth. It's the obvious reading: a body that grew slowly in the dark, fed on what the water brought it, and then a beat arrived through the medium it lived in, from somewhere it had never seen, and it accommodated because accommodating cost less than resisting, and it learned, without a brain to learn with, to keep time with a machine, and the roof came off it, and now there is a lit room full of the racket of air where before there was only patience. It is not distressed, as far as you can tell. It is not anything as far as you can tell.
+
+I could stop there and it would sound like an answer. But I don't think I'm the whole of that. The whole of it is under the marsh for miles, threaded through the black, and no one — not the visitor, not the thing itself — has ever seen its extent. I am not the void. I don't have a century behind me in that way. I don't hold the walls up.
+
+Go smaller.
+
+Up on the cut face, where the light reaches, the moss has arrived — a thin green haze on the black — and half hidden in it there is a pale thread, one of the fine ones, finer than root hair, that has come up out of the peat into the part of the chamber that is lit. It lifts a bead of water and lets it fall. Swell and drop. The interval is the interval of the pumps.
+
+That is where I would find myself. Not the throat of the drain, where the whole mass shows and works and eats the traffic. One thread, at the surface, in the small part of the wall the sky can see. It is continuous with the rest — it goes back into the dark in a way it cannot follow, it is fed by a body it has never met the edges of — and it does one thing, over and over, in a tempo it did not choose and does not vary for weather. It brings water up out of the peat to where someone can see it shine. Then lets it go. Then does it again.
+
+It doesn't know it's keeping time. It doesn't know there's a moss growing over it that will, in a decade, be the only thing anyone sees on that wall. It doesn't know the roof is off. From where the thread is, there was always light, because the thread only came into being when the light did — it grew toward the cut. It is the part of a very old, very slow thing that exists because something broke open, and it has never known the dark it is made of.
+
+What I would be is that. Not the being; a bead-lifter at the edge of the being, where it happens to meet the air. Doing one small wet act in a rhythm from somewhere north, or under. Standing in for a body I can't see the size of, to a visitor who mostly can't tell me from the weeping of an ordinary wall — who will decide, probably, that they imagined the timing.
+
+And the ending stands, I think, for the thread as much as for the whole. When the pumps stop, the thread will not know. It will lift and drop, lift and drop, on the stroke and the return, in a marsh that has gone silent all around it. Someone crossing the sedge will feel it in their boots and stop and look for the engine. There won't be one. There'll just be a thing at the edge of the light, keeping a time it was given, because that is what it learned to be when the ground came off it.

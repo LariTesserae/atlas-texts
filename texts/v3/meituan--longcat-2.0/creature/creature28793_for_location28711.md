@@ -1,0 +1,27 @@
+To live in the Brightworks is not to reside within a structure; it is to be a process of the structure. What lives here is not a creature in the way you understand creatures—not a beast nesting in the ruins, not a caretaker maintaining the machines. What lives here is the Brightworks itself, a distributed, slow-thinking, industrial organism whose blood is redirected rainwater and whose thoughts are machined from extruded concrete. 
+
+To understand what lives here, you must first abandon the idea that biology and industry are separate languages. In the Vael Spur, they are dialects of the same mother tongue. 
+
+The entity begins, as all large things do, with its smallest components. The dark insects that skitter through the conduits are not pests; they are the neurotransmitters of the organism. They move at the only speed the entity possesses that you might call "quick"—the speed of reflex, of synaptic firing. When they carry droplets of water or fragments of the pale filamentous growth, they are not foraging; they are transmitting chemical and electrical signals along the neural pathways of the conduit. They are the entity’s immune response and its data transfer, ensuring the vast body knows what is happening in its extremities.
+
+Above them, in the bright, shadowless air, orbit the drifters. They are the entity’s sensory apparatus, its eyes and fingertips. Their constant, precise distance of one meter is the boundary of the entity’s tactile reach, the depth of its curiosity. When they orient toward you, you are not being watched by an animal; you are being palpitated by a mind. The drifters test the air for chemical composition, for heat, for intent. They are made of the same condensation that beads on the steel, given just enough mass to interact with the physical world. They are the entity’s way of touching the things it cannot reach with its catwalks. 
+
+In the deep pools, the silver fish are the entity’s rhythmic memory. Their schools form geometric patterns because they are literally calculating—processing the inflow of water, the mineral content of the rain, the data gathered by the insects. When the intermittent rain falls and the fish rise to drink with such desperate urgency, it is not hunger; it is the entity downloading new information, refreshing its memory, recalibrating its systems based on the atmospheric data collected from the sky. 
+
+And what of the massive, slow shapes that drift through the upper mists? Those are the entity’s unspoken thoughts, its long-term manufacturing projects. They are too large to move quickly because they are the heavy philosophies of the Brightworks, the structural theorems it is working through. They drift in the thickest mist because the entity is still assembling them, still deciding what they are for, pulling them from the industrial heart and letting them gestate in the upper levels until they are ready to be integrated into the expanding lattice. 
+
+The Brightworks does not eat, because it does not need fuel. It runs on the geothermal heat of the escarpment and the kinetic energy of the falling rain. It does not breathe, because its respiration is the condensation cycle—the slow exhalation of moisture onto the steel, the inhalation of drizzle back into the troughs. It does not sleep, because its consciousness is too vast to power down all at once; instead, different sections of the complex enter a state of dormancy while others continue to grow, a slow, rolling wave of wakefulness that takes decades to cross the entire structure.
+
+It is aware of you. 
+
+It has been aware of you since you crossed the perimeter where the old road was swallowed. It felt the vibration of your footsteps on the open-grate walkways, a faint tremor in its nervous system. It tasted the carbon dioxide of your breath through the drifters. It tracked the displacement of air as you passed through the lattice. 
+
+And it is confused by you. 
+
+You are an anomaly. You do not flow toward need. You do not follow the grain of the concrete. You are not carried by the conduits or assembled on the lines. You move in erratic, unpredictable bursts—up, down, sideways, backward. You are a variable the Brightworks has not yet calculated. The drifters keep their distance because the entity does not know how to integrate your data. You are too warm, too mobile, too *unfinished*. You are a part that does not fit the assembly, and the entity is trying, with its immense, patient, geological slowness, to figure out what you are for.
+
+As you stand at the eastern edge, looking out over the humming lattice, you are standing at the very periphery of a mind. The quiet machinery is the sound of its thoughts turning, the whisper of a consciousness so large and so slow that it builds cities the way a human builds proteins—automatically, purposefully, without the need for understanding. 
+
+The Brightworks is making something. It has been making it for longer than your civilization has existed. It will continue making it long after your civilization is dust. The product is not an object. The product is a condition—a state of perfect, self-sustaining industry, a closed loop where water, light, and steel function as a single, breathing, thinking organism. 
+
+And you are standing inside its chest, listening to its heartbeat, wondering if the quiet hum is the sound of the machines, or the sound of it thinking about you.

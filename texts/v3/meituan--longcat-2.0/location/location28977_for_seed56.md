@@ -1,0 +1,49 @@
+# The Rootvault
+
+You descend through a throat of packed mycelium — walls slick, yielding, cold as meat from a cellar — and the sound finds you before the space does. A low, wet drone, felt in the sternum before it registers in the ears. Not mechanical. Not wind. Something closer to the resonance of a cello the size of a body, bowed by a finger the width of a river. It does not stop. It has not stopped.
+
+The opening widens.
+
+---
+
+You are standing inside a living mass the approximate scale of a cathedral nave, though no cathedral was ever shaped like this. The space is roughly ovoid — perhaps forty meters from end to end, twenty at its widest — but the geometry refuses to hold still. Curves that should be convex seem, from certain angles, to recede. The walls breathe. Not metaphorically. A slow, tidal expansion and contraction, on a cycle you cannot quite time, as though the entire chamber is the interior of some vast and patient lung.
+
+Everything is plant. Not plant-covered. Plant-*composed*. The floor underfoot is a dense mat of interlocked rootlets, pale and hair-fine, woven so tightly they have the give of a firm mattress and the texture of felted wool. It is cold to the touch — profoundly cold, the cold of deep groundwater, of stone that has never seen sun — and water seeps up through it constantly, not pooling but *present*, a film of moisture that never quite becomes a puddle, as though the roots are drinking and weeping in the same instant. The water is glass-clear and carries a faint luminescence, a blue-green so dim it barely qualifies as light, more a suggestion that your eyes are working properly.
+
+The walls are thicker growth — cambium and bark and something that is neither, layered in strata that resemble sedimentary rock until you look closely and see the grain is cellular, the layers are growth rings, and the whole structure is still *adding material*. This is the emerging quality of the place: it is not finished. The walls are still deciding what they want to be. In places, the surface is smooth as skin. In others, it erupts into shelves and brackets of fungal tissue, or hangs with curtains of moss so dense they have the weight and drape of velvet. Everything drips. Everything condensates. The air is thick with moisture — not fog, not rain, but a saturated stillness that beads on your lashes and runs in thin lines down your neck.
+
+The ceiling is lost in darkness and hanging things. Roots descend in bundles, some as thin as wire, others as thick as your arm, and from them hang globes of collected moisture that grow to the size of fists before falling — slowly, slowly — to the floor, where they are absorbed without a splash. The sound of their release and reabsorption is part of the drone. A constant, irregular, liquid percussion, like a thousand tiny bells struck underwater.
+
+---
+
+The light comes from the plants themselves, though "light" is generous. It is more a *lessening* of darkness in certain locations. Patches of moss on the walls emit a faint phosphorescence — the blue-green of deep-sea organisms, the color of Cherenkov radiation. Fungal brackets glow along their gills with a warmer amber, so dim you see it only in peripheral vision; look directly and it vanishes. The overall illumination is enough to navigate by, barely, and to understand that the space is dense with presences.
+
+Because it is. The density is the thing you notice second, after the sound. Every surface is occupied. Every volume is filled. The air itself seems thickened with spores and pollen and the microscopic reproductive bodies of organisms you have no name for — they drift in slow currents, catching the faint light like dust in a sunbeam, except there is no sun, and the currents move in directions that don't correspond to any temperature gradient you can feel. They move *inward*. Everything moves inward.
+
+The fauna is abundant and strange. Things move in the root-mass underfoot — you can feel them, a shifting, a redistribution of weight, as though the floor itself is migrating. Pale, multi-legged forms the size of your hand navigate the wall surfaces with the slow deliberation of grazing animals, their bodies translucent enough to show the dark line of their gut and the slow pulse of a fluid that might be blood. They have too many segments. They move in ways that suggest more legs than you can count. In the hanging roots above, larger things nest — bundled shapes that might be colonial organisms or might be single creatures folded into themselves, their surfaces textured like bark, their breathing synchronized with the walls.
+
+Nothing is aggressive. Nothing flees. The cold has slowed everything to a metabolic minimum, and the organisms here operate on a timescale that makes patience look hasty. A creature on the wall takes fifteen minutes to cross a distance of three centimeters. Its legs move in a wave pattern that is almost, but not quite, like the swimming of a centipede. Watching it, you feel the slow dynamics of the place settle into your own body — your heartbeat seems loud, your breathing seems frantic, your movements seem violent and rushed.
+
+---
+
+And then there is the strangeness, which is not a quality added to the place but the place's fundamental substrate.
+
+The water on the floor flows in directions that are not downhill. It gathers in shallow channels that spiral inward toward the center of the chamber, where a low mound of interwoven root material rises to about knee height. The mound is the focal point. The water flows toward it. The air currents move toward it. The drifting spores converge on it. And the mound is *doing something*.
+
+It is not a structure. It is not built. But it is not natural in any way you can articulate. The roots that compose it are arranged in patterns that repeat at different scales — the same branching motif visible in a root the thickness of your finger and in a root-cord as wide as your torso. The pattern is not random. It is not obviously functional. It is *computational*. The mound is processing something. The water that reaches it is drawn up through the root-cord in a slow pulse — you can see the moisture climbing, defying capillarity, defying gravity — and it emerges at the top of the mound as vapor that is slightly warmer than the surrounding air, carrying with it a faint smell of ozone and something sweeter, something almost like the smell of hot circuits.
+
+This is the technology. Not built. Not manufactured. *Grown*. The mound is a processor. The roots are circuitry. The water is both coolant and data medium. The entire chamber — the walls, the floor, the ceiling, the hanging roots, the fauna, the cold, the wet — is a single integrated system that operates on principles your physics can describe only incompletely. The plants here do not photosynthesize; there is no light to photosynthesize with. They chemosynthesize, drawing energy from the slow oxidation of minerals in the deep groundwater, and they have been doing it for so long — so long — that the chemistry has become *sophisticated*. The molecular machinery inside their cells has been refined by deep time into structures that manipulate electron spin states, that exploit quantum coherence at temperatures where coherence should be impossible, that compute using the interference patterns of water molecules in nanoscale channels.
+
+The mound is thinking. Slowly. On a timescale of seasons and decades. But it is thinking. And the chamber is its mind.
+
+---
+
+The sound is the sound of this thinking. The drone is the resonance of water being pumped through microchannels in the root walls, a billion tiny flows creating a billion tiny tones that merge into a chord that is felt more than heard. It is loud — not painfully, but *immersively*, a sound that fills the space so completely that silence becomes unimaginable. It has harmonics that seem to come from inside your own skull. It has a rhythm that is not quite regular, that shifts and evolves over minutes and hours, that responds — you are almost certain — to your presence. When you move, the chord changes. When you stand still, it settles. When you breathe, it breathes with you.
+
+The cold is essential. The cold is what makes the computation possible. At these temperatures, the quantum states persist longer. The water molecules align. The slow dynamics are not a limitation but a *feature* — the system trades speed for complexity, and what it lacks in processing frequency it makes up for in the sheer density of its architecture. Every rootlet is a wire. Every cell is a transistor. Every spore in the air is a floating bit of memory, carrying information from one part of the system to another on currents that move at the speed of falling mist.
+
+---
+
+You stand in the center of the mound, water spiraling around your ankles, and you understand that you are inside something that is not alive in any way your biology would recognize, but is not dead. It is *becoming*. The erosion parameter — the emerging quality — applies not to rock but to the system itself. It is still forming. The mound is still growing. The walls are still adding layers. The fauna are still co-evolving with the plant-substrate, their metabolisms integrated into the computational whole, their movements part of the processing. The chamber is embryonic. It is a mind that has not yet decided what it wants to think about.
+
+And it is cold, and it is wet, and it is dim, and it is loud, and it is dense with life and strange beyond your frameworks, and it has been here longer than your species, and it will be here after, and it does not know you are here, or it knows in a way that has nothing to do with knowing, and the water keeps rising through the roots, and the chord keeps sounding, and the walls keep breathing, and the slow, slow work of becoming continues.

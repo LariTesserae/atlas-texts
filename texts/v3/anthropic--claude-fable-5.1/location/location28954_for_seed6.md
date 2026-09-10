@@ -1,0 +1,45 @@
+**The Header Garden**
+
+You reach it by the service ladder, which is the only way. The ladder is bolted to the outside of a stack of pressure vessels, each one the size of a grain silo, welded end to end and standing on a base of poured concrete somewhere far below in the haze. At this height the air is thin enough that your fingers ache on the rungs, and the steel is cold, and there is rime in the shadow of every flange. Then you climb through the hatch at the top and the cold ends the way a door closes.
+
+The tank is warm. That is the first fact of it. The water you lower yourself into is the temperature of a body, and you are in it up to your neck before you've thought about whether you meant to be, because the hatch opens straight onto the surface and there is nowhere to stand. Below you the tank continues for a long way. Above you, the domed lid is close enough to touch, ribbed with I-beams, lit through a grid of glass blocks the size of bricks. The light comes down white and cut into squares and then loses its edges in the water.
+
+It is about the size of a small church inside. Round, not long. You could swim across it in twenty strokes if it were empty.
+
+It is not empty. It is full in a way that is difficult to describe to someone who has only seen water full of water. Every cubic foot of the tank has something in it. The something is mostly plant.
+
+---
+
+The vegetation grows from the machinery. That is where it is rooted — not in soil, there is no soil here and never was, but in the gratings and cable trays and perforated plates of the works that fill the tank's interior. There are turbines down there, three of them, on a common shaft; there are penstocks entering through the walls and manifolds of pipe branching off the penstocks; there are catwalks at three levels, ladders between the catwalks, junction boxes, valve wheels, a crane rail bolted under the dome. All of it new. The concrete of the walls is still the pale grey of concrete that has never seen weather, and the tool marks from the formwork are crisp, and the welds on the pipe are bright and have not yet even dulled to the colour of old steel. There is no sediment. Nothing has had time to fall.
+
+And on all of this, in all of this, the plants. They are a single kind, or a single kind that has been made into several. The stems are round and pale green and about the thickness of a finger, with a translucency to them so that where the light strikes one from behind you can see the vascular channels running up it like wiring. They grow in bundles from wherever they've taken hold — a root mass clenched around a bolt head, or a whole rope of them pouring out of the slot in a floor grating — and they rise, straight, toward the light, and at the top they open into leaves. The leaves are round and flat and lie against the underside of the water's surface the way lily pads lie on top of a pond, except from beneath. They press up into the light. Where the light comes through a glass block the leaves have crowded under it so that the block shines green from below.
+
+Between the surface and the machinery, then, is the standing forest: stems in their thousands, close enough to each other that when you sink below the leaves you are in a vertical thicket and must part the stems with your hands to move. They part easily. They are supple and slightly cool to the touch and they close behind you without sound. Looking down through them, you see a green-grey dimness resolved at the bottom into hard shapes: the shaft housing, the rim of a turbine casing, a wheel valve painted red in a red so clean that it startles.
+
+---
+
+There is no animal life. This is not an accident and it is not, yet, a loss. The tank is sealed against it. Nothing comes in but water through the penstocks, and the water is drawn from a long way down and strained twice on the way up. There are no snails on the stems, no larvae in the leaf-shade, no film of small things on the walls. You look for them because you expect them — a pond that warm and that green ought to be alive to the point of seething — and the absence of them is the first thing you'd call strange, though it is not the strangest.
+
+It means that nothing eats. The plants that die — and some do, there are stems gone yellow and slack, leaning on their neighbours — do not get consumed. They soften in the warmth and slowly come apart into threads, and the threads drift and catch on other stems and hang there like wet hair. This is the only decay in the tank and it is very slow. The water is clear to the bottom. You can read the stencilled numbers on the turbine casings from the surface.
+
+It also means that nothing pollinates. The plants have no flowers. Where a stem has reached the surface and pressed out its leaf, a second stem eventually splits off from it a hand's width below the leaf and drops, root-first, back down through the forest, feeling along the catwalks and pipe runs until it finds a slot to take hold in. The colony walks itself along the machinery this way. Cable trays are full of it. Every gap in every grating has a root in it. There are places where you cannot tell whether the plant is holding onto the machine or the machine has been fitted to the plant — where a stem runs along a pipe so exactly, and for so long, that the pipe seems to have been laid down as a trellis, and perhaps it was.
+
+---
+
+The works were made for this. That is the rule of the place, as far as you can make it out. The city — there is a city down there under the haze, you saw its grid on the way up before the cloud closed — lifts its water to this height not for pressure alone but so it can pass through the header garden before falling back. The roots do the cleaning. What comes up the penstocks is grey and full of what a city puts into water; what leaves through the outflow far below has been through several thousand root masses and is clear. The warmth is for the roots. Somewhere in the base of the tank there are resistance coils drawing current up the tower on a cable as thick as your arm, and they hold the water at the temperature roots like best, and the leaves at the surface do the rest with light.
+
+You understand why nothing is allowed in. A fish would eat the roots. A snail would foul the outflow. An insect landing on the glass would be a mote in a system designed to have no motes. The tank is a factory, and the plants are its machinery as much as the turbines are, and it is kept as clean as any works.
+
+---
+
+It is very quiet. The water takes care of that. Sound down here comes as pressure against the chest rather than anything in the ear. There is a hum from the coils — you feel it in your teeth when you rest a hand on the shaft housing. Once, at some interval you cannot predict, a check valve somewhere in the manifold seats itself with a knock that comes through the whole tank like a single struck note, and the stems nearest it sway, and then the quiet closes back. When you push through the forest, the stems release from their leaves a fine train of bubbles, very small, that climb and gather under the leaf-canopy and merge and then find the edge of a leaf and slide out and tick against the glass blocks of the roof. That ticking is the loudest thing that happens.
+
+And it is slow. The turbines are turning — you can see the shaft moving if you watch the paint stripe on it — but at a speed that makes them seem stopped, a revolution every several minutes, the blades moving through the forest without cutting it, the stems leaning aside for each blade and standing back up after. The water level rises and falls with the city's day, but the whole excursion is a hand's breadth and it takes twelve hours, and the leaves at the surface follow it up and down without ever leaving the underside of the light. The colony walks. A root you watch for an hour has not moved. The root you watched yesterday has crossed the catwalk.
+
+---
+
+The strangeness, in the end, is in the fit of it. Everything here is made — the walls, the water, the warmth, the light in its square grid — and the plants are the most made thing of all, bred to a purpose, planted onto machinery, not one of them growing where it was not intended to. And yet they have overgrown the intention. They have taken the tank so completely that the machinery reads as understory. The turbine casings are green. The red valve wheel is the one place your eye can land where the works are still visible as works. The header garden was designed to be a filter with plants in it and has become a forest with a filter in it, and the plants seem, in their patience, to know this.
+
+You float at the surface with your face in the light, and the leaves press up around you into the glass, and each one is exactly the width of the square it has chosen, and you cannot decide whether they were bred to that or grew to it.
+
+Below you, in the warm and the clear and the quiet, a root you cannot see is crossing another catwalk.

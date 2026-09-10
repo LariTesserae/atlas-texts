@@ -1,0 +1,27 @@
+The water here does not fall; it holds. 
+
+It is an elevated ocean, a drowned highlands miles above the low basin of the world, where cold, ink-black water rests upon a chain of submerged basalt mountains. The depth is vast, but the sea floor is not a flat abyss; it is a landscape of sharp crests, saddle-passes, and hanging valleys, all submerged beneath hundreds of fathoms of freezing, heavy brine. 
+
+At this altitude of stone, the water is close to freezing, dense with dissolved iron and glacial flour that catches no light, for light barely reaches this place. At midday, the sky above the surface—if there still is a surface—yields only a faint, bruised indigo smudge, a ghost of illumination that dies a hundred feet down. Below that, the world is black, navigated not by eye but by pressure, resonance, and the violent drag of currents.
+
+Yet the dark is choked with growth. 
+
+Without a single fin, shell, or polyp to graze them, the plants have taken over the drowned ridges in a dense, silent riot of cold-water biomass. Great forests of *gland-kelp* root themselves in the basalt. Their trunks are as thick as ancient oaks, hollow and ribbed like throat-pipes, rising two hundred feet toward the dark before curling into broad, rubbery ribbons of deep purple and brown. The kelp does not drift idly; its air-bladders are pressurized, groaning under the weight of the water, snapping taut whenever the deep surge shifts.
+
+Beneath the canopy, the rock is buried in *iron-moss*—a wiry, carpeted turf that feeds on the mineral-rich waters leaking from thermal fissures in the valley floors. Long, pale tendrils of glass-reed grow in dense clumps along the sharp margins of the passes, their stalks hollow and calcified, standing rigid against the force of the flow.
+
+The sound is immense. Water in a closed, high-elevation basin under immense pressure carries sound with terrifying clarity. The ocean here is never quiet. The main current—a freezing, brine-heavy river that cascades over the high western ridge every four hours—roars like a continuous avalanche through the drown-valleys. As this wall of water hits the forests of glass-reed, the reeds vibrate, producing a screaming, metallic chime that echoes for miles through the dark. The gland-kelp adds a low, wet booming as its pressurized trunks compress and expand against the current, sounding like the rhythmic beating of a hundred leather drums deep underground.
+
+Every surface is weathered by this relentless movement. The basalt peaks, once jagged volcanic horns, have been ground down into smooth, muscular curves. Where the water cuts through narrow gaps in the stone, it has carved deep, polished flutes and spirals into the rock—natural pipes that whistle in low, mournful register as the tide pulls through them.
+
+Sparse marks of hands—or something like hands—remain anchored to the stone. 
+
+They are scattered thin, miles apart, swallowed by the darkness and the kelp. On a flat shelf overlooking a drowned gorge sits a ring of heavy basalt blocks, each three times the height of a man, roughly chiseled and bound together with thick, pitch-coated ropes woven from reed-fiber. The stone is not mortar-bound; it is notched, tongue-and-groove, held by weight and precision against the tearing current. Inside the ring, anchored to the bed with wedged flint pins, are the rot-resistant frames of simple wooden racks—primitive drying or soaking hurdles, long abandoned, now thickly draped in pale, translucent fungi.
+
+Further up the ridge, where the glass-reeds grow thickest, a path has been cleared by hand. The basalt has been struck away with hammerstones; chipped fragments still lie in heaps in the lee of the ridge, their edges dulled by centuries of water-wear. Along this path stand stone pylons, each wrapped in hand-plied cordage that trails off into the dark, leading to simple timber-frame shelters pinned beneath boulders. These structures are low, streamlined against the surge, constructed from heavy, unshaped pine logs brought down from some long-flooded shore or hauled up from an ancient line of frost-stunted coastal forest before the deep water came. 
+
+There are no metals here. The tools left behind in the crevices—a hafted flint scraper wedged beneath a pylon, a heavy stone mallet with a grove worn into its waist for a cordage grip—are primitive, built for leverage and survival against the crushing cold and weight. They speak of a people who worked in the dark, submerged, feeling their way along the ropes from pylon to pylon, harvesting the mineral-crusted moss or the thick, oil-rich sap of the gland-kelp before the cold took their limbs.
+
+The landscape is in constant, biological and hydraulic motion. It does not sleep. The temperature stays near zero, but the water is kept from freezing by the sheer volume of its salt and the steady, violent friction of its own movement. Every few hours, the thermal vents in the deep saddles belch plumes of superheated, sulfurous water that rise like dark, shimmering pillars through the freeze. When these warm plumes strike the ice-cold canopy of the kelp forests, the plants respond with a slow, muscular writhing—their leaves curling tight to trap the heat, then unfurling with a sharp, wet *slap* as the water cools again.
+
+It is a world built of cold weight, stone, and water-driven music, self-contained and indifferent, where the plants grow thick as timber in the pitch-black, nourished only by the iron in the rock and the thundering roar of the drowned mountain pass.

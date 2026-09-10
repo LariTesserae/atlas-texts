@@ -1,0 +1,21 @@
+This is the Basin of the Hissing Stone, a low-slung, regional depression that stretches for hundreds of miles beneath a permanent ceiling of thick, low-hanging smog or perhaps a literal subterranean roof of smooth, water-worn basalt. 
+
+The light here is a heavy, velvet void. There is no sun, no moon, and no stars. What little visibility exists comes from the friction of movement—tiny, heat-generated sparks or the faint, sickly phosphorescence of crushed mineral salts. It is a world of cool, damp surfaces. The air carries the weight of a cellar, smelling of wet flint and the sharp, metallic tang of ammonia. 
+
+The terrain is a masterpiece of erosion. Because the scale is so vast and the elevation so low, the land doesn't jaggedly rise; it rolls in long, ancient swells of dark, polished stone. There are no trees to break the wind, no roots to hold the soil, because there is no soil. Instead, the ground is a continuous sheet of weathered, non-porous rock, slick with a perpetual film of condensation. In the low troughs of these stone swells, water collects in shallow, stagnant veins—not quite rivers, but long, interconnected capillaries of moisture that seep through the cracks of the world.
+
+But the silence one might expect from such a desolate, plantless waste is entirely absent. The air is thick, not with wind, but with a sound that is physical, a roar that vibrates in the marrow of the bone. It is the sound of the fauna.
+
+In this world, life has bypassed the need for photosynthesis. There is no green, no bark, no leaf. Instead, the biology is overwhelming and dense, a literal carpet of animal presence that covers the stone from horizon to horizon. They are the "vegetation" of this place, though they are anything but stationary. 
+
+Billions of small, chitinous entities—some the size of a finger, others the size of a shield—are layered ten or twenty deep across every square inch of the basin. They are like a living tide of obsidian-colored beetles, or perhaps soft-bodied, multi-limbed mollusks that have traded shells for speed. They do not walk so much as they flow over one another in a constant, churning cycle of migration. The density is so high that the actual ground is rarely visible; you see only the undulation of their backs, a sea of twitching antennae and rhythmic, pulsing vents.
+
+The noise is a cacophony of scraping carapaces, rhythmic clicking, and the collective wet slither of a billion bodies moving at once. It is a white noise so loud it ceases to be a sound and becomes a pressure, a constant hum that makes the damp air feel like it’s vibrating. 
+
+The ecology is a closed loop of frantic, predatory energy. Without plants, the food chain is a recursive nightmare. The creatures at the bottom of the pile scrape the microscopic mineral films and fungi-analogs from the damp stones, while the layers above them feast on the layers below. The "dynamic" of the place is a perpetual, shifting struggle for the uppermost position—a literal climb toward the cool, moist air. 
+
+Intermittently, a "weather event" occurs not in the sky, but in the swarm. A collective impulse will seize a region of the basin, causing a sudden, violent surge in movement. A wave of bodies will rise up like a cresting breaker, three or four meters high, only to collapse back into the roiling mass as the creatures scramble to stay atop the heap. 
+
+There is a strange balance here. The erosion of the stone is not caused by wind or heavy rain, but by the trillion tiny feet and bellies that have polished the basin into a mirror-smooth bowl over millions of years. The moisture doesn't fall from clouds; it exhales from the bodies of the swarm, condenses on the cold ceiling above, and drips back down in a slow, rhythmic weeping.
+
+It is a world that is finished. There are no tools, no ruins, no signs of a mind that builds. There is only the damp, the dark, and the deafening, endless crawl of a biology that has filled every available atom of space with itself. To stand in the Basin of the Hissing Stone would be to feel the very earth beneath you heaving with a hungry, mindless breath.

@@ -1,0 +1,31 @@
+It's not on any plan. You find it by going down past where you're supposed to go.
+
+Three ladders down from the factory floor, past the boiler room that hasn't been warm in years, there is a steel door with no handle on your side, only a wheel. It opens inward onto a space no larger than a pantry. You have to duck. When you're inside you can touch both walls if you spread your elbows. The ceiling is low enough to graze your hair. Above you is the weight of the whole works — concrete, earth, machine beds, winter — pressing down in a cold you feel in your molars.
+
+Everything here is made. There is no ground. No rock, no dirt. Floor, walls, ceiling are poured concrete sealed with grey-green paint, and over that, a second skin of things: pipes, conduits, cable trays, junction boxes, lagging, brackets, bolts. The room is a knot. Copper and black iron and PVC run within an inch of each other, layered, crossing, doubling back. Valve wheels at knee height and at cheek height. A pump squats in the corner like a heart, its housing sweating. You cannot take a step without turning sideways. You cannot extend an arm without brushing metal so cold it sticks.
+
+The air is cold enough to see. Your breath comes out and hangs. It smells of cutting oil and ozone and wet cement. This far down the cold is not weather, it's a condition — it lives in the concrete, radiates off the steel plate of the floor. The pipes carry something colder still, and where the warm damp air of the shaft above leaks in, it dies on contact.
+
+That's the water here. Not a river, not a flood. A permanent damp. Condensation beads on every horizontal run and swells until it is heavy enough to fall. Intermittent rain in miniature. Plink. Plink. From a flaking elbow joint overhead, a slow leak ticks into a square drain set in the floor — never enough to pool, just enough that the drain never dries, its grate black and glistening. Along the north wall, where two concrete pours meet in a cold joint, seepage noses through and darkens the paint in a map that grows an inch a day and retreats at night. Frost feathers on the coldest pipe in white rime, melts when the pump cycles, re-forms an hour later.
+
+The light is poor and comes from one place: a caged bulkhead lamp over the door, amber, wired to something else so it breathes. It doesn't go out, it sags — bright enough to read a gauge, then dimmer for a long minute, then back. In the dim intervals the shadows between pipes go solid. The one small LED on the pump controller stays green, unblinking, the only steady thing.
+
+Nothing here is worn smooth. This is new geology learning how to be old. The concrete was poured raw and recent — you can still see the wood grain of the formwork in it, the sharp burr along the edge of the stair nosing, the bright bead of welds that haven't had time to rust. And on top of that newness, a second, embryonic erosion is starting. At the lip of the drain, a fringe of calcite, no longer than eyelashes, white and translucent, where dissolved concrete is re-precipitating itself. Tiny stalactites, three or four millimeters long, beginning under a pipe hanger. The paint is blistering in one spot the size of a coin into a rust-bloom that will, in a decade, become a hole. You are watching the first minute of decay, the moment a built thing starts to become a cave.
+
+It is crowded, but not with animals. There is nothing alive here that moves. That's the first strange thing you notice after the cold: no spiders in the cable tray, no silverfish, no mice, not even the husks of flies in the lamp cage. The poison of oil and constant freeze-thaw and the sealed-ness of it has edited them out. In their absence, other things have taken the space.
+
+Sparse, pale green life. In the seam where condensation always runs, a strip of moss, dark olive and black, holds on in a line no wider than your thumb. On the floor under the pump, where a drip of warm condensate keeps one square inch above freezing, a cluster of etiolated sprouts — potato eyes from somewhere above, maybe, washed down — white stalks with tiny yellow leaves that have never seen sun, reaching toward the bulkhead lamp. And fungus: a flat, beige ear growing out of a lagging seam, and a dusting of white mold on the back of a valve tag where your fingers will never quite wipe it away. It does not spread fast. It pulses with the pump, with the wet-dry cycle. It is an ecosystem pared down to what can live on paint and breath.
+
+The room is active even when quiet. Mostly it is quiet — so quiet you hear your own jacket creak. Underneath, a 60-cycle hum from the conduit, felt more in the sternum than heard. Then processes interrupt: the pump kicks with a clunk that you feel through your boots, runs for ninety seconds with a labored whine, shudders off. A solenoid somewhere ticks as it cools. Metal pings as it contracts. A drop gathers, swells, falls. The lamp sags. The moss does nothing you can see and everything, slowly.
+
+The strangeness is not loud, which makes it harder to point to. It's that condensation on the coldest pipe runs *up* a little before it runs down, creeping against gravity along the rime toward a weld. It's that the room feels fractionally larger when the lamp is dim — as if the walls inhale when you aren't looking. It's that the two valve wheels — one red, one black, at opposite corners — are warm to the touch in a room where everything else burns cold, faintly warm like skin. The tags wired to them are blank on both sides.
+
+Rules emerge quickly, the way they do in made places:
+
+Crouch. Standing will crack your head and it will be loud.
+
+Don't lean your bare skin on pipe. It will take skin with it.
+
+Don't turn the warm wheels. Not because of a sign — there is no sign — but because the pump's rhythm stutters whenever your hand hovers near them, as if listening.
+
+Keep moving your fingers. Keep your breath shallow. This pocket was not built to hold a person for long, only to hold pipes apart for a little while. It lends you its damp, its dim, its cold, and then it wants you back up the ladder, back into the scale of humans, leaving the drip to gather and fall, gather and fall, building its tiny white geology grain by grain in the dark.

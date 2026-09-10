@@ -1,0 +1,47 @@
+To walk among them is to understand that the human body here has been shaped by friction, balance, and perpetual saturation.
+
+The people of the gorge—the *Plank-born*, as they call themselves in distinction to the scattered lowlanders—are broad through the shoulder and short in the thigh, built with a low center of gravity that makes their movement across the flexing bridges appear almost rolling. Their feet are their primary instruments: wide, splayed, and permanently stained a deep, tannic umber from the ironwood roots and cedar resins. The soles are calloused to the thickness of cured hide, deeply ridged to grip wet, algae-greased timber without slipping. Most go barefoot from childhood until the deep winter frosts, and even then, they favor split-toed overshoes made from boiled wool and stitched river-otter belly, coated in rendered tallow so thick it smells of cold mutton fat.
+
+Because the air is a relentless aerosol of river-spray and mountain mist, their skin carries a distinct, pale, water-cured quality, yet it is rarely soft. They rub their faces, necks, and forearms daily with *moss-butter*—a waxy compound beaten from cold-pressed mountain nuts, cedar pitch, and the fat of deep-pool eels—to keep the damp from splitting their knuckles and rotting their cuticles. Their hair is worn bound tight in braids coiled against the back of the skull, tucked under grease-stiffened caps of split rush to keep canopy-drip out of their eyes.
+
+Their clothing is an exercise in layered resistance. Against the skin, they wear beaten inner-bark cloth—soft as flannel, peeled from water-soaked mulberry limbs and pounded with ribbed bone pestles until the fibers mesh into a warm, porous felt. Over this, they drape heavy tunics of unwashed, greasy wool that naturally sheds the high mist, belted with thick bands of woven hemp studded with copper toggles and bone hooks. From these belts hangs the kit of daily survival: a short-handled, gouge-edged adze for shaving off slick mold; a bone pry-chisel for testing deck-planks; a grease-horn filled with seal-lard or suet; and long coils of braided fig-sinew used to lash slipping ladders back into the living boles.
+
+They do not live as an undifferentiated mass; their society divides itself along the vertical grain of the chasm.
+
+### The Canopy Watch and Flume-Tenders (The Upper Tier)
+At the highest levels, where the cedar boles taper and the light is a blinding, fogged silver, live the *Chute-Keepers* and the *Wind-Seers*. These are lean, light-framed men and women whose skin is perpetually wind-chapped and weathered. They spend their days hanging in rope harnesses over the open drop, tending the great cedar flumes that capture the mountain springs. They know the sound of every joint in the aqueduct network; they can tell by the pitch of a timber’s creak whether a flash-melt is swelling upstream or if a boulder has wedged in an intake chute five hundred feet above the town. They are solitary, taciturn, and move with a quiet, hanging gait, their fingers perpetually yellowed from handling the sulfurous caulking pitch they burn in iron pots hung from their girdles.
+
+### The Deck-Stallers and Bark-Beaters (The Mid-Tier)
+In the wide mid-volume of the gorge—where the platforms span thirty feet across and the living figs are at their thickest—the bulk of the populace thrives. Here are the weavers, the tavern-keepers, the crab-mongers, and the families. 
+
+The domestic life here is communal and loud. Because hearths cannot sit directly on wood, every kitchen rests in a hanging cradle of slate slabs bedded in river clay. Around these hearths, families huddle over wide, shallow pots of *swill-broth*—a thick, steaming porridge made from fermented alpine tubers, bitter river-cress, and the salted roe of high-cascade trout. They drink weak, smoky ale brewed from spruce needles and wild oats, ladled from scorched wooden piggins that pass from hand to hand. 
+
+The rhythm of the women and young men is dictated by the bark-logs: four or five will sit in a row on a single cedar trunk, beating long strips of wet bast with synchronized mallet-strikes, singing rhythm-chants that cut clear through the roar of the water to keep their cadence true.
+
+### The Sump-Crews and Winch-Hands (The Lower Tier)
+Deep in the shadow-realm near the roar of the chasm floor, where the sun never strikes and the spray is thick enough to drown a candle, work the *Sump-Crews*. These are massive, dense-muscled laborers who operate the grease-capstans. They haul up river-driftwood, slate slabs for hearth-beds, and giant wicker cages filled with black river-crabs trapped in the bottom eddies. 
+
+They are deaf or half-deaf from the unceasing thunder of the gorge’s base, communicating in an intricate sign-language of abrupt hand-slaps and rope-tugs. They wear broad aprons of oil-tanned hide and live in perpetual steam, their clothes smelling of cold silt, chimney-soot, and iron. They are the strongest among the folk, sustained on rations of dried mutton, tallow cakes, and raw, salted tubers that they chew like plugs of tobacco to stave off the river-cramps.
+
+---
+
+### The Animal Companions and Co-Dwellers
+
+Humanity does not hold the gorge alone; they are woven into a dense, noisy ecology that has reshaped itself around the timber platforms.
+
+*   **The Grip-Hounds (Tether-Dogs):** Small, barrel-chested, and dense, these dogs are bred with unusually broad, webbed paws and thick, splayed claws that work like crampons on wet wood. They do not run free—the drop is too absolute—but are tethered by long braided hemp leads to iron rings set into the platform studs. They are bred to scent wood-rot before it becomes visible, whining and scratching at planks where fungal mycelium has begun to soften the timber beneath the moss. At night, they sleep piled together across the doorways of the dwellings, their oily, double-layered coats acting as draught-stoppers against the cold up-drafts from the gorge floor.
+*   **The Brush-Tailed Civets (Roof-Scampers):** Known locally as *Gutter-Thieves*, these are long-bodied, cat-sized arboreal carnivores with banded fur the color of wet lichen. They were never formally domesticated; rather, they invaded the thatch when the first platforms were lashed together centuries ago. They are tolerantly endured because they hunt the fat mountain mice and moisture-beetles that chew through the load-bearing vine lashings. They are insolent and bold, skittering over the heads of sleepers in the rafters, dropping down to snatch fish heads from chopping blocks, and hissing with arched backs if cornered by a child with a broom.
+*   **The Under-Deck Swifts:** Beneath the living floorboards, in the warm updrafts rising from kitchen-hearths and the shelter of the structural beams, live tens of thousands of chimney-swifts. To lie on a sleeping mat in the gorge is to feel, through two inches of pine planking, the continuous, vibrating flutter of nesting wings and the soft, dry chirping of fledglings. The people harvest their guano systematically, scraping it from slung canvas catchers beneath the walkways with long ash-poles to feed the platform garden-troughs, where pale cabbages and mustard greens grow in soil made almost entirely of bird dung, crushed leaf-mold, and wood-ash.
+*   **The Bromeliad Frogs:** Massive, heavy-thighed, and bright as wet jade, these frogs live in the giant, water-filled leaf-cups of the epiphyte colonies clustered around the tree joints. The townspeople value them as natural barometers; when the gorge air thins before a severe mountain gale, the frogs’ rhythmic croaking drops an octave and doubles in tempo, a sound like hundreds of wet wooden drums echoing off the rock faces. Children are sent to scoop their jelly-like egg-masses out of the cisterns, using the clear slime as a burn-salve and a friction-reducing lubricant for the smaller flume pulleys.
+
+---
+
+### The Cycle of the Days
+
+There are no clocks here, only the passage of light through the mist and the changing tone of the water chutes. 
+
+In the grey dawn, the city wakes to the sound of clearing flumes—the wet, hollow *thump* of pole-shovels dislodging accumulated leaf-rot from the upper water-gates. Smoke rises from hundreds of clay hearths at once, turning the chasm into a single, vertical chimney until the cold air catches it and washes it out through the notch. 
+
+Children learn to crawl with short tether-harnesses looped around their middles, tied to eyelets in the doorposts; they learn the boundary of the drop before they learn to speak. A child of five knows never to put their weight on a grey-grained plank, how to test a vine by kicking it before trusting their ribs to it, and how to hold a lantern low so the mist doesn't blind them with its own glare.
+
+When an elder dies, they are not buried in the stone that cannot be dug, nor given to the water that feeds the drinking cisterns. They are wrapped in three layers of beaten cedar-bark, stitched with green willow withes, weighted with river slate, and lowered by the great bottom-winches down into the deepest, inaccessible rapids of the gorge floor—carried away by the same cold water that, hours earlier, had poured through the roof-eaves above their head, keeping the continuous, splashing circuit of the settlement unbroken.

@@ -1,0 +1,21 @@
+The air is so heavy with black, unheated moisture that it presses against the skin like wet wool. Up here, on a plateau slung between sheer tectonic spines, the cold is sharp and static—a chemical freeze that ought to turn the world to ice, yet the water refuses to freeze. It is too saline, or too heavy with dissolved conductors, or kept liquid by the low-frequency hum running through the foundational struts. It clings to every surface, weeping down vertical faces in sheets that never slacken.
+
+There is virtually no light. A pale, dead infrared bleed, undetectable to human sight, exists only as a subtle warmth against the eyeball. What is visible must be deduced by proximity and touch: matte-black structural facets, impossibly sharp, unbuffed edges, and the slick, restless heave of thousands of bodies.
+
+This is a city, or something that obeys the logic of a city, though it has never seen a resident of the kind that drew its blueprints. It is newly cast. The surfaces—curved pylons of zero-gauge fullerene, ribbed gutters that span kilometers, terraces stepped into the high-altitude void—have no patina. There is no dust, no sediment, no rounded weathering. The corners are fresh enough to shave bone. It feels extruded rather than built, cooled only hours ago from some high-order mathematical print, yet it stretches across an entire upland basin, dense and stacked five tiers deep. 
+
+And it is absolutely devoid of anything green. No mold clings to the joins; no spore has drifted into the expansion joints. The architecture is pure, dark geometry, dripping with cold runoff.
+
+Yet it is suffocatingly crowded.
+
+The sound arrives first: a deafening, continuous roar that is only half water. The rest is respiration, the friction of hide against composite, the clacking of blind mandibles, and the wet, heavy thud of tails and flippers dragging over wet floorplates. The fauna here is not a scattering of scavengers; it is an ocean of mass that has crawled upward to inhabit the fresh steel.
+
+They are large, pale, and slow. They pack the thoroughfares shoulder-to-shoulder, wedge-headed organisms three meters long, their skins thick, leathery, and perpetually greased by glandular secretions that bead the cold runoff into pearls. They move with the patient, unhurried torque of abyssal fish or cavern-dwelling salamanders, nudging against each other in the pitch darkness. Their breathing is a rhythmic, amplified hiss through venting spiracles along their flanks—hundreds of thousands of them exhaling in staggered unison, churning the condensing fog into a thick, lukewarm broth that hangs suspended above the street canyons.
+
+Where the city’s engineering meets this biological tide, weird interactions occur. The structures possess subtle field-effects: invisible gradients that occasionally lift sheets of weeping water into mid-air, suspending them as quivering, meter-thick ribbons before releasing them back into drainage troughs. The pale herds know these null-zones. They crowd beneath them, letting the displaced water wash over their hairless backs, vocalizing in low, chest-rattling pulses that resonate through the graphene flagstones.
+
+The scale is vast, regional, but there is no horizon to be seen. You sense the open drop-off only by the cold draft that cuts upward from the valley floor far below, carrying the smell of wet minerals and ammonia. To step along a parapet is to brush constantly against living flank: rubbery, frigid flesh, wet with non-freezing brine, vibrating with internal digestive rumbles. 
+
+Nothing moves fast. The cold enforces a vast, ponderous tempo. A single creature may take an hour to crest a terrace stair, its blunt claws searching out the virgin corners of the steps, clicking loudly, water gushing between its digits. Behind it, hundreds more wait in the mist, blind snouts raised, tasting the acoustic spill of the city’s drainage channels. 
+
+The water keeps falling, condensed out of an atmosphere that seems incapable of holding it, slicking the raw, unaged city, while the crowd of blind, heavy things shuffles endlessly through the dark corridors, deafening, slow, and entirely at home.

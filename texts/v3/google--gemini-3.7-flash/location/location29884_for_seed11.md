@@ -1,0 +1,25 @@
+The world here has been hollowed out from below and sheared down from above, leaving behind an open, vertigo-inducing vastness where matter is the exception and empty air is the rule. 
+
+Stretching across an expanse of dozens of leagues, giant solitary spires—the *Coriath*—rise thousands of meters into the warm troposphere. They are not jagged or young; millions of years of ferocious wind and mist have smoothed them into skeletal, parabolic spindles of ancient, iron-stained gneiss. The stone is rounded like river pebbles, but on a cyclopean scale. The rock is riddled through with natural flutes, boreholes, and smooth caverns, eaten away until the spires resemble vast, upright bones left to dry in the sky.
+
+Between these spires lies nothing but sheer drop: kilometers of blue, mist-filled void that plunges down into an unseen, sun-warmed abyss where the floor of the world has long since dropped out of sight.
+
+The sound is immense, relentless, and all-consuming. It is a deafening roar, though not of thunder or water, but of air forced at staggering velocities through the perforated anatomy of the ancient stone. The wind never ceases; it charges out of the void in chaotic, boiling updrafts, striking the hollowed pillars and turning the entire region into a monumental, screaming instrument. Bass tones vibrate through the marrow of the rock so violently that loose pebbles hum off the ledges, while higher registers shriek and whistle through narrow apertures like steam venting from a broken boiler.
+
+Yet, despite the violence of the air, the climate is balmy and damp. The roaring updrafts carry rich, warm moisture from the unseen depths below. It does not fall as steady rain, but gathers in intermittent, drenching condensations. Fog forms and tears apart in seconds; heavy, warm dew coats every surface, running in quick rivulets along the leeward channels of the stone before being ripped into mist by the gale.
+
+Against all intuition, life here is intensely lush, though it has evolved to endure perpetual kinetic fury. The leeward sides and sheltered ribs of the spires are smothered in deep, emerald-green tapestries of felted bryophytes, thick-veined succulent vines with tensile strength like braided wire, and massive hanging bromeliad-like bladders that catch condensation in deep, swashing pools. Broad, rubbery fronds flex and whip without snapping, anchored into the deep porous boreholes by root systems that have fused with the stone itself. Ferns with translucent, oily leaves mat the cavern mouths, drinking the mist that boils constantly over the lip of the precipices.
+
+Solid space is rare, but where rock exists, it is densely colonized. The vastness between the pillars, however, is almost entirely empty. A traveler looking out from a sheltered rock cleft sees miles of empty, sunlit atmosphere, punctured only here and there by the next curving, green-sleeved pillar swaying imperceptibly against the clouds.
+
+Animal life is sparse, almost ghostly. Occasionally, in the vast gulfs between spires, one can glimpse a *drifter*—a creature that is mostly skin and cartilage, broader than a ship’s sail, riding the violent thermals without moving a muscle, circling endlessly in the updrafts before vanishing into a boiling cloud bank. Tiny, blind, six-legged salamanders with suckered pads crawl through the moss carpets inside the rock tunnels, entirely indifferent to the roaring gale outside.
+
+Human presence is faint, primitive, and defensive—remnants of a people who lived in terror of the open air. High inside the wind-hollows of the central spires, far back from the sheer edge, are scattered signs of manual survival: 
+- Rows of fire-hardened wooden pegs driven into fissures to form crude vertical ladders.
+- Faded, ochre handprints blown onto smooth granite walls using hollow reed pipes.
+- Frayed, weathered basket-bridges made of hand-twisted vine rope, anchoring across narrow clefts, vibrating so hard in the draft they look double.
+- Occasional platforms constructed from lashed, buoyant timber wedged into the stone throats of caves, weighed down by heavy river-stones hauled up from some forgotten era.
+
+There are no settlements, only perches. A solitary stone hearth, cold and blackened, protected from the gale behind a low, dry-stacked rock wall; a broken flint scraper wedged in a damp crevice; a bundle of dried, fibrous moss kept dry in a bladder sack hung from a bone hook. 
+
+The light is bright and clear—normal daylight, but constantly animated by the violent speed of the clouds. Shadow and sun race across the massive green-and-grey spires at terrifying speed, transforming the landscape every few heartbeats. One moment a spire is an emerald monolith blazing in warm sunlight; the next, it is swallowed by a rushing wall of grey condensation, only its deep, vibrating moan remaining to prove it still stands in the void.

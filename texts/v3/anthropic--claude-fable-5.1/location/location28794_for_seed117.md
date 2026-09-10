@@ -1,0 +1,55 @@
+The first thing is that the ground is never quite ground. You come down a ramp of cut stone that has slumped into a slope, and about halfway down the slope the cut edges of the blocks go dark and stay dark, and after that every surface is wet. Not flooded. Wet the way a cellar wall is wet, the way the underside of a stone is wet when you turn it over. The rock sweats.
+
+It is a pit, roughly the size of a large barn if the barn had been dug downward instead of built up. You can see the whole of it from the rim: an oval floor perhaps forty paces across, walls that rise unevenly to head height on the near side and twice that on the far, where the old seam was followed deeper before whoever was following it stopped. The sky is a lid of low cloud that has not moved in a way anyone would notice. The light that comes down through it is grey and even and has no direction, so nothing casts a shadow, and the wetness on the walls does not shine so much as deepen.
+
+The walls are layered. That is the first strangeness, though it is only geology: bands of a pale clay-stone the colour of old teeth alternating with thinner bands of something dark and slightly glassy, and between them, where the two meet, a seam of rust-orange that has run down over everything below it in long streaks and fans. The orange is where the water comes out. All along the pit, at each of these junctions, the rock weeps. Some of it drips. Most of it just films, a slow constant sheeting that you can only see by the way it moves the light, and by the way, if you put your hand flat against the wall, the water finds the gaps between your fingers and runs around them.
+
+The floor holds what the walls give. It is not a pool — the water is nowhere deeper than your ankle, and in most places it is only a skin over mud the colour and consistency of wet ash. But it is everywhere, and it is all connected, and it moves. Very slowly, from the high wall toward the low, in a current you would not believe existed if you did not watch a fleck of something float for a full minute and see it travel the length of your forearm. At the low end there is a grating.
+
+---
+
+Nothing grows here. It takes a while to notice this, because the walls are so covered — but what covers them is not plant. There is a sheen on the clay-stone that in places thickens into a skin, pale and faintly yellow, like the inside of an eggshell, and in other places a dark velvety mat that feels, if you touch it, like the nap on a billiard table gone cold and damp. Neither is green. Neither reaches for the grey light. They live on what the wall gives them, which is water and iron and the sulphur that you can smell faintly under the wet-stone smell, a whisper of struck match. They are the bottom of everything here. Everything else eats them, or eats what eats them.
+
+And everything else is numerous.
+
+At first the walls seem simply textured. Then a texture moves. Then you understand that the wall is not textured at all, that what you took for the grain of the rock is a population — small conical shells, each no bigger than a fingernail, in a dull spectrum from bone to rust to near-black, and they are packed so close on the weeping bands that their edges touch. Thousands. Tens of thousands, on this one wall. They sit on the film of water and rasp the yellow skin off the stone and their movement, when they move at all, is the movement of the hour hand. Where the water runs thickest they crowd in three and four layers deep, shell on shell, the ones underneath dark and old and the ones on top paler, and the whole mass creeps, over a day, a hand's breadth toward the seep.
+
+Below them, in the ash-mud, something else: pale segmented things the length of a finger joint, blind, with a fringe of legs, that lie half-buried in their hundreds and lift their heads when the current brings them something. Between the shells, wedged into the cracks in the glassy bands, flat creatures like living coins, grey-blue, that never seem to move but are never in quite the same place. In the water at the low end where it gathers before the grating, a haze of something almost too small to see, a swarm that turns the shallow water faintly cloudy and parts around your boot and closes again behind it. And there are hunters. Long, thin, near-transparent, hanging in the water with their heads toward the current, and you only know one has struck when the cloud of small things suddenly has a hole in it.
+
+It is very quiet. The water makes almost no sound — a drip, at long intervals, from the high wall, where a stalactite of orange crust has formed under the worst of the seeps and has been forming for long enough to reach halfway to the floor. And under the drips, when you stand still, a sound like distant rain on gravel that is not rain and is not distant. It is the shells. Ten thousand tiny mouths rasping stone. It is the sound the pit makes when it is left alone.
+
+---
+
+The built things are few and old and most of them are being eaten.
+
+Along the north wall there is a line of iron rings set into the clay-stone at the height of a man's shoulder, and from the rings hang the last of a chain, each link the size of a fist, red-brown, feathered with corrosion. The shells have colonised the chain. It hangs in a curve heavy with them, and where they have been longest the iron underneath is gone and only the shape of it remains, a chain made of shells holding the memory of a chain.
+
+There are stumps of timber at the corners of the floor, black, that must have held a walkway or a hoist. There is a stone trough, cracked, half-full of the same water as everything else, in which something has laid a mass of small pale eggs like a handful of tapioca.
+
+And at the low end, above the grating, there is the engine.
+
+It is not large. It sits on a plinth of dressed stone the size of a table, and it is mostly a wheel — a cast iron wheel with curved iron cups around its rim, mounted over a channel where the floor-water gathers and narrows before it goes down through the grate. The water fills a cup. The cup drops. The wheel turns a quarter turn, with a sound like someone setting down a heavy book, and the next cup fills. It takes about a minute. From the wheel's axle a rod goes up into a housing of riveted plate that has rusted to the colour of the seeps, and from the housing another rod goes down through a hole in the plinth and into the ground, and somewhere under the floor of the pit something moves in answer, and you can feel it, a slow soft thud through your boot soles, a minute after each turn.
+
+It is a pump, or it was one. It was built to drain the pit and it is driven by the water it was built to remove. Whether it still moves any water anywhere is impossible to say. The floor stays at the same depth. The seeps keep seeping. The wheel keeps turning, a quarter turn a minute, fed by the pit, and if the pump still pumps then it is pumping the pit into itself, and if it doesn't then it is simply a clock, and the pit is winding it.
+
+The shells have not touched the wheel. This is worth noticing. They cover the chain, the trough, the timber stumps, the very plinth the engine stands on — but the iron of the wheel itself, and the housing, and the rods, are only rusted, bare, and the water that runs off them runs clean. Whatever comes out of that iron, the shells will not eat. Around the base of the plinth, for a hand's width in every direction, there is a ring of stone that is only stone.
+
+---
+
+Stay long enough and the place shows you its tempo.
+
+The seeps are not constant. Over hours the flow from the high wall swells and slackens — something in the rock above, some reservoir filling and emptying to a rhythm of its own, perhaps the cloud-lid finally letting down its rain somewhere out of sight and the rain taking its time to come through — and when the seeps swell the floor rises by the width of a finger and the cups of the wheel fill faster and the book-being-set-down sound comes every forty seconds instead of every sixty. The shell-mass on the wall knows this before you do. It thickens toward the seeps in anticipation and thins after. The pale segmented things in the mud lift together, like a field of grass in a wind, when the current strengthens and brings the small cloudy swarm down over them.
+
+Things die here and are dealt with. A shell falls from the wall — you hear it, a tick, in the quiet — and lands in the shallow water on its back, and within the hour the coin-creatures have found it and it is a dark shape under a clot of grey-blue and by the next day it is empty and by the next it is part of the floor, which, you now understand, is not ash-mud at all but the accumulated shells of everything that has ever lived on these walls, ground and settled and softened, a floor made of the dead to a depth no one has sounded.
+
+There is a hunter larger than the transparent ones. You see it once. It comes out from under the plinth of the engine, where the ring of clean stone gives way to mud — a flat thing, mottled the colour of the floor, wider than two hands, with a fringe all around it that ripples, and it moves over the ash-mud without disturbing the water's skin at all. The segmented things do not lift their heads to it. It passes over a patch of them and when it has passed the patch is thinner. Then it settles against the low wall among the shells and is invisible, and you find that you have not moved for some time, and that the wheel has turned three times.
+
+---
+
+The rules, as far as they can be made out:
+
+Water comes out of the rock and goes down through the grate, and everything that lives here lives in the space between those two facts. Nothing here needs the light and nothing here has any use for it, and the grey lid overhead could lift tomorrow or never and the pit would not notice. The wall is eaten and renews itself — the yellow skin regrows over the rasped stone in a day or two, fed from behind by the same seep the shells drink — and so the wall is always being taken and always there. The built things are iron and timber and dressed stone, and the pit has an opinion about each: it is taking the timber and the chain, it is leaving the wheel alone, and the dressed stone it is patiently converting to the same weeping rock as everything else.
+
+Someone made this place and then stopped. The stopping is the settled thing about it. Whatever the seam was worth it was worth once, and the walkway rotted and the chain rusted and the wheel went on turning because nothing told it not to, and the water, which was the enemy, became the medium, and the things that came to live in the water found the ash of their own ancestors comfortable to lie in.
+
+You climb the slope back toward the rim and the cut edges of the blocks go dry again under your boots, and behind you, at long intervals, a heavy book is set down, and something under the floor answers, and ten thousand mouths go on quietly wearing the wall away.

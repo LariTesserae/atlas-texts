@@ -1,0 +1,41 @@
+# The Hanging Shelves of Ur-Sill
+
+---
+
+From a distance — if distance means anything here — it looks like a city. The silhouette against the dim sky has that unmistakable profile: spires, blocks, the suggestion of streets and tiers, the layered density of something built with intention. But the longer you look, the more the word *city* loosens in your mouth. There are no lights. No smoke. No movement that reads as human or even animal. And the structures don't sit on the ground so much as they *are* the ground — or what passes for it.
+
+The elevation is the first thing your body understands, even before your mind catches up. You are very high. Not mountain-high. Not cloud-high. The air — thin, cool, tasting of nothing, not even cold — has a quality of *almost not being there*. Each breath is a conscious act. The sky above is not blue. It is not black either. It is a deep, bruised amber, the color of old resin, and it does not change. There is no sun. The light comes from everywhere and nowhere, a diffuse glow that seems to emanate from the stone itself, or from the space between stones, and it is never bright enough to cast a sharp shadow.
+
+The terrain is a plateau, but that word implies flatness, and nothing here is flat. The surface is a series of shelves — vast, stepped ledges of dark mineral that descend in no particular direction. Some shelves are the size of plazas. Others stretch for what might be kilometers before dropping away into a lower shelf, or simply ending, their edges crumbling into a fine, gray powder that does not drift in any wind because there is no wind. The stone is dark — a deep charcoal, almost black, with veins of something lighter running through it, a pale mineral that catches the dim light and holds it, glowing faintly, like the memory of a color. The veins form patterns. Not geometric. Not organic. Something else. They branch and reconnect in ways that suggest circuitry, or root systems, or the maps of cities that were never built.
+
+And then there are the structures.
+
+They rise from the shelves in clusters, and they are unmistakably *built* — or at least, they are unmistakably *organized*. Towers of stacked stone, each block fitted to the next with a precision that seems impossible without tools, without technology, without hands. The blocks are not carved. They are not shaped. They are *grown* — or they have simply arrived at their shapes through some process that mimics growth, that mimics intention. Some towers are slender, tapering to points that seem to lean, though they are not leaning. They are standing perfectly still, but the eye insists they are tilting, that the geometry is wrong, that the angles don't add up. Walk around one and it looks different from every side. Not because it is asymmetrical, but because it is *more* than it should be. Corners that shouldn't exist. Edges that seem to face two directions at once.
+
+Between the towers, the shelves are empty. Vast stretches of dark stone, unbroken, unmarked, extending to the horizon — or what you assume is the horizon, though the light makes it hard to tell where the ground ends and the sky begins. The emptiness is not peaceful. It is *waiting*. It has the quality of a room that has been cleared for something that hasn't happened yet.
+
+The erosion here is old. Not the erosion of water or ice or wind — there is none of those — but the erosion of *time itself*, or of something that acts like time but isn't. The edges of the shelves are rounded, softened, as if they have been worn by a billion years of a very gentle, very patient force. The surfaces of the stone are smooth in some places, pitted in others, and the pitting has a pattern that is almost regular, almost like pores, almost like the stone is breathing. It is not breathing. But the resemblance is there, and it does not go away.
+
+The silence is the second thing your body understands. It is not the silence of a quiet room. It is the silence of a place where sound has never been, or where it has been so thoroughly absorbed that it has ceased to exist as a phenomenon. Your footsteps make no sound. Your breathing makes no sound. When you speak — if you speak — the words leave your mouth and simply stop, as if they have hit a wall a few inches from your lips. The air is too thin to carry vibration, or the stone is too dense to allow it, or the rules that govern sound simply do not apply here. You can feel the silence. It has weight. It presses against your eardrums like deep water.
+
+And yet the place is not still.
+
+Things move. Slowly. So slowly that you don't see them move — you only see that they have moved. A tower that was to your left is now to your right. A shelf that was level is now tilted at a degree that makes your stomach lurch. The veins of pale mineral in the stone shift, rearrange, branch and reconnect in new configurations, and if you watch them for long enough — minutes? hours? time is unreliable here — you can see the patterns change, can see the circuitry rewire itself, can see the root system grow. The stone is alive in some sense that has nothing to do with biology. It is *active*. It is *processing*. It is doing something, and the something is slow and vast and utterly indifferent to your presence.
+
+The fauna — rare, so rare — appears at the edges of perception. A shape that might be a bird, if birds were made of the same dark mineral as the shelves, if birds moved in straight lines and right angles, if birds had too many wings or not enough. It does not fly. It *transitions*. One moment it is on a ledge fifty meters away. The next it is on a tower above you. There is no in-between. It does not cross the space. It simply occupies a different position, as if the frames of reality have been cut and spliced. You see it for a moment — a silhouette against the amber sky, angular, wrong — and then it is gone, or it was never there, or it is still there but in a place you cannot see.
+
+The weirdness is not a feature of this place. It *is* this place. The reality here has not broken down so much as it has *settled* into a different configuration, one that was always possible but never actualized, and now it has been actualized and it has been here for so long that it has become the normal state of things. The angles are wrong. The distances are wrong. The way light falls is wrong — it pools in some places and avoids others, as if it has preferences, as if it is making choices. Shadows fall in directions that don't correspond to any source. The ground is level and not level simultaneously. You can walk in a straight line and return to where you started without turning around. You can look at a tower and see its interior — rooms, corridors, stairways that go up and down and sideways — without any wall being transparent. The interior is simply *there*, visible, as if the concept of enclosure has been gently set aside.
+
+And through all of this, the city — if it is a city — persists. The towers stand. The shelves extend. The veins of pale mineral pulse with their slow, silent activity. The empty spaces wait. The rare, angular fauna transition from place to place. The amber light glows from nowhere. The silence presses.
+
+It is cool. It is dry. It is high. It is old.
+
+It is not dead. It is not alive. It is *in its own state* — a state that has no name, that has settled into itself over eons of erosion by forces that are not forces, that has achieved a kind of equilibrium with the broken rules that govern it. It does not need water. It does not need plants. It does not need technology or tools or hands to build. It builds itself, or it grows itself, or it simply *is*, and the being is enough.
+
+You stand on a shelf of dark stone, and the city extends around you in every direction, and the amber sky presses down from above, and the silence is absolute, and somewhere — or somewhen — a tower that was there is not there, and a tower that was not there is there, and the veins in the stone rearrange themselves into a pattern that almost means something, that almost says something, that almost —
+
+But it doesn't.
+
+It just is.
+
+And the silence holds.

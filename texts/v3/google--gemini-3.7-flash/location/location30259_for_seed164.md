@@ -1,0 +1,23 @@
+The rift is ten miles across from shear-face to shear-face, and it does not narrow for the length of the continent. 
+
+At this altitude, the air is thin, bitingly cold, and knife-clear until it strikes the warm plumes of the lower machinery, where it immediately converts into a permanent, floorless sea of condensing mist. The geology here has had no time to soften. The precipices are black slate and basalt, fractured along pristine, crystalline planes so sharp that their edges catch the cool daylight like glass. No ancient glaciers have rounded these shoulders; no millions of years of sand have dulled the tooth of the rift. The stone was parted recently by some planetary violence, leaving raw, geometric scarps that drop three vertical leagues into a quiet gray void before meeting the cloud deck.
+
+Between these monumental cliffs lies an abyss of nearly empty space—a vast, blue-shadowed emptiness where weather forms in isolation, generating localized hail-sheets and slow, spiraling vortices that never touch the rock walls.
+
+Anchored directly into the freshly broken faces are the Works.
+
+They are built at the scale of cities, yet they are not places where anyone walks. Spanning between the basalt ribs are cantilevered iron trusses, copper-sheathed boiler houses the size of cathedrals, and colossal vertical conduits banded with riveted steel. Massive rotary generators, forty stories tall, hang suspended over the drop on cold-rolled steel gantry networks. They turn without pause, fixed in a deafening, immutable equilibrium. 
+
+The sound is monumental, architectural, and continuous. It is not the chaotic noise of a city, but a singular, overwhelming chord: the deep, floor-shaking fundamental drone of twelve-thousand-stroke pneumatic engines, the dry screaming hum of high-voltage transmission ribs, and the thundering, continuous smash of boiling cooling-water being ejected from sluice-gates into the sub-zero air. Sound travels through the rift like an ocean of pressure, bouncing between the vertical basalt sheets until the air itself feels dense with vibration, even while remaining physically thin.
+
+Because the engines discharge millions of gallons of heated, mineralized runoff across the cold stone every hour, the geology has been seized by a relentless, cold-water ecology. 
+
+Where the hot exhaust-steam cools and clings to the icy iron and fresh rock, plant life has exploded in deafening silence. It is utterly devoid of fauna—no insects hum along the wet girders, no birds wheel across the gulf, no worms stir in the soil. There is only the plant kingdom, cold and violent and green.
+
+Monstrous curtains of iron-moss, slick and blackish-emerald, drape over the rivets and ladders, three feet thick and dripping constantly with icy, mineralized condensate. Heavy, fan-leaved ferns with stalks as thick as a man’s wrist grip the fresh hairline fractures in the stone, their fronds glistening under the pale, high-altitude sun. Thick carpets of liverworts and pale green mountain lungwort coat the cold surfaces of dormant steam lines, drinking from the perpetual condensation that sweats from the lagged pipes. The rocks do not weather; they weep. Water runs everywhere—in thin, glass-like sheets over the sheer basalt, down the vertical copper facades, and off the steel I-beams in long, rope-like waterfalls that shred into spray before falling into the void.
+
+Everything operates at a precise, frozen constant. The engines do not throttle up or down; their regulators were locked long ago into a mathematical middle state. The steam discharges at the exact rate required to keep the condensation plumes identical from noon to midnight. The temperature hovers stubbornly at two degrees above freezing, locked between the bite of the stratosphere and the radiator-heat of the generators. 
+
+There is a severe, monumental geometry to the place: the black, sharp-edged rock descending forever; the red-lead primer and green oxidation of vast, empty industrial scaffolds; the terrifying, empty space that swallows whole mountain ranges’ worth of sky; and the dripping, brilliant green mantle of silent, ancient flora crawling over the machine that sustains it.
+
+The light is cold, bright, and completely steady. Sun breaks across the upper ironwork, casting razor-sharp shadows across five miles of open air onto the opposite cliff face. Below, where the water droplets hang suspended in the updrafts from the cooling vents, a perpetual double-rainbow spans the chasm, unmoving, pinned in place by the invariant roar of the exhaust.

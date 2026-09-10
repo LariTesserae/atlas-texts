@@ -1,0 +1,17 @@
+This is an upward-shattering world, born in the dark.
+
+The scale is vertical and vast: colossal needles and sheer, planar fins of obsidian and basalt erupt from an unfathomable floor, rising miles into a heavy, sunless troposphere. There is no water here—not in the stone, not in the air, not in the dust. The atmosphere is an arid, dry-baking envelope of nitrogen, sulfur-faint gas, and mineral vapor, held at a persistent, oven-like warmth that emanates entirely from below. Heat radiates directly off the rock faces, shimmering in the near-total gloom like grease on a hot skillet.
+
+Because there has never been rain, wind-scour, or freeze-thaw cycles, the concept of erosion does not apply. The geology is embryonic, violently new, and razor-edged. Surfaces are not weathered; they are freshly torn. Cleavage planes are so pure and mirror-flat that in the faint maroon glow of the deeper fissures, they reflect the abyss back into itself. Every ledge ends in a microscopic edge capable of slicing skin on contact. The rock looks wet because it is glassy, but it is parched beyond measure.
+
+The terrain does not sit still; its dynamism is tectonic and hyperactive, yet eerily muted. Massive basalt slabs, hundreds of meters tall, are continuously extruded upward along vertical fault lines. You do not always hear it happening. A tower of black vitrophyre will slide upward through a mountain’s flank in absolute silence, lubricated by vaporous subterranean heat, only to snap under its own impossible torque with a single, concussive *crack* that echoes across the voids for minutes before the quiet returns. Huge geometric blocks tilt, slide, and catch on neighboring spires, forming precarious bridges over drops that vanish into the suffocating dark.
+
+The expanse between these rising monoliths is enormous. Great empty corridors of warm air separate one mountain-spine from the next, giving the landscape an airy, desolate sparsity. There is nothing to crowd the eye except the sheer scale of the negative space.
+
+Plant life does not exist in any recognizable form, though in the cooler fractures where thermal currents bleed into the air, a dry, calcified crusting of sulfur-breathing endoliths coats the rock—dull ochre and ash-gray carpets that crumble to powder if touched, leaving behind a faint smell of burnt iron.
+
+Scattered across these unstable ridges, often perched on the very rims of active tectonic shears, are massive, crude constructions. They are not cities or shelters, but heavy, dry-stacked megaliths: colossal dolmens and rings composed of basalt prisms that must have been set down before the current tier of upheaval began. They bear no tool marks, no mortar, no decorative intent; they are simple, gigantic counterweights, anchored against the restless stone. Many are already split in two, half of a lintel carried a thousand paces upward by an erupting spire, the other half left behind in the gloom below. 
+
+The darkness is profound. There is no celestial light piercing the dense, dry ceiling of the atmosphere. Visibility extends only as far as the thermal gradients permit: the faint, dull-red incandescence leaking from the deepest fracture zones, and the faint, phosphorescent friction-glow that crackles along the shear faces when millions of tons of glass slide against glass. 
+
+It is a landscape locked in the violent act of becoming—a sterile, towering nursery of raw stone, shivering with kinetic energy, ascending endlessly through the dark.

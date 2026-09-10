@@ -1,0 +1,25 @@
+They are short, thick-chested, and low-slung, built as if designed to pass beneath low lintels without breaking stride. To look at them is to understand that they did not arrive in the rift with tools and attempt to alter it; rather, their bodies are the living answers to its hazards.
+
+Their skin is thick, dense, and hairless, colored the dull matte-grey of wet slate when dry, but shining like oiled leather whenever the rift’s constant mist settles upon them. It is a hide tough enough to slide across a fresh-broken stone edge without tearing, yet around their joints—knuckles, throat, and elbows—it folds into fine, rubbery creases that hold small pockets of water long after they have stepped out of the gutters.
+
+Their hands are disproportionately large, broad across the palm, with four thick fingers and a heavy, low-set thumb. The skin of their palms is not soft, but covered in a resilient, pale yellow callus that feels like damp horn. They work without gloves; their fingertips are blunt and sensitive, able to read the subtle flex of a slate slab before it detaches from the wall, or to trace the hair-thin line of a water-seam through total darkness. 
+
+Their feet are flat and broad, lacking high arches, with splayed toes that can grip the slick, algae-filmed flagstones with surprising traction. They walk with a silent, rolling gait, keeping their knees slightly bent, their center of gravity always low, vibrating in subtle counter-rhythm to the pulsing floors beneath them.
+
+They are a quiet people, speaking in low, dry rasping sounds produced deep in the chest—a dialect of clicks, short glottal stops, and sustained hums that do not bounce harshly off the black walls. Much of their communication is non-verbal, conducted through a swift language of hand-taps against stone arches or the firm, deliberate pressing of palms against an shoulder to signal movement through a narrow squeeze.
+
+Inside the crowded cells, family units of four or five live in spaces no larger than a farmer's wagon. They sleep curled together on raised platforms of green hazel slats, covered in the heavy, supple hides of the only large animals that share their world: the *silt-bulls*, blind, air-breathing creatures the size of hogs that dwell in the deep subterranean channels beneath the lowland basin. 
+
+These creatures enter the central sump during the three-hour water pulses, pushed up from the lower aquifers to feed on the organic waste washed down from the settlement. The rift-dwellers do not farm them so much as ambush them in the dark water with heavy, barbless stone spears, skinning them for their thick blubber and water-resistant hides, while using their crushed bones to enrich the clay mortar of their walls.
+
+In the small, soot-stained niches that serve as hearths, they burn a cold, smoldering fuel pressed from compressed liverwort, dried river-reed roots, and silt-bull tallow. The smoke is thin, white, and heavy, clinging to the floor before being drawn upward by the cool drafts that rise through the rift’s sharp mouth. It leaves a sweet, tallow-and-iron crust on the ceilings, which the younger children scrape off with flat bone spatulas to mix into the sealing-paste for their hazel-twig doors.
+
+Their relationship with time is measured entirely by the water. They have no concept of hours, only *the rise* and *the slack*. When the subterranean aquifer breaths and the cold water surges ankle-deep through the lowest chambers, a sudden, coordinated shift occurs throughout the settlement. Without panic, without haste, work pauses. 
+
+Children climb onto the upper walkways, dangling their thick, pale legs over the edges to splash in the rising foam. Women and men lift their baskets of dried tubers and stone tool-kits onto high slate pegs. They stand together on the raised planks, leaning their shoulders against the damp, mossy walls, watching the grey torrent scour the flagstones below. 
+
+They use this time to clean themselves, scooping the cold, clear water up in flat stone dishes to wash the grey mineral dust from their faces and broad breasts. Their eyes, large and pale-pupiled with narrow, horizontal irises, reflect the pale daylight from above like small, milky pebbles.
+
+They know the rift is temporary. They are a young people living in a young wound. When a flake of slate breaks free from the upper rim and crashes onto a lower roof with a sharp crack, no one screams. A elder will simply step out, assess the shattered stone, and begin immediately to split the fresh debris into tiles for a new hearth, or wedging pieces into a sagging wall. 
+
+They do not fear the earth closing or widening; they simply move with its fractures, building their lives tightly into the spaces it leaves behind, as persistent and indifferent as the water that runs through their homes.

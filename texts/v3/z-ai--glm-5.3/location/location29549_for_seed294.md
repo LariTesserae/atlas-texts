@@ -1,0 +1,3 @@
+# The Grange
+
+**The approach.** You come up the plateau's shoulder out of deep water, and the first thing you understand is that the high place you are entering was *made* — every surface, every step, every basin floor — and the second thing you understand, much later, is that nothing on it was made for anything you could name. The shoulder itself is a rampart, a built wall three kilometers long, rounded now like an old whale's spine, breached at intervals by spill-gates where the current pours through too fast for anything to grow. Above the rampart the light changes: the black of the deep loosens into a gray-green

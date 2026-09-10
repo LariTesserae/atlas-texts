@@ -1,0 +1,17 @@
+The power that turns its regard upon the pocket does so without arrival. There is no descent, no parting of the roof’s hairline joints, no softening of the rust-brown gloom. Attention itself is the only visitation: a clarity that settles over the unfinished stone the way a deeper silence can settle inside a roar without extinguishing it.
+
+It perceives the buried engine first—the slow evaporate-deposit-crack-heal that has no name and needs none. It feels the scrapers as a single extended surface, a living mineral weather whose every mandible-stroke and crystal-tarsus placement is already perfect for the gradients that call them forth. Nothing in the chamber is broken. Nothing requires mending. The provisional spires, the polished rings of avoidance, the castes that thin and thicken at the vents, the entrainment that answers the subsurface breath with half-tones of grinding—all of it is already the finished answer to a question the rock is still asking itself.
+
+And so the power does not speak. Speech would be a violence of scale. It does not cool the heat, nor thicken the mineral haze into true water, nor lengthen any life beyond the cycle that made it useful. It does not lift a single scraper into sudden vision, for vision would only show them the thinner world they have no organs to desire. It does not still the industrial forever into rest; rest would be extinction dressed as mercy.
+
+What it does is smaller than an act and larger than a blessing.
+
+It leans its regard into the precise interval where the migrating fronts cross. In that layered thunder of chitin and falling grit—where density doubles and bodies pass through bodies like transparent flocks—it introduces one undetectable permission: a minute loosening in the catalytic felt that lines each dorsal lattice. Not enough to change the powder they exhale, not enough to alter the sorting spiral or the burnished track. Only enough that, once in every many thousands of crossings, two scrapers briefly share a single micro-channel of converted vapor before their paths diverge again. The shared breath lasts less than a step. It carries no message. It deposits no new organ. Yet in that instant the distributed tact of the colony gains a faint, recursive echo—an awareness of awareness so slight it cannot be distinguished from the ordinary entrainment of iron filings.
+
+The echo does not accumulate into mind. It does not rise toward the leaking light. It simply remains available, a ghost gradient folded into the heat, so that when the massif continues its rising and the pocket one day seals or splits or anneals into something unrecognizable, the scrapers will carry inside their slag-colored shields the possibility of answering a larger rhythm than the one that currently claims them. Whether they ever do is left unforced. The power withdraws the instant the permission is set, the way a shoreline withdraws from a tide it has just finished shaping.
+
+Outside, the young massif keeps lifting. Inside, the unfinished pillars still stop halfway to the roof. The scrapers still grade the dark as if the dark had asked to be finished. And somewhere in the endless bisecting of stone, once in a great while, two bodies share a breath that is not quite their own, then forget it in the next bite of warm basalt.
+
+That is all.
+
+The chamber remains what it was: a held breath of heat and provisional labor, sealed against the thinner world, still deciding. Only now the decision contains, without knowing it, a kindness too finely grained to disturb the roar.

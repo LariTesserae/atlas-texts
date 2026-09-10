@@ -1,0 +1,16 @@
+{
+  "source_id": "meituan--longcat-2.0",
+  "requested_endpoint": "meituan/longcat-2.0",
+  "endpoint_granularity": "verbatim-route",
+  "date_first": "2026-09-01",
+  "date_last": "2026-09-02",
+  "texts": 750,
+  "by_type": {
+    "location": 250,
+    "creature": 250,
+    "placement": 250
+  },
+  "evidence_grades": {
+    "event-observed": 750
+  }
+}

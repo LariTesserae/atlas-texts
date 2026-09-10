@@ -1,0 +1,17 @@
+The water here has the heavy, dull weight of an ocean that has never seen a shoreline. It is utterly black, save for the rare, faint dispersion of cold, sinking sediment that catches no light, only registers as a shifting grain in the darkness. The temperature sits just above the freezing threshold of brine—a dense, biting cold that thickens the water, deadening movement and holding everything in a state of suspended inertia.
+
+Beneath the depths, there is no natural seabed. Every square league of the floor is a constructed floor.
+
+It stretches out across vast, continental breadths: an endless expanse of megalithic stone, fitted together by hand before the water came, or perhaps laid down underwater by forgotten, laborious means. There are no mortar lines of modern composite, no steel rebar or machined joints. The architecture is primitive, titanic, and patient. Colossal slabs of dense, dark basalt and granite, some the size of houses, are arranged in broad terraces, sunken causeways, massive retaining steps, and low, sprawling courtyards that vanish into the black miles ahead. 
+
+Yet time and the deep, relentless friction of the drowned world have taken everything sharp away. The corners of the great stone blocks are worn down into smooth, rounded shoulders. Centuries of slow, cold currents have polished the stone until it resembles the bed of a mountain river, though flattened and leveled on a planetary scale. Silt, fine as ash, settles in the joints and fills the shallow basins, creating vast, pale drifts that bank against the ancient steps.
+
+Out of this submerged, hand-worked crust grows a dense, towering wilderness of cold-water flora.
+
+There are no animals to graze upon it—no fish to weave through the stalks, no crustaceans picking at the seams, no worms burrowing in the silt. The ecosystem belongs entirely to the plants. Enormous, ribbon-like kelps, thick as leather and dark as oil, anchor their root-like holdfasts directly into the fissures between the ancient pavers. They rise scores of feet into the gloom, swaying with the agonizingly slow rhythm of deep-sea drift. Below them, closer to the masonry, the stones are furred in thick carpets of velvet algae, stiff aquatic mosses, and branching, calcified weeds that form dense, tangled understories. 
+
+The forest is so thick in places that it obscures the stone beneath, turning the terraces into rolling, undulating meadows of black-green and bruised purple fronds. But step through the vegetation, push the heavy stalks aside, and the hand of man is always there—the deliberate curve of a gutter, the rhythmic spacing of a low wall, the unmistakable symmetry of a staircase descending into a drowned plaza.
+
+Sound travels through this place as a physical pressure rather than a noise. It is almost completely quiet, save for a low, continuous resonance—the deep hum of an immense volume of water sliding over an immense plain of stone. Occasionally, a heavy kelp frond will drag a loose stone across a flagstone with a muffled, grinding scrape that reverberates for miles before dying out into the chill. 
+
+Nothing happens quickly here. The currents do not surge; they lean. A single frond may take an entire hour to swing from one side of its anchor to the other. Silt falls like a clock with no hands, grain by grain, filling the depressions left by long-dead builders who raised an entire continent of stone, only for the cold water to claim it, soften it, and give it over to the weeds.

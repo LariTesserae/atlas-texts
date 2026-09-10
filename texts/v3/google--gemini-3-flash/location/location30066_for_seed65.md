@@ -1,0 +1,19 @@
+This is the Realm of the Vertical Flutes. 
+
+It is a place defined by a singular, unrelenting physics: a geography of extreme altitude where the air does not move in gusts, but in a permanent, high-pressure river that never changes its course or velocity. Because the land is set at a staggering elevation—a series of plateaus and needles piercing the thin, upper atmosphere—the wind is a constant, frozen absolute. It has carved the world into its own image.
+
+The terrain consists of enormous, weathered spires of sedimentary rock, each polished to a glass-like sheen by eons of steady airflow. These are the "flutes." They are hundreds of feet tall, honeycombed with natural apertures and vents created by ancient erosion. Because the wind never stops and never wavers, these holes produce a sound that is not a whistle, but a physical weight. It is a deafening, harmonic roar, a chord struck at the beginning of time that has never been allowed to fade. The volume is high enough to vibrate the marrow in one’s bones, yet because it never fluctuates, the silence of the place is paradoxically absolute. There is no rhythm, only the drone.
+
+The light is punishingly bright. At this height, the atmosphere offers little filtration. The sun is a white, piercing eye, reflecting off the mica-flecked stone until the very air seems to shimmer with crystalline dust. In the deep shadows cast by these titanic pillars, the temperature drops sharply, remaining at a constant, biting cool that never reaches freezing but never invites warmth.
+
+Between these towering stones, the world is empty. The scale is vast, a regional expanse of white-grey stone and blue sky, with miles of nothingness between one cluster of spires and the next. The density is so low that a traveler might walk for a day before seeing a change in the horizon.
+
+Water exists only as a ghost. It does not fall as rain. Instead, the extreme height causes moisture to condense directly out of the fast-moving air whenever it hits the leeward side of a spire. There, in the permanent shade, the rocks "sweat." A thin, cold film of dampness clings to the stone, occasionally gathering into small, shivering pockets of liquid in the hollows of the rock.
+
+Life here is surprisingly abundant, though the vegetation is not. The plants are sparse—leathery, pale mosses and lichen that grow in the narrow bands where the light and the "sweat" meet. They do not have leaves to rustle; they are flat, silent, and gripped tight to the mineral surface. 
+
+The fauna, however, have mastered this roaring void. Great, heavy-bodied creatures with six legs and thick, velvet-like fur cling to the vertical faces of the flutes. They are deaf; their ears have long since evolved into vestigial flaps of skin to protect their brains from the acoustic pressure. They communicate through touch and the rhythmic drumming of their limbs against the stone. 
+
+These creatures exhibit a primitive, uncanny intelligence. Scattered throughout the hollows of the spires, one finds "tool-caches"—not built structures, but collections of stones chosen for their weight and sharpness. The animals use these to scrape the lichen from the rock or to crack open the pressurized carapaces of the sky-crawlers (large, drifting insects that are occasionally pinned against the rocks by the wind). There is no architecture, no fire, and no metal—only the manual craft of a species that has lived in the same equilibrium for a million years.
+
+Time has no meaning here. The erosion is finished; the rocks have been sculpted into their final, aerodynamic forms. The wind will not shift. The light will not dim. The roar will not cease. It is a landscape in a state of terminal perfection, a bright, deafening, and hollow cathedral of stone where nothing ever happens for the first time.

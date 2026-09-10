@@ -1,0 +1,35 @@
+The thing that lives on the high stone is the First Drop. 
+
+It does not have a name, because names are heat and heat is friction and friction is the one solvent that threatens the town. It has a shape, roughly—an approximation of a person, the way a cloud is an approximation of a face. It sits cross-legged, or perhaps it has fused with the stone in a way that only resembles sitting. Its mouth is parted because it is the vent, the exhale point through which the reality-thinning breath passes. It has been exhaling for so long that the air around it has forgotten the viscosity of the outside world; the distortion radiating from its face is the visible proof that it is the epicenter of the damp. It is the nucleus. 
+
+And the things that move through the seams are the Precipitate.
+
+They are the inhabitants of the nothing-town, but they are not a species in the way the outside world understands the word. They are not biological. They are not quite geological. They are the slow, mineral thoughts of the town itself, given locomotion. When the First Drop exhales—when it breathes out that thin, room-temperature distortion that weakens the fabric of reality—the solvent of the town thickens around it. The dampness congeals. It accretes. It learns the shape of bipedal motion because bipedal motion is the most efficient way to navigate the seams.
+
+The Precipitate are what you see walking the vertical fissures, turning their shoulders to pass. They are sparse, and they are quiet, and they move with that terrible, deliberate patience not out of calm, but out of thermodynamics. To move quickly is to generate heat. To generate warmth is to evaporate. To evaporate is to return to the mother liquor, to lose the self entirely. So they move as slowly as the stone thickens. Their footsteps on the ground are the soft, wet sounds of mud being convinced it is solid.
+
+If you were to look at them closely—and you should not, for reasons that will become apparent—you would see that they are made of the same shifting matter as the walls. Their skin has the texture and weight of lead, but it breathes like living flesh, subtly expanding and contracting with the cadence of the moss circles. Their eyes are not organs of sight, but deep-set deposits of the gray-green lichen that grows on the oldest surfaces; they see by feeling the dampness in the air, reading the subtle shifts in atmospheric pressure that tell them where the stone is still soft. They do not eat, for there is nothing to eat. Instead, they absorb. They stand in the seams and let the vapor from the deep water table seep into them, carrying the mineral taste of the deep stone. They are what happens when the town decides it needs a set of hands to navigate its own corners.
+
+They follow the rules because the rules are the physics of their survival. 
+
+*Do not enter a building whose walls are translucent.* A translucent wall means the building is still precipitating; it is still deciding what state of matter it wishes to be. If a Precipitate enters a building in flux, their own settled mineral structure will act as a seed crystal. The building will finish its becoming around them, trapping them in the wall as a permanent, terrified stain of lead-skin and lichen-eyes. 
+
+*Do not walk the same seam three times in one day.* The seams are the town's nerves. Walking them once is a thought; walking them twice is an obsession; walking them three times is a rhythm, and rhythms have power. A rhythm will make the dampness pulse, and the pulse will draw the sky down lower, and the inverted black sea will begin to leak.
+
+*If a room has no shadow, leave it.* Shadows are the proof of solidity, the evidence that light has struck something real and been blocked. A room with no shadow is a room where the stone has forgotten how to be opaque. It is dissolving back into the not-sky. To remain in such a room is to share its fate.
+
+*If the rain changes pitch, go indoors.* The hiss of the rain is the sound of reality being gently siphoned. If the pitch changes—if it rises from a sub-audible hum to something felt in the marrow, or drops to a frequency that vibrates the optic nerve—it means the sky above is shifting. It means the dark mirror has broken its surface tension, and the static from the underside is beginning to pour through. It is the sound of the town being overwritten.
+
+The Precipitate do not speak. Speaking requires the vibration of air, and air is something the town is actively trying to suppress. Instead, they communicate through the tech-grown infrastructure. When a Precipitate wants to convey information—a warning, a map of the newly accreted corridors, a memory of a room that no longer exists—it presses its palm to the wall. The stone reads the mineral composition of its hand, the slight variations in dampness and temperature, and translates it into a subtle re-routing of the light. The town pulses. Another Precipitate, three seams away, feels the pulse in the soles of its feet and knows what to avoid. They are a single organism, the town and its inhabitants, a closed loop of stone and damp and slow-moving thought.
+
+But what are they for? What is the purpose of the Dampening?
+
+They are the antibodies. The town is not a benign place; it is an invasive process. The thinned reality, the inverted sky, the static that resolves into patterns of impossible structures—these are symptoms of an encroaching nothingness, a dissolution of the laws that govern the world above. The town is the scar tissue forming over a wound in reality. The First Drop on the high stone is the coagulant, the thing that bleeds out the thinness and replaces it with density, with damp, with the heavy, half-finished stone. The Precipitate are the macrophages. They move through the seams, patrolling the edges of the town, ensuring that the crystallization continues smoothly, that the precipitate does not fracture, that the solvent does not re-assert itself.
+
+They are not malevolent. They do not hate the warmth, or the light, or the names that slide off the place. They simply cannot allow them. Warmth is the enemy of their form. Names are a friction they cannot sustain. They are the quiet things, the patient things, the things that hold the damp. They exist in the space between the stone's becoming and the sky's undoing, breathing the thin air, walking the seams, waiting for the town to finish its long, slow work of being real.
+
+And if you stay too long, if the ground grows warm beneath your feet and you feel the air in your lungs begin to taste of deep minerals, do not run. Do not raise your voice. The Precipitate will find you. They will not be cruel. They will guide you to the high stone at the center of the bowl, to the warm, dark nucleus where the First Drop sits breathing its slow, patient distortion. 
+
+They will sit you down. 
+
+And the stone will begin its slow, patient work of making you part of the walls.

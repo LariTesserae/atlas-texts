@@ -1,0 +1,15 @@
+The hollow lies low in the earth, an enclosed pocket of dry ground cupped by the smooth, sloping walls of ancient red siltstone. It is small enough that a person could walk its perimeter in a few minutes, yet the space feels vast because of the dark and the immense distance between things.
+
+Night holds the basin in a deep, unbroken gloom. There is no moon, and the high rim of the hollow cuts off all but a narrow circle of the overhead sky, where distant, unmoving stars cast barely enough light to show the difference between the pale floor and the black rim. The air inside is entirely still, trapped by the contours of the rock, holding onto the dry, baked warmth of the earth. It is the kind of heat that does not shift or drift with drafts; it rests like a heavy blanket against the skin, smelling of heated iron, flour-fine dust, and dry wood.
+
+Across the flat floor, the ground is composed of compacted clay and a thin, powdery skin of weathered dust that muffles every step to absolute silence. Decons of slow wind and sun have ground the stone into soft, rounded shelves; there are no sharp edges here, no jagged scree or fresh fractures. Everything has already found its angle of repose. 
+
+Spaced widely apart across this floor are individual shrubs—tough, low-slung, and woody. They grow three or four paces from one another, never crowding, each claiming its own dry radius of soil. Their stems are pale and twisted close to the dirt, clad in tiny, resinous nubs rather than broad leaves, designed to lose nothing to the dry air. They do not sway. Without a breeze to disturb them, their stiff branches stand rigid against the blackness, casting faint, motionless shadows on the pale silt. 
+
+No water runs here, nor has it for ages uncounted. A faint depression in the center of the hollow suggests an ancient wash where mud once pooled and dried into hexagonal plates, but the cracks in the clay are weathered smooth now, filled with fine drifting dust that has settled into permanence. 
+
+No creatures move among the bushes. There are no crickets, no burrowing rodents, no night birds crossing the narrow opening above. The silence is dense and physical—not an absence of noise, but a heavy, resting pressure that absorbs the faint, microscopic settle of the warm ground. 
+
+Tucked near the foot of one sandstone rise, half-swallowed by the dust, lie three rounded river stones, entirely out of place in this dry hollow. They are smooth, palm-sized, and bear the faint, deliberate percussion marks of crude flaking along one edge—the work of hands that left the valley long before the dust had finished settling. They sit cold and inert, having reached the exact temperature of the bedrock beneath them.
+
+Nothing here is waiting. The plants do not thirst actively; they merely endure in their dormant, resinous sleep. The rocks do not crumble; they have already been shaped to their softest, most durable curves. The dark hollow exists in a warm, timeless balance, sealed in its own low silence beneath the stars.

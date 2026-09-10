@@ -1,0 +1,49 @@
+Begin with the dark, because there is almost nothing else at first.
+
+It is not the dark of a closed room. It is the dark of a very large open place under a sky that gives back nothing — a lid of cloud so thick and so permanent that no one standing here has ever seen a star through it, and there is no one standing here. The cloud is the plateau's own. It is manufactured, in the way that weather is manufactured, by the ground: warm air rising off a highland the size of a continent, meeting the thin cold that belongs to this altitude, and condensing into a ceiling that never fully lifts. Rain falls out of it in short, indifferent showers — a few minutes, a wetting, then nothing for hours. Between showers the moisture comes down as fog, or does not come down at all but simply hangs, beading on every surface that is cooler than the air, which is to say every surface that is not the ground.
+
+The ground is warm. That is the first fact of the place, and everything else follows from it.
+
+Put a hand flat on the rock and it is the temperature of a body. In places it is warmer than that — not scalding, but the heat of a stone left in sun, though there is no sun. The warmth comes up from below, steadily, through a crust that is thinner here than anywhere else, and it has been coming up for so long that the plateau has organized itself around it the way a river valley organizes itself around water. The rock is dark basalt gone soft-edged with age, pitted and rounded, cut into long shallow terraces by drainage that has been working the same channels for a very long time and no longer hurries. Nothing here is raw. There are no fresh scarps, no rubble that has not settled. The plateau has finished becoming and is now simply being.
+
+Because the ground is warm and the air is cold and damp, the plateau breathes. You would feel it before you understood it: a slow pressure of air moving upward past your face, and then a slackening, and then, far off, the sense of air sliding back down some other terrace to replace what rose. The exhalation takes about a quarter of an hour. The plateau has a respiratory rate, and that rate is the pace at which most things here happen.
+
+---
+
+Vegetation is a thin idea. What grows is mostly flat: crusts of lichen in colors you cannot see, felts of moss where fog collects in a hollow, a low leathery plant that lies against the rock like something spilled and holds a drop of water at the center of each leaf. Every few hundred meters there is something taller — a stalk, a single fibrous column as high as a person, with no branches and no visible leaves, that exists apparently to catch condensation and run it down its own length to a root that spreads out flat and wide across the warm rock. These stand alone. You would walk a long time between them. They are not trees and the plateau is not a forest; they are more like posts marking distance across an enormous room.
+
+Nothing living here needs much light, and the dark has selected for it. What lives here needs heat, and water, and it has both.
+
+---
+
+The fauna is the second fact of the place, and it is what makes the plateau strange.
+
+There are many animals. Far more than the vegetation could support, which is your first clue that they are not, for the most part, eating the vegetation. In the warm dark, low shapes move across the terraces in loose columns. They are the size of large dogs or small cattle, flat-backed, heavy, on many short legs, and they move slowly and continuously in the same direction along the drainage channels, downhill, always downhill, following the water. Their bodies are hot — hotter than the rock — and where they pass, the fog thins briefly and closes again behind them. They make almost no sound. A faint grinding. A wet click now and then.
+
+They are eating the rock.
+
+Not the rock exactly. The plateau's basalt is shot through with mineral seams that the heat from below has been cooking for eons, and along the drainage channels those seams weather out into a fine dark grit, mineral-rich, damp with condensate. The flat-backed animals scrape this up and process it. Inside them it is heated further — they are, in a very literal sense, furnaces, their body heat a byproduct of the chemistry they run — and what they excrete is something else: hard, pale, glassy pellets that they leave in long trails along the terraces, like a very slow conveyor belt depositing product. The pellets accumulate. In the low places they have accumulated into pale beds a meter deep, cool and clean-smelling, and other things live on those beds and in them.
+
+This is the industry of the plateau. There are no factories because the animals are the factories. There is nothing built because nothing needed to be. The heat comes up from below for free; the water comes down from the cloud for free; the raw material weathers out of the rock at a rate that has been in balance with the rate of its consumption for longer than anything has been alive to measure. The columns of grazers move downhill along the channels, processing, and at the bottom of each drainage, where the terraces flatten out into wide shallow basins, they turn and begin the long walk back up along a different channel, and the cycle takes perhaps a season, and the seasons here are marked by nothing except this.
+
+---
+
+There are other tiers.
+
+On the glassy pellet-beds live things that eat what the furnace-animals could not fully break down: small, quick, many of them, moving in the dark by touch and heat. They are nearly silent too. The plateau's silence is not the absence of life but the absence of any reason to make noise; there is nothing to see, and so nothing signals with color, and the air is thick and damp and carries sound poorly, and so nothing signals with sound either. What they use instead is the third fact of the place.
+
+Everything here is faintly electrified.
+
+The damp, the constant condensation, the mineral grit, the warm rock threaded with metallic seams: the plateau is a cell. Charge builds and leaks and builds. The tall lone stalks are conductors — you would feel the hair on your arm rise as you passed one. And the animals have learned it. The furnace-grazers carry a field, low and steady, and they navigate by it, keeping their distance from one another in the columns, feeling the terrace edges before their feet find them. The small things on the pellet-beds flicker with tiny discharges, too faint to see except at the very edge of darkness, a scatter of blue-white pinpricks at knee height that appear and are gone. This is the only light the plateau makes for itself, and it is almost nothing. A person with dark-adapted eyes could, after an hour, make out the vague heaving of the columns and the occasional spark. That is all.
+
+The predators are electric too, but in the other direction. They are long and low and cool — cooler than the rock, which is how you would know one was there if you could know anything — and they carry no field at all. They move against the grain of the columns, uphill, in the fog, and when they are close enough they discharge everything they have stored in one pulse. The grazer it strikes stops. It does not fall; it simply stops, its furnace going quiet, and the column parts around it and closes again and moves on downhill, and the predator settles in the fog and begins. Afterward the shell remains on the terrace, warm for a day, then cool, then slowly filling with fog, then colonized by the small things, then worn down by the same patient drainage that wears everything down. There are many of these shells. They are the plateau's only ruins.
+
+---
+
+Weather comes in from the edges. The plateau is large enough that its edges are a different climate, and what happens there arrives here late and altered. A storm that began a thousand kilometers away over the lowlands climbs the escarpment, loses most of its rain, and reaches the interior as a wind — a real wind, not the plateau's own slow breathing — that pushes the fog into long streaming banners between the stalks and briefly, for an hour or two, thins the cloud enough that the dark takes on a grain, a faint grey difference between up and down. The grazer columns tighten when this happens. The small things go still on their beds. Then the wind exhausts itself against the sheer size of the place, and the cloud closes, and the breathing resumes, and there is only the warm dark and the wet and the slow grinding of the furnaces moving downhill.
+
+Sound, if you listened for a long time: the tick of condensate falling from the leaf-plants. The faint grind of a column passing a hundred meters off. Very rarely, a soft concussion — a predator's discharge — that you feel in your teeth more than hear. Under all of it, so low you would take it for silence until it stopped, the hum of the ground itself: the sound a very large warm thing makes, going about its work.
+
+---
+
+Nothing has been made here. Nothing has been laid out or decided. And yet the whole plateau runs — heat in at the bottom, water in at the top, ore weathered and gathered and refined and laid down in beds and reworked and eaten and buried, charge built and spent, columns descending and ascending in their own slow shifts — with the regularity of a plant that has been operating for so long that no one remembers it starting. It has the feel of a factory floor at night: warm, dark, mostly quiet, machines moving in their appointed paths, small lights flickering at the edge of sight, and no one there. Except that there was never anyone. The plateau assembled itself, and found this arrangement, and has kept it, and will keep it, until the heat below runs out or the cloud above finally lifts. Neither seems likely soon.

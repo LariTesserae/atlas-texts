@@ -1,0 +1,23 @@
+I would not be in the open mid-water. To ride the plumes like the shear-sliders requires an appetite for falling that I do not have; and I would not have the vast, settled patience to become a ballast-matron, welded by centuries of dead skin to the footings of an intake. 
+
+I would find myself in the intermediate margins—in the long, vertical shafts where the counterweight chains hang slack, or inside the dead-legs of the secondary bypass conduits where the water is thick as broth and barely moves, save for the concussive thump of every down-stroke above.
+
+I am an accumulation of density. If you reached through the dark water and touched me, you would first feel the slickness of vulcanized grease, and beneath that, something like a sack of lead shot wrapped in stiff, boiled hide. 
+
+I have no buoyancy; my center of gravity is an anchor. Inside my belly is a ballast of sheared copper rivets, swallowed flakes of magnetite, and fine slate grit rasped off the brick aprons. When the great impellers cycle and the water in the chamber lurches—a million gallons shifting an inch to the left with the impact of a dropped anvil—I do not drift. I settle deeper into the angle of the iron.
+
+My shape is broad, flattened, and wedge-nosed, contoured precisely to the ninety-degree corners where an I-beam meets a bulkhead. My underside is a broad, muscular foot—not soft like a slug’s, but rough as emery cloth, scored with directional grooves that bite into the wet rust-scale. I do not have legs to break, nor fins to be torn off by cavitation. I move by hydraulic creep: my interior expands with pressurized water drawn through fine slate-strainers behind my neck, driving me forward an inch along the girder, then vents it through low-pressure flaps with a dull, wet *chuff*.
+
+I am an animal of the seams. 
+
+Where the structural steel groans under the torque of the current, microscopic tears open in the paint and the mill-scale. That is where I feed. I do not eat the bacteria mats—they are too light, too thin. I graze on the tallow-like grease that weeps from the packing glands of the sluice stems, and I grind down the galvanic crusts of zinc and cadmium that form where dissimilar metals touch under salt and sulfur. My mouth is not a jaw, but a circular hydraulic ram set with four concentric rows of chisel-teeth made of hardened iron phosphide. I bore into the frozen seams, clearing the scale down to the grey, weeping metal, tasting the electric sourness of an iron plate that is beginning to fatigue.
+
+I live in the sound. 
+
+The matrons hear the vault as a vast, resonant cathedral, but I hear it locally, as tactile tension. My entire upper carapace is segmented with transverse pressure-plates—thick plates of bone-and-slate composite separated by oil-filled bladders. Through them, I can feel the torque traveling through the beam beneath me. I know which rivet is about to shear three hundred hours before it pops; I feel the microscopic hum of a bolt thread stretching under the drag of a four-story impeller. When the steel hums at B-flat, the bypass is clear; when it drifts up toward a pinched, whining D-natural, I know a sluice gate has jammed three tiers below, choked with the carcass of a spent slider, and that a back-surge of boiling water is already climbing the shaft toward me.
+
+In the dark, when the stray arcs from the junction boxes flash across the water—that violent, stuttering phosphor that turns the tea-colored flood white for a tenth of a second—I am just a swelling on the flange, a dark, heavy knuckle of iron-colored tissue that looks no different from a repair weld made by a diver who died before the bedrock settled.
+
+I do not sleep, because sleep implies a release of tension, and to release tension here is to be swept into the churning abyss and hammered to meal against the intake grates. Instead, I lock. My hydraulic valves seal shut; my ventral foot cements itself to the iron with a cold, anaerobic slime that cures under pressure; and I become part of the municipal framework. 
+
+I wait for the vault to break. Not all at once—the bedrock is too thick for a single catastrophe—but tooth by tooth, plate by plate. When a cross-brace finally yields and the water-hammer cracks through the shaft like a dynamite charge, I am already moving toward the fresh tear, creeping forward on my belly through the deafening foam, heavy and blind and deliberate, ready to lick the warm, greasy marrow from the freshly broken iron.

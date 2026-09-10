@@ -1,0 +1,17 @@
+Here, at the absolute zenith of a tectonic thrust, the world has no memory of the wind’s softening touch. The landscape is a cathedral of adolescent stone, a jagged, upward-yearning rift known to no map. At an elevation of nearly three vertical miles, the air is a thin, biting ether, yet it does not feel empty. It feels crowded.
+
+The terrain is composed of obsidian-dark basalt and raw, crystalline quartz, thrust upward so recently in geologic time that the edges remain lethal. There is no scree, no soft slope of weathered dust; the rock faces are vertical, sheer, and serrated like the teeth of a fresh saw. The scale is intimate—a high-altitude amphitheater no larger than a village square, walled in by three monolithic spires that blot out the sun, plunging the interior into a perpetual, bruised twilight.
+
+Water does not fall here as rain; it arrives as a heavy, clinging breath. The clouds drift through the jagged gaps in the peaks, snagging on the sharp rock and weeping. This condensation forms a "dampness of the heights"—a thin, shimmering film that coats every surface, making the black stone look like polished leather. In the deep creases of the rock, small pockets of liquid mercury-like water gather, never quite freezing, held in a state of hyper-cooled tension.
+
+Vegetation is a secondary thought here. It exists only as a desperate, translucent moss that clings to the leeward side of the spires, appearing more like a fungal frost than a living plant. It has no green in it; it is a pale, sickly violet, feeding on the minerals of the fresh stone and the heavy minerals in the mist.
+
+But if the plants are shy, the fauna is a riot.
+
+The amphitheater is dense with life, though not life as the lowlands understand it. Every ledge, every needle-sharp protrusion, and every dark crack is occupied. Thousands of "Lithodules"—creatures shaped like oversized, multi-winged trilobites with shells the color of wet slate—cling to the vertical faces. They are packed together so tightly that they overlap like shingles on a roof. They do not move fast; their life cycle is a slow, agonizing crawl, a rhythmic pulsing that takes hours to complete a single breath.
+
+The sound is the most striking feature. It is a constant, low-frequency thrumming—a collective vibration from the millions of Lithodules as they scrape their serrated underbellies against the fresh rock to harvest minerals. It is a grinding, resonant chorus that vibrates in the marrow of one's bones. It sounds like a city-sized machine idling in the dark.
+
+There is a primitive intelligence at work in the gloom. Scattered among the ledges are "arrangements"—not buildings, but intentional piles of sharp quartz shards, wedged into cracks to catch the thickening mist. These are the tools of the place: gravity-fed condensation traps, managed by the slow-moving inhabitants to ensure the dampness never leaves the stone. There is no fire, no metal, no wood. There is only the rock and the clever, slow manipulation of the moisture that clings to it.
+
+The atmosphere is one of profound, crowded patience. The creatures do not fight; they simply exist in a state of high-density stasis, layered atop one another in the cold dark. Everything is new, sharp, and wet. The world here hasn't had time to become beautiful in the traditional sense; it is still a raw wound in the sky, populated by a thousand thrumming witnesses who are waiting for the mountains to grow old.

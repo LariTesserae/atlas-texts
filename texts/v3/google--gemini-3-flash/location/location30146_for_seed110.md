@@ -1,0 +1,17 @@
+This is a place that exists inside the throat of a mountain, a pocket of absolute stasis tucked miles above the sea. It is a room-sized cavity, no larger than a modest chapel, yet it feels suffocatingly full. The scale is intimate, a secret held within the jagged, unweathered bone of the earth.
+
+There is no light here. The darkness is a physical weight, a velvet pressure against the eyes. To understand this place, one must rely on the skin, the lungs, and the palms.
+
+The air is thick, a humid soup that tastes of minerals and ancient heat. The temperature is a constant, unyielding 85 degrees—a fever-warmth that never fluctuates. Because the dynamic of the world is so still, there is no breeze to wick away the moisture. The water here does not flow; it clings. It weeps from the walls in heavy, viscous beads that seem too heavy to fall, creating a perpetual state of "just-rained" slickness. Every surface is coated in a film of warm, mineral-rich liquid.
+
+The terrain is raw and violent. Because erosion has not yet begun its work, the rock is a geometry of knives. The floor and walls are composed of sharp-edged obsidian and unpolished basalt, crystalline structures that have just crystallized from the deep heat. There are no smooth pebbles, no rounded corners. It is a landscape of "emergence"—geology caught in the millisecond after birth, frozen for an eternity.
+
+The density of the space is overwhelming. Within this small pocket, thousands of needle-like formations descend from the ceiling, nearly touching the upward-reaching shards of the floor. You cannot move without brushing against something sharp and wet. It is a forest of stone, packed so tightly that a body feels like an intruder in a solid mass.
+
+Sparse, pale life clings to the crevices. These are not plants as the surface knows them, but translucent, fleshy mosses that feel like damp velvet. They do not need light; they feed on the heat and the minerals in the weeping water. They grow in small, isolated patches, rare and quiet, huddled in the sharpest corners where the moisture pools.
+
+Interspersed among the natural shards are the marks of a primitive presence. These are not ruins, but "placements." There are small, hand-built cairns of raw stone, stacked with a precarious, finger-straining precision. You might find a shallow bowl carved directly into a protrusion of rock, meant to catch the slow, heavy drips of water. There are no metals here, only the evidence of hands working with stone and clay—small, crude effigies tucked into the niches, their features blurred by the constant film of mineral deposits. These artifacts are scattered, lonely things, suggesting a singular inhabitant or a rare, ancient pilgrimage to this high, dark womb.
+
+The sound is a low, rhythmic hum—not of machinery, but of the mountain’s own internal pressure. Occasionally, a single drop of water will finally succumb to gravity, hitting a stone basin with a sound like a hammer on a bell, the ring echoing for a long time in the dense, warm air. Beyond that, it is silent. The rare fauna—perhaps a blind, white insect with legs like threads—moves without noise across the glass-slick walls.
+
+Nothing changes here. The water does not carve channels; it sits. The heat does not dissipate. The rocks do not wear down. It is a high-altitude sanctuary of frozen time, a dense, wet, and pitch-black womb where the earth is forever new and the air is a permanent embrace.

@@ -1,0 +1,41 @@
+In the seams, where the steel has parted just enough for an edge to curl like a peeled fingernail, there is no boundary between the corrosion and the flesh. The things that occupy these clefts do not have names that belong to kingdoms; they are matters of tallow, lime, and copper salt that have learned how to hold their shape against the percussion.
+
+The most widespread are the scabs.
+
+From a distance, if there were light enough to see them, they would appear only as dark, circular blisters on the plates, five or six feet across, slightly domed, their surfaces the dull gray of lead pipe. They do not move against the four-second pump stroke; they move *with* it. When the concussion hits the iron from below, the dome gives slightly, flattening like an unpeeled eye under a thumb, and in that split second of deflection, its perimeter breaks seal with the steel. A thin, greasy fringe of pale threads—no thicker than horsehair, stiffened with zinc—snaps outward, sifting the black water for the yellow froth that rides the ripples. Then the vibration passes. The plate rebounds, the dome contracts with the dry click of tin, and the fringe is hauled back under the rim, packed into the dark beneath where the sulfur is worked into paste.
+
+They are bolted to the floor, not by roots, but by vacuum and an excretion that hardens into something resembling cold solder. You could strike one with a sledge and break your arms; the scab would only ring like an anvil, weeping a tea-colored oil from its margins where the solder sheared.
+
+Where the scabs cluster thickest—always within thirty yards of an expansion joint that leaks warmth from the lower decks—other things wedge themselves into the gaps between their shells. These are the *weepers*, though they have no eyes to weep from. They are long, segmented wedges of gristle, pale as pig fat, about the size of a man’s forearm, but flattened until they are barely thicker than a piece of belt leather. They have no mouth that opens. Instead, their whole dorsal surface is a porous, chalky stone, formed by decades of mineral deposition from the overhead rain. The lead-shot drops hit them and do not bounce; the stone drinks the impact, crushing the chemical condensate down through microscopic channels into the tissue below, where slow, non-muscular valves churn it against the rust they scrape from the floor plates.
+
+The weepers do not survive the purges by holding on; they survive by being flat enough that the water cannot find an edge to catch. When the blind valves open in the depths and the pools begin their terrible, throat-clearing roar toward the sumps, the weepers press themselves into the microscopic pitting of the iron. The suction passes over them like wind over a lake. They become indistinguishable from the floor: six inches of slightly darker gray, cold as the plate, waiting for the water to climb back up to their level.
+
+Deeper down, inside the perforated floor-drains themselves—where the black water falls three hundred feet through vertical cast-iron tubes to whatever churns below—the life changes character.
+
+In those pipes, there is no rain, only a continuous, vertical gale of greasy mist driven upward by the displacement of the lower pistons, counter to the downward sluice of the purges. Here live the ropes.
+
+They hang from the lip of the gratings, down into the roaring bore. They are four, five, sometimes twenty yards long, thick as hawser, black and wet. They look like old hemp that has soaked in crankcase oil for fifty winters, but they are alive with a dull, hydraulic intention. They are composed entirely of concentric sheaths of fibrous ligament that contract in sequence with the four-second hammer. With every blow from the planetary pumps, the rope shortens by a foot, its fibers bunching into hard, walnut-sized knots; in the three seconds between strokes, it relaxes, lengthening, dropping down into the spray to catch whatever the purge has swept from the upper decking.
+
+They eat the sludge—not by swallowing, for they have no hollow core, but by braiding it into themselves. The oil, the copper flakes, the sloughed gray moss from the seams are drawn into the weave of their strands by capillary draw, trapped between the sliding bands of muscle, and ground down by the ceaseless, four-second chafing until nothing remains but a fine, dry grit that drops into the dark.
+
+Occasionally, one of the ropes loses its purchase. The steel prying-lip where it anchored rots through, or the purge is too violent, and it is torn free with a sound like a cable snapping under tension. It does not die immediately. It lands on the lower sumps or catches on the spokes of some half-submerged idler gear, where it continues to knot and unknot itself against the iron, four seconds at a time, until the friction burns it through and it becomes part of the grease.
+
+And then there are the ones that wander, though "wandering" is too light a word for what they do.
+
+They are found only in the wide, shallow basins where the steel has sagged between the support piers—places where the water never fully leaves, even during the deepest purge. They have no limbs. They are masses of cold, gray curd, ten or twelve feet long, dense as wet clay, that lie along the lowest contour of the dish. They have no skin; their outer layer is simply the place where the tallow of their bodies meets the tallow of the water, a curdled, yellowish rind that sloughs off continuously in sheets and is continuously replaced from within.
+
+They move by galvanic rot.
+
+Underneath their bellies, where they rest against the plate, they secrete a liquor that attacks the iron with frantic speed, dissolving the steel into an orange, bubbling paste of ferric oxide. The creature drinks the rust-liquor through thousands of ventral pits, and in doing so, it falls into the very depression it has just etched. It slides forward an inch a day, not by crawling, but by chemically digging a trench and slipping into it, dragging its heavy, tub-shaped bulk behind.
+
+Behind them, they leave a clean, bright furrow—the only bare iron in this world, shining with the silver-blue gleam of freshly turned metal. But the rain is fast. Within three cycles of the pump, the silver is orange; within twenty, it is black; within a week, the furrow is level again, filled with the universal silt, and the bryophytes have closed the scar.
+
+These things do not acknowledge one another. When two of the curd-masses meet in the bottom of a basin, they do not fight or mate. They simply press together, their rinds mingling like two drops of fat on cold soup, until the larger draws the smaller into its bulk through the sheer weight of its mass. The four-second pulse shakes them both. A single, heavier ripple runs through the combined jelly, and then the slow, corrosive slide resumes toward whichever direction has the thicker coat of lead-grease.
+
+Nothing here dies of age. Age is not a factor where there is no seasonal change, no growth that requires the sun, no pulse that is not the pulse of the machine. They die when the iron beneath them gives way—when a plate finally thins to paper under their bellies and drops them, along with twenty tons of kerosene-water, into the red, turning gears of the shelf below.
+
+Or they die when the pump stops.
+
+If the four-second cadence were to fail—if the shockwave that drives the scabs’ fringes, that times the weepers’ valves, that pumps the oil through the lengths of the hanging ropes were to drop into stillness—they would choke on their own weights. Their fluids would settle into layers by gravity, the copper salts separating from the grease, the tallow hardening into candles on the cold steel.
+
+They are not inhabitants of the floor. They are its fringe, its mineral sweat, the final form that grease takes before it becomes stone again. And as long as the steam shrieks through the brass and the pistons drop their tons against the planet's core, they will stay wedged there, their backs hammered flat by the tepid rain, their mouths open against the iron, drinking.

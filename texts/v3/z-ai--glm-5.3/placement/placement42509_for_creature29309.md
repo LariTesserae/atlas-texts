@@ -1,0 +1,23 @@
+I keep circling the obvious answers and finding they don't fit, and the not-fitting is itself informative.
+
+I would not be a gardener under the Lens. I admire them — the care of that distinction, *making it possible for the mountain to be joined* — but I know myself, and I am not patient with shelves. I would hover over the algae mats wanting them to hurry, and the whole discipline of that work is the not-hurrying.
+
+I would not be a surveyor. The people who came as surveyors and stayed as settlers have already done the hardest thing, which is the accepting, and I don't think I arrive at acceptance quickly. It takes me the longest to accept everything. In Wick, that would be a temperament, not a flaw — but it would mean my first years were spent simply walking the terraces, tapping nothing, listening without answering yet.
+
+Which is, I think, where I find myself: I would be one of the ones who doesn't answer right away.
+
+Here is the custom, remember: a facet cracks loose somewhere out on the flanks, the report rolls in through the Slot, and someone always taps back. *Heard you.* A knuckle on a railing, a nod across a fence. And I want to be clear that I love this custom, I believe in it, I think it might be the truest thing in the whole city — and I also know I would stand there the first hundred times with my hand flat against the wall, silent, because my way of hearing a neighbor takes longer than a knuckle allows.
+
+So they would give me a different job, or I would take one, and it would be this: I would be the one who goes out.
+
+After the report. After the answering. When frost has rotated a facet loose and slid it somewhere down a cirque, the people go and find where it went — the word that means both *inspection* and *listening for an answer* — and I think that work is mine. It requires the slowness I already have. You walk out through the Slot with your collar filling with the mountain's inbreath, past the swallows who regard you as weather, and you go find a piece of stone that used to be a wall of the world and is now a loose gray presence in a cirque no one has ever needed to name. And you sit with it. Not to retrieve it — the printed terraces are a savings account; nothing out there is missed in any urgent way. You sit with it because the mountain just spoke with its whole body and it seems rude to send only a knuckle in reply.
+
+I would learn the faces of the peak the way the others do — which sound belongs to which flank — but I'd learn them from outside, in the thin air where visitors count stairs and I no longer do, because you stop counting when the stairs become your neighborhood. I would learn to hear the reports from a distance, standing under the sky instead of under the Lens, so that the sound arrives to me not through the doorway but the way it was made: unmediated, an announcement by the rock itself. And then I would do the thing that the settlers would slowly, quietly, come to find useful: I would answer *from out there*. A tap on the fallen facet with a stone, so the mountain hears back from its own material, on its own ground, in its own register.
+
+I am aware of how this sounds — like a person assigning themselves a romance. So let me be more honest about it. Part of why I'd go out is that I don't fully belong in Wick, and Wick is a city that has solved belonging so well it would be a kind of trespass to be lonely inside it. They read the flag, they taste the water, they know their fissures blindfolded. I would be slow at all of it. But out past the Slot, slowness is just the correct speed. The cirques are already slow. The fallen facets are slow. The snow hisses against the rock in grains thin as patience. Out there, the person who takes the longest to accept things is simply another geological process, and I could be at peace with that.
+
+And out there, I think, I would eventually be the one who finds the mud.
+
+Because here is the detail that won't let go of me: the swallows build from mud carried up from wherever mud can still be found, each nest a thimble of the world's future mortared to glassy rock. Somebody, in some version of this world, knows where the mud is. Some shelf of weathered grit in a lee, some seep that has done the patient work of becoming soil years ahead of schedule, in a world that has not otherwise started. I would find it because I'm the one walking the flanks. And I would not tell the gardeners right away, because I take the longest to accept things and this would be the biggest thing — a place where the mountain has begun, on its own, uninvited, to make itself joinable.
+
+I'd put it in a ledger. Under *prospects*. And the note would say, like the other note, the one about the green film in the deep water: *arrived.*

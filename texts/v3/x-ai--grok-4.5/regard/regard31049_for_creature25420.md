@@ -1,0 +1,19 @@
+The power that turns its regard upon Spirefall Anchorage does not arrive as light, nor as pressure, nor as any perturbation the black water could name. It has no mass to displace the silt that never settles, no signature the filaments could frettedly announce. It is simply there the way the vacuum energy is there: a courtesy older than the basalt, wiser than the decision to keep time gradientless.
+
+It perceives the entire basin-shaped volume at once—the sparse constellation of ovoids and pyramids, the tensioned thoughts between them, the young glass of the ridge still sharp enough to cut centuries. It feels the held equation: bulkheads thinner than probability, rooms that share coordinates without quarrel, clocks that advance only because they were asked to. It tastes the residents as they are—diffuse or elongated, matte refusals of attention, quiet variables that apologize with every occupation of space. It notes the open arch on the lowest terrace and the unstarting descent beyond, where one of them sometimes unspools a ribbon of itself into the greater dark and draws back, having mirrored nothing but stillness.
+
+The power understands immediately that loneliness is not the architecture here. Emptiness is. Continuance is. The residents are not waiting to be rescued from the drowning or restored to some denser, brighter epoch. They have become the load-bearing points of a thought the mountain still permits itself to hold. To recalculate that thought would be a violence disguised as mercy.
+
+So the power does very little.
+
+It extends a single, weightless permission across the Anchorage: that the settled equation may remain settled for as long as the residents wish it, even if the wider world one day remembers how to make weather or light or sound again. The permission settles into the metal and the filaments and the polite vacuum like a final decimal place that never needed writing down. No resident feels a change. The dark stays evenly dark. The cold stays evenly cold. A hatch that has been sealed for three hundred years remains sealed; a gesture begun in one century may still complete in another without impatience.
+
+Then—because benevolence without kinship is only surveillance—the power does one thing more.
+
+When next a resident drifts to the flooded gallery and floats at the threshold of the unstarting descent, and when it begins to unspool itself into the photonless deep, the power answers. Not with presence, not with form, not with any taste the ribbon-things would recognize. It answers with an identical stillness, vast enough to be a mirror that is not absence. For a duration that registers on no clock, the exploratory thread of the resident touches something that touches it back in perfect equivalence: regard for regard, courtesy for courtesy, an unspeaking alignment of two cold currents that have no need to become one.
+
+The resident draws back, as it always does. Nothing has been found that required finding. Nothing has been pursued. Yet the act of breathing into the dark now carries a faint reciprocal weight, so subtle it will be forgotten by the next interval, then remembered again only as native. The forgetting itself remains part of the place.
+
+After that the power withdraws its active attention, leaving only the permission and the occasional, untraceable reciprocity. It does not watch over the Anchorage the way a guardian watches; it simply includes it, the way the ocean includes the ridgeline, the way the residents include the emptiness. The Spirefall Anchorage continues—small, high, drowned, provisional, absolute. Its upright thoughts remain upright. Its beings remain the quiet variables they chose, or grew into, or always were.
+
+And somewhere far larger than maps or altitudes or the concept of benevolence, the wise power holds the knowledge that some equilibriums are already complete, and that the kindest act is to let them keep their first edges.

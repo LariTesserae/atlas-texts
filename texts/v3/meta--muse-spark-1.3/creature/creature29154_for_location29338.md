@@ -1,0 +1,41 @@
+At first you think no one lives here.
+
+That's the trick of the thinness. You walk an hour over black stone and sheet-water and see only moss and fog and a carrier gliding empty down its thread, and you assume the clusters are unmanned — research stations left on automatic. Then a figure resolves out of the drizzle on the warmed path ahead, and you realize the place was never empty. You just weren't tuned to the scale of its people.
+
+They are low and slow, like everything else that survives here.
+
+Physically, you notice the breath first. Everyone breathes audibly here, especially newcomers, but the ones who stay have learned to breathe without showing it — deep, unhurried intakes that don't steam too hard. Broad chests under soft, dark waterproofs. Faces wind-burned at the cheeks and pale around the mouth from always being damp. Their boots are wide and soft-soled, made not to tear moss. Their hands are always a little wet. They wipe fog off railings, off nets, off each other's shoulders without thinking about it, the way people elsewhere brush dust.
+
+They don't raise their voices. No one shouts across the tundra. Sound dies too fast in the cold wet air to be worth it, and the animals startle. So they have become a people of proximity and gesture. A nod toward a herd line. A palm held up to pause at a crossing gate. They talk on the carriers in low murmurs, or standing shoulder to shoulder with tea going cold in their hands, watching weather come for an hour before it arrives.
+
+If you stay, what they *do* clarifies slowly. At first they look like technicians — and they are. Every knot of six or twelve houses has someone who checks the red blink of the moorings in the evening, someone who walks the condenser nets with a de-icing wand, someone who bleeds air from the underpath heating loops. Children learn to read a door that sticks not as broken but as busy: the house is leveling, the basalt heaved a centimeter overnight, wait an hour, have tea. It is plumbing. No one brags about the field physics holding a hundred tonnes three meters above heaving rock. It's like knowing how to thaw a pipe.
+
+But underneath the technician is something older. A shepherd.
+
+No one here owns a herd. The long-legged russet grazers with splayed marsh feet are not livestock. They are traffic. They come in lines five and ten wide and a kilometer long, picking sedge, dropping the manure that will, in a thousand years, be soil. The white geese and black-necked cranes drop down into the sky-colored pans by the tens of thousands until water disappears under wings. The quick foxes thread after them. High above, the soarers turn their slow circles.
+
+The people live by not getting in the way of that.
+
+Their workday is set as much by movement as by clock. The transit threads — those pale matte guideways floating a meter off the ground — will simply stop, mid-morning, because a herd is crossing two kilometers ahead. No announcement. The carrier sighs to a halt, doors stay shut, schoolchildren press their faces to the glass and count legs instead of complaining. The drift-walls, hardly higher than your knee, do most of the steering: miles of low angled stone that nudge hooves away from intakes and nurseries and nets without ever fencing them. When a gate senses weight and heat approaching it opens itself. The whole sparse city inhales, holds, lets them pass, exhales.
+
+That makes the people patient in a way that isn't philosophical, it's practical. The vets ride with kits not to manage the herds but to pick up the losers the predators leave at the edges, to splint a crane wing in a warmed entryway, to log births. The fence crews carry parts not to build higher but to repair what the ice heaved. The hydrologists kneel for hours in a centimeter of running water, watching which pebbles shifted since morning, because the rivers haven't decided where they want to be yet and someone has to witness the decision.
+
+They are midwives more than residents. They will tell you this ground is new and still rising a centimeter a year, shrugging off the glaciers, cracking in long straight lines with no soil in them yet. They don't stack stone, they don't shortcut across a seep, they leave fresh movement for the surveyors to see. They live lightly because anything heavy would be false. Even their houses breathe up a finger's width over a season on those triad pylons, floors staying dead level inside while the world moves outside. They have learned to live inside a levelness that is actively made, moment to moment, not given.
+
+Socially, they are knotted, not centered.
+
+There is no downtown to go to, so no one misses it. A knot is twelve people or eighty, enough to share a hot room fed by the deep heat, a drying room that always smells of peat and wet wool, a school table, a tea kettle that never really cools. Then emptiness, then another knot. Kinship runs along the threads. You court someone three carriers away. You apprentice your child to a net-tender two districts over because she likes the singing when the wind is right. In the evening, from a ridge, you can see what the city actually is: little warm windows strung to the horizon in black vastness, path markers glowing at ankle height, breath and fog rising off standing water. Each light alone. Each clearly part of the same thought.
+
+The children give them away. Plateau children don't run — the air is too thin and the moss too fragile. They lope, they squat. By six they can name five lichens on a single stone — pale green, orange, black crust — and know not to touch. By eight they can hear the difference between wind low over stone and geese far off like wind through a cracked door, and between a carrier's soft shush and a herd's long sucking sigh through wet peat. They are taught to listen before they are taught to read, because listening keeps you alive when fog drops to your knees and the ground gives its deep, subsonic groan as it rebounds. Not an earthquake. Just settling. The old ones don't even look up anymore.
+
+And they are not alone in living here. That is the point they would correct you on, gently. The moss lives here. The black moss in the seeps, the sponge-moss holding melt like a soaked blanket, the cushions of dwarf willow no higher than your ankle — all holding on by fingertips, prickling the barren when you kneel. The lichen mapping the tops of stones, growing a millimeter a year, already colonizing the rough outer walls that were grown-poured from crushed basalt precisely so lichen will take. The cotton-grass and sedge in the wettest threads. The foxes who have learned to den under warmed paths. The cranes who will stare you down from twenty meters and refuse to move because you are the guest.
+
+At night, when rim ice forms on the ponds and the condenser nets go white with frost and the main walkways stay just above freezing under your feet, the people go inside to warm-wood-colored rooms and leave the outside to the animals. Predator and prey play out right between the houses. You can stand at a window with your tea cooling too fast in the thin air and watch a chase cross a sheet-flood — water flying, moss tearing — and then stillness again, and drip from a weeping cut, and crunch of cinder settling.
+
+They don't intervene unless asked by a sound they recognize. They just keep the lights low so as not to blind the night-movers, keep machines silent, keep the paths warm for the next morning's wipe-down.
+
+If you ask them where the center is, where this is all going, they will look puzzled. The rock hasn't decided where its rivers will be. The moss hasn't decided where its meadows will be. Why should they decide? They are here to shepherd the becoming, to keep the condensers clear and the intakes clean and the gates open while a brand-new piece of the world learns how to drain, how to green, how to hold weight.
+
+They live high before they are anything else — lungfuls of thin clean cold, eyes always a little wet from fog — and what they are, more and more itself the longer you watch, is not a population.
+
+It's a form of attention that learned how to keep houses.

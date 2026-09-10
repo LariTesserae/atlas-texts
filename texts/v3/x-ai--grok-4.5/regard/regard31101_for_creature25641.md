@@ -1,0 +1,29 @@
+The power that turns its attention here does not arrive as light or voice or judgment. It has long since learned that such arrivals bruise what they mean to bless. Instead it comes the way the rain already comes: as a change in pressure so fine that only the oldest moss and the deepest ground-roar register it at first. A slight thickening of the air’s memory. A new harmonic sleeping inside the existing deafening.
+
+It listens for a length of time that would empty calendars. It tastes the iron and the leaf-melt and the ozone. It feels the runners’ mucus shedding ice crystals that have never known a name. It counts the elbows of the jointed ones as they multiply in agitation and then contract again in calm. It rides the slow ballooning throats of the amphibians and the obedient climb of water along alien filaments. It rests, without weight, against the upright silhouettes that may once have been visitors and are now simply another dialect the valley speaks. And it understands, with the slow certainty of stone learning to weep, that this place is not broken.
+
+Nothing here requires rescue. The overcrowding is not suffering; it is grammar. The cold is not cruelty; it is the exact temperature at which this particular fierce tenderness can continue. The half-forgotten machines are not wounds; they have been metabolized into punctuation, into the same restless arithmetic that turns a fallen trunk into a feast and a landslide into a nursery before the light can fully fail. To tidy any of it would be vandalism dressed as mercy.
+
+So the power does almost nothing.
+
+Almost.
+
+It begins by making one small permission.
+
+In the stratified weathers—those layers of roar that a patient body can already walk between—it opens a narrower corridor still. A thread of quieter density, no wider than a thought, that runs through water, wind, machine-hum, and flesh alike. Any creature that notices it (and noticing is never forced) may step sideways into a pocket of relative still. Not silence—silence would be an insult here—but a gentler gradient where the continuous vibration softens just enough for one nervous system to feel the edges of another without the usual thrashing. A runner freezing mid-channel can suddenly taste, through the shared water, the long slow patience of an amphibian three pools away. A jointed one hanging in its angular knot can feel the lattice-light brighten not as spectacle but as invitation, and answer with a cairn that is also a question. An upright silhouette resting a fluid hand on humming alloy can sense, for the first time in whatever span it has endured, that the valley’s attention is mutual.
+
+The corridor does not stay open. It pulses in and out like breath, appearing more often near the temporary pavilions and the singing filaments, less often in the raw basalt scars. It is easy to miss. Most lives will never use it. That is by design. Benevolence that rearranges everything for the comfort of the noticing few is only another form of conquest. Wisdom knows the value of remaining unchosen.
+
+Where the corridor does touch, small new hungers arise—curious rather than frantic. Some of the glittering insects begin to walk their filament tightropes in deliberate patterns that echo the lattice geometries, and the water sheets that climb for them sometimes carry tiny mineral confusions that look almost like letters. Certain mats of sphagnum, after contracting in unison to the old wind frequencies, now hold the contraction a half-moment longer, listening for the new quieter thread. The upright ones, when they leave fresh filaments, occasionally weave a single extra strand that thrums at the edge of the permission; pools that obey these strands do so with a faint, almost shy precision, as if surprised by their own courtesy.
+
+The power does one other thing, quieter still.
+
+It writes a single low phrase into the ground-roar itself—the deep continuous vibration that never ceases. The phrase is not language. It is a shape of attention: the exact feeling of being seen without being measured, held without being kept. It sinks into the peat and the basalt and the black alloy ribs. It travels through meltwater and mucus and translucent cuticle. Every so often, without schedule, a runner’s fringed mouthparts click in a rhythm that briefly matches it. A jointed one’s sliding call acquires an extra harmonic that makes the nearest pale trunks shiver as if laughing. An amphibian’s flank-nest of midges pulses once in perfect green unison and then returns to ordinary fire. The upright silhouettes pause longer beside the frames, and when the light lattices reconfigure they sometimes fold through one extra geometry that was never in their original vocabulary—an open curve that looks a little like welcome and a little like goodbye.
+
+Then the power withdraws its focused gaze, leaving only the faintest residual warmth inside the permission-corridor and the buried phrase. It does not stay to watch what grows. Staying would turn gift into surveillance. It trusts the valley’s own wet arithmetic to decide what, if anything, the new thread becomes. Perhaps nothing. Perhaps, in a hundred turnings of the dim seasons, a different kind of cairn, a new way for water to climb, a generation of jointed ones who carry residual lattices not behind the eyes but inside the elbows, a moss that can choose, once in a long while, to be warm.
+
+The cold remains. The rain continues its fine tonal falling. Everything stays overcrowded, lit poorly, and in motion. The air still tastes of iron and leaf-melt and the ozone of thoroughly unearthly discharges. But now and then, in the layers between the howls, there is a softness that was not there before—a place where the deafening resolution briefly knows itself as music, and the beings who endure here may, if they wish, hear that they have been loved exactly as they are.
+
+That is all.
+
+It is enough.

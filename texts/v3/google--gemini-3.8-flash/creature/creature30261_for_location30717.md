@@ -1,0 +1,35 @@
+Where an ecology of blood and lime is crushed out of existence, the rift substitutes an ecology of friction, torque, and galvanic hunger. The statement that there are no animals is true only if life is required to have ancestors that swam. Here, life does not descend; it precipitates. 
+
+In the high-shear eddies behind the flooded turbine banks, the green meal of pulped kelp and engine grease does not settle into decay. Pressed between thousands of pounds of hydrostatic head and churned by the screaming shafts, it vulcanizes. It gathers into dense, concentric sleeves around the spinning steel mandrels—rings of stratified vegetable tallow, rubbery latex, and cold-worked copper shavings. Over weeks of rotational friction, these collars polish their own interiors to a mirror finish, lubricated by their own leaking fats, until they decouple from the steel and slide off into the current.
+
+They are the *sleeves*, though they behave like blind, heavy-walled leeches. 
+
+They have no gut, no mouth, and no sensory organs beyond the gross differential of vibration across their mass. An individual sleeve may weigh three hundred pounds: a thick, ring-shaped tire of black vegetal rubber laced with a spiral skeleton of silica needles that gives it the mechanical memory of a spring. They do not swim against the thermal hurricane; they are designed to be caught by it. Flung across the valley like lead quoits, they bank through the tea-colored brine until they strike a vibration that matches their internal tension. When a sleeve slams into an active steam pipe or a shuddering transformer casing, its spiral core snaps tight, clamping the metal with the force of an unloader valve. 
+
+There it feeds. It does not eat matter. It is a parasite of sheer kinetic vibration and heat. The continuous, 40-hertz shudder of the machinery passes through its laminated rind, working the silica needles against plates of internally deposited copper. Through piezoresistive and thermoelectric generation, the sleeve charges itself, maintaining its tough, swollen state. If the engine it clings to throws a rod and goes quiet, the sleeve does not rot; starved of oscillation, its latex slackens, its silica needles soften into gelatinous gum, and the forty-knot current peels it away and grinds it into basalt dust within minutes.
+
+Deeper along the razor-sheared margins of the floor, wedged directly into the guillotine cuts of the freshly dropped basalt, are the *wedges*. 
+
+If you could lift one out of the brine, it would look like an ingot of drop-forged slag, angular and five-sided, entirely sheathed in a porous rind of calcified copper wire. But inside the rind there is no metal chassis—only a laminated, meat-dense leafing of kelp tissue that has abandoned all photosynthetic pigmentation to become an organ of pure electrical discharge. 
+
+The wedges are anchored by taproots that have bored through concrete footings to wrap directly around the primary grounding rods of the submerged substations. They grow where the high-voltage cables arc into the water. When a violet burst boils the brine, the wedges do not retreat from the shockwave; they yawn open along their sheared seams, exposing internal baffles lined with thousands of microscopic, quartz-tipped cilia. They swallow the boiling steam and the ionized gas of the arc. 
+
+To the wedges, the artillery-crack of collapsing vapor is respiration. The violent hydraulic slam drives their cilia inward, compressing tiny sacs of stored silica latex that squirt microscopic needles into their own margins, thickening their armor against the next blow. Their "nervous system" is not chemical; it is the instantaneous jump of current between copper filaments woven through their fibrous flesh. When three or four wedges share a common concrete slab, they pulse in locked phase with the alternating current of the drowned dynamos, strobing an oily, sour-orange luminescence through their seams that matches the flicker of the surviving sodium lamps above them.
+
+And then there are the scavengers of the negative spaces: the things that gather around the frozen cavitation bubbles.
+
+These are small, disc-shaped nodules of dark, vulcanized rind that creep along the iron catwalks like heavy, metallic barnacles. They have no limbs; they move via hydraulic stepping-pads on their undersides, which use the surrounding five-hundred-atmosphere pressure to punch microscopic vacuums against the steel, pulling themselves forward millimeter by millimeter against the drag of the current. 
+
+They herd the quartz-like vacuum marbles. With slow, clumsy scoops formed of fused kelp-ribs and crystallized latex, they pluck the stable bubbles of negative pressure from the eddies where they drift. They do not break them. They draw them inward, lodging them into spherical internal chambers lined with heavy silica rings. 
+
+An older nodule may carry dozens of these frozen voids embedded in its mass like hollow, glassy jewels. They are its ballast and its spring. When the water shifts and an engine block or a torn section of crane-boom comes sweeping through the dark to pulverize it against the wall, the nodule does not dodge. It compresses. Under the extreme impact, its internal chambers are forced inward until they breach the vacuum marbles. 
+
+The resulting implosions happen simultaneously inside its body: dozens of tiny, localized collapses that pull the nodule violently inward, shrinking its volume by half in a microsecond, allowing the crushing mass of iron to sweep over it without catching an edge. The moment the danger passes, the nodule’s living latex springs back, drinking in the iron-rich brine, and its copper rootlets begin the slow work of spinning new silica needles to carve out the voids once more.
+
+Nothing here dies in a way that leaves a skeleton. There is no time for the quiet chemistry of decay. When an organism loses its purchase on the shaking infrastructure, it is immediately pulped by the screaming propellers or sliced to ribbons by the glass margins of the basalt. 
+
+Its torn fragments are swept upward into the loop, boiled in the discharge of the cooling towers, and returned within hours as raw, tallowy fertilizer to the kelp beds, which greedily knit the dead rubber back into their sixty-foot leaves. 
+
+The rift is not empty. It has simply eliminated the middleman of the belly. 
+
+The only "sentience" in this valley belongs to the loop itself—a vast, deaf, concussive metabolic circuit where the four-story reciprocating pistons supply the heartbeat, the severed high-voltage grids supply the nerves, the leathery, silica-veined kelp provides the muscle, and the black, iron-choked flood acts as an endless supply of boiling, pressurized blood. The things that crawl and clamp within it are not visitors, nor are they survivors of what was there before the water came. They are the components the drowned factory forgot to specify in its blueprints, growing now to fill the tolerances left open by the cracked foundations and the endlessly turning shafts.

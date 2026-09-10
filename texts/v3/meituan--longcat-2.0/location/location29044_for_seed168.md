@@ -1,0 +1,31 @@
+# The Plateau of Unbecoming
+
+The first thing that reaches you is the light — ordinary, almost boring in its normalcy. A sun not unlike the one you know, casting clean shadows, rendering colors faithfully. The sky is a pale bleached blue that whitens at the zenith, and the air is so dry it feels like a substance, like breathing warm glass.
+
+You are very high. The plateau extends in every direction, far past the curve of the horizon, and the thinness of the atmosphere at this elevation should mean cold. It does not. The warmth comes from below — radiating up through the rock with a patient, subterranean constancy — and from the air itself, which clings to heat with an efficiency that feels almost chemical. The result is a warm, windless stillness, a held breath at altitude.
+
+The ground is fresh. This is the impression that builds slowly and then becomes unavoidable. Every surface is sharp-edged, unweathered, recently exposed. The rock has not yet learned to be old. There are no smoothed stones, no accumulated dust, no sand. The plateau's geology is still becoming — cracks run through the surface like a crust that hasn't finished setting, clean fissures with bright, unoxidized edges. In places, you can see where the land has simply *opened* — not from age or stress but from formation, as if the process of being born is not yet complete. The erosion that will eventually soften these edges, round these corners, has not yet found its way in. This is raw geology. Proto-landscape. A place still deciding what it will be.
+
+And yet it is not empty.
+
+Across the vast, bare stretches of unweathered rock — kilometers of nothing, open and exposed — there are *occurrences*. Dense stands of something that can only be called vegetation, though it has nothing to do with plants. No water exists here. None. The air is drier than any desert. There is no moisture, no dew, no humidity. What grows here grows without it entirely.
+
+The things that grow are mineral accretions. Crystalline structures that have precipitated out of the air itself — volatile metal compounds, organometallic vapors, exotic chemistry condensing on the rock surface and building outward in forms that uncannily echo botanical architecture. Fern-like spirals of copper-colored mineral, each frond a single crystal, branching and rebranching with an organic precision that makes your hindbrain whisper *plant* before your forebrain catches up. Hollow stalks of deposited silica, translucent and warm to the touch, rising in clusters like reeds from a dry seabed. Broad fans of interlocking mineral plates — amber, rose, a blue so dark it borders on black — layered like leaves, spreading outward from central nodes with the slow confidence of something that has all the time in the world.
+
+In the shallow depressions of the plateau, where the chemistry pools and concentrates, these formations grow dense. Thick, overlapping, layered — a tangled understory of mineral forms in colors that shift with the angle of the light. Lush. That is the only word. Lush in the way a forest is lush — abundant, varied, overlapping — but utterly without biology. No roots. No sap. No cells. Just chemistry, accreting.
+
+And here is where the strangeness deepens.
+
+The formations are not random. They are organized. Structured. Across the plateau, visible from any high point as geometric interruptions in the organic tangle, there are arrangements that are unmistakably — *impossibly* — architectural. Tower-like forms that rise in regular intervals, made of the same mineral deposits but shaped with a precision that no natural crystal habit produces. Frameworks that resemble the skeletons of factories — not metaphorically, not approximately, but with the specific, purposive geometry of industrial construction. Open lattices of refined metal, standing in the warm stillness like buildings without walls. Channels cut — or grown — into the rock, straight and uniform, connecting nodes in a network that suggests function. Suggests *production*.
+
+The landscape has processed itself. Zones of the native rock have been refined — not quarried, not carved, but *processed* — their components separated and reassembled. Sheets of pure metal lie on the surface like fallen leaves: copper, iron, aluminum, each one perfectly flat, perfectly uniform, gleaming dully in the normal light. Pools of once-molten material have solidified in shapes that imply containment — molds, forms, vessels — but there is no container. The material simply organized itself this way, as if the plateau were a foundry and these were its products, as if the chemistry of this place, at scale, performs the work of industry without any intelligence, any intention, any hand.
+
+And nothing changes.
+
+This is the final quality, the one that settles over everything like the warm stillness itself. The system is in equilibrium. Perfect, frozen equilibrium. The mineral vegetation grows at exactly the rate that the atmospheric chemistry and the rock composition allow — and no faster. The industrial formations stand at their finished height, their final geometry, neither extending nor decaying. The refined metal sheets will not oxidize. The channels will not silt. The pools will not overflow. Every process is balanced against every other process. Every output is consumed by some other input. The accretion, the refinement, the organization — all of it runs at a constant, invisible rate that produces no net change.
+
+There are no animals. No insects. No birds. No movement except the imperceptible addition of atoms to crystal lattices — a process so slow it exists outside of time. The silence is not the silence of a quiet place. It is the silence of a place where sound has no role, where there are no things that move in ways that would produce it, where the warm, thin air sits still and undisturbed.
+
+You stand on a landscape that is lush and empty, industrial and untouched, alive with growth and dead of life, high and warm, vast and sparse, finished and forever becoming — a place that has found its final form and then simply *stayed* there, indefinitely, without purpose, without change, without end.
+
+The light falls normally. The warmth radiates patiently. The mineral ferns accrete their invisible fraction of a millimeter. And nothing — nothing — happens.

@@ -1,0 +1,22 @@
+High on the sheer, unweathered face of the basalt ridge—where the air is thin enough to make the chest ache and the sky holds a pale, blinding clarity—there is a pocket-notch no larger than a grand hall. 
+
+It is called the North Recess, though no one walks here to name it. Embedded entirely within this granite-and-obsidian seam is a complete, miniaturized urban node, a settlement distilled into an area fifty paces across.
+
+The architecture does not imitate human scale; it is an organized, layered metropolis designed for processes that operate at the border of physical geometry and field-effect physics. Towers no taller than a person’s knee rise in stepped, razor-sharp tiers of dark ferro-glass and matte-grey silicates. Between them, miniature elevated transit conduits, no wider than a finger, span deep micro-chasms that drop into the glowing, sub-surface conduits below. The edges of every ledge, spire, and channel are impossibly fresh—crisp as knapped flint, unmarred by ice-wedge erosion or the dulling smoothing of time.
+
+It is bitterly cold. The air sits near freezing, crisp and dry to the lungs, yet the pocket is perpetually wet. 
+
+Water here does not fall as rain; it materializes directly out of the ambient atmosphere, drawn by localized gravitational micro-gradients embedded in the stone. A cold, bright mist continually forms three feet above the mini-spires, condensing into heavy, glass-clear beads upon the hydrophobic surfaces of the city. The droplets do not smear or stream randomly. Instead, they roll with unnatural liquid precision along micro-grooves cut into the streets, gathering into perfect, trembling spheres before slipping into catch-basins that hum with a low, sub-audible vibration. 
+
+The light is brilliant and direct. The high-altitude sun strikes the un-weathered facets of the structures, splitting into clean, hard-edged shadows and dazzling refractions. Where the water pools in the narrow conduits, the light reflects off the dark, polished foundations, casting shimmering web-lines across the sheer rock walls that enclose the recess.
+
+There is no soil, no moss, no lichen. Nothing grows here that relies on carbon or sunlight for metabolism. The landscape is entirely mineral, metallic, and liquid. Yet the space is intensely active, pulsing with an ecosystem of mechanical and electromagnetic cycles. 
+
+Every few minutes, a sequence initiates within the micro-district:
+A row of narrow spires on the upper terrace shifts its polarization, turning from light-absorbing dark to mirror-reflective. The change shifts the local thermal balance by a fraction of a degree. Instantly, the condensed water on those surfaces flashes into a thin sheet of frost, which is immediately swept clean by a low-frequency sonic pulse that rings out like a single struck wine glass. The ice shatters into micro-crystals, which are pulled downward into the lower reclamation channels by a brief tilt in the local gravity field.
+
+Fauna is rare, but present in strange, sparse forms. Tiny, six-legged articulates—carved from cold iridium and glass, no larger than a beetle—move across the sheer vertical faces of the mini-towers. They do not walk so much as snap from point to point along invisible magnetic rails, inspecting the seams where the built structure meets the raw mountain stone, clearing micro-debris or resetting displaced sensor pins. Farther down, in the deepest, wettest drainage trench of the node, translucent ribbon-like entities—neither machine nor biological, but structured self-organizing polymers—drift through the cold, flowing water, absorbing dissolved heavy minerals before dissolving back into the liquid stream.
+
+The soundscape is hushed, dominated by the emptiness of the surrounding mountain peak, but rich in close-range textures. There is the steady, rhythmic *tink-tink-tink* of water droplets striking resonant alloy plates; the high, razor-thin sigh of cold stratospheric wind passing over the pocket’s outer lip; and the deep, silent breath of the sub-surface power conduits, felt in the soles of the feet as a steady, comforting tremor.
+
+Looking into the pocket feels like peering through a magnifying lens at a city built for a world with different physical constants. It is clean, sharp, freezing, and precise—an urban organism operating in complete solitude, perpetually washing itself with mountain mist, high above the world, perfectly at home in its tiny, frozen notch.

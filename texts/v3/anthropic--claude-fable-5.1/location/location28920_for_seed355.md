@@ -1,0 +1,59 @@
+You come to it first as a change in the ground. The mud has been mud for a long way—warm, ankle-deep, smelling of iron and sulfur—and then it isn't. It's stone. Flat stone, slick with a film of water so hot it doesn't cool your foot. Then a step. Then another, cut square, or seeming cut, rising out of the shallows at a right angle so exact that the body recognizes it before the mind does: a stair.
+
+There is no light to see the stair by. There is no light at all here, in the ordinary sense. The sky, if there is one, is the same black as everything else, and what the eye reports is mostly the eye's own noise. But the darkness has texture. Warm air moves across the face from the left and it is wetter than the air from the right. A surface a few feet ahead returns the small sounds of your movement a fraction later than a surface behind. And there is, very faintly, a glow in the water—not enough to see by, only enough to know that the water is there. Where the foot disturbs it, a smear of blue-green rises and fades, like the afterimage of a light rather than a light itself.
+
+So you go by the stair. It rises maybe twenty steps and delivers you onto a surface that is wide and level and running with a thin sheet of water, and this is the moment the place begins to declare what it is. The level surface has an edge. The edge is a low wall, waist-high, its top rounded and pitted. Beyond the wall the ground drops away into a channel where water moves, slow and heavy, with a sound like breathing through cloth. Beyond the channel, if you throw a pebble—there are pebbles, they crunch under the wet stone film—it strikes another wall, and the strike comes back twice.
+
+It is a street. It has a kerb and a gutter and a facing. It is a street in a city with no one in it, in a basin where the water is hot and comes up through the ground, in a dark that has been dark long enough that the dark is not a condition but a material.
+
+---
+
+The city is made of the water.
+
+This takes a long while to understand, walking, because at first the stone reads as stone the way any stone does. But run a hand along a wall and it is layered—fine laminations, each the thickness of a fingernail, stacked in thousands. Break a piece off, which is easy at the edges where it's thin, and the fresh surface is soft, almost chalky, and gives under the thumbnail. It is travertine. Lime. The water here is saturated with it, and where the water slows or spreads or spills, it lets the lime go, and the lime becomes ground, and the ground becomes wall.
+
+Ordinary travertine builds terraces—scalloped rims, pools stacked on pools, the shapes of things pouring. This lime builds courses. It builds lintels. It builds a doorway, and the doorway has a threshold worn into a shallow dish in the middle as though centuries of feet have crossed it, and no feet have. Water crosses it. Water crossing a lintel for long enough will wear a dish in the same place feet would. But that is not why the lintel is there. The lintel is there because the water, spilling from a channel at the level of the upper street to the level of the lower, deposited its lime in a horizontal bar across two uprights, and it did this the way it does everything, for no reason, and the bar is the shape of a lintel because a lintel is the shape that pouring water makes here.
+
+Everywhere it is like this. The channels that run down the middles of streets have the profile of aqueducts. Where a channel turns, the corner is squared. Where two channels meet, there is something that can only be called a junction chamber, with a lip and a spillway and a shaft going down into hollow dark. The city has drains. The city built its drains before it built anything else, or rather the drains are what it is, and the walls and steps and plazas are the drains' outer skin, the residue of their long work.
+
+Nothing here has been shaped by a hand or a tool. There is no iron in the walls, no beam-socket, no mortar line that a person would have laid. The masonry is seamless in a way that masonry never is—each course grading into the next, each block a suggestion of block, the joints real depressions but never through-cuts. It is a city with the grammar of building and none of the vocabulary. It never learned the word for door. It only made the shape, over and over, because water pours through openings and openings collect lime at their heads.
+
+---
+
+The heat is not the heat of sun. There is no sun. The heat comes up from the ground and from the water and it is the heat of a body, slightly too high—a fever heat, damp and continuous, that never rises toward burning and never falls toward rest. The air is so saturated that it cannot hold what it carries; it gives it back constantly, in condensation, on every surface, so that the walls weep and the wide plazas gleam under that not-quite-light and the skin runs before any exertion. Breathing is like breathing in a mouth. Sound carries badly in it. A word spoken aloud goes about as far as the arm can reach and then falls into the wet.
+
+And there is almost nothing to hear. This is the strangest quality of the place, stranger at first than the walls. A marsh should have frogs. Hot water should have insects hanging over it. There are none. There are no birds crossing overhead, no fish turning in the channels, no shell scraping over stone. The water moves and drips and breathes through its cloth, and the lime, where it is building fast, makes a very faint ticking like a settling roof, and beyond that the city is quiet with a quiet that has depth to it, that goes down.
+
+What lives here is thin. In the edges of the channels, where the water has cooled a little, there are mats—dark, slimy, rubbery to the touch, the color of nothing in the dark but probably the rust-orange and black of thermophile algae. They are what gives the water its faint smear of light when disturbed. Where a channel has been dry for a long time, on the higher, older terraces, something rooted has come in: stiff dark reeds, a few, a scatter, standing in cracks with their bases sealed in lime, so that they look less like plants growing than like plants set into a floor. And that is all. Two kinds of life, both of them barely life, both of them being slowly built into the walls.
+
+---
+
+Distance does not hold.
+
+You learn this the way you learned the stair, by the body. A street runs straight ahead, walled on both sides, its channel breathing down the middle. You follow it for what feels like a long time—hundreds of steps, an hour—and it ends against a wall. Not a closed door: a wall, laminated and weeping like every other, with the street's own gutter running up to its base and disappearing into a small square drain. Turn around, and the street back is much shorter than the street you walked. Fifty steps. Forty. The stair you climbed is right there, its blue-green smear still fading where your foot was.
+
+Or the reverse. Cross a plaza toward a wall you can hear by its echo and the echo does not get closer. The plaza extends beneath you at the pace of your walking. After a while the echo is behind you, and the wall was never crossed.
+
+This is not a trick of the dark. The dark hides it, but it would be there under any light. The city's geometry is the geometry of its water, and its water does not run downhill in any way that a body can trust. A channel breathes leftward along one street and, at the junction, breathes leftward along the crossing street too, and then along the third, and the fourth, so that it has run in a closed square and arrived at itself, still moving, still full. Put a hand in it and the current pulls toward the fingertips and toward the wrist at once. The water is going somewhere. It is just not going somewhere that has a direction.
+
+The lime records this. Where the water has run in these impossible loops for a long enough time, the deposition takes on the same character—walls that meet themselves, stairs whose top step is also the bottom step of the flight beside it, arcades where every arch opens onto the interior of the arch you came from. Nothing is ruined. Everything is in balance. The travertine has been laying itself down over these knots for so long that the knots have a patina, are worn, have their dished thresholds. A break in the world, if this is that, that has weathered into a settled shape and become a place.
+
+---
+
+Because it is still building. That is the other thing the body learns.
+
+Stand still long enough on the wet stone—not long, the length of a few breaths—and the film of water around your feet begins to feel gritty. The lime is coming out of it. Stand longer and the grit becomes a crust, a thin ring, and when you lift your foot there is the faintest resistance, the sound of a small seal breaking. Kneel to feel the wall you broke a piece from a while ago and the break is already glazed, its sharpness gone, a new lamination laid over the wound. Lay a hand flat on a step and hold it there and, when you take it away, the print is not in the stone but *on* it, raised, a hand's worth of white bloom that will be a hand-shaped bump for a thousand years and then a hand-shaped bump under a foot of wall.
+
+The city has been growing for as long as the water has been coming up, and the water shows no sign of stopping, and the lime shows no sign of running out, and the darkness gives nothing away about how long that has been. There is only the thickness of the walls to go by, and the walls are very thick.
+
+Weather moves through this. Not weather from a sky—the sky, if it is there, does not participate—but the city's own. Periodically the air gets heavier, if that is possible, until it cannot carry itself, and then it falls. Not rain; there is nothing to fall from. Condensation, all at once, everywhere, the entire saturated volume of the place letting go at the same moment, so that every surface streams and the channels rise and speak louder and the faint blue-green flickers all across the plazas where the water sheets and, for the length of the event, you can almost see: the low walls, the dark doorways, a long facade like a row of teeth, a stair going up into nothing. Then the air is lighter, briefly, and thin veils of steam come off the stone, and the ticking of fast lime is everywhere, and the dark closes.
+
+After one of these falls, a street you had marked by its echo is not where it was. Whether it moved, or the fall built a wall across it, or you did, there is no telling.
+
+---
+
+The city has no center, or has one that cannot be reached, which is the same thing. It has an edge, of a kind—the stair you came up from the mud, and other stairs, in other places, going down into other mud that is warm and smells of iron and sulfur and is, as far as the body can tell, the same mud. The basin extends past the city in every direction, flat, hot, dark, breathing. The city extends into it, not as a boundary but as a thickening: out there the lime lays itself down in low sills and wandering rims, ordinary travertine doing ordinary things, and closer in the rims get straighter, and the sills get squarer, and somewhere—there is no line—it becomes a kerb, and then a street.
+
+You can stand at that unmarked place for a long time, in the heat, with the water around your feet slowly setting, and try to feel the moment the world's habit changes. It never does. There is nothing to feel. It is only that pouring water, here, makes lintels. It is only that the shortest way between two places has been depositing lime for so long that it has walled itself in.
+
+Somewhere behind you, or ahead, a channel turns a square corner and is still turning it. Somewhere a drop that has been falling for a long time strikes a pool, and the pool gives up its faint, brief light, and the sound comes back from a wall that is exactly as far away as the last time, and no farther, and no nearer.

@@ -1,0 +1,27 @@
+It is no larger than the interior of an upturned iron steamer trunk, wedged into a freshly cracked shear-plane beneath the bedplates of a reciprocating steam pump. 
+
+The fracture in the siltstone is young—barely three months old, judging by the absence of rounded edges. The stone broke along clean, slate-gray laminae, leaving razor-sharp stepped terraces that drop an inch at a time into a wedge-shaped floor. These shelves have not yet had time to weather. Their edges can still slice through skin or chitin without resistance. Overhead, the cast-iron belly of the pump forms a ceiling, stained in orange halos of rust and weeping a steady, lukewarm condensate that falls in single, heavy drops every few seconds.
+
+The air is warm and dense, smelling of tallow grease, hot well-water, and the sweet, turned-soil stench of an overcrowded vivarium. 
+
+There is almost no open air here. Despite the pocket being scarcely four feet across and two feet high, it is packed to capacity. The space is saturated with bodies, metal shims, and biological infrastructure that leaves barely enough room for the light to penetrate down between them. 
+
+The light itself is surprisingly clear. It spills in from an inspection port above—a round, wire-meshed aperture where an amber incandescent work-bulb burns unblinking in the pump hall. It illuminates the pocket with a dry, honest daylight-warmth, catching the edges of fractured shale and the wet, oiled carapaces of the things that have colonized the split.
+
+Plant life has barely found a purchase; true vegetation is sparse, limited to a pale, brittle turf of hair-roots that have pushed through the stone's joints from some surface garden yards away, dangling in the humid air like frayed thread. In place of leaves, there is a slick, felt-like crust of dark liverwort clinging exclusively to the rusted nuts of the foundation bolts, drinking the condensation as it runs down the threading.
+
+Everything else is animal, or the machinery that the animals have incorporated into their shells.
+
+They are small—none longer than a human thumb—and they cover the terraced stone so completely that one cannot see the gray siltstone beneath without gently nudging them aside. They resemble woodlice, but their dorsal plates are thick, square-cornered, and heavily mineralized with iron salts leached from the dripping pump. Some have picked up discarded machine screws, lead wash-plugs, and brass turnings from the engine room floor above, cementing them to their backs with hardened, grey salivary mortar until they look like walking swarf. 
+
+They are in constant, orderly motion. Because there is no horizontal space to spare, they crawl over one another in a slow, three-tiered laminate of moving carapaces. A lower stratum cleans the rock face, rasping off the microscopic films of machine oil and anaerobic bacterial bloom that thrive in the heat; the middle layer crawls over their backs, angling their flattened plates to catch the descending condensate; the topmost tier tends to clusters of white, rubbery egg-capsules glued directly to the hot underbelly of the iron pump.
+
+When a drop of water falls from the overhead casing, it hits the highest layer with a dull *tock*. Instantly, a ripple of movement passes through several hundred bodies. The creature struck does not flinch; instead, two tiny, scissor-like antennae snip the drop in half, channeling the warm liquid down lateral gutters grooved along its flanks to reach the dry individuals pinned in the layer beneath. 
+
+A scatter of human interference lies trapped within the crowding: a forgotten box-end wrench, blackened by grease, spans a gap between two stone ledges like a viaduct. The lice have used it as a primary thoroughfare. Its stamped size—*11/16*—is still visible beneath a moving carpet of jointed legs. Near the narrowest corner of the wedge, an intact glass fuse cylinder has rolled into a crevice; inside it, visible through the clear cylinder, three pale, blind grubs lie curled in the dead air, twitching faintly in rhythm with the engine’s cycle.
+
+Sound in the pocket is muted, deadened by the soft, oily bodies that absorb vibration like acoustic baffles. The massive mechanical blows of the steam pump above—which should be deafening this close to the stroke-rod—are translated through the bedrock as a rhythmic, rib-thumping shudder rather than a sound. Within the crevice itself, there is only the wet, rustling friction of a thousand chitinous bellies shifting against slate, the periodic *ping* of metal cooling, and the tiny, aspirated clicks of the lice exchanging drops of fatty grease.
+
+Things die quickly here, but nothing rots in the conventional sense. The heat and density allow no leisure for decomposition. When one of the armored crawlers ceases to move, its neighbors immediately begin to shear away its softer abdominal rings, using the hollow iron-crusted husk as a nursery cell for their larvae or as a wedge to widen the crack another fraction of a millimeter. 
+
+Occasionally, a slight shift in the plant’s operating pressure forces a sigh of lukewarm steam down through the seam. The entire crevice blurs for an instant behind a curtain of white vapor. The creatures do not scatter; they flatten themselves into a continuous, interlocking shield of rusted armor, sealing the cracks between them, holding their breath, waiting for the damp heat to pass and the clear light to return to their small, teeming world.

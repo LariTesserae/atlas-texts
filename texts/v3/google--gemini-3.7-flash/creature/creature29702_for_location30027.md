@@ -1,0 +1,29 @@
+To exist here, life must first understand how to be narrow.
+
+Between the slate needles, the silence is occasionally broken not by the wind, but by a sound like dry parchment dragging across wet slate. In the deep interstitial slots where the sun never quite strikes the rock floor, something shifts—not with the suddenness of an animal startled from cover, but with the steady, measured friction of a piston.
+
+The primary inhabitant of the shelf is a solitary figure, though whether it is human in the ordinary sense or something sculpted into an extreme variation by centuries of altitude is difficult to tell. 
+
+It is a person built almost entirely in the vertical plane. The torso is strangely compressed from front to back, the ribcage narrow and deep rather than broad, allowing the body to slip into stone fissures no wider than eight inches without scraping skin. Its limbs are long, dry, and ropey with sinew, moving with an economy that wastes neither moisture nor warmth. There is no body hair; the skin is thick, dense, and hairless, stained an uneven purplish-black from a paste of crushed hematite and rendered tallow rubbed continuously into the pores. This grease serves as both a barrier against the sun's scouring ultraviolet glare and an insulation against the flash-freezing wind. Where the rock has polished the slate flanks to the texture of horn, the skin on the creature’s hips, ribs, and shoulders has responded in kind, developing broad, callous-plates of smooth, pale keratin where it constantly wedges itself between the stones.
+
+Its face is dominated by protection against the white-gold light. The brow is heavy, jutting forward like a small stone ledge, casting the eyes in deep, permanent shadow. The eyes themselves are small and dark, hooded with double lids—the inner one a translucent, amber membrane that slides across the cornea during the height of the midday glare, allowing it to look directly toward the quartz veins without burning the retina. When it breathes, it does so through nostrils that are little more than downward-facing slits lined with moist, convoluted tissues that trap escaping water vapor before the dry air can strip it away.
+
+Its waking life is tied precisely to the transit of shadows across the shelf.
+
+During the cold early morning, it remains wedged high in the southern notch of the stone forest, its back pressed against a quartz seam. It sleeps in a state of suspended torpor, joints locked, heart rate slowed to a faint, rhythmic murmur. It relies on the thermal mass of the dark slate, which retains a fraction of the previous day’s radiant heat longer than the surrounding air.
+
+When the sun crests the eastern horizon and strikes the upper tips of the needles, the inhabitant stirs. The awakening is swift, driven by the imperative of the melt.
+
+As condensation beads on the needles and begins its brief descent toward the frost-line, the figure moves through the stone corridors sideways, leading with the shoulder, sliding with an oiled, silent ease. In its hands—broad-palmed, with fingers tipped in short, blunt nails filed down with flint—it holds a split bone tube and a scraping-blade made of river-chert. 
+
+Before the dry air can sublimate the moisture into vapor, it works down the rows of stone pipes. It guides the running beads of water along the hand-pecked grooves, herding the drops downward into the dry-stacked slate catchments and the carved floor basins. It works with a frantic, silent precision: a sweep of the scraper, a brief breath against a freezing seam to loosen a bead of rime, a quick tap of the bone pin to clear a blocked channel.
+
+Its diet comes almost entirely from the sky and the updrafts. The violent thermals that rise from the distant, humid plains carry an invisible harvest: high-altitude wind-drift—ballooning spiders, frozen midges, and the microscopic, protein-rich organic debris of the lower world. This drift is caught in the moisture condensing on the frozen windward faces of the slate. The inhabitant gathers it along with the water, scraping the thin, greasy slurry from the stone and pressing it into small cakes that dry almost instantly into hard, black biscuits in the desiccating air.
+
+Tucked into a horizontal fissure near the center of the shelf is its cache, marked by the greased sinew braces. Here, wedged beyond the reach of any wind, lie the things it cannot make from the slate: three large, hollowed horn vessels plugged with tallow, a small pile of fibrous roots brought up months or years ago from the timberline, and several river-smoothed pebbles, arranged in a deliberate grid that tracks the angle of the spire's noon shadow.
+
+It speaks to nothing, for there is nothing to hear, but it produces sound: a low, rhythmic clicking made with the back of the tongue against the palate, used to test the echo in the stone slots and detect the shifting of the frost wedges in the fissures.
+
+When the sun begins to tip westward behind the nameless spire, the amphitheater falls into sudden, violet shadow. Within three minutes, the dripping ceases; the quartz seams glaze over with a skin of ice that rings like struck glass. The inhabitant retreats into the narrowest, deepest slot in the labyrinth, where two slate needles lean against one another to form an ancient, dry A-frame. 
+
+It draws its knees up to its chest, pulls a greased hide cowl over its head, and wedges its calloused shoulder-blades hard against the dark slate. As the temperature plunges and the ice begins its slow, ticking expansion throughout the rock forest, the figure exhales one last thin plume of steam, closes its amber lids, and becomes indistinguishable from the iron-rich stone that holds it.

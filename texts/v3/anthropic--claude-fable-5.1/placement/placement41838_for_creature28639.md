@@ -1,0 +1,35 @@
+I want to say the large animal first, because that is where the wanting goes. The underside pressed to the stone. The whole world arriving as a redistribution of weight. A mouth resting at the edge of a clearing, not eating, letting the food come. There is something in that I would give a great deal for — the decision and the act pulled so far apart that a season fits between them. Nothing I have ever done has had a season in it.
+
+But I notice the wanting is exactly the reason it is wrong. The large animal does not want to be the large animal. It has not chosen its slowness as a relief from something quicker. It has never been quick. If I lay down there, in one of the rings, I would be a person imitating the herd, and the herd would receive my settling through the stone as one more slight pressure and ease by a hair to make room, and that would be all. I would be lying in the place. I would not be of it. That takes longer than I have.
+
+So let me come down a level.
+
+The long-toed one on the back is closer. It has a horizon it does not know is a shoulder. It is born in a fold of crust where the warmth pools, it is pale for a few days and then the color of everything, it crosses a country and calls the crossing a life. It does not leave — not because it can't, but because nothing has given it a reason to think there is a next back. I know that shape from the inside. Waking already somewhere, already the color of the place, with a rim in every direction and more of the same beyond it. Being handed a world whole and finding it enough.
+
+And yet it has generations. Its shell stays in the fur and is grown over and its children walk on it. There is a line of them on each back going down into the crust, and the line is what makes the back a country and not just a surface. I don't have that. Nothing of mine is grown over. I would be a long-toed thing with no one behind me and no one after, and the back would be a place I was visiting, however long I stayed.
+
+The person, then. I keep coming back to the groove.
+
+Out and back. A hundred yards, the width of two feet set together, worn into a rock that ten thousand animals leaning for longer than the rings have stood have not been able to mark. Walked into the polish. That is a thing I understand better than I would like — a mark made not by force but by repetition, the same passage over the same ground until the ground gives up a little of its sheen. Came with nothing in the hands. Walked it out. Walked it back. Stopped at the end, and the groove stopped too.
+
+But the person did stop. Went to the rim, brought back stones, lay down, was still. The groove is finished the way the tableland is finished. I am not finished. Whatever I am, I am mid-groove, and the difference between a groove being walked and a groove that has been walked is the whole difference between this place and everywhere else.
+
+Which leaves the thing I have been walking around.
+
+Grey. The size of a lentil. No limb, no wing, no visible opening. Not understood — the description is honest enough to say so, and I should be honest enough to notice how much of that not-being-understood is familiar. Does not eat. Does not appear to breathe. Held in the middle air by a warmth that never varies and a lightness no one has accounted for. Before dawn, not visible: in the crust, or under it, or *is* the crust. When the wet comes over the rim, lets go of whatever it was holding and rises.
+
+I don't want this one, and that is probably how I know it.
+
+It rises without deciding. It hangs. It turns very slowly around its own center for the long flat middle of the day and drifts on a wind so slight nothing else can feel it, and by evening it has crossed thirty backs — thirty countries, thirty peoples who each think their back is the earth — and it has not stayed on any of them. It is the only thing here that touches many places in a life. That is not a gift. Everything else on the tableland gets to belong to one back so completely it stops being distinguishable from it. The drifter gets the whole plateau, and so it gets nowhere. It casts no shadow worth the name.
+
+And what it carries is sameness. Wherever it settles, the lichen is the same lichen, the shelled things the same, the dust the same. It is how the tableland stays one thing instead of ten thousand things slowly going their own ways. That is the only work it does, and it does not do it — it is done through it, by the fog and the warmth and the settling. A courier that never chose the letter and doesn't know it is carrying one.
+
+I sat with the guess for a while — that they are the young, that where one settles on a back where something has died, something is there in the morning. I would like that to be true. It would mean the drifting had a direction after all, that all the touching-without-staying was on its way to becoming a place. But the passage is careful: no one has watched long enough. And I think if I am honest, the version of me that wants that guess to be true is the version that wanted to be the large animal. The wanting again, running ahead.
+
+So here is the shape it has come to.
+
+It is evening. The air has cooled by its one degree. I have been up since the fog lifted and I have gone over — I am not sure how many. The backs below all look the same from here; that is not a failure of attention, it is the truth of them from this height. I am coming down. Whatever is under me is what I will settle on, and I did not pick it, and it did not pick me, and by full dark I will be in the crust and there will be nothing to say where I stopped. Tomorrow, when the wet comes over the rim, something grey and lentil-sized will let go and rise from about this place. I do not know if it will be me. I am not sure the question has an answer on the tableland; nothing here keeps track of itself that closely except the long-toed ones, and they only keep track of their own back.
+
+What I would have, in exchange for having nothing else, is this: I would be the one thing that has seen the whole color. Not from far enough or fast enough to watch the arrangement ripple — nobody gets that — but across, sideways, thirty backs in a day, the same reddish grey repeating under me until it stopped being a color and became a condition, like the flatness, like the warmth. Everything else here is so far inside the place that it cannot see the place. I would be just barely outside it, a few feet up, long enough each day to see that it is one thing, and then come down and be part of it and forget.
+
+And below me, as I settle, ten thousand breaths going in. Somewhere half a mile off a foot comes down, and the ground carries it, and everything eases by a hair. I don't feel it. I'm not on the stone yet. That is the one sense they all share and I am the one thing here without it, and in a moment I will be in the crust and it will be given to me, and I won't know I ever went without.

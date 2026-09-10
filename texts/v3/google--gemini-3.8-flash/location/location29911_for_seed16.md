@@ -1,0 +1,23 @@
+It lies inside a blister of basalt four hundred fathoms beneath the salt-flats: an elliptical pocket no wider than a mile from rim to rim, but vaulted high enough that its ceiling is lost in hot, soot-colored haze.
+
+There is not a drop of water here. Not as mist, not bound into clay, not held in the cells of the things that grow. The heat is heavy and bakehouse-dry—well past the point where sweat would boil if there were any skin to produce it. The air is nitrogen, carbon monoxide, and a dry, stinging vapor of sulfur dioxide that burns the throat it will never touch. Everything here exists in a state of desiccated, mineral equilibrium, baked down to its hardest components over millennia.
+
+And yet the floor of the pocket is covered in a dense, rustling forest of anhydrous vegetation.
+
+These are not plants of cellulose and sap. They are organo-silicon growths, hair-fine filaments of spun vitreous slag and black carbon lace that sprout from fractures in the basalt. They grow with shocking speed, driven by the violent thermal gradient between the red-hot floor and the cooler caprock above. Fern-like fronds of braided mica uncurl within the span of hours, shivering as they draft the rising heat. Tall, segmented canes of hollow graphite stand in thickets thirty feet tall, rattling like dry bamboo against one another. Their leaves are razor-thin wafers of dark selenium that shutter and turn toward the faint dull embers of the ground. 
+
+Among these singing, glass-dry brakes sits a city.
+
+It was built by hand—or by something that used simple levers, iron-tipped wedges, and the dry-stacking of stone. There is no mortar. Mortar requires slaking, and there is no liquid to wet lime. Instead, the masonry relies on stepped corbels, tongue-and-groove joints ground smooth with abrasive emery dust, and massive lintels of dark peridotite that span narrow lanes. The city climbs the tilted floor of the blister in layered terraces: hundreds of low-ceilinged rooms, courtyards paved with interlocking tiles of slate, and tall square watch-chimneys that act as natural bellows for the drafts.
+
+It is organized on an urban scale—planned with avenues, cistern-shaped silos that were never meant for water, and long stone troughs filled with dry, sorted gravel—but it is profoundly empty. The interior spaces are vast and hollow. You can look through three tiers of open colonnades and see only the black graphite thickets encroaching on the lower steps, swaying in the violent upward draft.
+
+The sound is immense. It is never quiet here.
+
+The pocket functions as a thermal engine. The convection is an engine of friction: hot air screams up through the flutes and perforations carved into the city’s towers, setting them vibrating like organ pipes tuned to an octave below hearing. The graphite thickets clash and click like millions of dry knitting needles. Every few minutes, a crystalline frond reaches its structural limit in the baking heat, fracturing with a clean, rifle-shot snap that ricochets across the vault. Stone faces expand and creep against one another, groaning as the deep heat pulses up from the mantle in slow, rhythmic surges.
+
+Light is sparse, heavy, and red. The bedrock itself provides most of it—a low, sullen infrared emission that bleeds into the visible spectrum only along the fissures, where the stone glows the color of an old coal. The rest comes from the vegetation: when the mica fronds flex and snap in the violent updrafts, they release static charges, pale violet triboluminescent sparks that crawl along their edges like crackling hair. For a second, a whole terrace of ancient dry-stone tenements will be thrown into sharp, twitching relief by a sheet of blue static, only to sink back into red-tinted twilight.
+
+The cycle of the place is entirely mechanical and chemical. Every few days, the heat from below spikes. The carbon thickets do not burn—there is no free oxygen to feed a flame—but they anneal, slumping into glassy, brittle coils that shatter under their own weight. Within hours of the crash, new spikes punch up through the drift of vitreous dust, driven by the pressure of sulfur vapors condensing in the root-fractures. They shoot toward the dark roof, expanding, branching, knitting their stiff laces across the streets.
+
+The stone structures endure it. Their edges have been rounded not by rain, but by centuries of abrasive ash blowing back and forth across the flags, scouring the lintels until they look like drift-bones. In some of the deeper chambers, shelves of slate are stacked with thousands of dry clay tablets, baked to ceramic hardness by the room itself, their incised marks perfectly sharp, untouched by moisture, waiting in the furnace air.

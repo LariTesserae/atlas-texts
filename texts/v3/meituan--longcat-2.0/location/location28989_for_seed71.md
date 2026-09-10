@@ -1,0 +1,61 @@
+# The Flats of Ur-Maren
+
+---
+
+You arrive, if arriving is the word, at the top of the last hill. And it is the last hill — not because the land drops away after it, but because there will never be another one. Before you, in every direction, the world simply *continues*: an enormous plain of dark stone and pale moss and standing water and silence, running out to a horizon so distant it has begun to curve, just slightly, the way a thread curves when it's long enough. The sky here is not a sky you recognize. It is the color of old pewter, and it hangs low, and it moves — not with clouds exactly, but with something like the memory of clouds, shapes that gather and disperse and gather again without ever committing to rain, though rain comes anyway, in its own time, on its own schedule, falling upward as often as down.
+
+The stone under your feet is gneiss, banded and ancient, worn to a surface so smooth it seems almost polished but isn't — this is what ten million years of wind and ice and slow, patient water do to a mountain range. The mountains are gone. Everything is gone. What remains is the root-structure of a continent, planed flat, exposed. You are standing on the basement of the world. The elevation is still high — the air is thin and sharp and carries a cold that doesn't bite so much as *insinuate*, settling into your joints, your teeth, the spaces between your thoughts — but there is no up left. Everything that could be up has been taken away.
+
+And yet it is not empty.
+
+---
+
+The water comes and goes. It pools in shallow depressions in the stone — perfectly round, some of them, as if pressed there by a finger — and then vanishes, and then returns. Not on a cycle you can predict. The pools are black and still and very cold, and when you kneel beside one you can see that the bottom is not stone but something *like* stone, something that moves at a speed below the threshold of perception, a slow tectonic breathing. The water is not rainwater. It is not meltwater. It is not groundwater, exactly. It is water that has condensed out of the air in places where the air has become tired, where the molecular bonds have relaxed their grip and let hydrogen and oxygen find each other in the space between one moment and the next. You can see it happening if you watch long enough: a faint mist forming on nothing, coalescing, beading, running downhill along invisible grades to the nearest pool. The pools never overflow. The pools never empty. They simply *are*, the way old things are, with a permanence that has nothing to do with stasis.
+
+Between the pools, the moss grows.
+
+---
+
+It is the only living thing, and it is everywhere — but everywhere in the way that stars are everywhere in the sky. You can see them from here, but the distances between them are the real story. The moss grows in patches, each patch a meter or two across, separated from the next by ten or twenty or fifty meters of bare dark stone. It is a deep green, almost black in shadow, almost emerald when the light catches it at the right angle, and it is thick — lush in the truest sense, a dense mat of it, soft underfoot, wet, cold, alive in a way that the stone and the water are not. You can feel it breathe. You can feel the slow metabolism of it, the patient conversion of light and mineral and moisture into more of itself. It has been doing this for a very long time. There is no soil. There is no substrate. The moss grows on the bare stone, feeding on whatever the stone offers, which is not much, which is enough.
+
+There is no other plant life. No ferns, no flowers, no trees. The moss has the world to itself, and it has filled the world — not densely, not continuously, but *thoroughly*, the way frost fills a window, each crystal distinct, each crystal perfect, the spaces between them as much a part of the pattern as the crystals themselves.
+
+---
+
+You walk for an hour and the horizon does not change. You walk for two hours and it shifts, slightly — a smudge of grey to the north that might be weather or might be a wall. You walk for three hours and you can see that it is a wall.
+
+The city of Ur-Maren sits on the plain like a stone dropped on still water — except that there is no ripple, no disturbance in the landscape around it. It simply begins. One step you are walking on moss and wet gneiss, the next you are walking on fitted stone, on streets, on the worked surface of a human place. The city is not large — perhaps ten thousand people, perhaps fewer — but it is *dense*, in the way that matters: dense with intention, with history, with the accumulated weight of construction layered on construction layered on construction. The buildings are made of the same dark gneiss as the plain, quarried from somewhere, shaped with tools you can see the marks of — chisel-cuts, abrasion grooves, the patient friction of stone on stone. There is metal, but not much: copper, mostly, green with age, used for fittings and fixtures and the blades of tools. The architecture is low and thick-walled, built for the cold, built for the wind, built for a world that offers no comfort and expects none in return.
+
+The streets are narrow and they curve, not in the organic way of medieval European towns but in a way that suggests the city grew *around* something — around the pools, perhaps, or around the moss-patches, or around something else entirely that is no longer visible. There are channels cut into the stone of the streets, and water moves through them — not flowing, exactly, but *present*, available, a thin sheet of black water that reflects the pewter sky and makes the streets look twice as deep as they are. The water is cold enough to hurt.
+
+People move through the streets. They are wrapped in layers — wool, felt, hide — and they move with the unhurried economy of people who have lived their entire lives in cold and thin air and have learned not to waste motion. They carry tools: hammers, chisels, lengths of copper pipe, baskets of something pale and fibrous that might be moss-harvested, dried, processed. They speak, but not often, and not loudly. Their language has a quality you notice after a while — a flatness, a lack of upward inflection, as if the thin air can't support the energy required for exclamation.
+
+---
+
+The city has no edge. It simply thins — buildings spaced farther apart, then walls without buildings, then cairns, then nothing. You can walk out of Ur-Maren in any direction and within an hour you are back on the plain, back among the pools and the moss and the silence, and behind you the city is already gone, absorbed into the grey light, indistinguishable from the stone.
+
+There are other cities. You can see one to the east on clear days — a smudge on the horizon, a darkening of the line where sky meets plain. And there are others, you are told, to the west and south and north, each one a dense knot of human presence in the vast emptiness, each one separated from the next by a day or two or three of walking. The people of Ur-Maren know about them. They trade with them, occasionally, when there is something worth trading. They do not expand into the spaces between. The spaces between are not for expanding into.
+
+---
+
+The sky does things.
+
+Not often, but often enough that the people of Ur-Maren have words for it. The light will change — not darken, not brighten, but *shift*, as if the light were a substance with layers and someone had peeled one layer back to reveal a different one underneath. For a few minutes everything will be slightly the wrong color: the moss too blue, the stone too warm, the pools reflecting a sky that isn't there. And then it will pass, and the light will be normal again — normal being the pewter grey, the low-hanging weight of it, the way it comes from everywhere and nowhere, diffused by an atmosphere that has forgotten how to be clear.
+
+Sometimes the pools show you things. Not reflections — the pools are too still and too dark for ordinary reflections, and what they show you is not behind you but *elsewhere*: a different plain, under a different sky, with a different quality of silence. The people of Ur-Maren do not look into the pools if they can help it. When they must — when the water-channels need clearing, when a new pool has appeared in the street and needs to be mapped — they look quickly and look away and do not speak of what they have seen.
+
+The moss grows in the streets of Ur-Maren, too. It creeps in from the plain, finding the cracks between the fitted stones, filling the channels where the water runs. The people clear it, and it grows back, and they clear it again. This is not a war. This is a conversation, conducted in the language of persistence, and both parties have been having it for longer than anyone can remember.
+
+---
+
+There are no birds. There are no insects. There are no dogs, no cats, no rats in the walls, no fish in the pools. There is no animal life at all — no warm thing, no quick thing, no thing that moves with purpose or hunger or fear. The people of Ur-Maren are the only animals in the world, and they know it, and the knowledge sits in them the way the cold sits in the stone: not as an absence but as a *presence*, a weight, a thing with its own gravity. They do not keep animals because there are no animals to keep. They do not hunt because there is nothing to hunt. They eat the moss — processed, dried, ground into a flour that makes a dense, dark bread with a mineral taste and a faint sweetness that might be real or might be imagination. They eat the lichen that grows on the north-facing walls of the city, where the dampness lingers longest. They eat a kind of pale fungus that grows in the deep places beneath the city, in chambers that were not dug by the people of Ur-Maren but were found by them, already hollow, already shaped, already waiting.
+
+The people do not ask who dug the deep chambers. They do not ask about the pools, or the light, or the things the pools show them. They have learned, over generations that number in the hundreds or thousands or tens of thousands — no one is certain, because the past is a thing that erodes here just as the mountains did — they have learned that the world of the plain does not answer questions. It simply continues. It simply *is*. And the work of being human in a place like this is the work of continuing alongside it, of building your low thick-walled houses and clearing your channels and growing your fungus and making your bread and walking your long distances between cities and coming home and doing it again, day after day, in the grey light, in the cold, in the silence that is not silence at all but the sound of a world that has worn itself down to its essence and has no energy left for noise.
+
+---
+
+The wind comes from the east. It has always come from the east. It is a steady wind, not strong, but constant, and it carries with it a smell that is not quite stone and not quite water and not quite moss but something else, something that has no name, the smell of the plain itself, the smell of a place that has been around so long that it has developed an odor the way a person develops a personality — slowly, incrementally, out of the accumulation of ten million small events.
+
+You stand in the street in Ur-Maren and you feel the wind on your face and you look out past the thinning edge of the city to the plain beyond, and you see the moss-patches and the pools and the dark stone running out and out and out to the curving horizon, and you understand — not intellectually, not as a thought, but as a feeling in your chest, a tightening, a recognition — that you are standing on the oldest thing you will ever stand on, and that it is not finished, and that it will never be finished, and that the slow wearing-down will continue long after you are gone, long after the cities are gone, long after the moss and the water and the people are gone, continuing and continuing and continuing until there is nothing left but flatness and silence and the wind from the east and the dark pools reflecting a sky that has forgotten what it was reflecting.
+
+And the moss will grow back. The moss always grows back.

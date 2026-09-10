@@ -1,0 +1,25 @@
+The heat here does not arrive from the sun alone, though the sun is an unshielded, white-hot puncture in the thin purple of the mountain sky. The heat rises equally from the stone beneath. At this altitude—five thousand meters above the salt-choked oceans—the atmosphere ought to be freezing, but the plateau is a vast hydrothermal mantle, an upturned copper pan simmering over an interior kiln. 
+
+Water covers almost everything, but never deeply. It sheets across blinding, miles-wide terraces of white travertine and pink sulfate crusts, rarely deeper than a hand’s breadth. It slips over polished rims in silent curtains, moving continuously from the high vents toward the basin floor. The air is so thin that water boils at a lukewarm temperature, burbling and churning in pale, breathless froth across the shallows. The result is a perpetual, shimmering haze: the glare off the calcium mirrors is absolute, casting no distinct shadows, while a film of warm, greasy condensation coats every surface—iron, stone, and carapace alike.
+
+Not a single leaf or stalk breaks the plane. Plant life never found purchase here; there is no soil, only crystallizing nitrates, silica slush, and bare rock scrubbed raw by millennia of chemical run-off. 
+
+Yet the plateau is densely inhabited. 
+
+In the wide, warm shallows, life moves in swarms that make no sound. Thousands of translucent, flat-bodied things, broad as iron platters and pale as boiled fat, glide across the mineral skins. They graze on sulfur films and mineral scum, their jointed undercarriages clicking softly against the limestone with a sound no louder than dry grass shifting in a draft. Above the shallow pans, along the damp iron skeletons of the works, roost millions of salt-wasps—brittle, thumb-sized organisms with segmented silicate hulls that absorb the solar glare. They do not buzz. When they take flight in sudden, synchronized clouds of thousands, they stir only the faintest displacement of hot vapor, a brief breath of damp air against the skin before they settle once more on the sun-warmed rivets.
+
+Rising out of the flats, spaced wide apart across the glare, are the monuments of an industrial settlement that seems to have finished its growing long ago.
+
+These are not ruins, but neither are they bustling. The city is laid out with the severe, mathematical geometry of an extraction works: broad avenues of dark slag-brick, raised high enough on pylons to stay clear of the scalding wash; vast, box-like processing tenements constructed from heavy corrugated zinc and lead-riveted iron plates; and endless arrays of passive condensing funnels that taper upward like hollow, black minarets. 
+
+The machinery is entirely silent. It does not run on coal or combustion; it breathes on the delta between boiling ground and freezing sky. Great siphons—tubes of banded bronze three paces thick—harness the natural hydrostatic pressure of the thermal fountains, driving silent, oil-submerged turbine drums somewhere deep within the stone floors. The only sign that a factory is operating is the steady, glass-smooth fall of distilled water from its overhangs, and the shimmering exhaust of clear heat shivering out of its vents. 
+
+Between these monolithic works, emptiness stretches wide. There are no crowded alleys. A lone pipe bridge may cross a quarter-league of scald-pans to reach a solitary brine-tower, casting a thin, sharp silhouette across the radiant floor. Here and there, narrow elevated walkways connect the tenements, their galvanized gratings perpetually washed clean by descending mist. Below the walkways, blind, soft-bellied creatures with pale legs like hairpins pick through the industrial sluices, feeding on the metallic dross that sloughs from the plating.
+
+The silence is the most physical element of the place. 
+
+The scald-water produces no thunderous cataracts; it is too soft, sliding over greasy lime-slicks without breaking. The creatures possess neither lungs nor vocal chords, communicating—if at all—through vibrations conducted through the wet bedrock. Even the wind, high and fast as it must be in the upper stratosphere, slides cleanly over this mountain plateau, leaving the low basins dead calm, trapped under a dome of dense, shimmering vapor. 
+
+If a turbine turns within an iron hall, its bearings are so steeped in graphite and tallow that no hum escapes to the terrace outside. The only sound is the persistent, microscopic tick-tick-tick of salt crystals forming as the water sheets thin over hot stone, and the occasional, dull *plink* of an iron fastener expanding in the sun.
+
+Through this incandescent fog, the works seem permanent, like a geological epoch rather than a built city. Lime has climbed the legs of the viaducts, encasing the lowest iron rungs in thick, bulbous rinds of stone until the machinery looks less anchored than rooted. Along the cooling canals, pale scavengers gather where the heat is sharpest, their shell-edges rimed with yellow sulfur, perfectly still under the bright, dry eye of the sky, waiting for the mineral tide to shift an inch one way or the other.

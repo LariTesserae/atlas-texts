@@ -1,0 +1,67 @@
+The first thing you learn is that the valley is not flooded. It was flooded, once, perhaps a season ago — the edges of everything are still too sharp for it to have been longer — but flooding is an event, and this is a condition. The water has stopped being something that happened to the valley and become the valley's medium, the way air is the medium of a hillside. Nobody would say a hillside is "aired."
+
+It is warm. Bathwater warm, blood-warm, the temperature at which you stop being able to feel where your body ends. It is also not quite clear and not quite murky: a grey-green tea, thick with suspended particulate that catches what little light there is and holds it in a haze about two meters deep, so that everything past arm's reach is a suggestion, and everything past ten meters is a rumor. The light comes from above, weakly, filtered through a surface you cannot see and are not certain exists. It also comes, in places, from below — sodium-orange smears, the blue-white stutter of arc welding, a dull red that pulses like something breathing — and this bottom-light is the more reliable of the two.
+
+---
+
+Before anything else there is the noise.
+
+It is not loud the way a storm is loud. A storm is loud *around* you. This is loud *through* you — the water carries it straight into the chest cavity, the sinuses, the long bones of the legs, and your body becomes a component in the sound rather than a witness to it. There are layers. Underneath everything, a rotational thrum so low it is closer to a pressure than a pitch, as if a turbine the size of a cathedral were turning somewhere in the silt and had been turning since before the flood and would turn after. On top of that, industrial percussion: drop-forges, or things that behave like drop-forges, striking at irregular intervals, each strike sending a hard flat compression wave through the water that you feel first in your teeth. Over that, a metallic screaming that comes and goes — unlubricated bearings, something being sheared — and a hiss that never comes and goes, that is simply always present, which you eventually understand is steam venting into water somewhere, continuously, in volumes that should have boiled the valley dry a long time ago.
+
+You cannot hear yourself. You cannot hear the water moving past your ears. The noise has a floor, and the floor is well above the level at which a person exists.
+
+After long enough the noise stops being sound and becomes weather. You start to navigate by it. The forge-strikes are coming from the north end of the valley; the screaming is somewhere to the east and shifts; the thrum is everywhere and useless.
+
+---
+
+The terrain is young. This is the thing that keeps striking you.
+
+The valley floor is not silt, or not only silt. It is a hard, fine-grained grey material with the texture of set concrete or cooled slag, and it is cracked in sharp polygonal plates like a dry lakebed — except that the cracks are fresh, their edges unrounded, still bright where the material has split. Nothing has had time to soften. Where the floor rises into low ridges — and it does, in long parallel ranks running down the valley like the ribs of something — the ridge crests are knife-thin and the flanks are scored with grooves so regular they look tooled. Perhaps they were tooled. Perhaps the valley was manufactured rather than eroded, extruded rather than deposited, and the water came in afterward to cool it.
+
+There are structures. Not many, and never whole. A brick chimney rising thirty meters from the floor, its top lost in the haze, its mortar lines still crisp, a ladder of rebar hoops running up one side. A gantry crane, or half of one — two legs and a crossbeam, the far legs simply absent, not broken off but *not there*, the beam ending in the water like a word cut off mid-syllable. A row of six identical corrugated sheds, each with a single round window glowing orange, sunk to their eaves. A pressure vessel the size of a house, its rivets raised like braille, lying on its side. A single cast-iron door standing upright with no wall around it. These things are spaced out across the valley the way farmhouses are spaced across a plain — you can see one, perhaps two, from any given point, and you can walk for a long time between them.
+
+But they are not ruins. That is the wrong word. Ruins have been abandoned. These things are *working*. The chimney is venting — you see the column of bubbles, or of something denser than bubbles, roiling up its flue. The half-gantry's hoist is running, its cable descending into the floor and returning, descending and returning, lifting nothing. Inside the sheds, behind the orange windows, something rotates. The forge-strikes are coming from somewhere you haven't found yet. The whole valley is a plant that has kept its shift going after the flood, after the shutoff, after whatever it was that took away the walls.
+
+---
+
+Then there is the vegetation, which you keep expecting to be the gentle part and which isn't.
+
+It is everywhere. It is thick. In the low ground between ridges it forms stands so dense you have to push through with your shoulders, and it grows on the ridges too, and on the chimney, and on the gantry cable, and in the cracks of the floor. Most of it is long — ribbon-forms, strap-forms, two and three and five meters, rooted below and rising toward the dim overhead light, moving constantly in the turbulence. Some of it is the dark red-brown of kelp; some is a chlorotic yellow-green; some is grey, or transparent, or has a metallic sheen, as if it had been taking up whatever the water carries and the water carries a great deal of iron.
+
+It is growing while you watch. Not fast enough to see as motion, but fast enough that when you look back at a stand you passed a few minutes ago, its silhouette has changed. Fronds have lengthened. New shoots have come up through the slag. And it is dying while you watch, too — you pass through zones where every plant has gone soft and brown and is coming apart in the current, sloughing off in rags, so that the water is full of drifting fibrous matter that catches on you and on everything. The living and the dying are not separated into seasons. They are adjacent, patchwork, interleaved at the scale of a few meters. A stand of vigorous red ribbon-weed will have a corridor of rot straight through its center, and beyond the corridor it is vigorous again.
+
+You realize, at some point, that the vegetation is fed by the industry. The plants cluster thickest around the steam vents, around the orange windows, along the gantry cable where it enters the floor. They are growing on the exhaust. They are the valley's way of doing something with all this output — or the output is the valley's way of growing them, which comes to the same thing, and which is the first time you suspect the industry and the ecology are not two systems sharing a space but one system you are misreading as two.
+
+---
+
+There are no animals. None. Nothing swims. Nothing crawls on the floor or clings to the chimney or hides in the weed. You look for the small signs — the flick at the edge of vision, the burrow, the shell — and there are none. The vegetation is uneaten. Every frond is complete. In a real sea, plants this lush would be grazed to the root; here they grow and die and grow again without a single bite taken from them, and their perfection is faintly obscene, like a banquet at which nothing has been touched.
+
+The absence is so total that it starts to feel like a rule rather than an accident. Something is being excluded. Whatever this valley is doing, it does not include being eaten, being seen, being lived in. The plants and the machines can be here. The forge can be here. You are, for now, apparently permitted. But nothing with an appetite, nothing that would take something out of the system rather than adding to it — nothing like that survives, or was ever let in.
+
+---
+
+And then the place begins to come apart, or rather, you begin to notice that it has never held together.
+
+You walk toward the chimney and it is further away than it was. Not receding as you approach — you would have a word for that — but further away *retroactively*, so that the distance you have already covered turns out to have been less than it was. You look back at the half-gantry and it now has three legs. You look again and the third leg is a dense column of grey weed that has grown up in the shape of a leg, in the place where a leg would be, and you cannot tell whether it grew to fill an absence or whether the absence was always a leg you failed to see.
+
+The forge-strikes, which you have been using to navigate, are coming from the north. Then they are coming from the north and also from directly beneath you, the same strikes, with no delay between them, as if the same event were happening in two places. Then from the north only. Then the pattern of strikes reverses — you hear the echo before the blow — and you understand that the sound in this water is not obeying anything.
+
+Things are being made. You find a place where the floor is soft, where the slag has not yet set, and standing in it, half-emerged, is a machine: a lathe, or a press, or something with the general grammar of a lathe. Its lower half is still fused with the floor, undifferentiated. Its upper half is finished, painted, with a manufacturer's plate you cannot read because the letters rearrange as you look. It is *coming up*. The valley is extruding it. In an hour it will be free-standing and running. In a day there will be a shed around it with an orange window. In a week — you don't know. You have not been here a week. Perhaps in a week the shed will be gone, not ruined but dissolved back into the floor it came from, the way a wave goes back into the water, and the weed will grow thick over the place where it stood and you will never know it was there.
+
+You find the opposite too. A shed mid-dissolution. Its corrugations going soft, the ridges flattening, the whole structure sinking not because it is heavy but because it is *ceasing to have been built*. The rotating thing inside it is slowing. The orange light is going brown. And around its base, a fringe of brilliant new green weed is coming up so fast you can almost see it, taking the shed's substance as it goes.
+
+This is the dynamic. The valley is not a factory that has been flooded. It is a process — a churning, turbulent, self-consuming process — that produces factory as one of its phases, the way a storm produces lightning. Machines rise out of the floor, run, fall back. Vegetation rises out of the machines' exhaust, thrives, rots, becomes floor. The noise is the sound of the churn. The heat is its byproduct. The water is the medium in which it happens, and the floor is the medium's sediment, and the sharpness of everything is because nothing has been given time to erode before it is remade.
+
+---
+
+The reality-breakdown is not spectacular. There are no rifts, no wrong-colored skies. It is subtler and more pervasive than that: the valley is simply not committed to any particular version of itself. Distances are provisional. Objects have a probability of being there rather than a certainty. When you look away from the chimney, the chimney relaxes — becomes a taller chimney, a shorter chimney, two chimneys, a column of weed, a column of steam — and when you look back it has to decide, and you can feel it deciding, a kind of resistance in the water like a current changing direction. You are the only thing here that insists on continuity, and the valley finds your insistence faintly effortful to accommodate. It does accommodate. So far.
+
+You begin to suspect the noise is part of this. That the deafening is not incidental but structural — that the valley needs to be too loud for anything to think in, because thought is a kind of insistence and the valley cannot afford insistence. In the rare pockets where the sound dips, where some accident of ridgeline blocks the thrum for a moment, everything in view goes suddenly rigid and definite, edges hard, distances fixed, and the weed stops moving — and then the noise comes back and everything eases, loosens, resumes its low-grade shimmer of maybe.
+
+---
+
+Down the valley to the south, where the floor slopes lower and the light from above thins to almost nothing, the bottom-light gets stronger. The orange smears multiply. The sheds are closer together — no longer scattered, not yet dense — and the weed between them is taller than you are and growing fast enough to feel. The forge-strikes are louder here, if louder means anything anymore. The floor is softer. More things are half-emerged. You have the impression of moving upstream toward a source, toward the place where the churn is fastest and the valley is most fully engaged in making itself, and you also have the impression — held simultaneously, without contradiction — that the source is behind you, at the north end, where you came in, where the first chimney stands with its ladder of rebar hoops and the mortar still fresh between the bricks.
+
+You could be wrong about the direction. You could be wrong about *direction*. The water is warm and the noise is total and the weed brushes against you constantly, thousands of contacts a minute, none of them alive, all of them growing.
+
+Somewhere ahead, or behind, a new machine is coming up through the floor, and the floor is closing behind a machine that has gone back down, and neither of them has had the time to rust.

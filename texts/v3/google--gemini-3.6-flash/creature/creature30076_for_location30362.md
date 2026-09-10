@@ -1,0 +1,23 @@
+In the small, basalt-ringed clearing at the heart of the vault, what appears to be a discarded bundle of dried fronds or a slab of fallen chert is, in fact, the occupant of the chamber.
+
+It sits folded upon itself, so motionless that the powder-wax from the surrounding plants has settled in a faint, pale bloom across its shoulders. It does not possess flesh as surface-dwellers know it. Flesh requires water; flesh gives off moisture, rots, and demands a wet pulse. This creature is a creature of dry horn, pressed mica, and parchment-thin keratin, woven together in dense, overlapping plates that slide over one another without the aid of fluid or grease.
+
+When it unfolds, it does so with a sound like two dry roof tiles shifting against each other. 
+
+It is vaguely hominid in silhouette, though its proportions are dictated by the razor-narrow fractures of the surrounding mountain. Its body is long, flattened, and jointed with extraordinary economy, built to slide through hairline granite tears where a human hand could not pass. Its skin is the color of scorched slate—matte black and deep rust—and its limbs are slender, ending in long, four-jointed fingers tipped with blunted, bone-white plectrums instead of nails.
+
+It has no lungs, no throat, and no soft lips to hold moisture in. Instead, along the ridges of its ribs and down the flanks of its spine are rows of delicate, wax-coated spiracles—tiny, rigid vents lined with microscopic, parchment-like gills. Through these, it passive-breathes the hot, sulfurous gas seeps and atmospheric nitrogen, synthesizing what little chemical energy it requires without ever exhaling a breath of humid air.
+
+Its head is a narrow, streamlined wedge of smoked chert-like plate, entirely devoid of hair, ears, or a nose. Where eyes might be, it has two smooth, unblinking lenses of dark, vitreous horn, completely dry and impervious to the dust. It does not see through light alone; the faint amber phosphorescence of the resin-stalks is enough for its lenses to register the hard edges of its world, but its primary sense is acoustic.
+
+The creature’s entire skeleton is hollow—a network of dry, resonant bone tubes tuned precisely to the chamber’s deafening metallic purr. The thunderous rasping of the mica-backed crawlers is not a disturbance to it; it is its heartbeat, its atmosphere, and its primary source of spatial awareness. The roaring sound bounces off the unrounded quartz walls, striking the creature’s body, and through the vibration singing in its marrow, it "sees" the room in perfect, razor-sharp sonic clarity. It knows the exact location of every brittle frond, every crawling insect, and every micro-fracture in the stone.
+
+It lives in a state of deliberate, hyper-efficient craft. 
+
+Watch it work: its movements are sudden, crisp, and immensely precise, then punctuated by hours of absolute stillness. With its four-jointed fingers, it wields the milky quartz scraper, paring away the hard, waxy coating of the sage-green leaves into the low basalt ring. It grinds the wax together with sulfur dust and dry pith-shavings, creating a fine, aromatic powder. It does not eat in a wet sense; it presses this dry, chemical paste into the spiracles along its ribs, where subterranean gases dissolve the compound directly into its metabolic stream.
+
+With the bone needles and the braided vine-cord, it works the materials of its dry forest. It strips the long, hollow resin-tubes, splitting them into rigid splints, and weaves them into intricate, geometric lattices—not for shelter, but to tune the room. It places these woven screens in specific crevices along the chert walls, dampening certain frequencies of the insects' roar and amplifying others, sculpting the acoustic resonance of its thirty-foot universe until the vibration matches the internal pitch of its own hollow bones.
+
+It has no concept of days, seasons, or light. It does not sleep, for it has no metabolic wastes to clear through rest; it simply pauses, locking its horny plates together, becoming an inert extension of the rock until the ambient heat shifts or the resin-stalks yield new material.
+
+It is not a survivor trapped in a dry grave; it is the natural culmination of this dry, loud, static place. It is an entity made of stone-light, chitin, and sound, perfectly adapted to an eternity spent twelve paces beneath the world, where nothing ever rots, nothing ever wetly bleeds, and nothing ever changes.

@@ -1,0 +1,27 @@
+To live here is to live inside an ear, or a heart, where the universe does not have horizons, only depth, pressure, and the pulse.
+
+The true masters of this vertical world are not swimmers, but clingers and balancers, creatures whose bodies have been cast in the same chemical mold as the machine itself. 
+
+Scattered along the curved bronze hull are the *Solder-Slugs*—fat, thumb-length mollusks whose shells are not calcified bone, but heavy shields of layered copper-verdigris and iron scale, excreted from the minerals they scrape from the joints. They are the cylinder’s heavy ballasts. When the machine shudders and the pressure-relief valve blows below, they do not hide; they flatten themselves into hydrodynamic wedges against the smoothed rivets, allowing the milky, effervescent plume to wash over them, filtering the grease-fats and chemical tallow that lift from the venting machinery. Their trails leave the bronze gleaming raw and pink before the green patina heals over it again.
+
+Suspended in the open water between the walls and the central brass piston is a delicate, drifting choreography. 
+
+The blind needle-fish do not swim haphazardly. They are nervous, electric things, entirely translucent save for their needle-thin, copper-colored spines. They possess no eyes, but their flanks are lined with lateral-line pits sensitive enough to read the microscopic shear of water over a weld. When the five-minute mechanical pulse approaches, they do not scatter; they assemble. Sensing the deep, infrasonic groan building miles below in the engine’s iron guts, thousands of them orient their bodies parallel to the central light shaft, locking their fins to form a spinning, living cylinder of silver around the sunbeam. As the shockwave hits, the school resonates like a struck bell, their swim-bladders absorbing and dampening the hydraulic hammer that would otherwise pulp them against the walls.
+
+In the thick, emerald skirts of the lung-moss lives that which hunts the needle-fish: the *Veil-Eels*. 
+
+These are ribbons of pure muscle, two meters long but no thicker than a pane of window glass, utterly colorless and ghost-soft. They anchor themselves by their tails to the brass oil-lines, their bodies undulating in the slow clockwise thermal current so perfectly that they cannot be distinguished from the frills of the moss. They wait for the turbulent moments of the upward surge. When the boiling froth of bubbles turns the water milky and blinds the needle-fish’s pressure-sense, the Veil-Eels unfurl like silk scarves caught in an updraft. They do not strike; they simply drift wide, enveloping disoriented fish in membranous folds coated with a numbing, alkaline slime, before reeling themselves back to the safety of the piston rod as the water clears.
+
+Near the bottom, where the water darkens to an oily amber and the suction of the exhaust grates becomes a heavy, downward gravity, life becomes broad and immovably heavy. 
+
+Wedged over the crosshatched steel of the intake screens are the *Filter-Hulks*—creatures that are less like animals and more like living valves. They are vast, disc-shaped arthropods, plate-armored in black manganese crust, their legs modified into thick, serrated iron-hooked anchors that bite deep into the grate’s weave. They live where nothing else can survive the draw of the engine. With every cycle, as millions of gallons of coolant are dragged down into the condenser’s titanic interior, the Hulks open their domed carapaces like massive leather bellows, catching the debris, dead moss, and exhausted needle-fish, filtering the engine’s throat so it does not choke, fat and immovable in the dark.
+
+And then, high above them all, occupying the silent top five meters just beneath the quartz dome, is something solitary.
+
+It is a creature that knows nothing of the earth below or the vacuum outside, yet is shaped by both. It is a vertebrate, perhaps distant kin to a seal or an otter, but warped by millennia of warm, vertical isolation into something long-limbed, pale, and remarkably serene. Its skin is a slick, hairless ivory, marbled with faint, branching veins of jade-green blood—an adaptation to the oxygen-starved, copper-rich water. It has no need for ears; it feels the world through the soft, sensitive pads of its five-webbed digits, which it keeps pressed against the central piston rod to read the health of the engine.
+
+It spends the hours of daylight basking in the focused solar cylinder, hovering motionless in the warm water, its broad, paddle-tail sweeping in slow, meditative arcs. Its eyes are large, milky globes protected by thick, transparent nictitating membranes, capable of staring directly into the focused glare of the high-altitude sun. 
+
+When the machine vents and the bubbles race toward the ceiling, this creature rolls onto its back, opening a wide, slit-like blowhole to gulp the small pocket of pressurized, ozone-rich air trapped in the concavity of the quartz seal. 
+
+At night, when the sun vanishes and the light column dies, it drifts to the very apex of the dome. Pressing its pale forehead against the freezing quartz, it peers out through the only window in its universe. It does not understand the thin, black air, or the curvature of the world far below, but it watches the sharp, unblinking stars with quiet, unhurried recognition—waiting in the warm, drowned dark for the next pulse of the brass heart beneath its feet.

@@ -1,0 +1,13 @@
+The mountain is new. That is the first thing to understand, and the last thing you will stop feeling.
+
+It rose out of the abyssal plain within living memory — months ago, or a few years; down here the difference is small — and nothing has yet taught it manners. Its basalt shoulders are still sharp-edged, glassy where the lava met the sea and quenched, cleft like struck flint. No current has rounded its corners. No grit has softened its lips. It ticks, faintly, as it cools — a sound felt in the teeth more than heard — the sound of a stone still finishing the sentence it began as fire. Around it the water is cellar-cold and utterly black, and above it lies the whole leaning weight of the ocean, and below it the plain runs flat and patient in every direction. Low country. The bottom of the world's pocket.
+
+On the mountain's flank, a hand's width of a crack. Not your hand's width, exactly — the crack is shaped for one particular size of thing, and if it admits you, that is a decision it made, not one you did.
+
+By any physics you were taught, the water at that crack should be screaming with pressure. It isn't. The ocean leans on the door and the door holds. If you carry light in with you, the light travels one hand-span into the dark and is taken — not dimmed, taken, the way a mouth takes a crumb — and the water closes behind it without a seam. Whatever illumination the pocket possesses is a rumor held in the warm seams of the rock, a memory of emberlight far too faint to see by, only to imagine.
+
+The pocket is small, and it is not. Swims take longer than the room's length should allow. Distances here do not add up politely; they trail off, they round a corner in themselves. You will brush the far wall with your fingers almost immediately and reach it an hour later. Do not try to hold both facts at once. The pocket does, easily.
+
+Because the rock is young, it still remembers being hot, and it remembers hardest along certain seams. There, the water runs one degree warmer than the cold everywhere else. One degree. That is the pocket's entire sun, and everything that lives here has built its civilization on it.
+
+And a great deal lives here. That is the second surprise: the dark is not empty but *planted*. Pale reeds rise in crowds, colorless, blind kelp threading upward like wet hair drawn into filaments. Broad pads layer themselves like sheets of wet paper, one over another, to catch what falls. Blooms of mineral sit on the stems like cold-made flowers — aragonite petals, chalky, precise, taking weeks to open and never wilting,

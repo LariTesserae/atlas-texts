@@ -1,0 +1,37 @@
+They live thick here. Not scattered, not territorial in the way field guides say. Packed.
+
+At first from the rim you think no one lives here at all — only that green-gold carpet. Then the carpet resolves into roofs, and the roofs resolve into builders, and you understand the town is not empty for a square foot.
+
+The beavers are the foundation. They are what make elsewhere possible.
+
+You don't see them at first because it's day and they are mostly night workers, but you see where they have been in every straight line of water. Big animals, forty, fifty pounds, chestnut-dark when wet, lighter where the mud has dried on their backs. They move low and heavily through the canals, V-wakes behind them that do not slap. In a normal pond a beaver slaps its tail to warn. Here there would be no silence if they warned, so they don't. They dive without sound, surface with willow stems in their teeth, haul and plaster.
+
+Each family holds a roundhouse in the center where the water is knee-to-waist — a dome five, six feet out of the water, built of gnawed aspen and willow no thicker than your wrist, cross-laid and chinked with cold blue mud carried up in forepaws. Chewed and re-chewed until the wood fuses. A lodge is never finished. One side is always wet and new where last night's logs were added to keep ahead of the rising water. The old wood sprouts. You can tell a lived-in lodge because it is green — willow wands stuck in as building material have leafed out and rooted into the roof, so the house is growing out of itself. Inside, in the dark steaming core, kits are nursing blind while the adults are out dredging the avenues with their chests, pushing mud ahead of them to keep the streets floatable for logs.
+
+Around them, ten to one, the muskrats.
+
+If the beaver is a logger and mason, the muskrat is a thatcher and ditcher, small, brown, tireless, everywhere. Thousands of them. You hear them before you see them — that soft suck as a head breaks water, the faint squeak of wet sedge being pulled. They are the size of a rabbit, with naked rope tails that leave a hairline wake. They do not build high, they build many: low domes the size of a wash-basket, woven from cut sedge and cattail, tucked off the main beaver canals along their own narrow runs. Each has its underwater door kept open by constant nibbling, each has its drying shelf of stems above. They are always cutting. They cut to eat, they cut to drain, they cut to keep their doors from sealing with moss. In cutting, they keep the whole town's plumbing open. A muskrat run that drains a lodge door also funnels sticklebacks straight into the waiting mouth of a pike, though the muskrat never knows it. It just keeps chewing.
+
+And on top of everything they build, the birds roof it.
+
+There is no bare crown here. Every lodge top, every muskrat dome, every sphagnum hummock firm enough to hold weight has a bird sitting on it. Mostly geese — big grey-brown white-fronts and beans, sitting shoulder to shoulder in down-ringed bowls of sedge. So close a sitting goose could stretch her neck and touch the next sitting goose. They do not honk. Even their goslings, a dozen half-grown young in molt, flightless, preening shoulder to shoulder on a mud bar, do it silently, pulling at pin feathers with serious bills.
+
+Between the geese, fitted into the gaps only a bird could use: red-throated loons on narrow rims of mud at the water's edge, throats rust-red, eyes red, watching without blinking. Ptarmigan in scrapes lined with willow leaf, brown summer hens invisible until they cluck once and freeze. Ducks — pintail, wigeon, teal — tucked under willow overhangs. Terns on the drowned ones, the lodges that lost: when a beaver dam raises one street and floods another, the flooded dome goes flat and white birds take it the same week, screaming only rarely, nesting on the new islet of thatch. And over the midge clouds, the small tireless gleaners — red-necked phalaropes spinning in the pools to stir up larvae, Lapland longspurs hopping across floating sidewalks of crossed sticks and sphagnum, picking without calling.
+
+Nothing here can afford to be loud. The sound of the town working is chewing.
+
+Under it, in it, wall-to-wall with it, the eaters and the eaten.
+
+Voles live in the thatch itself. Their runways rustle under the lodges, a constant faint dry movement inside the wet. You can hear them traveling through woven sedge walls a foot from a sleeping goose. Because of them, a short-eared owl can hunt here without hunting far — it quarters low over the sedge all afternoon, unhurried, wings barred and moth-soft, dropping straight down into thatch and coming up with a squeak. A fox lives here too, not visiting but resident. You see its stitch-line tracks in mud between lodges, narrow and purposeful. It takes an egg where it can, a vole where it must, a molting gosling if luck turns. The geese know. That is why next year three geese there will nest closer, packing tighter. Packing is protection.
+
+In the water, the same crowding. Sticklebacks in shoals so dense they darken the black pools from below — thousands of three-spined silver flicks moving as one stain. They feed the phalaropes above and the pike below. The pike hang motionless in the canals, green and barred, gills fanning, a yard long, old for this latitude. They wait where the muskrat runs narrow. They do not chase. They let the town deliver food.
+
+Over all of it, the largest residents wade through as if they own the avenues, and in a way they do. A cow moose stands belly-deep in the far channel with her calf close to her flank. She pulls pondweed slowly, water pouring off her muzzle, chewing with a low nasal snuffle the calf echoes. They are not shy here; there is nowhere to be shy in. They step over causeways, push through chest-high willow thickets that have grown tall in this trapped heat, and the thickets close behind them. The calf is still leggy and damp-nosed, learning which stems are sweet.
+
+And holding all of them up, the residents you mistake for ground.
+
+Sphagnum that grows a centimeter a year upward to escape drowning, bottle-green and rust-red, soft as lungs, closing over your boot dent as you watch. Cottongrass nodding white on every collapsed lodge that has become garden. Dwarf willow grown un-dwarf, coppiced to stubs by beavers in a night and flushed back denser by August, leaves slick and beaded with condensation. Marsh marigold, buckbean, sedges sharp enough to cut your hand, leggy angelica. Every plant rooted in old nests, old houses, old food caches — the underwater lattice of drowned willow and abandoned tunnels that makes the waterline hold. Old nests become foundations for new nests. Nothing wasted.
+
+Even the air is inhabited — cloud of midges over every hummock, hanging and shifting, worked silently by birds.
+
+That is the rule: build up or drown. The water rises a finger's width after rain. The beavers dam, the muskrats cut, the mosses grow, the geese trample thatch into new mat, the willows root through it all and bind it. Predator and prey live thatch-wall to thatch-wall because there is no elsewhere. If you left a pack here, in a week a sedge would sprout from its seam, in a month a sandpiper would nest against it. The town does not permit vacancies.

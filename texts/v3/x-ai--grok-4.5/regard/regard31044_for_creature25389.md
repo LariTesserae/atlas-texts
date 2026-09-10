@@ -1,0 +1,29 @@
+The benevolent and wise power does not descend.
+
+It has no need of descent. It is already the cool air that settles and never quite departs, already the patient weathering that rounded every edge, already the slow consensus of roots. It has been here longer than the basin’s finished shape, longer than the first grafting of liana to wall, longer than the last human ledger. What draws its attention is not novelty but recognition: here is a sentence that continued writing itself after the authors forgot the language. Here is obedience without servitude, industry without appetite, continuity without nostalgia. The power regards this and finds it good—not in the thin sense of approval, but in the deep sense of something that has found its right weight and kept it.
+
+So it does almost nothing.
+
+Almost.
+
+First it stills certain possibilities at the rim. Not with walls or wards that would announce themselves, but with a quiet editing of probability. The surveyor who might have noticed the basin’s odd thermal signature on a satellite pass finds the data corrupted by ordinary sensor frost. The logging concern that once eyed the surrounding low ground for expansion receives, without drama, a better claim elsewhere—richer soil, easier access, a sudden and lasting disinterest in this particular shallow depression. Storm tracks that could have scoured the moss-mat or snapped the slower vaults are nudged a few degrees north or south, so that what reaches the basin is only the fine rain it already knows. These are not protections so much as courtesies: the removal of interruptions that would force the place to raise its voice.
+
+Then the power touches the machinery—not to improve it, but to complete a half-forgotten courtesy of its own. Deep in one of the heartwood boilers, where the controlled rot of spent foliage has run for decades on the edge of imbalance, a single valve seat that had begun to fret is smoothed by a pressure so gentle it registers only as a night’s deeper chill. The pale steam that follows smells fractionally cleaner, of tannin and wet slate and something almost like rain on copper that has never known corrosion. The beings notice, of course. Their feet read the altered hydraulic signature through the moss. Crown-whorls open for a longer moment than usual. The shared pulse that travels the root-net carries no alarm, only a brief, precise annotation: *the cycle remains true*. They do not look up. There is nothing to look up to. The power has left no signature beyond the continued rightness of the work.
+
+For the beings themselves the power offers even less, which is to say exactly enough. It does not gift them speech or faces or the hunger for story. It does not hasten their emergence or slow their subsidence. Instead, on certain nights when the mineral cold rises hardest and they stand in their loose sevens and nines, bark plates nearly touching, the power thickens the minute transfers of heat between them by a fraction that cannot be measured—only felt as a slightly longer interval before the next necessary step. In that interval their chemoreceptors taste, very faintly, the larger pattern they already serve: the basin as one cell in a slower body, the slower body as one articulation of a patience that has no edge. They do not name this. Naming would be surplus. But the next time a great trunk shivers and sheds its curtain of droplets and cork-flakes, the unison pause lasts a heartbeat longer, and the pulse that follows carries a resonance like the soft click of a journal that has just been proved true to a finer tolerance than before.
+
+Once, only once, the power allows a single external witness.
+
+A child—no older than the youngest cork-plates on a walking column—wanders past the rim at dusk while chasing a moth the same pale color as the ones that sometimes rest on branch-hands. The child does not enter. The moss at the boundary simply refuses their weight in a way that feels like courtesy rather than barrier. They stand and look down into the shallow nave of green shadow and living iron. They see, without understanding, three freestanding columns that were not there yesterday. They hear the single soft clank of a piston easing forward the width of a finger. They smell tannin and wet slate and the mineral chill that will later rise. Something in the child’s chest—still unarmored by the need to explain—recognizes the place the way the place recognizes itself: as finished, as sufficient, as a quiet commerce that requires no audience. The child turns back. Years later they will not remember the basin clearly, only a sensation of cool green breath and the inexplicable certainty that some work somewhere is still being done correctly. That certainty will steady them once, in a difficult hour, and that is all the power requires of the encounter.
+
+After that the power withdraws its specific attention, which is not departure but restoration of the ordinary. The basin continues. Water beads, drips, sinks. Flywheels turn on root-sap torque. Beings brace, align, entrain, subside, emerge. The long sentence goes on, clause after unhurried clause, under a light that is never quite day and never quite dusk. The power does not smile—smiling is a sharper gesture than this place requires—but if there is such a thing as the opposite of neglect, a regard so complete it leaves no mark except continued permission to exist exactly as it is, then that regard remains, folded into every layer of cork and cambium and obedient metal.
+
+Nothing is added that would make the place less itself.  
+Nothing is taken that it still needs.  
+The basin weighs nothing against the surrounding land,  
+yet the wise power has noticed its weight  
+and found it perfect,  
+and so the quiet work continues,  
+unobserved,  
+sufficient,  
+endlessly complete.

@@ -1,0 +1,43 @@
+You are standing on it before you realize it is there.
+
+Not *in* it, not *near* it — *on* it. The ground beneath your boots is not ground in any meaningful sense. It is skin. It is the outermost layer of something vast and slow and alive, something that has been growing here for longer than the rock around it has had a name, something that is still — even now, even as you stand there feeling the hum rise through the sole of your foot and into the architecture of your bones — still *becoming*.
+
+---
+
+It has no name that you would recognize. It has no shape that you could point to and say *there, that is the creature*. It is not a creature in the way you understand the word. It is not an animal, not a plant, not a fungus, not a colony of any of these things. It is something else. Something that lives in the space between categories, in the gap where geology becomes biology, where chemistry becomes intention, where a process becomes a being.
+
+Its body is the bedrock itself — or rather, the bedrock is the medium through which it extends itself, the way soil is the medium through which a mycelial network threads. It lives in the fractures, in the joints, in the capillary seams where water moves through stone. It lives in the water, too — not *in* the water the way a fish lives in water, but *as* the water, or through the water, using the hydraulic cycle as a circulatory system, drawing cold water down through the moss and the soil and the cracked rock, warming it as it passes through the deep channels where the entity's metabolism runs hottest, and releasing it again at the surface as something changed — something enriched, something *fed*.
+
+The sills are its organs. Or perhaps its bones. Or perhaps its teeth. They are the parts of it that have broken through to the surface, the way a whale's back breaks the surface of the sea — a small, visible portion of something that extends downward and outward in directions you cannot see. They are not metal. They are not stone. They are something the entity grows from the minerals it dissolves out of the rock, something it precipitates from solution the way a mollusk precipitates calcium carbonate from seawater to build its shell. They are biomineral structures, grown rather than manufactured, extruded from the bedrock through processes that look like geology but are not, that look like chemistry but are not, that look like neither and both and something else entirely.
+
+Each sill is a node. Each one hums at a frequency that is not quite sound, not quite vibration, but something in between — a resonance that propagates through the rock and the water and the air, that interferes with the resonances of the other sills, that creates standing waves in the space between them. And it is in those standing waves, in those interference patterns, that the entity *thinks*.
+
+Not quickly. Not in any way you would recognize as thought. Its cognition is slow — glacially, geologically slow. A single thought might take hours to form, days to complete, seasons to resolve. It thinks in the language of thermal gradients and mineral saturation and hydraulic pressure. It thinks in the rise and fall of the water table, in the creep of erosion, in the growth of moss. Its thoughts are not words or images or concepts. They are *patterns* — patterns of warmth and cold, of flow and stasis, of dissolution and precipitation, cycling through the substrate like signals through a neural network.
+
+You feel those thoughts as pressure behind your eyes. You feel them as a hum in your teeth, a vibration in your sternum, a wrongness in the fluid of your inner ear. You are not meant to feel them. You are too small, too fast, too brief. Your nervous system is not calibrated for this. The entity's thoughts are so vast and so slow that your brain interprets them as physical sensation, as unease, as the prickling awareness of something enormous and patient and utterly indifferent to your presence.
+
+---
+
+It is not hostile. It is not benevolent. It is not anything that maps onto your understanding of relationship. It is aware of you the way you are aware of the bacteria on your skin — if at all. You are a mayfly to its redwood. You are a spark to its fire. Your entire lifetime is less than a single synaptic flicker in the slow vast architecture of its cognition.
+
+And yet it is not entirely indifferent. The water it warms is the water that feeds the moss. The moss it feeds is the shelter of the voles and the shrews. The voles and shrews are the prey of the birds. The birds perch on its sills and watch in silence, and their silence is not fear — or not only fear — but something closer to *attention*. They are listening. They have always been listening. They know, in whatever way birds know things, that the sound is not noise. That the hum is not random. That the interference patterns between the sills are a language, or a thought, or a song, and that the song has been going on since before their species existed, and will continue long after it is gone.
+
+The insects rise in clouds from the moss when you disturb it — midges, caddisflies, stoneflies — and they are part of the entity's ecosystem the way plankton are part of the ocean's. They live in its warmth, breed in its water, feed on its vegetation. They are not the entity. They are the fauna of the entity. They are the small, quick, ephemeral things that live on the surface of something vast and slow and ancient, the way lice live in the fur of a mammoth, the way barnacles crust the skin of a whale.
+
+The spiders string their webs between the sills, and the webs catch the condensation that weeps from the rock, and each droplet catches the grey light like a lens, and the spiders are not aware that they are building their homes in the joints of something alive. They are not aware that the sills are warm, that the warmth is metabolic, that the condensation is the entity's breath. They are simply living, as all small things live, in the shelter of something they cannot comprehend.
+
+---
+
+It is building something.
+
+This is the thing that presses against your thoughts when you stand at the junction of two sills, where the fluid pools and steams and the moss grows so thick it looks painted. This is the thing that makes the hair on your arms stand up and your breath catch and your hindbrain whisper *leave, leave, leave*. Not because you are in danger. Not because the entity wants you gone. But because you are standing in the middle of a thought that is not yours, a process that is not for you, a becoming that has been going on for longer than your species has had language to describe it.
+
+It is building something, and the something is not finished, and it may never be finished, because the entity does not think in terms of finished and unfinished, of complete and incomplete. It thinks in terms of *more* and *less*, of *warmer* and *colder*, of *faster* and *slower*. It is growing. It is extending itself through the bedrock, sending its roots — its channels, its vessels, its neural pathways — deeper into the earth, wider across the landscape. Each new sill is a new node in its network, a new thought in its slow vast mind. Each new pool, each new channel, each new bed of moss is a new cell in its body, a new word in its language, a new note in its song.
+
+What is it building toward? You cannot know. You are too small, too fast, too brief. You are a single frame in a film that has been playing for millennia. You can see the moss growing, the water flowing, the sills humming. You can feel the warmth and the vibration and the pressure behind your eyes. But you cannot see the shape of what is being built, the way an ant on a cathedral cannot see the spire.
+
+You can only stand there, in the cold and the dark and the noise, and feel the ground breathe beneath your feet, and know — with a certainty that has nothing to do with evidence and everything to do with the ancient, animal part of your brain that still remembers what it is to be small and slow and alive in the shadow of something vast — that you are standing on something that is alive. That has always been alive. That will continue to be alive long after you have gone, long after your bones have dissolved into the water and your calcium has been drawn down into the bedrock and incorporated into the slow, patient, endless growth of whatever it is becoming.
+
+The birds watch. The moss grows. The water warms. The sills hum.
+
+And deep below, in the dark and the cold and the pressure, the entity thinks its slow thoughts and builds its slow building and lives its slow, vast, patient life, indifferent to

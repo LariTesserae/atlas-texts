@@ -1,0 +1,43 @@
+The fog comes up the slope like a tide with no wave. You crest the ridge at altitude — thin air, lungs noticing every breath — and below you the land opens: a high plateau, a gray-green basin several kilometers across, terraced in long benches like the hull of an upturned ship. No trees. No stone cliffs. No buildings. Just an immense, low, breathing carpet of vegetation under a pearl-colored sky, with fog moving across it in slow, deliberate sheets.
+
+Your first read is *alpine moor*. Cushion plants, hip-high rosettes, everything compact and cold-adapted, everything beaded silver with condensation. You'd expect a place like this to be quiet, and it is — that part you got right. What you didn't expect is that it would be so busy.
+
+The ground is the oldest thing here. That becomes clear as you descend: the terraces are finished, healed, weathered into a settled geometry that took tens of thousands of years. Frost-shattered benches, their sharp edges long since knocked off and the fragments absorbed. Rills cut by water that no longer runs at any volume, their channels now cushioned over and held. The bed of this place is in balance, complete, permanent. Everything above the ground is the opposite: provisional, churning, unfinished. The bones are ancient. The flesh is minutes old.
+
+And the flesh is everything. There is no bare earth anywhere — not a hand-span of it. What you walk on is a living mat, knee-deep, dense and springy, roots felted into roots, and every horizon of it occupied: ground-hugging cushions, then a layer of rosettes at shin height, then stalked structures rising to your chest, and above them the fog itself, which the plants have claimed too. The vegetation isn't *in* this landscape; it is the landscape, substrate and structure and surface all at once. Where stone does show through, it shows for a reason, and the reason is extraction — more on that later.
+
+The water arrives as fog. Almost never as rain — rain is rare here, an event. Instead the clouds come up the slope saturated and the plants *comb them*. Whole terraces are planted with structures that look, from a distance, like grazing combs or antenna arrays: stems that split into hundreds of stiff, hair-lined filaments, set at right angles to the fog stream. As the mist passes through, beads of water nucleate on every hair — you can stand and watch it happen, watch a filament go from gray to silver in under a minute — and the beads run down the stems to channels in the leaf-bases, and the channels run to vessels, and the vessels run to tanks: urn-shaped growths sunk between the cushions, each holding liters of tannin-dark, ice-cold water. The fog enters wet and exits measurably thinner. The plateau mines the wind for its moisture, at scale, continuously, and the air a hundred meters downwind is a desert by comparison.
+
+Keep looking and the rest of the operation assembles itself in view, because this is a factory with no builders, a production complex in which every machine is alive.
+
+There are pumps: gas-filled pods that inflate as the day warms and compress as the night freezes, driving sap up siphon-vessels through check-valves of tissue — slow pistons, running on the temperature difference between the ground and the air, cycle after cycle, dawn and dusk, without ever making a sound. There are condensers: dark leaves engineered to radiate heat at night, chilling below the dew point, beading faster than the combs do. There are mills: seed-heads like ribbed burrs that catch the drifting pollen of other plants, crush it, sort it, pack the viable grains into wax-sealed capsules. There are conveyors — the damp itself is the conveyor: sheets of dew-film on inclined leaf surfaces down which seeds glide, a freight line running on nothing but water and gravity. There are refineries: stalks that weep latex, wax extruded in plates, sugar efflorescing as a white frost on any cut surface, silica laid down in cell walls until the stems ring like porcelain when tapped. And there is a grid: the whole mat is root-linked, a switchboard of chemical and faint electrical signaling, so that when you put a hand on a thick stalk your teeth ache with a low, wrong tingle, and you take the hand away quickly.
+
+Twice a day the whole complex changes shift. At dawn, as the cold peaks, the plateau exhales: transpiration vents open across the benches and the flat light fills with thousands of small white columns of vapor, a mill town's worth of chimney-smoke rising in the still air, and there is no town, no mills, no chimneys — only plants running their condensers and their pistons at full tilt, venting the visible evidence of their work into a sky just above freezing.
+
+And all of it — this is the thing that finally gets into your chest — is *silent*.
+
+Not quiet like distant traffic fades. Silent like an anechoic chamber. A production system running at this throughput should roar: compressors, flows, the shudder of ten thousand pistons. Instead there is a hush so complete it has texture, a pressure on the ears, and beneath it a subsonic throb you feel in your sternum more than hear, the summed pulse of an entire working landscape. The loudest events here are micro-events, and they land like thunder when they happen:
+
+A single bead of water losing its grip and ticking onto a leaf below.
+
+A pod splitting at its seam with a sound like a knuckle cracking.
+
+Frost forming with a papery click, thousands of tiny closures, somewhere out in the fog.
+
+Once, a stalk releasing its seed-capsules in a slow volley — a soft *tup, tup, tup* — and you stand absolutely still for it, because it is the most sound you have heard in an hour.
+
+When the sun breaks through, briefly, the plateau flashes into a chandelier — every beaded filament and frosted wax plate catching light at once, the whole basin glittering gray-green and silver — and then the fog closes and the glare is gone and the beads keep assembling in the gray.
+
+The turbulence is the strangest part, because the place is old and balanced and yet it churns like a storm. When a dense fog-front pushes through, production visibly accelerates: beads form in seconds, the plumes multiply, the conveyor films race, new structures inflate while you watch — a growth rate that feels like time-lapse, a moor running at anthill speed. The plants build constantly, and they build *prototypes*: odd one-off forms that appear nowhere else — a hollow double-walled dome over a tank, a spiral flue two meters tall, an arch of woven living stems spanning a rill — forms with no obvious function, erected in days and dissolved within the week, composted back into the mat by the mat itself. The plateau invents ceaselessly and keeps nothing. It builds like something thinking, and forgets like something that cannot. Its history leaves no ruins because it eats all of them.
+
+Fauna is nearly a rumor. In one tank in a thousand there are mites — minute, gray, blind, doing the work of an entire ecosystem's animals between four walls of leaf. Once, at dusk, a single bird crosses the fog, wings soundless, gone before you can fix its shape. Nothing grazes. Nothing burrows. No bones, no dung, no tracks, no char: this ground has never burned, never been cut, never been walked on by anything that could leave a trace. No hands have ever been here. The absence isn't emptiness; it is the reason the whole system can run unbroken.
+
+The rules, as far as they can be read from inside:
+
+Water comes as fog and nowhere else, so the plants take it from the air, comb by comb, and hoard it in tanks.
+
+The cold is not an obstacle; it is the fuel. Every machine on the plateau runs on the difference between the mild ground and the freezing air — a heat engine whose working fluid is sap, whose boiler is daylight, whose condenser is the night. The colder the dawn, the harder the dawn shift works.
+
+Even the stone is on the payroll. Roots wedge into cracks, drink, freeze, and expand — ice as a quarrying tool — prying mineral from the benches grain by grain, mining the old terraces with silent ice-picks. On freezing nights, split stems extrude ribbons of ice like shaved wax, melt by noon, and grow again: a nightly production line whose product is cold glass.
+
+And nothing is wasted, because nothing is *allowed* to persist. Dead tissue is dissolved in days. Failed prototypes are absorbed. Everything built is eventually fed to something that builds. The closed

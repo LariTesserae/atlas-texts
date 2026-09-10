@@ -1,0 +1,17 @@
+This is a world of the Great Interior, a continental-scale engine of cellulose and sap that has never seen a sun. 
+
+The scale is impossible to hold in a single thought. It is a planetary basement, a low-lying expanse of biological machinery that stretches for thousands of miles in every direction, shrouded in a warm, absolute darkness. There is no sky here, only the underside of a ceiling made of tightly woven, miles-thick canopy—a sky of leaves so dense they have the weight of stone.
+
+Everything is wet. The air is a thick, humid soup, hovering at a constant, feverish warmth. It does not rain in the traditional sense; instead, the world "weeps." The ceiling above and the pillars around are perpetually slick, coated in a fine, translucent film of moisture that beads into heavy droplets and falls in a rhythmic, unceasing syncopation. This isn't the chaotic splashing of a storm, but a measured, mechanical dripping. The floor—if one can call the tangled, miles-deep mat of roots a floor—is a labyrinth of shallow pools and marshy depressions where the water collects in obsidian mirrors, reflecting nothing but the void.
+
+Despite the biological nature of the substrate, the landscape possesses a terrifyingly sharp, industrial geometry. This is "young" growth, but it is not soft. The features are jagged, pristine, and crystalline. Huge, spear-like stalks of hardened resin rise from the muck, their edges as keen as obsidian scalpels. There is no sign of decay, no rot, no softening of the lines. Everything has the terrifying freshness of something just manufactured, yet there are no hands here to have built it.
+
+The "tech" of this world is intrinsic. It is a biological industrialism. The vegetation does not merely grow; it *functions*. Massive, piston-like trunks—smooth and dark as oiled steel—slowly pulse with the movement of high-pressure fluids. These are the engines of the landscape, organic turbines that move nutrients and thermal energy across the continent. There are long, vine-like filaments that stretch across the abysses between pillars, glowing with a faint, internal electric charge, humming with the static of a world-sized power grid. These are not built wires, but conductive nerves the thickness of ship cables, perfectly straight, organized with the terrifying precision of a circuit board.
+
+There is a profound, heavy silence. The industrial functions of the world are nearly noiseless—a low, sub-sonic thrum that one feels in the marrow rather than hears in the ear. The only audible sound is the *tink-tink-tink* of water hitting the resinous floor and the occasional, distant *hiss* of a pressure-valve leaf releasing steam into the dark. 
+
+Nothing moves of its own volition. There are no insects, no birds, no skittering things in the shadows. The ecology is a closed loop of plant life that has become its own atmosphere, its own architecture, and its own machine. 
+
+The landscape is in a state of "frozen equilibrium." It does not change. There are no seasons, no growth cycles, no senescence. The great biological pistons pulse at the same rate they did a thousand years ago. The jagged thorns do not blunt. The water levels in the marshy pits never rise or fall. It is a vast, dark factory that is producing nothing but its own continued existence, a masterpiece of mindless, industrial biology operating in the dark, forever. 
+
+To stand here is to be inside a gargantuan, wet clock made of emerald and wood, ticking silently in a room with no lights, spanning the width of a world.

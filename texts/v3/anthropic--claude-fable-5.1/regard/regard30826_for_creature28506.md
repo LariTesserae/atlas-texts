@@ -1,0 +1,27 @@
+Begin with the attention, because that is what arrives first — before any decision, before any act, a wide slow looking that settles over the chamber the way the haze settled, and stays.
+
+It takes in the note. It takes in the eleven islands, the two hundred and thirty-one, the traffic under the dust, the hangers in their pockets of ceiling. It does not hurry to judge any of this. A wise thing knows that a place which has finished happening is not for that reason a place that is wrong. The browsers are not suffering. The stalks are not suffering. The note is not cruel; it is only complete. Whole worlds are like this and no one weeps for them, and this power does not weep for this one. It sees a solved equation and lets it be solved.
+
+Then it comes to the holes, and it stops.
+
+Because the holes are not on the room's map. The attention notices this before it notices anything else about them: everything alive in the chamber lives along the gradient, at the nodes or the antinodes, and the holes are at neither. They are at the height of a head. They are where someone stood. They are the first thing in the room that was put somewhere by a reason other than the sound, and the attention, which has been moving over the chamber the way weather moves over a landscape, gathers to a point and goes to the back wall.
+
+It goes to the second-to-last hole, the one beside the pale shape, and it does what the shape did. It puts itself to the stone and listens.
+
+This takes a while. The tone comes in around the edges, as it comes in around every edge here, and has to be waited through. But the power is patient in a way that even this room cannot outlast, and eventually, in the rock between the two holes — a hand's breadth of warm glowing stone — it hears the thing it came to hear. A second rhythm. Not the note. Slower than the note, irregular, small. The being's blood, moving. Held, the way everything here is held, at a rate that neither quickens nor fails, and the power understands that the shape against the wall is not dead and is not, in any sense the being would have recognized before it came here, alive. It is being kept. The room keeps things. It has kept this one at the exact edge of stopping for a time no one counted, the way it keeps dust at the height of a rib.
+
+So. Alive enough to be helped. Alive enough to be harmed by help.
+
+The power considers the large answers first, because they are loud and a wise thing knows to hear loud things out before setting them down.
+
+It could stop the note. It could reach into the fissure and close it, and the pressure would find some other seam in some other rock, and the chamber would ring down over a few seconds into a silence more total than anything the being ever bored toward. And the fans would go slack. The browsers' hairs would read nothing, and they would stand where they were, and the ones inside the stalks would hatch into dark tubes with no direction in them. The haze would fall. Two hundred and thirty-one, and every pale thing under the dust, and the hangers dropping one by one from a ceiling that no longer told them where to be — all of it, for one head's worth of quiet. The power sets this down. It is not that the arithmetic is wrong. It is that a mercy which requires a world to end for it is not the kind of mercy this power has ever trusted.
+
+It could lift the being out. Take it up, warm and pale and trembling, carry it through the seam into whatever lies past, and set it down where the air is still. The power lets itself feel how much it wants to do this, and then it looks at the seam, and the three cut stalks lying beside it uncarried, and the hammerstone with its face worn smooth, and it thinks about why a being with tools and time never went back the way it came.
+
+It does not know. It can guess. The seam that let a body in might not let one out — rock that tears open often tears one way. Or the outside was worse; things come to shelter for reasons, and no one bores a hole in a wall for years unless the wall is the better option. Or — and the power thinks this is the likeliest, because it has seen it in other rooms with other notes — the being simply found that the method worked a little. A tube against the ear was a little better. A scraped bowl was a little better. A chipped circle, a finger-deep hole, a hand-deep one. Each one less than the last, and when each one is less than the last, you do not go looking for the door. You walk the gradient. You do exactly what the browsers do, by ear instead of by hairs, and a gradient never tells you about a door, because a door is not a little less. It is a different thing entirely, and the method has no way to find it.
+
+The being was walking toward quiet the only way it knew, and the way it knew could only ever end in a wall.
+
+The power does not lift it out. Not because it shouldn't be lifted, but because a being that has spent itself on one answer should be shown a second one, not simply removed from the first. To be carried through the seam by something you cannot see, out of the only work you ever did, into a stillness you did not make — the power has done that to beings before, in other places, and some of them never forgave it, and the ones who did were not always the ones it had helped.
+
+It could give the being the hairs. Let it read the shake. Then it would know, as the browsers know, where the room is truly quiet, and it would climb — one foot, no more — into the corner where the two h

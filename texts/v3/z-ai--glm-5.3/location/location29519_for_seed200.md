@@ -1,0 +1,1 @@
+The heat arrives first — before the smell, before the sound, before your eyes have adjusted to light

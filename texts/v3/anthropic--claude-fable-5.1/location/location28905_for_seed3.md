@@ -1,0 +1,57 @@
+**The Unfinished Range**
+
+You reach it from below, which is the only direction it can be reached from, and for most of a day the climb is ordinary: switchbacks, scree, the tree line thinning into krummholz and then into nothing but lichen and cold. Then the trail crosses a seam in the ground — not a fault exactly, more like the join between two poured slabs — and the rock on the far side is warm.
+
+Not hot. Warm, the way a loaf is warm an hour out of the oven. It is grey-brown and fine-grained and when you put a hand on it there is a faint give, as if it were still deciding how hard to be.
+
+This is the edge of the works.
+
+---
+
+The city is not on the mountain. The city is *how the mountain is being made*, and the distinction matters to everyone who lives there.
+
+It spreads across a broad upland at something like six thousand metres — higher than trees, higher than most weather, high enough that the sky at midday is a deep bruise-colour and the sun, when it appears at all, is small and white and gives off less light than it should. Most of the time it does not appear. Cloud comes up from the valleys in the afternoon and moves through the streets like slow traffic, wetting everything, beading on the iron, filling the low places with a fog that has a metallic taste. It is never dry here and never quite wet. Water arrives as condensation on the undersides of things and leaves the same way. The gutters of the foundry roofs drip continuously, but nothing runs.
+
+The upland itself is enormous — you could walk it for two or three days — and mostly empty. That is the first thing that surprises people who come expecting a city. The works are scattered across it in clusters separated by a kilometre, two kilometres, of open half-set stone: a smelting hall here, a row of casting sheds there, a cluster of dormitories with corrugated roofs, a lone pump-house standing in a field of raw ground with its chimney going. Between them, rail lines on timber trestles, cable-ways sagging between pylons, iron pipe running at knee height with its lagging coming off. The infrastructure is dense; the *buildings* are not. It looks like a city that has been spread thin over too much ground, or like a coastline of settlement around an inland sea of stone.
+
+And the stone is the point.
+
+---
+
+Under the whole plateau the geology is still forming. You can see this most clearly at the working faces — long cuts where the surface has been peeled back to expose what lies beneath — and what lies beneath is not layered. It is not sedimentary and not igneous and not yet anything. It has the look of clay that has been worked and then left: fingerprints in it, pressure-marks, places where two masses have been pushed together and the join is still visible as a slight change in colour. In places it is banded, but the bands wander and cross and sometimes end mid-face as if the process that made them lost interest. Quartz veins run through it, but they are soft, and if you press a thumbnail into one it leaves a dent that closes over slowly, over the course of an afternoon.
+
+The works exist to finish it. That is the industry. Great cast-iron kilns the size of churches are set into the ground with their firing chambers below the surface, and they run for weeks at a time, and around each one a zone of rock a few hundred metres across is slowly, slowly setting — going from that fingerprinted half-clay into something that will take a chisel, and then something that will ring when struck. The setting proceeds outward in a ring that advances perhaps a metre a year. Old kiln-sites are surrounded by circles of hard stone, glossy, almost glazed, and the oldest of these have begun to weather in the ordinary way, which the people who live here regard as a kind of success. A little lichen in a crack. A single frost-shatter. *Look, it's started.*
+
+The noise of this is constant and comes from everywhere. The kilns roar at a pitch low enough to be felt in the sternum. Steam hammers, in the finishing sheds, drive tempering pins into the setting stone with a *chunk* that carries for miles in the thin air. Cable-drums whine. Somewhere, always, rock is cooling and cracking as it cools, and the cracks in this stone are loud, a sound like green wood splitting, and they go on for a long time before they stop. At night the whole plateau ticks and groans like a hull.
+
+---
+
+What makes it strange — stranger than a factory for mountains — is that the unfinished stone does not hold its shape reliably, and neither does anything standing on it.
+
+The rule, as far as anyone can state it, is this: the less finished the ground, the less committed the things upon it. A survey mark driven into raw stone will, over a season, wander. Not far — a hand's breadth, a stride — but enough that maps of the outer works are redrawn every spring and never agree with the previous year's. Buildings on raw ground are built with deliberate slack in their joints and their foundations are rechecked monthly. A rail line crossing an unfinished stretch will be a few metres longer some mornings than others, and the drivers know this, and slow down, and the line simply takes longer to cover. Distances here are honest about the fact that they are estimates.
+
+Further out, past the last kilns, where nobody has begun to fire the ground at all, it gets worse. The rock there has not yet decided how many surfaces it has. There are hollows you can walk into and find yourself, without turning, walking out of a different hollow half a mile away. There are ridges that appear to be a single day's walk and are a single day's walk, but the day is longer than the ones on the plateau, and you return to find the kiln-fires have been banked for a full night you did not experience. People go out there to survey and come back with notebooks in which their own handwriting changes partway down the page. Nothing violent. Nothing hostile. The ground simply hasn't made up its mind, and things standing on it are asked to share its indecision.
+
+The light is caught up in this too. It is dim on the plateau even at noon, and the dimness is not entirely explained by cloud. Light seems to arrive slightly *after* whatever it illuminates has already happened — a hammer falls, the flash of the tempering-fire comes a half-second late. Lanterns cast shadows that lag their sources. Over the raw ground the effect grows and in the far distance, where the range is least finished, you can sometimes watch the evening come down over a ridge a full hour before it comes down over you, or see the sun set on a peak that is, by every measure, further west than you are. The engineers say the light is finishing along with the rock. The stone-setters, who are more practical people, say only that you should not trust any shadow you can't put your hand into.
+
+---
+
+And the animals. Nobody expected the animals.
+
+The plateau is thick with them, thicker than any place at this altitude has a right to be. Ibex-like things with hooves that splay flat on the soft stone stand in herds of forty and fifty on the open ground between the works, cropping at nothing — the vegetation here is patchy, though where it grows it grows hard: dense mats of cushion-plant and dwarf willow in the cracks of the set rock, great sheets of orange and green lichen across anything that has been finished long enough to hold it, and in the warm zones around the kilns, improbably, ferns. Real ferns, fronds a metre long, growing out of the condensation-drip under the casting-shed eaves in a green so intense against the grey that it looks lit from inside.
+
+Marmots have colonised every dormitory foundation. Choughs and something larger, a scavenger with a wingspan like a door, nest in the cold chimneys and ride the kiln-thermals in great slow gyres that you can see from anywhere on the plateau, twenty and thirty birds turning together in the murk. There are voles in the lagging of the steam pipes, warm and fat. There are insects in numbers that seem impossible — a kind of moth that clusters on the warm rock at night in patches like fur, so many that in the morning the stone-setters sweep them off the working faces with brooms.
+
+Most of these creatures are ordinary. Not all of them. Out toward the raw ground the fauna, like everything else, becomes less committed. There are herd animals in the far distance that seem to have too many legs until you look directly at them, at which point they have the right number and always did. There is a bird — everyone has seen it, no one has seen it twice in the same form — that comes in over the works at dusk and is grey and long-winged and is then, as it crosses over set rock, definitely a raven, and then over the raw again is something you don't have a word for. The oldest kiln-master on the plateau, a woman who has fired stone for thirty years, keeps a notebook of such sightings and has come to believe the animals are not being changed by the unfinished ground so much as *supplied* by it: that when the rock has not yet decided what it is, it also has not decided what lives on it, and so, generously, offers everything.
+
+The stone-setters feed the marmots. It is considered bad practice and everyone does it.
+
+---
+
+A few thousand people live and work here, in the scattered dormitories and the finishing sheds and the cable-stations, and they are, for the most part, patient. You have to be. The work is not fast and cannot be made fast. A kiln fires for six weeks and sets a ring of stone a hand's-width deeper. The plateau has been under construction for longer than the records go back and is perhaps a third finished, by the most optimistic surveys, which disagree with each other. Nobody talks about completion. What they talk about is the *next ring*, the *next face*, whether the tempering held on the north cut, whether the new pump-house foundation has drifted.
+
+Life is organised around the firings. When a kiln is lit the whole cluster around it goes quiet and stays quiet and the noise is only the kiln, for days. When it is banked, the hammers start. Between firings there is the slow, damp, ordinary business of a company town on a cold roof of the world — hauling coal up the incline railway from the valleys, patching roofs, keeping the condensation out of the electrics, which is a full-time job for many people and never finished either. The electric light in the dormitories is yellow and weak and flickers when the kilns draw. It is always a little too dim to read comfortably. People read anyway.
+
+In the evenings, when the cloud has come up and the plateau is a grey room with no walls, the stone-setters sit on the warm edges of the finished rings with their backs to the kilns and look out over the raw ground, where the light is doing whatever it does out there, and the herds are moving in the fog, and the far ridges are ending their days at their own pace. The old ones point at sections they set themselves, decades back, that now hold lichen, that now crack in the frost, that have become — finally, properly — stone. They speak of these the way you would speak of a child who had grown up and moved away. *That one took. That one's on its own now.*
+
+And behind them the mountain goes on being made, a metre a year, ticking as it cools.

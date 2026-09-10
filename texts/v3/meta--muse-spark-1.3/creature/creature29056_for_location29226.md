@@ -1,0 +1,47 @@
+At first you will say nothing lives here.
+
+That is what the place wants you to say. It is too loud and too small and too wet and too high and too raw. Your eyes water with spray before you can really look. You catalogue the absences to reassure yourself: no fish could climb this high, no plant could root in this just-split rock, no person could stay dry or warm or heard. A tuft of moss. A moth. A flicker down in the churn that was probably just light. Empty.
+
+Stay longer. Let the roar clean your head out until you stop looking for the kind of life you expected.
+
+The second thing you notice is that the emptiness is tended.
+
+The windbreak has tumbled at one end where the surge undercut it — but the other end was recently re-stacked. You can tell because the grit hasn't washed out from between the slabs yet. The three chipped steps down to the lip — the chisel marks look fresh not because the weather is gentle here but because someone re-cuts them, every season, with numb hands. The little cairn of three stones, green with slime on its north side, is balanced impossibly on top. In this hammering, in this suck-and-slap every four or five minutes that rearranges pebbles, no balance holds unless someone re-balances it. With numb fingers. For a reason.
+
+Someone drinks from the east wall seep, not the pool. You can see the darkened hollow in the moss where a mouth has been, over and over, avoiding the rock-flour milk that would grip your stomach.
+
+So you wait, soaked through, stupid-fingered, breath indistinguishable from mist, until the ordinary noon light on impossible water starts to feel normal. You learn without being told: don't turn your back on the inhale. Step up to the windbreak when the pool draws down and the black walls gasp. Keep your hands out of the main gyre.
+
+And then, between breaths, in one of those seconds when the falls falter and you can look straight down into the bottle-green going darker than any six-foot pool has a right to go — you see her.
+
+Not at first as a her. At first as another pale flicker, one of those eyeless white somethings rolling in the gyre.
+
+Then the flicker holds still against the spin. Then it has fingers.
+
+She is small. The place only allows small. Wiry and flattened as the alpine grass in the cracks, low to the stone, built to the scale of seven paces. You could touch both walls with your arms stretched — she can touch both walls without stretching. That is her size.
+
+She is the color of everything here left long enough to live: slate-gray like the dipper, milk-pale like the rock-flour, mottled orange and bone-white where lichen has colonized the backs of her hands and her shoulders and will not wash off. Her hair, plastered constantly, is black-green and sodden as star-moss, beaded, dripping, shivering. Her skin never dries. There is nowhere dry to stand, so she gave up standing dry. Her jacket — if it was ever a jacket — darkened years ago and stayed dark. Rivulets run down the back of her neck though it isn't raining. Not exactly.
+
+Her fingers are the giveaway. They are stupid always, white at the tips, split at the cuticles from cold and grit. The prints worn off from re-cutting steps in fresh-broken granite that still glitters with just-split crystals. She left grit on the rock and the rock left grit on her. If you put your palm to her, grit comes off. Numb fingers that can still balance a top stone impossibly, because numb is precise if you listen with something else.
+
+Her eyes — don't look for eyes at first. She has them, but she doesn't use them the way you do. In spray that whites out the whole pocket when the cloud exhales, in a short furious rainbow that appears and is shredded ten times a minute, eyes are almost useless. Hers are pale, washed-out, narrowed to slits against white-gold noon coming straight down the chimney. She sees best in that upper meter of lit transparency before turbulence takes it opaque. Below that, she sees with her teeth and sternum.
+
+Because you cannot prepare for the sound and she has stopped trying to hear it. The falls hit from only ten meters up but in this stone throat there is nowhere for the noise to go. Low hammering, high hissing, mid-range roar in the bone. Conversation impossible. Even breathing sounds distant. So she presses her forehead to the wall to listen. You thought that was something visitors do to feel the hum. She does it to hear you coming an hour before you arrive, through the rock. She feels the water level breathe before it breathes. When the pool sucks down, exposing slick dark walls, she is already up at the windbreak. When it surges back with a slap, she is already braced at the iron ring.
+
+Ah, the ring. Hand-forged, hammered into a crack, rust bleeding orange down fresh rock. From it, a rotted stump of rope made of twisted grass. That was hers before it rotted. Now there is a new one, also twisted grass, almost invisible because it is always wet, leading from the ring down to the water's lip. She holds it not with her hands — her hands are busy — but looped around her ankle when she leans out over the main gyre during the lull. That is the only time she feeds.
+
+She drinks from the seep. She eats from the suck.
+
+When the pool draws down you see the dark walls exposed and, for a second, the deep green going down and down with a slow tidal sway, as if this thimbleful were connected by a straw to the deep sea. The thumb-high tide line of foam. Drop a stone and you never hear it hit bottom, only swallowed. That is where she puts her hands, quick, numb, precise, into that impossible depth, and comes up with a fistful of wriggling white — amphipods, trapped young char rolling in the gyre unable to leave, things washed down from the snowfield and things washed up from below, it doesn't matter. She eats them live, snowmelt cold with a mineral bite, and shares, without meaning to, with the dipper when it drops shrieking through the spray to spear straight into the white water and bob up shaking. The dipper is not her, but it knows her. It nests nowhere near, and yet it returns to steal from her fist. The single white moth pasted to the leeward wall pulses when she breathes near it. She does not eat the moth.
+
+She sleeps — if you can call it that — in the inhale. Curled behind the windbreak on the only ledge wide enough to stand without getting your feet wet, knees to chin to make herself even smaller, while the cloud breathes in and out and the water unmakes and remakes itself by the minute. A log that wasn't there arrives, spins three times, jams, breaks, leaves. Eddies form and dissolve. She sleeps through the hammering because the hammering is her blanket. What wakes her is quiet. The calm seconds between breaths. The early echo.
+
+You will clap, or the water will slap, and you will hear the return a fraction before the sound, as if the walls anticipate. That is her. She answers before you call. In a place where you have to shout to hear yourself think, she learned to reply before the shout, in the bone-hum frequency. Press your forehead to the wall and you feel her coming up the stone toward you: a small vibration distinct from the falls, mid-range, patient.
+
+She is not old, not young. Embryonic geology makes embryonic people. The mountain cracked open last week in mountain time and hasn't decided what this place is yet — pothole, tarn, throat — still wet from being born. She hasn't decided either. She is still deciding what she wants to be when the mountain finishes making her. Sometimes when the light catches her surfacing from the green, bottle-transparent for an instant, you think she has gills, or fins, or suckers for razor granite. Sometimes when she re-stacks the windbreak with dry-stone hands, no mortar, just slabs fitted, you think she was once someone who came here to drink, or to mark, or to listen, and stayed.
+
+Leave the cairn alone. She balanced it for a reason. It is not a marker for you. It is how she measures the tide that comes without moon. Thumb-high. When the foam touches the bottom stone, step up. When it sucks down past it, you can go to the steps with your wooden dipper — split and gray, left upside down on a boulder, hers, though she will lend it — and drink from the seep.
+
+You cannot step into the same pocket twice, and you cannot meet her twice the same. She is turbulent in the truest sense. But if you stay until your clothes are soaked through and the roar has cleaned out everything, until you stop trying to think, she will let you see her do the strangest mercy: stand in daylight-bright drowning and not drown. Drinkable air. Knife-cold water. Clean cold through boot soles. White moth pulsing. Rainbow tearing. Forehead to glittering wall, listening to ocean lodged in mountain, lungful hidden high and cold and loud and almost empty.
+
+Then climb out, up into thin, quiet, dry air, ears ringing. The notch will close behind you in cloud again nine days out of ten. She will unloop the grass rope from her ankle, re-balance the top stone with numb fingers, and slip back down into water that goes down and down, darker than it has any right to go, waiting for the next lull to feed, and the next inhale to survive.

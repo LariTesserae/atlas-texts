@@ -1,0 +1,43 @@
+You think at first that no one lives here.
+
+That is because you are looking for a crowd. You stand at midday in the production district — if you can call three boiler-stems and a machine-shop deck half a kilometer apart a district — and you hear only your own boots on cork, and the tick of cooling iron somewhere, and the far-off clatter of leaves like someone dropping cutlery in another room. No shoulder-bump, no market smell, no press of bodies. The path goes pale across the bark-ground from one lit doorway to the next and there is nobody on it.
+
+Then you learn to see the interval as inhabited.
+
+The first one you meet is not coming toward you. She is above you, sixty feet up on a rope-and-grating catwalk strung between crowns, oiling a line shaft while the veil-moths crowd the exhaust vent beside her. She does not shout down. Nobody shouts here if they can help it — the plant swallows half the vowels anyway. She lifts two fingers. Waits for you to lift two back. That is how sparse people say hello: I see you that far away.
+
+They are dry people. You notice it before you notice anything else about their faces.
+
+Not thin in the hungry way. Dry in the cured way. Skin filmed with pale dust that never quite washes off because there is nothing to wash with, and salt-rimed at the nostrils and eyebrows where the leaf-salt settles. Lips cracked in vertical lines by the end of the first hour — theirs have been cracked for years, and healed into seams. They do not sweat. Even hauling boiler plate in noon light lowered straight down the slot, their foreheads stay matte, their shirts stay unspotted. The moisture they keep is kept inside, sealed. Their eyes are narrowed, not from suspicion but from years of looking up into that white slot of sky. Crow's feet etched in dust. Their voices are low and consonant-heavy, built for short carry through husk and cork. A name called two clearings away arrives as clicks and edges.
+
+They move like people who live inside something larger that is listening. No slam, no stomp. A boilerman ducks through a door cut in a seed-pod the size of a chapel — the woody lip has healed thick and black around the steel frame he set in it a decade ago — and he lays his palm a second on the jamb as he passes, feeling for the morning growth. A machinist saws back the night's runner where it has nosed overnight across the walkway, white flesh weeping slow milk, and he does it clean and without cursing, and stacks the cut lengths for the tappers. It is not reverence. It is shop manners. You do not kick the walls you live in when the walls are alive.
+
+Because they hollowed, they did not build. Every family, every crew, is a knot in wood.
+
+A stem twenty meters to the first branch, fluted, hollow, hard as kiln timber — inside: two bunks, a stove whose flue goes up through pith that sealed black and airtight around the pipe, a workbench, a hook for a mask, a shelf of root-shavings in a tin. That is a house. That is a shop. The boiler-house is grander only in scale: an iron belly glowing through slits in the husk, the whole pod creaking almost imperceptibly as it takes the heat expansion. The freight elevator groans down the outside of a stalk on a rack bolted straight into living fiber, and the fiber has grown over the bolt heads like knuckles. The brick chimneys, squat and serious, poke up through branch-forks, and the leaves up there lean toward the thin dry smoke. They want it.
+
+The work is tending that exchange.
+
+The tappers go out early while your breath still shows, with augers and bladders, to bleed the slow milky sap where it runs thickest — never too much from one trunk. Heated, it cuts oil. Cold, chewed as shavings, it gives that chemical coolness that fools the mouth into thinking wet. The old-timers keep a wad in their cheek all day and spit grey. The riggers walk the crowns, tightening wire sag, re-hanging catwalks where a branch has thickened and lifted them crooked. The lathe hands work under papery canopies, half-deaf by custom, listening through the pillow-muffle of cork for the change in pitch that means the tool is dull. The soot crew work shift-change, when the veil-moths come big as your hand to lay in the warm exhaust, brushing egg-clusters into jars to keep the vents from choking, leaving enough for the soot-worms. Someone has to feed the wirebirds, in a sense, by feeding what they eat.
+
+And the children. There are not many, but they are everywhere the paths are. Lean, cork-soled, salt-dusted, running messages along the root-ribs because wire crackles and dies in the acid air and no one trusts it past a hundred meters. They know the hollow runners you can crawl through for an hour, which ones are chewer-nests and which ones cut through to the machine shop. They race hopper herds for fun — those knee-high six-legged bark-colored shearers that move like a tide, stripping leaf-edges with scissor mouths and pouch-fermenting them into heat — and fall behind laughing without much sound, because sound does not carry here.
+
+You will not see them drink. Learn this. There are tanks — you saw them from the rim, big repurposed water tanks — but open one and you will find oil, and sap-milk, and compressed air hissing. No one looks for a well anymore. Thirst here is not the wet panic you know from the surface. It is a dry tightening, answered with a shaving, a breath of cool pit air, a pause in shade. Their bodies have learned the rule: nothing here cycles water. Everything cycles dryness.
+
+They are not alone in having learned it.
+
+The others who live here were never miners.
+
+At dusk the dust-fox comes out — flat against a root-rib, ears turning like dishes, rust-red gone grey with dust — to vanish headfirst into a runner after the squeaking nest of chewers inside. It does not drink either. It gets its slow burn from blood that is barely blood, thick and salty. Up high, against the bright slot, the grey ones watch. They are not monkeys, though from below with their thin limbs and huge eyes squinting against the glare you would swear it. They pry open seed-pods with little crowbars stolen from workshops — the same crowbars the shop boys steal back the next week, bent and tooth-marked — and scatter downy seed that the updraft carries out over the rim to nowhere. Most seed dies on the plateau. It does not matter. Enough falls back.
+
+The veil-moths, the soot-worms, the wirebirds with their metallic throats that sing in short dry bursts between press-thumps — they all live in the interval too, in the vast empty architecture of curled dead leaves big as sails and dry chambers and hollow stems. Predator and prey, but muted. A papery rustle and pounce. No splash. No crash.
+
+And underneath all of them, housing all of them, the one who is really the town.
+
+The mat itself. The root and rhizome and bark-plate thick as houses, veined black on pale, layered like phyllo, that took the flat of the pit and made it into itself. You walk on its back. You cut doors in its uprights and it heals around your frames. You run hot pipe through it and it seals. You saw its runners back by noon and by night it is nosing forward again, testing. After a dry slide flakes slabs and dust off the raw wall, white rootlets are stitching across the scar within a week, tasting metal, secreting acid, holding. When the stamping presses thump on their slow rhythm, the ripe pods pop open on that frequency — the factories pollinate the forest with vibration and smoke, and the forest muffles the factories in return, drinking their clangor into cork.
+
+Is it aware? The people here do not ask it that way. Ask a boilerman and he will tell you which stem runs hot, which one creaks before a growth spurt and will pinch your door if you do not plane it. Ask a child and she will tell you which hollow runner hums when you sing into it. They live *in*, not *on*. You learn the moods of a house that grows.
+
+At dusk climb — if they let you — to a crown deck and look. The cool blue shadow fills the cut first from the bottom up. Then the warm windows light on one by one, far apart in the green-grey mass, sparks in tinder that refuses to burn: a pod-house, a trunk-shop, a catwalk string of bulbs sagging crown to crown. Thin smoke rises straight up in the windless cold. Leaf-clatter settles. A press thumps, pillow-soft. A fox yips once, consonant-short. Someone calls a name and the plant takes half the vowels, and the rest carries just far enough.
+
+Sparse. Quiet. Obscenely alive without water. Still unfinished on purpose, still deciding how big it can get. And content with the arrangement.

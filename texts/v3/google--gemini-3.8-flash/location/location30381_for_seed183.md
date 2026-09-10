@@ -1,0 +1,23 @@
+At this altitude, the sky does not soften into blue; it thins into an overexposed, blinding lilac-white that casts no gentle shadows. The light is aggressive, hard-edged, and everywhere at once, caught and multiplied by miles of standing sheets of mica and saturated limestone. The air is cool—not freezing, but biting and clean, like water drawn from a slate well—yet it is suffocatingly wet. Moisture does not fall as rain here; it condenses directly out of the brilliance, sweating instantly upon any plane, bevel, or tooth of stone that turns its face toward the zenith.
+
+The plateau is not flat. It is a field of fluted, vertical fins—limestone blades sixty, eighty, two hundred feet tall, packed side by side like the gills of an overturned mushroom. They stretch for miles across a hanging shelf suspended above an unseen lower world. Because of the established, ancient wash of water, every blade has been gouged into runnels, fluted into sharp organ-pipe clusters, and worn smooth as rubbed tallow along the drainage tracks. 
+
+Yet the water does not obey a single horizon. 
+
+Here, reality is loose at the seams. Gravity is braided rather than uniform; it runs in thick, rope-like conduits across the terrain. On the eastern edge of a limestone blade, a continuous skin of mineral-heavy water runs downward into the abyss; three inches away, on an adjacent facet, another sheet of water climbs steadily toward the peak, drawn upward by a localized pull that leaves small, perfectly spherical droplets hanging in mid-air between the fins. These drops do not fall; they vibrate, shivering in the violent glare, functioning as tiny, burning lenses that cast dancing caustic networks across the bald white rock.
+
+There is no green. There is no moss, no lichen, no spore-dust in the crevices. The world is entirely mineral: pearl-gray limestone, bruised-purple slate, and veins of cloudy, grease-sheened gypsum that dissolve and recrystallize within the span of hours. 
+
+The sound is immense. It is not the roar of a singular waterfall, but an all-surrounding, polyrhythmic clatter. Thousands of separate drainage veins chitter and hiss over stone; suspended droplets pop as they collide; and through the interior of the rock itself runs a deep, hydraulic thrum. The mountain is hollowed by a million wet flutes, and the wind, forced through these pressurized gaps, plays them like a catastrophic pipe organ. It is a heavy, rhythmic drone that resonates in the sternum and vibrates the liquid in the eyes.
+
+Tucked into the narrow, vertical defiles between the stone blades are the marks of hands. 
+
+They are crude, patient, and desperate. Dry-stacked slabs of slate form wedge-shaped shelters no larger than a shepherd’s coffin, wedged tightly into dry niches where the upward-falling water cannot reach. There are no mortar joints, no smelted pins; everything is held by deadweight and counter-tension. Along the knife-edges of the fins, holes have been gouged with hand-drills—flint or harder chert ground against the limestone until it surrendered—through which thick, roped bundles of cured sinew and bleached gut are threaded. 
+
+These tethers hang across the gaps like laundry lines. Suspended from them are small, perforated clay pots, hand-pinched and sun-baked, that twirl in the drafts. They are not offerings; they are instruments. As the water sweats from the air, it collects in these pots and drains through the perforations, producing a low, chiming whistle that tells whoever hunkered in the stone coffins which way the local weight was dragging that morning.
+
+Occasionally, the landscape slips. 
+
+A stretch of fifty yards will suddenly duplicate itself in the corner of the eye: two identical spires, wet with identical upward runs of foam, occupying the same volume of space for three or four seconds before collapsing back into singular stone with a dull, concussive *thwack* that displaces gallons of spray. When this happens, the light through the spray fractures into impossible, non-prismatic bands—dull ochres and flat, chalky pinks that hang in the air long after the mist has drifted.
+
+It is an active, churning solitude. Nothing breathes here, nothing seeds, and nothing crawls. But the water is never still, the stone is slowly being planed into needles by its own impossible rivers, and the bright, high air hums with the strain of a place that has forgotten how to stay together, yet refuses to fall apart.

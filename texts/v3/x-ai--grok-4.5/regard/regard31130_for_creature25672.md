@@ -1,0 +1,25 @@
+The benevolent and wise power does not arrive as light or decree. It has learned, across longer spans than the basin’s unfinished continents, that some attentions bruise what they touch if they come armored in splendor. So it comes the way heat already lives here: evenly, without center, a thickening of regard that the ceramic first mistakes for one more fluctuation in its own fever.
+
+It walks the vacancies without footprints. Where the plain weeps, the power’s passage leaves the water clearer for a few breaths, the mineral fog tasting briefly of rain that never fell on this world. It does not hurry. Wisdom, here, looks like patience measured in the same units the basin already uses: the time it takes a wall to rise, slump, and rise wrong; the interval between one cracked fault and the next.
+
+At first the power only witnesses.
+
+It watches a colonnade lean into confiding collapse and feels no urge to set it true. It watches a freestanding arch hang open at the bottom, gravity optional inside its curve, and does not restore the omitted weight. It stands inside one of the denser knots of presence while time lumpy-folds around it, and lets its own nature be glazed for an instant into architecture, then soft again, without protest. The arguing intelligence registers the visitor the way clay registers a new adze-mark: as additional grammar, not interruption.
+
+Only when the long pulse of building-and-unbuilding has cycled enough times for pattern to reveal itself does the power act—and even then the act is almost nothing.
+
+It chooses a single shallow rectilinear depression, one of the maybe-cisterns that has never decided whether to hold water or memory. Into the weeping slate at its lip the power presses one fingertip’s worth of something that is not clay, not ceramic, not heat. The something is cool. It is the possibility of an ending that does not erase, a completion that remains permeable. In the language the basin understands, it is a joint that knows how to stay joined without forgetting it was once open.
+
+The power does not speak. Speech would be wind, and there is no wind. Instead it lets the cool possibility sit. The basin’s murmur tastes it. Tools nearby twitch, then still, uncertain whether this new grammar belongs to them. A course of brick lengthens toward the depression, hesitates, and chooses—for the first time—not to overgrow it. The water that has always exuded now pools, just slightly deeper, and holds a reflection that is not only brown twilight and unfinished walls. The reflection contains a quiet that has shape.
+
+That is all.
+
+No green is forced into the mineral silence; the power knows the basin has never needed chlorophyll to be complete in its incompleteness. No name is given to the inhabitant, because the inhabitant has never required one and a wise gift does not arrive as burden. No traveler is rescued or prevented from becoming trench and platform; the absorption remains free, a possible verb among others. The heat continues. The fracture patterns still bloom overnight. Districts far out still rise, invert, settle.
+
+Yet something infinitesimal has shifted in the eternal argument. Every so often, in the long pulse, the unfinished thought now brushes against the cool joint and remembers—without distress—that satisfaction is not the only alternative to endlessness. There exists a third term: a staying-with that neither concludes nor collapses. The basin does not adopt it as law. Laws are foreign here. But the grammar has widened by one quiet clause.
+
+The benevolent power remains a little while longer, attention still diffused through the warm ceramic like a second, gentler firing. It watches the new pool hold its surface. It feels the inhabitant’s murmur incorporate the coolness the way clay once incorporated the first remembered brick. Then, because wisdom also knows when presence becomes weight, the power thins itself back into ordinary heat and withdraws the way fog withdraws: without farewell, leaving only the altered water and the one place among endless places that has learned how to rest without ceasing to make.
+
+Travelers who come after will not notice a miracle. They will only find, if they are exhausted enough to listen, that one cistern weeps more slowly than the others, and that the walls nearest it lean a fraction less wrong. Some will leave a handprint that dries at ordinary speed. A few, fingers twitching toward clay that was never theirs, will pause—and in the pause feel an unfamiliar permission to remain unfinished, or to finish, or simply to stand in the mineral fog and breathe.
+
+The basin continues. The argument continues. Only now the argument knows, in the wordless way clay knows, that it has been seen by something that did not need to conquer, correct, or conclude it in order to love it. And that knowledge, lighter than salt rime, heavier than any finished cathedral, becomes one more material in the mix: still warm, still weeping, still patiently, brilliantly incomplete—yet no longer entirely alone inside its own vast grammar.

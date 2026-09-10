@@ -1,0 +1,23 @@
+The city did not grow here; it was cleaved into existence all at once, and not very long ago. 
+
+Across a broad, shallow basin that stretches forty kilometers toward a bruised, unmoving horizon, the architecture sits with the terrifying crispness of freshly milled alloy. The edges of the megaliths are atomic in their sharpness; nothing has rounded them yet. Rain has only struck these faces a few hundred times. Dust has not settled into the seams because there are no seams—only vast, unpunctuated planes of dark, cold-pour metamaterial that appear to absorb seven out of every eight photons that strike them. 
+
+Yet the air is warm, thick with a tropical weight, smelling of bruised leaves and distilled vapor. 
+
+The scale is urban, but it is an urbanism built for things that did not congregate. Towers—if they can be called towers—rise at wide, deliberate intervals: monolithic slabs three hundred meters tall, separated by kilometers of flat, dark terraces. They do not resemble office blocks or dwellings. Some are inverted pyramids balanced upon a point no thicker than an ankle, perfectly still, undisturbed by the sluggish, humid drafts that wander through the valley. Others are hollow rings of black glass through which the low sky is framed, humming at a frequency that can be felt in the teeth rather than heard in the ear. Between these widely stationed monuments lies enormous emptiness, an intentional extravagance of space. 
+
+Over and through this brand-new, impossible masonry, the green has already taken hold. 
+
+Because the air is damp and warm, plant life here is aggressive, opportunistic, and strange. Fern-like organisms with fronds the color of tarnished copper have colonized the sharp corners of the concourses within months of the city’s emergence. They do not root into dirt; they root into the micro-texture of the pylons themselves, drinking the heavy condensation that beads perpetually along the cold surfaces. Huge, paddle-shaped leaves—soft as felt and twice as thick as cabbage—spill over the knife-edges of viaducts that carry no traffic. In the sunken courtyards between the towers, shallow basins have filled with tea-colored rainwater, rimmed instantly by dense, sprawling mats of succulent groundcover that pulse with their own sluggish internal hydration cycles.
+
+It is dim. The light never seems to fully break through the low ceiling of cloud, which hangs like a wet wool blanket just above the tallest spire. What light does exist is pearlescent and leaden, casting soft, indefinite shadows. The black structures do not gleam; they swallow the twilight, so that looking across the plain feels like looking at giant cutouts removed from the landscape, through which a darker universe shows.
+
+Every twenty minutes or so, a thermal shift runs through the ground. A field of invisible force, or perhaps an automated purge cycle embedded in the substrate, vibrates the damp surfaces. Millions of droplets of condensation detach at once from the black cantilevers, falling in a sudden, quiet hiss like heavy static onto the vegetation below. Then stillness returns.
+
+The silence is vast, dominated by the soft *plink-plink* of water rolling off waxen leaves and the rare, deep groan of the atmosphere adjusting around a spire. 
+
+Fauna is sparse, cautious, and seems entirely incidental to the place. Occasionally, something long-legged and pale-skinned, with no visible eyes, will pick its way across a half-mile expanse of empty black terrace, stepping high to avoid the slick patches of lichen, only to vanish into the shadow of a lintel thirty stories high. There are small things, too—segmented, translucent gliders that drop from the upper leaves to catch the updrafts rising off the temperature-differential plates, floating silently until they catch the trunk of a broad-leafed fern.
+
+Nothing here is decaying. There is no rot, only growth on top of an immaculate, sterile blueprint. A bridge four lanes wide spans a dry depression, suspended by nothing at all—its deck sliced from a single wafer of dark slate-gray material that hovers three meters above the mud, totally rigid, totally silent, while broad, purple-veined vines wind slowly around its blunt, severed ends. 
+
+You can walk for two hours across an elevated esplanade and encounter nothing but the repetition of precise, mathematical channels cut into the ground, each one channeling a trickle of lukewarm water toward some subterranean reservoir that gurgles miles beneath your boots. The architecture has no doors. It offers no scale relative to a body. It merely provides acres of wet, dark surface for a jungle that does not know it is living on a machine.

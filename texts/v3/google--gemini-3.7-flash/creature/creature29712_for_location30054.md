@@ -1,0 +1,33 @@
+Where there are no lungs to demand a quick turn of oxygen, the things that dwell here move at the rate of swelling timber. They are not animals in the sense of the world above the rim—they have no need for teeth, frantic foraging, or the brittle architecture of dry bone—but they are unquestionably alive, possessing an inward, wet intention that matches the stroke of the buried engine.
+
+The most numerous are the **tallow-plates**, which occupy the friction zones where brass meets wood. They appear at first to be nothing more than thick, liver-colored scabs or hardened rings of grease built up around the rocker shafts and the piston guide. In reality, they are dense, disc-shaped colonies of communal tissue, neither fungus nor mollusk, whose underside is as smooth as paraffin and perpetually secretes a cool, heavy oil. 
+
+They feed on the hot sap and iron shavings thrown off by the linkage strokes. When the piston rams forward, shearing its fringe of hair-roots, the tallow-plates shift a millimeter along the brass, their broad, soft margins curling over the fresh cut to absorb the tannin-rich foam before it can drip into the sump. They have no eyes; their entire dorsal surface is a single, slow pressure-receptor tuned to the engine’s vibrations. If the engine’s tempo were to slip by five seconds, the tallow-plates would dry to a brittle, horn-like resin and flake away; because it does not, they remain soft, pliable as cured pork fat, and faintly warm to the touch.
+
+Higher up, slung between the vertical lianas and the rusty webbing of the ceiling purlins, live the **siphon-bodies**. 
+
+These are long, semi-tubular creatures the color of peeled elderberry wood, roughly the thickness of a man’s torso but eight to ten feet in length. They are almost entirely hydraulic in their mechanics. Their bodies are segmentless sleeves of layered, waterproof membrane—like gut stretched over willow hoops—filled with the same clear, alkaline sap that circulates through the vines. They do not drop down, nor do they climb with limbs; instead, they have grown around the metal stay-rods, their ends tapering into thick, sucker-like collars that clasp the iron where condensation is heaviest.
+
+A siphon-body operates as an auxiliary cooling loop for the chamber. Every forty-five seconds, in the lull that follows the *thung-chunk* of the piston, one will slowly contract, squeezing a quart of cool, iron-tasting water through its internal valves and venting it downward through a short snout directly onto an overheated bearing or a swollen root-knot that threatens to split from internal steam pressure. 
+
+Their life cycle is immensely long and motionless. A siphon-body may hang from a single iron truss for three generations of horsetail growth, gradually incorporating the rust flakes into its pale dermis until its outer skin has the rough, orange-brown texture of cast pipe. Inside them, small, pale internal organs—rudimentary bladders and fibrous filters—pulse with a sluggish, fluid-driven heartbeat that is simply an echo of the engine’s water-hammer.
+
+Down in the sump, where the water is dark as brewed tea and slick with petroleum, are the **weir-keepers**. 
+
+They are wedged directly into the submerged intake grates, where the duckweed is constantly pulled into the subterranean bores. They are broad, flattened organisms whose flesh has the consistency of pickled kelp. They have no distinct heads, only wide, semi-rigid gristle frames that fit precisely into the rectangular openings of the ironwork, acting as living strainers. 
+
+The weir-keepers prevent the heavy, fibrous debris of the rotting root-mat from choking the boiler’s feed pumps. Their backs are covered in a dense, mossy turf of ciliated hairs that constantly sweep the black water, catching the large flakes of leathery leaf-slate and shunting them to the side, where they can settle into the peat floor. In exchange, the suction of the pumps pulls a continuous stream of microscopic springtails, warm grease droplets, and iron salts through their porous undersides, nourishing them without the need for digestion. They are held in place by the vacuum alone; if the engine were ever to vent its pressure and the draw at the grates ceased, the weir-keepers would lose their purchase, drift to the bottom of the grease-sump, and gently dissolve into the peat.
+
+And then, deeper back—in the humid, dripping space behind the main horizontal cylinder where the liverwort grows six feet thick—there is a **tender**.
+
+It is singular, though whether it was once human or simply an offshoot of the chamber’s vascular flora that took on an upright symmetry is impossible to tell. It has two legs, but they are fused with the peat-bed up to the calves by a dense network of pale, hair-thin anchoring cords, anchoring it near the brass grease-cocks it attends. Its torso is long and narrow, covered in a skin that resembles the wet, inner parchment of birch bark, stained with orange runnels of rust and green streaks of algae.
+
+The tender does not breathe in drafts; its chest moves only with the swelling and relaxing of the hollow root-trunks that run beside it, taking in the warm, turnip-scented exhaust steam through wide, fleshy pores along its ribs. It possesses two arms, extraordinarily long and jointed like dried ash poles, ending in wide, blunt-fingered hands whose palms are hardened into thick, black calluses of petrified leather.
+
+Its function is neither violent nor hasty. It moves only during the forty-second interval between strokes. 
+
+When the brass crosshead reaches the end of its travel and pauses, the tender’s arm extends with a quiet, wet creak of sinew. The hand finds a copper lubrication cup, tests its level with a thumb that has long since lost its nail to horn-like callus, and uses two fingers to scoop a measure of tallow-plate grease from a nearby iron beam, pressing it firmly into the cup’s mouth before the linkage begins its return journey. 
+
+Its face is entirely smooth, devoid of eyes or mouth, save for a broad, horizontal slit across the bridge where a nose would be—an organ not for smelling, but for sensing the exact moisture-saturation of the air. It does not sleep, because the engine does not stop; but it rests its heavy, lichen-draped head against the warm, vibrating flank of the cylinder casing during every compression stroke, feeling the pulse travel through the cast iron, into its own lignified vertebrae, and down through its anchored heels into the floor.
+
+It has stood there long enough that the liverwort has begun to creep over its left hip, binding it to the cylinder block with a soft, green seam that neither the machine nor the tender has any reason to break.

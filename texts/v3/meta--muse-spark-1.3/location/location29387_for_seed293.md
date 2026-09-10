@@ -1,0 +1,47 @@
+You come down into it without noticing you've descended — that's how old this place is.
+
+The rim is only a swell, a low, grass-backed lip no higher than your knee, worn soft over uncountable rains until it barely counts as a hill. Inside that swell the land sags into a shallow bowl, maybe three hundred paces across, flat as an old plate. You can stand in the middle and see the whole boundary at once: a circle of mist where the world ends. Beyond that, nothing matters. This is a room made by weather.
+
+Everything here is at the end of becoming flat. The stones that poke up through the peat are not stones the way mountains have stones. They are rounded, pitted, grey-yellow with lichen, soft at the edges as old bread. If you press your thumb, they weep. Water lives inside them and sweats out in the warmth, a constant slow tear. The soil underfoot is not soil, it's depth — black, sweet-smelling humus meters deep, springy, saturated. Each step sighs and fills with brown water that takes its time draining away. Water is never far. It's under the moss, over the moss, in the air itself.
+
+The air is warm and thick enough to drink. Normal daylight, late-morning white-gold, comes in from directly above but it doesn't fall clean. It filters down through layer after layer of green and comes out dappled, steaming. By noon your skin is beaded. By one minute after arrival your shirt is stuck to you, your hair damp, your breath condensing faintly even in the warmth. Things condense here without cooling — leaves drip from their tips in steady metronome without any recent rain. The whole bowl is post-rain, always post-rain.
+
+And it is alive, almost exclusively alive. Not forest over ground, but plant *as* ground.
+
+The floor is a living mat — moss and liverwort and dwarf fern stitched so tight you can't find the dirt beneath, puffed up into hummocks that give underfoot like lungs. From that mat rise the presences, spaced far apart, sparse enough that you always feel emptiness around you. A dozen, maybe fifteen of them. You could count them from anywhere.
+
+Each one is a building that is also a tree that is also not quite either.
+
+From a distance they look like banyans that forgot how to stop. A massive fluted trunk thirty feet across, buttressed, hollowed, lit from within. Up its sides, balconies and rooms and layered decks accrete like shelf fungi — not built on the tree but grown out of it and then finished by hands: woven walls of living fig-root, windows sealed with transparent leaf-membrane that flexes when you touch it, stairwells spiraling inside hollow aerial roots big enough to walk through. Vines as thick as your thigh run from crown to ground in catenary curves and double as gutters, as pipes, as roads for ants and for children.
+
+This is a town. Not metaphorically. Each tower is vertically urban. At the base: a shaded market porch where roots have been coaxed into stalls and hooks. A level up: family lofts with hammock-floors that tighten or loosen with your weight. Higher: workshops where the light is better. Higher still: mist-collectors, wide cup-leaves the size of doors that tilt toward the wind and pour a constant silver thread into cisterns. Between towers, at what would be street level, there is no street — there is marsh. Plank bridges of grown bamboo, springy and green at the cut edge, thread between them just above the water, sagging and resurfacing with the day's growth.
+
+You realize quickly that no two visits will find the same map. This place is turbulent, hyperactive, remaking itself even while you watch.
+
+A tower grows. You can hear it if you stand still: a low creak, a fibrous groan as a new buttress shoulder pushes out a handspan in an afternoon. The people here don't fight it, they surf it. A man with chlorophyll freckling his forearms is pruning a doorway with a sonic knife that sings — the cut edge curls back instantly and seals, and the shavings are already sprouting where they fall. A woman is coaxing a bridge to a new anchor, whispering, tying, adjusting a copper-nano thread that glints. Above them, a whole crown collapses without warning — a limb heavy with water and epiphytes shears off with a crack like a sail tearing, crashes down into the mat, explodes into beetles and parrots and white spray — and within the hour, vendors have already moved their mats onto the fallen trunk to sell from it, children are stripping its orchids, fungi are filming over the wound in electric blue. Creation and destruction are the same weather here.
+
+Because the tech here is not separate from the plant. It is the plant, tuned past what physics textbooks allow.
+
+Put your palm on a trunk wall and you feel the faint 50-hertz hum of sap-current — photosynthetic skins that don't just make sugar but make voltage, storing daylight in starch-batteries in the roots. The leaf-windows polarize at a thought, or rather at a chemical signature; they know their household's sweat and darken for strangers. Water climbs the root-pipes not by capillarity but by standing acoustic waves — if you press your ear to a pipe you hear it singing, high and pure, lifting marsh water forty feet up to the cisterns without a pump. Seeds drift down that are not seeds: black glassy tetrahedrons, warm to the touch, that unfold when they land into a lattice for a new tendril to follow. Someone told me they fell from orbit years ago and just kept growing. No one maintains them. They maintain us.
+
+It is loud. That is the first true shock after the green.
+
+Water noise everywhere: drip, trickle, plip, gurgle, the suck of your boots, the patter from a thousand leaf-tips. Under that, animal noise in waves so dense it becomes a pressure on the skin. Frogs — dozens of species — bellowing from every puddle, green-backed, translucent-bellied, some with leaves growing from their backs so you can't tell frog from fallen leaf until it blinks. Cicadas sawing in a pitch that makes your teeth ache. Things with wings — bees big as thumbs, iridescent beetles, flocks of tiny screaming parrots that wheel from tower to tower trailing seed-fluff, jewel lizards that slap the water and run. And human noise braided in, bazaar-level, never stopping: haggling over cuttings and batteries and smoked eel, children shouting as they swing on vine-loops, a radio grown in a gourd crackling with weather-song, someone pounding starch, someone laughing. The bowl amplifies it. Sound hangs in the wet air and doesn't leave.
+
+The ecology doesn't have edges. You stop trying to sort plant from animal from person.
+
+Moths land and open wings that are perfect leaves, veined, photosynthesizing. A sloth-like thing, shaggy with moss, moves so slowly down a cable-vine that ferns have fruited in its fur. The market sells fruit that, when cut, exhales a puff of its own tiny weather — a sour-sweet fog that smells of lightning — engineered so long ago no one remembers if it was natural. Leeches of jewel color wait on leaves, but the children pick them off and trade them for sweets because their saliva is antiseptic. Even the rot is bright: fallen wood goes turquoise, then orange, then white with mycelium that pulses faintly at night.
+
+Rules emerge if you stay past the first hour:
+
+One: Nothing stays dry. You stop trying to keep your feet dry, your notes dry, your food dry. You eat wet fruit with wet hands. You sleep in a hammock that breathes and sheds water. Dryness is a rumor from outside the rim.
+
+Two: Nothing is finished. No wall is final, no path is fixed, no tower is done. If you point to a house and come back after a nap, a root will have moved across the door and the owner will have cut a new door somewhere else and will shrug: house wanted it that way.
+
+Three: Everything is negotiated. You don't take a shortcut through the mat without stepping on the stepping-bladders the moss offers — pale inflated sacs that hold your weight if you step gently — otherwise you sink to the knee and the frogs scold you. You don't pick without asking the vendor-trees. You learn to trade breath for shade: stand still under a tower at midday and it will lean its great leaves toward you, cooling you, and in return it reads your exhaled CO2 and your sweat-salt like news from the outside.
+
+By late afternoon the light goes amber-green and the whole bowl steams. The towers exhale in unison — a visible sigh of oxygen and mist that rises and then, caught by the low rim, falls back as a fine internal rain. It patters on leaves, on tarps, on your shoulders. The frogs go louder. The market lights come on — not bulbs but lantern-fruits, warm yellow, swaying in clusters — and the bridges fill with people going from tower to tower with baskets on their heads, silhouetted, dripping.
+
+You can walk the entire town in twelve minutes, rim to rim, and still get lost in it, because the vertical is deeper than the horizontal. A single tower contains alleys, wells, chapels of orchids, nurseries humming with tadpoles in leaf-cups, attics where old tetra-seeds click as they cool.
+
+Stand in the wet center, with water lapping your ankles and parrots screaming overhead and the ground breathing under you, and you understand: this is not a ruin of something older, even though the stones are primordial and the peat is ancient. It's the oldest stable state learning how to be young again — a hamlet that decided to be a forest that decided to be a machine, all at once, in a saucer of mud, refusing to dry, refusing to quiet, refusing to finish.

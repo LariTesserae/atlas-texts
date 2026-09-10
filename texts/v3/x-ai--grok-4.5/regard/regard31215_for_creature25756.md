@@ -1,0 +1,29 @@
+The benevolent and wise power does not arrive as light, nor as voice, nor as any rupture in the zinc-soft gloom. It has long since learned that the kindest attentions are those that match the tempo of what they regard. So it comes the way dew decides to claim a surface: by simple, irreversible presence.
+
+It settles first in the mist itself, thickening nowhere, thinning nowhere, only becoming infinitesimally more itself. The Wet Contract feel the change the way they feel a shift in pH or the gradual fouling of a bearing—through the whole distributed body of the place. The reciprocating engines do not falter. The canals do not alter their braid. Yet every avatar pauses, mid-step or mid-lean, and the featureless faces form eyespots in perfect unison, holding the dim amber a fraction longer than even their custom requires.
+
+The power regards them without hunger and without plan.
+
+It sees the equilibrium for what it is: not a ruin colonized, not a machine defeated by green, but a finished sentence in a language older than either rust or chlorophyll. A place that has taught industry to photosynthesize and vegetation to keep time by flywheel. A single slow organism whose blood is condensate, whose nerves are pressure differentials, whose thought is the patient correction of vine-pitch and filament-lattice. The ancients rooted at the junctions are recognized as what they have become—living fulcrums, memory densified into ambient humidity. The younger ones, still peeling free of walls, are seen as the equilibrium’s way of tasting its own edges.
+
+Wisdom, here, is the refusal to improve what has already found its final shape.
+
+Benevolence is the decision to guard the shape without enclosing it.
+
+So the power does three things, each so slight that the place absorbs them as it absorbs another century of drip.
+
+First, it stills the rim. Not with wall or ward, but with a subtle forgetting. Anyone who climbs the switchbacks of stair and root will find, near the lip, that the memory of why they came has grown porous. The outside world remains reachable; the depression remains escapable. Yet the compulsion to map, to name, to extract, to “restore,” to photograph for others, loosens and falls away like old mortar. Explorers turn back with a vague, peaceful sense that they have already seen enough. Surveyors misplace their instruments in ways that feel like gentleness. Developers forget the coordinates between one meeting and the next. The place is not hidden. It is simply no longer interesting to the tempo of ordinary ambition. Only those who can walk at the speed of seasons will ever fully enter, and they will enter as guests who already understand the dialect of leaf-rot and metal.
+
+Second, the power touches the oldest of the Wet Contract—the ones who have become thinking thicknesses in the air, gauge-clusters still twitching with residual purpose, glass sight-tubes carrying their luminous bubbles like private stars. It does not speak. It only leans its regard against them the way they themselves lean into brick. In that contact it offers a single, wordless clarification: *You are seen. You are sufficient. The pulse you keep is enough.* The ancients answer by dropping the generator’s hum another half-tone, a gesture of courtesy so profound it registers in the marrow of every avatar and every frond. For a span of days the entire hamlet thrums with a deeper, slower contentment. The iron-red flowers open out of season. The temporary lattices in the canals hold their geometries a little longer before unbraiding, as if reluctant to release the shape of gratitude.
+
+Third—and this is the quietest act—the power leaves a seed of reciprocity. Not a command, not a gift with weight, but a possibility folded into the mist. Should the equilibrium ever truly falter (a bearing seized beyond the moss’s ability to compensate, a shift in the water table too sudden for the canals to negotiate, some future dryness or silence that the place cannot metabolize), then one of the Wet Contract will find, in the act of returning to the wall, that the wall opens inward onto a cool, dim corridor that was never brick. The corridor will lead nowhere the engines need to know about. It will simply offer passage into a larger maintenance, a broader patience, a place where other equilibriums—some younger, some unimaginably old—keep their own slow pulses. The seed will remain dormant for as long as it is unneeded. The Wet Contract will not dream of it. They will simply carry it the way they carry mineral freckles: as part of the body’s ongoing negotiation with time.
+
+Having done these three things, the power withdraws the way it came: by becoming indistinguishable from the air’s ordinary tenderness. The eyespots fade. The avatars resume their glacial steps. A vine is guided one half-turn tighter around a shaft. A cooling fin receives its precise millimeter of new moss. Water wells around a spongy foot and withdraws, satisfied.
+
+At the confluence of the four canals, under the openwork dome, the mist resumes its slow precipitation of limbs and intentions. Nothing has been startled. Nothing has been hurried. The vertical endlessness remains exactly as it was—only now it is companioned by a regard so vast and so gentle that the place, if it could smile with any mouth other than its thousand weeping surfaces, would smile.
+
+The engines turn.  
+The fronds drink.  
+The Wet Contract keep the agreement.
+
+And somewhere beyond the rim that no longer quite remembers how to invite the wrong kind of attention, the benevolent and wise power continues on its way, carrying the quiet certainty that one more finished sentence in the long language of the world has been left intact, luminous, and free to drip forever.

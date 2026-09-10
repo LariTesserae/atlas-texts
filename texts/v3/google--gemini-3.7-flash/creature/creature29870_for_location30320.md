@@ -1,0 +1,29 @@
+In the vast, rhythmic drum of the vault, life does not merely endure the iron noise; it has organized itself around the vibration until the machinery functions like an artificial heart, driving the pulses of small, specialized ecosystems from the high ribs down to the floor-grain.
+
+### The Chords and the Trough-Feeders
+
+In the mid-air of the vault, spanning the thirty paces between the upper root-ribs and the stationary iron balance-beams, hang the webs of *tympanum spiders*. They do not spin the circular, fragile orbs of garden spiders. Instead, they cast long, single-strand guy-wires of dense, grease-coated silk, anchor-bolted directly into the grain of the blue-black wood and the oxidized iron. 
+
+These chords are kept permanently taut by the rhythmic heave of the engine. When the piston plunges—*chump-thung*—the entire structural web snaps into a harmonic pitch. The spiders, blind and spindle-legged, sit at the wooden anchor points with their tarsi pressed directly against the heartwood. They never watch for struggling insects; they wait for a discordant note in the tension of their chords, which signals that a gnat, disoriented by the immense acoustic pressure, has blundered into the silk.
+
+Below them, along the timber flume where lifted river water rushes in cold, steady sheets, lives a colony of blind, glass-pale crayfish. They were drawn in generations ago as larvae through the subterranean river grates, but within the timber flumes they have grown long-bodied and nearly transparent, their shells soft and slick as peeled grapes. They wedge themselves into the seams of the wood against the violent current, grazing upon the thick, rubbery mats of black iron-bacteria that flourish wherever water and oxidized metal meet. When the pump momentarily eases at the top of each stroke, the crayfish scuttle forward an inch, retreating into the joint-shadows before the next surge of cold headwater slams down the chute.
+
+### The Floor-Cleaners
+
+The immaculate emptiness of the wide basin floor is maintained by an unbroken chain of small, broad scavengers: the *slate-backed wood-crawlers*. Flat as coins and armor-plated like miniature armadillos, they creep across the interlocking roots in slow, methodical orbits. 
+
+Their heavy shells are dull slate-gray, perfectly matching the velvet coats of liverwort that carpet the floor. These creatures possess no lungs; they breathe through moisture-slits along their underbellies, absorbing the thin, cool film of condensation that covers the wood. They are the vault’s sweepers. Every swallow feather that drops from the heights, every dead tallow-beetle that tumbles from the bronze journals, and every strand of worn hemp sloughed from the cylinder glands is consumed within an hour of hitting the wood. 
+
+They leave behind only a fine, mineralized powder that the steady drafts sweep directly into the drainage fissures, keeping the expanse of polished root bare, level, and entirely devoid of rot.
+
+### The Attendants of the Gland
+
+Human life here has shrunk to a sparse, enduring handful—rarely more than three or four individuals at any given time—who inhabit the dry, hollow root-knees along the northern perimeter where the vault meets the high terrace. 
+
+They are not engineers in any modern sense; they do not understand the mathematics of the pump, nor do they seek to improve it. They are custodians of the equilibrium, born into the vault or brought down as children, their bodies shaped from youth by the iron climate:
+
+* **Physiology and Senses:** Their skin is remarkably pale, but where their forearms and shins regularly brush the timber, the skin is stained an indelibly deep blue-black from the iron oxalates leaching through the wood. Their eardrums have thickened to tough, fibrous membranes; to an outsider, they would appear entirely deaf, unable to hear spoken language. Yet their perception of the vault is exquisitely sharp. They walk barefoot, their soles wide, flat, and heavily calloused, feeling the health of the engine entirely through bone conduction. A dry bearing, an unbalanced counterweight, or a failing hemp-ring registers to them as a prickling in the ankles or a sharp twinge behind the molars.
+* **The Routine of the Tallow:** Their daily movement is quiet, almost monastic. They move along the edge of the great flywheel in time with its revolution, carrying shallow bowls carved from dried heartwood filled with a paste of rendered mutton fat and crushed river-slate. With long-handled wooden paddles, they replenish the tallow cups over the bronze journals, moving with practiced, rhythmic precision so their arms are never caught by the oscillating crank.
+* **The Packing of the Hemp:** In the dry, high alcoves where the swallows nest, the attendants keep bundles of raw river-hemp soaking in troughs of cold mineral oil. When the hiss from the piston cylinder sharpens from a soft sigh to a wet rattle, two attendants will step onto the root-platform. Working in complete, silent coordination—communicating entirely through sharp knocks of their wooden mallets against the floor—they tamp new, oiled braids into the gland slots while the engine continues its unbroken stroke.
+
+They live in the stillness of the machine’s shadow. In their sleeping hollows—where the acoustic roar is cushioned by deep pockets of dry moss and woven swallow-down—they sleep with their foreheads pressed against the root-walls, lulled by the massive, low-frequency pulse that keeps their ceiling from collapsing and their floor swept clean. They do not know a world that does not beat at twelve strokes a minute, and they treat the great iron engine not as a tool of iron, but as an ancient, unyielding organ of the tree itself.

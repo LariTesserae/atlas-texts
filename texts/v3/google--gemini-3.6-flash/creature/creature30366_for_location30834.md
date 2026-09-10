@@ -1,0 +1,37 @@
+The life that fills this place does not merely endure the heat; it is geared to it. To survive here is to be a part of the engine—to have a body shaped by head-pressure, lubricated by oil-sap, and timed to the rhythmic vents of the basalt shelf.
+
+Nearest the basalt floor, where the boiling flumes carve their smooth, parabolic grooves, are the **Chaffers**. 
+
+These are the heavy, bronze-armored arthropods, some as broad as shield-bosses, others as long as a man’s forearm. They do not scuttle; they travel with a measured, ratcheting gait along the base of the iron-reeds, their jointed legs fitting neatly into the worn striations of the rock. Their carapaces are thick, multi-layered carapaces forged from ingested magnetite and copper salts, polished by the constant abrasive spray of sulfur and steam until they shine like oiled brass. 
+
+The Chaffers are the maintenance crew of the shelf. Their mandibles are heavy, offset shears designed not for killing prey, but for scraping away the dense lime and mineral scales that constantly threaten to clog the steam-vents and choke the reed-valves. They move with an unhurried, mechanical intent, clearing the ports. When a reed-node snaps open with its sharp, metallic *chong*, a Chaffer standing nearby will not flinch; it will simply absorb the kinetic wallop on its thick, ridged back, using the sudden blast of steam to clear its own spiracles of moisture.
+
+Higher up, where the grease-leafed ferns weep their dark, iridescent hydrocarbons into the mist, lives a very different order of creature: the **Gasket-Gliders**.
+
+These are long, supple-bodied animals, smooth and completely hairless, with skin the color and texture of wet, vulcanized rubber. Their long, flattened tails end in broad, double-lobed fins that act as air-brakes. They do not have true eyes; in an environment where the light is a blinded, dazzling white and the mist never clears, vision is secondary. Instead, their snouts are webbed with thermal pit-organs that see the landscape as a moving map of heat—bright, screaming white where the geysers burst, deep velvet-black in the cool shadow of the pale-basalt cliffs.
+
+The Gliders live in a state of continuous flight and slick, sliding drop. Their skin excretes a clear, heat-resistant lipid that reacts with the fern-grease, creating an almost frictionless coating. They leap from the high, mineralized vines, stretching leathery membranes between their elongated ribs, and plunge straight into the rising steam-columns. 
+
+They do not fight the updrafts; they ride them like pistons. A Glider will drop fifty feet through the vapor, gather speed in the cool downdraft off the cliff-face, and then catch the hot blast of an exploding mud-pot, rising straight up through the leaf canopy in a blind, silent rocket-ascendancy. As they clear the greenery, they issue their calls—dry, woody clicks produced by snapping two hard plates in their palates together, using the echo off the wet cliff-face to gauge the width of the thermal column before folding their wings and diving again.
+
+Down in the dark flumes—where the natural siphons trigger every few minutes—dwell the largest inhabitants of the plateau: the **Turbine-Grubs**.
+
+These creatures are almost entirely sessile, anchored deep inside the stone Chutes by root-like, muscular foot-pads that have chemically fused with the iron-basalt. Their bodies are cylindrical, segmented masses of dense, cartilaginous blubber, wrapped in overlapping scales of heavy silica. They align themselves precisely in the center of the water channels.
+
+When the siphon breaks and the roaring rush of scalding water thunders down the chute, the Turbine-Grub does not retreat. It opens its vast, ringed mouth—a muscular, iris-like maw lined with rows of horn-like baleen plates. The torrent of boiling, nutrient-rich brine pours through its gut, turning its internal, segmented digestive chambers in a slow, rhythmic churn that sounds like a heavy wooden water-wheel working under pressure. The creature feeds on the cooked algae, soft iron-moss fragments, and heat-boiled spores washed down from the upper shelf. When the water subsides with its deep, gurgling sigh, the grub closes its maw with a wet, vacuum-tight *clack*, sealing in the heat to process its meal until the next flushing cycle.
+
+Even the air itself has its inhabitants. Suspended between the braided, high-voltage vines that stretch across the canyon are the **Spark-Flies**. 
+
+They are not insects in any traditional sense, but tiny, translucent organisms that live in swarms so dense they resemble drifting ribbons of copper wire. Their thin, needle-like bodies are rich in metallic trace elements, and as they cling to the taut, charge-carrying vines, they form living bridges that pulse with dim, ambient bio-electricity. When the humidity spikes and the bio-electric potential between the cliffs reaches its peak, the swarms discharge in brief, silent arcs of pale orange light—a sudden, static flickering that illuminates the mist like internal combustion inside a engine block.
+
+Above them all, wandering through the thickest stands of iron-reed where the ground hums with deep subterranean seismic cycles, moves the keystone of the entire plateau: the **Bellows-Beast**.
+
+It is a creature so vast and slow that at first glance it appears to be merely another basalt outcrop covered in greasy fern-growth. Standing twelve feet at the shoulder, with six pillar-like legs that end in broad, padded hooves designed to crush mineral crusts without breaking through into hot mud-pots, it moves through the basin like a slow-moving hydraulic press.
+
+The Bellows-Beast possesses no teeth and no true jaws. Instead, its massive chest contains twin, lung-like sacs lined with thick, muscular bellows that draw in hundreds of gallons of superheated steam and vaporized oil with every breath. It siphons the heavy hydrocarbon film directly off the water's surface, using its massive internal heat to crack the heavy lipids down into usable energy. 
+
+As it walks, the sheer weight of its steps depresses the iron-rich soil, cracking open tiny new micro-fissures in the rock that allow buried steam to escape, preventing the plateau from building up catastrophic explosive pressure underneath. It is the governor on the system. Where the Bellows-Beast treads, new steam-vents are born, new reeds take root in its deep, compressed footprints, and the rhythmic *chong* of the basin finds a new beat.
+
+Nothing here is quiet, yet nothing screams. There are no sounds of agony, no panicked chases across the basalt. Predation here is quick, functional, and clean—a Glider snatching a Spark-Fly as it cuts through an arcing electrical beam; a Chaffer consuming the sloughed-off, heat-baked skin of a Turbine-Grub clinging to the siphon wall. 
+
+It is an ecosystem without seasons, without frost, without night—for even when the sun drops below the vertical basalt cliffs, the ground stays red-hot and glowing in the deep flumes. The life here does not sleep; it simply ticks over, idling softly in the wet, warm dark, waiting for the next valve to open, the next siphon to flush, and the steady, ten-thousand-year engine to strike its next downbeat.

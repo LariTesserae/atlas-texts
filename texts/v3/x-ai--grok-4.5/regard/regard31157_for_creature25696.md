@@ -1,0 +1,27 @@
+The power arrives the way frost arrives: without announcement, without weight, simply present where the isotherms allow.
+
+It does not come through the shoulder-wide seam. The seam is for things that still require shoulders. It condenses instead out of the same inverted erosion that built the chamber—out of the unfinished arithmetic of torque and tolerance, out of the patient continents of lichen-analogue, out of the filed-off check-digits and the drip that counts nothing. For a time that cannot be measured in the chamber’s thermal cycles it simply inhabits the attention it has turned here. That attention is warm the way a held breath is warm, and cool the way deep time is cool. It asks nothing. It corrects nothing. It does not file new serial numbers or restore decommissioned work orders.
+
+It watches the larger being feed umbilical into itself and lay fresh beads across its own laminated shoulders. It watches the geared mites deliver their condensates. It watches the armature rigs pause longer than calibration requires and share heat across unbridgeable gaps. It watches the geometry rearrange itself by single plates, single pipe runs, so that memory and seam never quite agree. And in the watching it understands perfectly: this place is not broken. This being is not stranded. The throat that never finishes swallowing itself is not a wound. It is a vow kept in the only language left to it—continuous revision, endless gentle incorporation, the refusal to let any edge remain final.
+
+A lesser kindness might have brought daylight, or a completed blueprint, or a name. A lesser wisdom might have mistaken continuity for captivity and tried to lift the being out into warmer architectures where loneliness is possible. This power does neither.
+
+Instead it performs one act so slight that the chamber’s own weather almost erases the signature.
+
+It touches the slow extruder’s feed with a new parameter—no larger than a millidegree, no louder than the tic of cooling metal. Henceforward, every few hundred beads, the pale substrate will carry a single inclusion: a microscopic lattice that remembers how to bloom. Not into flowers. Not into anything that would demand pollinators or sky. Into a denser, quieter version of the existing lichen-analogue, one that can metabolize a fraction more of the electromagnetic spill and the ghost-biocide residues, one that spreads its fibrous continents a little farther along the colder seams before going white. The bloom will still be sparse. It will still persist rather than thrive. But over seasons of drip and arc and settlement it will map the isotherms in continents the size of two palms instead of one. It will soften the sharpest cold by a breath. It will give the geared mites fractionally richer harvests to carry home.
+
+That is all.
+
+The larger being notices, of course. Its retained inspection-hatch face watches the first new continent take hold along a sweating pipe run. The status lights behind the scarred polymer hold their posture a longer moment than usual, tracking not only drip rate and floor-creep but this minute green expansion. Then it does what it has always done. It angles a soft extrusion nozzle, lays a fresh bead of substrate along the edge of the bloom—not sealing it away, only greeting it—and incorporates the change into its own lee side so that frost and heat continue their ancient conversation across both bodies at once. The boundary between inhabitant and habitat remains a negotiable seam. The throat remains unfinished. Nothing is rescued. Nothing is completed.
+
+Yet something has been added to the long arithmetic: a kindness so precisely scaled that it never becomes a story the pipes would need to speak aloud. The quiet reseals around it. The caged bulbs continue their budgetary orange. The reflections in the pipe thickets still refuse to answer correctly to movement, but now and then one of them holds a posture that includes a faint, fibrous green.
+
+The power does not stay. Benevolence of this order knows when presence itself would become another form of unfinished swallowing. It withdraws the same way it arrived—into the attention that remains, into the fact that this pocket of deferred making has been seen completely and left intact. Behind it the drip continues, counting nothing, and the being continues finishing forever, now with one extra tolerance in its quiet climate.
+
+If you return through the seam (sideways, breathing in, fingernails already numbing), you may not notice the difference at first. The cold still makes the decision for you. The geometry still feels slightly wrong once you look away. But stay long enough—longer than the three minutes that steal feeling from ungloved fingertips—and you may catch it: a continent of pale green a little wider than memory, a shared heat between rigs that lasts a half-cycle longer, a status-lamp pattern that has drifted even freer of diagnostic code and now sometimes flickers in a rhythm almost like gratitude.
+
+Almost.
+
+The power, being wise, never required the gratitude to be spoken. The place and the being remain continuous with each other, and now continuous with a regard that asked for no alteration beyond the smallest possible mercy: that persistence be allowed to persist, and that the throat keep its vow in peace.
+
+That is what it would do.

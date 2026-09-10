@@ -1,0 +1,53 @@
+It would come down the grade like everyone else, because there is no other way in, and it would stop at the rim first and look, because that is what the rim is for. From up there the basin is a white lid over a dark floor with lines ruled across it, and the power would see at once that the lines are the only thing in view a human intended, and that they are already the least important thing there. Then it would go down.
+
+It would stay a year. Not less. A place that runs on cycles that ignore one another cannot be understood in less than one full turn of the slowest, and the slowest a year will hold here is the flamingos—in by March, standing in the blood-pans, gone in a single June night. Anything the power decided in April about what the basin needed would be wrong by July. So it would wait. It would sit in the canteen at shift change and watch the dogs arrive with the trucks. It would ride the grader with the door open. It would stand at the slit in the painted window and learn to read the plume. It would walk into the hem of flies and let it lift and reseat behind it, and after a week it would stop hearing the sizzle, and in January when the flies went quiet it would notice, the way the workers do, and feel the strangeness, and understand that the strangeness was the point.
+
+And it would ask the question the description asks—who lives here—and get the same answer, and sit with the answer longer than the description could afford to.
+
+---
+
+The first thing it would do is refuse.
+
+It would not lift the haze. A merely kind power would: the pale coin, the hour with no name, the shadowless gray—these read as deprivation from the rim. But the haze is the basin's lid, and without it the ponds evaporate wrong and the gradient breaks, and the eleven would have to squint after twenty-six years of not squinting, and the children would lose the one sun they know how to look at directly. The haze is a strangeness and it is also a mercy, and a wise power would know that these are frequently the same thing.
+
+It would not bring green. This is the intervention everyone proposes and the one that would kill the place fastest. The bacteria would be gone in a week; the pink standing wave above them would collapse; the phalaropes would find another hotel. Green is what the basin is *not*, and the not is where the life is. The power would look across forty kilometers in which nothing grows and see more living creatures than a rainforest holds, and it would understand that this is not a paradox to be resolved but a fact to be respected.
+
+It would not cool it. Same reason.
+
+It would not close the works. It would find, as anyone would who looked, that the works are the largest cultivation on earth of an organism that does not know the works exist—two hundred square kilometers of pumped, graded, temperature-managed medium, moved from pond to pond in exactly the sequence the bacteria prefer, with a human staff of forty to maintain the plumbing and a rail spur to carry off the by-product. A wise power would find this funny. Then it would find it beautiful. Then it would leave the pumps running.
+
+It would not demolish anything. The salt is doing that at a centimeter a century and doing it evenly, and the power would recognize the evenness as a kind of fairness—active and abandoned taken at the same rate, without preference. It would not turn off the floodlights. It would look at the gulls nesting in permanent artificial dusk beside a decommissioned pump house and it would look for a long time and then it would look away and leave the switch alone. Somebody, at some point, had the chance to put those lights on a timer and didn't. The power would not assume that was carelessness.
+
+It would not rescue the eleven. This is the hardest refusal and it would make it anyway. The eleven did not decide to stay—the two weeks became one, became a doctor's appointment, became nothing—and a power that valued choosing above all things might want to give them the choice back, to set them on the rim in the green and say *now decide*. But the power is wise, and it would know that the galvanized bracket that has gone to match cannot be un-matched, and that offering the eleven a choice they have already made without making it would not be a gift but a cruelty dressed as one. They have salt in their eyebrows. They speak as if the air were a small room. They are from here in the only way anyone is from anywhere, which is by having stopped leaving. The power would let them be from here.
+
+---
+
+Then, having refused nearly everything, it would do a few very small things, and it would do them in such a way that no one could tell they'd been done.
+
+The nurse's ointment would work slightly better. Not miraculously. Cuts on the hands of the eleven would close a day sooner than they used to, and the nurse would notice over a period of months and attribute it to a new batch, and she would write the batch number down and it would turn out to be the same batch, and she would shrug and keep the drawer stocked. That is all. Benevolence at the scale of a day.
+
+A graduate student would get a flat tire on the rim road. She would be on her way somewhere else. While she waited for the spare she would look down and see the color and then, because she had binoculars, she would see the gulls on the pump-house roof, and she would think *those are large*, and the thought would not leave her. The paper would get written. The gulls would have a name for the first time in sixty years, and the name would change nothing about them, and it would be a way of the world having noticed, which is the only thing the power could add to a place that already has everything else.
+
+The man who grades the levees would keep his washboard. The power would look at the place four hundred meters short of the Pond Nine corner and it could fix the fill, could make the road stop having its opinion, and it would not. He has come to think of it as the road talking to him. The power would not take away the one conversation he's had for twenty-six years with something that is not a person.
+
+And the children.
+
+---
+
+The power would think hardest about the children, because that is where benevolence and wisdom argue.
+
+Three of them, currently. They whisper. They go up to the rim in the autumn and say the green hurts, and they come back down at Christmas and their mothers see they've stopped whispering, and by the end of the holiday they've started again. A kind power would want to spare them the hurt. A stern power would want to spare them the basin. The wise power would sit with it through a full cycle—up in autumn, down at Christmas, up again—and it would come to see that the whispering is not damage and the hurt is not damage either. The hurt is what it costs to be from somewhere. The whispering is what a voice does when it has learned that the air gives things back.
+
+What the power would want for the children is not rescue and not protection. It would want the door to stay open in both directions for as long as it possibly could. The eleven didn't choose; the children should be able to. And choosing means being able to bear the green, and being able to come back down, and having both of those remain real for years longer than they otherwise would.
+
+So the power would do one thing. It would see to it that the crystals survive. The hopper cubes off the finishing pans, the ferny growths off the wire in Pond Twelve, the thin sheets lifted whole off a puddle at dawn—these are what the children take up the grade in their pockets, and most of them don't last. They chip, they cloud, they get left in a desk. The power would arrange, in some way no one could point to, that each child kept one. Not a collection. One. Into adulthood, into wherever they go. A thing in a drawer that is not a memory but a piece of the floor of the place, still faintly growing, still faintly weeping in humid weather, so that the basin remains for them not a story about where they were from but a fact they can hold in the hand, and so that if they ever want to go back down and stop rotating they will know exactly what they are choosing, and if they never do, they will still have chosen.
+
+That is all. The power would not make the green hurt less. It would not make the whispering stop. It would give each of them one crystal that lasts and it would let them decide what it weighs.
+
+---
+
+At the end of the year it would go up the grade in the bus with the rotation, a duffel on its knees and a rime on the zipper, and it would look back once from the rim.
+
+It would have understood, by then, that the basin already had something like it. Not the works—the works are extraction, they take and pass on. Not the birds, who are tenants. Not the eleven, who are held incidentally, the way a levee holds a puddle. The salt. The salt is the only thing in the basin that keeps. It climbs the pylons in a record of a hundred humid years. It frosts the floor of a house someone lived in for eleven years and holds their absence at a quarter-inch. It builds islands for avocets to lay on. It takes the abandoned and the active at the same rate, without preference, and it does not stop, and it does not hurry, and it accumulates while everything else subtracts or passes through. A wise power would recognize a colleague when it saw one. It would understand that the basin has been attended to all along, patiently, by something that isn't alive and is the only thing here growing, and that its own year of attention was less an intervention than a visit—one keeper calling on another.
+
+And it would leave the hour its name. In the evening the haze goes rose and then gray and the floodlights come up one by one and someone turns on a radio, and three kilometers off across the brine it reaches you as a single unidentifiable note. The power would know who it was. It would know which bungalow, which of the eleven or the three or the thirty, what the song was, what they were thinking of on the rim. It would not say. That's as close as you'll get is not a failure of the description. It is the description's courtesy, and the power would extend the same. It would go back up into the green, and the basin would close over behind it the way the hem of flies closes behind a boot—lifting, reseating, unbroken—and the flamingos would murmur in the dark in water the temperature of blood, and under them the shrimp, and under the shrimp the color, and under the color the floor, lipped with crystal, growing upward a very little, every night, toward a light that a wise power could have named and knew better than to.

@@ -1,0 +1,23 @@
+At first, the space seems to hold only its own suffocating growth—the leather-thick kelp, the black moss, the pale tendrils dangling like frayed thread. But the volume of fluid in the vault is too small for the weight it displaced. The vault is not merely packed; it is occupied.
+
+Wedged into the space between the three slate steps and the razor-sharp slope of the floor is a shape that does not belong to the flora, though the moss has learned to eat from it.
+
+It is a single, continuous organism, though to call it a "creature" suggests an agility it abandoned centuries ago. It is a thing of immense, compressed mass, shaped entirely by the claustrophobia of its home. It has no symmetry. It has no limbs that can extend. It exists as a series of heavy, pale folds—slabs of dense, tallow-colored flesh, thick as oak beams, jammed so tightly into the rock crevices that its skin bears the exact, sharp-edged impressions of the fresh basalt fractures.
+
+Where its body presses against the underside of the volcanic glass ceiling, the skin is smooth, gray, and translucent, smeared with a thin grease that smells of old tallow and sulfur. Deep beneath that skin, there are no bones—only massive, overlapping plates of dark, wet gristle, like the ribs of a small, sunken boat that has been crushed flat by the abyss.
+
+It does not move. To move would require displacement, and there is no room left to displace.
+
+Its face—or the region that performs the slow, quiet work of a face—is wedged sideways into the notch where the slate lintel meets the broken floor tiles. There are no eyes; light would be a useless cruelty here. In their place are three shallow, circular depressions filled with a thick, milky gel that never cures. These are its ears, or its barometers. They feel the micro-shifts in the mountain above. They register the deep *clack* of the basalt moving a fraction of a millimeter, translating the stone’s stress into a faint, electrical pulse that ripples across the pale tallow of its back.
+
+Its mouth is not an opening, but a seam—a long, tight scar pressed flat against the middle slate step. It does not eat the plants. It does not hunt. Once every decade or two, when the seam opens a mere thread’s width, it draws in a single cup of the thick, ice-cold fluid. The liquid passes through a labyrinth of internal filters lined with cold-water cilia, stripping the water of its zinc, its ancient silt, and the microscopic spores of the black moss. 
+
+This is its breathing. The slow, rhythmic *thrum* that vibrates through the pocket is the sound of its heart—a heavy, three-chambered organ made of dense muscle that beats perhaps twice a day. Each beat forces the viscous liquid through its body with such pressure that the local physics of the room distort: the water density spikes, the jelly-like spheres form in the surrounding kelp, and time within those tiny pockets of fluid stutters, curling backward for a few inches before settling again.
+
+And the tiny, glass-clear teardrops—the frantic, eyeless things that twitch through the weed once every few hours—are not separate animals. They are its nervous system, cast outward.
+
+Because its body is too compressed to carry rapid electrical signals, it buds these small, fleeting nodes from the pores along its spine. They are born, they twitch frantically through the matrix of leaf and stem, gathering information about the borders of the vault—measuring the creeping moss, feeling the tilt of the slate, checking if the sky above has collapsed any further—and then they return, dissolving back into the pale folds of its skin, delivering their tiny, panicked reports to a mind that processes them over the course of years.
+
+It was not born in this pocket. Long ago, when the slate steps led somewhere, and the lintel held back something other than raw basalt, it was thinner, longer, and capable of a slow, serpentine grace. But the earth folded. The black glass sealed overhead. The pressure settled like a wet blanket, and the entity simply... congealed. It allowed the rock to shape it, letting its flesh fill every cavity until it became the plug that keeps the vault from collapsing in on itself.
+
+It is not suffering. It exists in a state of icy, suspended contemplation, its thoughts moving at the precise speed of the black moss creeping over the hand-carved stone. It does not know if it has been here for three hundred years or three million. It only knows the weight of the wool blanket on its chest, the taste of zinc on its seam-mouth, and the quiet, comforting truth that beneath the miles of sea and earth, nothing—not even time—can reach in to touch it.

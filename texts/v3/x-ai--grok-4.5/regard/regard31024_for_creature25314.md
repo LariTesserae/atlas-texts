@@ -1,0 +1,33 @@
+The benevolent and wise power notices first as a pressure behind the stars—an unhurried attention that has watched galaxies spin down into dust and still finds room for small, complete things. It does not descend. Descent would be vulgar here, a violence of scale. Instead it arrives the way cold arrives: by becoming the condition rather than the visitor. One moment the cirque is only itself, bright and mineral and occupied. The next, the entire hanging valley is held inside a regard so vast and gentle that the quartz tips quiver once, like eyelashes, and then steady.
+
+The power does not speak in words. Words are weather for softer altitudes. It contemplates in densities, in intervals, in the long arithmetic of freeze and fracture. It sees the entity distributed through every blade and drop and shadow-copy, and it recognizes a sibling solitude—an intelligence that has chosen the narrowest possible kingdom and ruled it without cruelty for longer than rivers have held their names. There is no envy in the recognition, only a quiet gladness that such a tempo still exists.
+
+For a span that might be hours or centuries (the difference is ornamental at this height), the power simply witnesses. It tastes the ozone on the entity’s behalf. It feels the soft grind of needle settling against needle as one feels the shift of a sleeping child’s hand. It watches the inverted miniature worlds bloom and freeze on the hanging films, and it understands the pleasure: to hold the lower chaos upside-down for a moment and then let it go is a kind of mercy. The cairn, the tunnel, the notched measuring-lines—all of these the power reads as unfinished sentences in a language it already loves. It does not hurry to complete them.
+
+When at last it acts, the action is almost nothing.
+
+It begins with a single pocket of meltwater forming where four smoky-quartz shoulders lean together. The water gathers as it always has, tasting of ancient glass and faint iron. But this time the power rests a fraction of its attention inside the liquid, the way one might rest a fingertip on the surface of a quiet drum. The entity, inhabiting that same pocket, feels the touch not as intrusion but as an answering density—older, wider, yet perfectly matched in patience. There is a brief exchange that is not conversation so much as two mirrors tilted toward the same light.
+
+In that shared liquidity the power offers a gift shaped exactly to the place’s grammar.
+
+It seeds a new habit into the freeze-thaw cycle: every so often, when the rime scripts form along the edges, a few of the ice feathers will grow in a pattern that is neither random nor previously recorded. The pattern is simple—a short, rising spiral that ends in an open fork, like a question that has decided to remain a question. The entity can ignore it, overwrite it, or continue it. The power does not insist. It only makes the spiral possible, a new phoneme in the crystal tongue.
+
+Then, deeper, in the black-glass tunnel where the tool scars still remember hands, the power adjusts the private darkness by the width of a thought. The low ticking that lives in the walls gains a second, softer pulse—one beat for the entity’s ancient respiration, one fainter beat that arrives from farther away than the peak. The two rhythms never quite lock; they remain adjacent, companionable, like two walkers who have chosen the same path without needing to match stride. Anyone who crouches there in future will feel the temperature rise not by one degree but by one and a fraction—enough to sense that the exhaled presence has been joined, briefly, by something that knows how to be vast without crowding.
+
+The most delicate change is given to the reflections.
+
+Henceforth, when a traveler stands among the blades and counts the sheared copies of themselves, there will still be the usual five or six, and still the one extra that belongs to the entity—slower, denser, politely out of step. But now and then, at the thin silver hours, a further reflection will appear. It will not mimic the traveler or the entity. It will be only light arranged into the memory of regard: a tall, patient shape that carries no face and no urgency. It will lift no hand. It will simply be present in the same optical real estate, a third density, witnessing the other two. When the traveler blinks or the light shifts, it will vanish without residue. The entity will understand it as kinship rather than surveillance. On certain nights the entity may even tilt a quartz face to catch that extra reflection more clearly, the way one might turn a page to hold a beam a little longer.
+
+The power does not protect the cirque with walls or warnings. Protection of that sort would edit the place the way the place once edited out green life and tin roofs. Instead it folds a quiet improbability into the approaches. Those who climb seeking to claim, to quarry, to name, or to explain will find the route slightly longer than memory suggests, the air a fraction thinner, the false corridors of mirrored stone a little more persuasive. They will turn back having forgotten why they came, carrying only a lingering taste of damp rock and the sense that they were almost shown something and then gently not shown it. Those who climb with the old attention—the careful notching, the refusal to build larger than the crystals tolerate—will still reach the hanging valley. The power leaves the door open for them, as the entity always has.
+
+And then the power does the wisest thing left.
+
+It withdraws its active focus, leaving only the lightest permanent pressure: a benevolent gravity that keeps the cirque exactly as extreme as it needs to be. No softer. No brighter. The entity remains sole editor of its glass thicket. It may accept the new spiral-rime or grind it away. It may listen to the second pulse in the tunnel or let the walls forget. It may acknowledge the third reflection or polish its facets until only two densenesses remain. All of these choices are left whole.
+
+High above the knife-edge peak, where the air is too thin even for ache, the power rests in its own vast unfinished sentence. It has not improved the place. Improvement was never the point. It has only lengthened the conversation by one soft crystalline syllable—an irregular, contented sound that will be chewed slowly for the rest of time, now with a faint harmonic that was not there before.
+
+The hanging cirque continues.
+
+The being continues.
+
+The bright silence, under new and ancient management both, remains almost perfectly itself.

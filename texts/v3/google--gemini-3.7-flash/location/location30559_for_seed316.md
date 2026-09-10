@@ -1,0 +1,23 @@
+The plane has no horizon, only a seam where the warm mud-fog thickens until it becomes heavy enough to drag the sky down into the basin.
+
+It is a world worn down to its final, lowest denominator: a continent-spanning sump where every mountain range that ever existed has been chewed into silt, tallow, and warm, grey brine. There are no cliffs, no shelves, no drops greater than the height of a knee. Yet it is not still. The landscape is entirely full—packed solid with matter in violent, frantic transition, leaving no vacuum, no pocket of clean air, no clearance between one presence and the next.
+
+The noise arrives through the soles of the feet before it hits the ears: a sustained, deafening planetary cavitation. It is the sound of billions of tons of warm, dense fluid being forced through microscopic pores in the rock, coupled with the wet, tearing roar of endless shearing currents. The sound is so loud it possesses a physical texture, like wet wool packed into the skull, flattening every thought into a single, ringing vibration.
+
+Water here is not a distinct layer sitting atop land; it is an omnipresent condition. It sweats upward through the ground, falls as hot, thumb-sized beads from a ceiling of bruised, amber-tinted vapor, and condenses along the surface of everything faster than it can drain. The ground is a semi-solid paste of ancient, powdered basalt, ground so fine by eons of friction that it behaves like warm grease.
+
+Where the mud meets the air, reality unspools in frantic, repetitive seizures. 
+
+Because the erosion has stripped away the structural skeleton of the region, the physics that govern weight and form have grown exhausted and loose. In the middle of the low pans, geysers of thick, opaque brine do not shoot into the air and fall; they mushroom outward into rigid, hyper-geometric lattice works—crystalline scaffolding made of brown water that holds its shape for three deafening seconds before collapsing back into lukewarm froth. Nearby, sheets of mud fold upward like ironed linen, standing on edge against all gravity, flapping with the frantic speed of a hummingbird’s wing until the turbulence tears them into warm spray.
+
+There is almost no room to move. The density is total: if a hand is thrust into the space before you, it displaces not thin air, but a heavy soup of suspended sediment, hot mist, drifting foam-scabs, and the pressurized downdrafts of an atmosphere that is perpetually turning into liquid. 
+
+Vegetation is scarce, reduced to what can survive being endlessly abraded and drowned. What grows does not look like wood or leaf, but like tendon: thick, liver-colored straps of rubbery lichen that anchor themselves to deep-seated nubs of bedrock. These straps do not wave; they vibrate at the same terrible frequency as the water, stretched taut between the mud and the low, charging wind, shedding slick spores into the foam.
+
+Very rarely, something manufactured surfaces in the churn. 
+
+They are not ruins in any architectural sense, but the deeply digested remnants of something made rather than born: single, curved teeth of vitrified ceramic the size of barges, or slabs of an unknown, rustless dark composite drilled through with hundreds of identical, perfectly smoothed holes. These objects have been rolled in the planetary sump for so long that their original purpose has been erased; they are simply hard nodules around which the mud boils in furious, white-lipped eddies. They rise to the surface, shed waterfalls of hot grease, shudder in the acoustic pressure of the sky, and are sucked back down into the churning silt.
+
+Fauna is almost an impossibility in the crushing, deafening mass, yet there are rare, solitary occurrences—things that are not quite animals, but autonomous knots of the basin’s own matter. Occasionally, a ridge of dense, blind tissue—pale as lard, thirty yards long, ridged with breathing slits that whistle against the deafening drone—will arch out of the foam, heave itself through a standing wave of mud, and submerge again, indifferent to light or direction.
+
+The light never changes. It is a dim, sour twilight, filtered through leagues of hot, raining cloud. It catches the slick crests of the mud-waves, turning them the color of tea and bruised skin. Everything is warm, everything is weeping, everything is being ground down into something smaller, while the chaotic, Solaris-like engine of the flat earth continues to tear itself apart and knit itself back together with furious, exhausted speed.

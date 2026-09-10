@@ -1,0 +1,29 @@
+At the center of a single beast, beneath the dark, oil-sheened plates of its mantle, there is no skeleton of calcium, but an interior chassis of dense, cartilaginous rings suspended in cold, viscous brine. 
+
+They are wide-bodied, flattened like abyssal skates or colossal trilobites, but built with the heavy, blunt musculature of subterranean mammals. A mature adult spans several meters across, its back a mosaic of overlapping, slate-gray scutes that do not grow from follicles, but accrete from a continuous mineral secretion along their edges, mirroring the patient geometry of the structures they inhabit. Their underside is softer, pale and ribbed like the underside of a pneumatic hull, perpetually weeping a dense, paraffin-like grease that prevents their soft tissues from flash-freezing against the zero-degree fullerene decks.
+
+They do not possess faces in any conventional sense. Where a head might be, there is only a thick, forward-jutting cowl of armor sheltering a massive, tripartite feeding-funnel. Flanking this intake are clusters of acoustic pits—deep, spiraling cavities lined with velvet-fine tactile cilia that register the micro-fractures, thermal pulses, and sound-reflections of the city. To these creatures, the metropolis is not silent or dark; it is a blinding, ringing cathedral of acoustic shapes. Every spire rings with its own harmonic frequency; every fresh viaduct hums with the high-tension whine of molecules snapping into alignment.
+
+They feed not by predation, but by processing the synthetic exhaust of the city’s birth. 
+
+When the microscopic assemblers extrude a new wall, the cross-linking of the polymer chains sheds a hot, aerosolized mist of heavy hydrocarbons, volatile esters, and complex silanes. The beasts jam their cowls against the still-warm seams, cycling the mist through cavernous internal combs made of fibrous keratin. These combs sieve the airborne chemical soup, breaking down the synthetic condensates through an anaerobic gut culture that generates a faint, internal heat. They are, in essence, lithotrophic engines: living filters grazing on the energetic waste of an automated construction project that does not know they are there.
+
+Their limbs are marvels of non-destructive grip. Rather than sharp talons that might break against the flawless glass, their extremities terminate in broad, split cloven pads rimmed with thousands of microscopic, vacuum-generating pores. By pumping their oily secretions through these pads, they create a hydraulic seal strong enough to anchor a two-ton beast upside-down beneath a wind-buffeted overpass, yet fluid enough to let them glide along the condensation ribbons with a heavy, sliding gait.
+
+Yet they are not the only things moving in the freezing damp. 
+
+Between the plates of the great filterers lives an entire micro-ecology of smaller, parasitic and commensal life. Thread-thin, pale organisms—neither worms nor centipedes, but jointed ribbons of translucent chitin—weave endlessly through the greasy grooves of the larger beasts' armor. These gleaners feed on the hardened paraffin crust and the chemical slag that cakes around the acoustic pits. When two of the giant plate-beasts grind together in the crush of the terrace, hundreds of these pale ribbons are sheared in half, only for their severed fragments to immediately clamp onto the fresh wet alloy, blindly seeking the warmth of another host.
+
+Lower down, in the black drainage chasms where the cryogenic mist collects into rushing, half-slush canals, dwell the scavengers of the runoff. 
+
+These are long, spindle-legged things that never mount the high spires. They cling to the undersides of the drainage grates, their bodies suspended in the freezing chemical current. Their limbs are unnervingly long—thin pipes of flexible mineral-chitin that bend in three directions—and their mouths are wide, delicate sieves that spread across the width of the sluices like fishing weirs. They catch the constant rain of biological refuse falling from the millions of beasts above: discarded molt-scutes, spent grease-plugs, dead gleaners, and the viscous, gray placenta-sacs that drop when the great filterers birth their young directly into the abyss.
+
+Reproduction among the great beasts is entirely tied to the thermal pulses of the city. 
+
+They do not mate in pairs, but enter states of mass arousal when an exceptionally large structure—a master bridge or a multi-kilometer transit core—begins to extrude from the valley floor. The sudden, massive surge of ground-heat and chemical vapor triggers a seismic frenzy. The millions of blind beasts begin to hammer the decks in unison with their heavy sternal plates, producing a sub-audible, rhythmic thrum that can be felt through solid rock for leagues. 
+
+In the crushing, writhing press that follows, they release clouds of dense, gamete-laden tallow into the freezing fog. The mist carries this genetic vapor through the geometric canyons, fertilizing the females as they draw the atmosphere through their filtration gills. 
+
+The resulting young are born not on the comfortable lower terraces, but are deposited as hard, spherical pods directly onto the active extrusion heads. As the new towers climb blindly into the freezing ceiling of fog, the pods travel with them, baked from within by the heat of the freshly spun fullerene. When the shell finally hardens and cools, the pod cracks open, and a pale, armorless juvenile drags itself out into the pitch-black mist, instantly opening its acoustic pits to the deafening roar of the city, its vacuum pads already seeking a purchase on the virgin glass.
+
+In this lightless cradle, there is no concept of dawn, nor season, nor horizon. There is only the rhythm of the city’s patient self-assembly, and the heavy, breathing mantle of life that armors its bones—a closed circuit of synthetic growth and blind, oily flesh, endlessly multiplying in the cold, screaming dark.

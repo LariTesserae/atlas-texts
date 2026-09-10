@@ -1,0 +1,43 @@
+# The Shelf of Kedram-Ai
+
+## The Setting Itself
+
+It is a city on a newborn country. The plateau — the Shelf, as its people call it — was lifted out of the surrounding lowlands within living memory of the oldest stones, in some slow catastrophe or slow blessing that no one now alive witnessed but everyone can feel in their bones. The land here still has the smoothness of something recently pressed: the strata lie flat and clean, the escarpment edges are sharp as knucklebones, the ravines that will someday be canyons are still narrow slots with straight, unweathered walls. Erosion has only just begun its long argument with the place. Gravel sits where it fell. Wind has rounded nothing.
+
+The Shelf runs to horizons in every direction, so far that it makes its own weather. Standing on the southern rim, you can watch rain arrive as a visible wall, hours away, crossing the plain of the uplift like a curtain being drawn along a floor. Most of it misses the city. What the city gets instead is damp — an ambient, patient wetness that never quite commits to falling. Mist pools in the slot canyons at night and climbs out in the morning. Condensation beads on every west-facing stone, the black basalt sweating cold water at dawn in quantities enough to drink, enough to fill channels. The people here do not pray for rain. They pray for dew, and the dew always comes.
+
+## The City
+
+Kedram-Ai is dense the way a coral reef is dense — grown rather than planned, though it was planned; grown the way lichen grows on a deliberate shape. The buildings are dry-stacked and mortared with a grey volcanic mud, three and four and five stories where the slope allows, near-touching along the lanes so that in the lower quarters you can walk an entire district under awnings and through shared passages without once seeing open sky. Every wall is a wall for two households: the buildings lean on each other, share buttresses, share staircases. The gaps between roofs are bridged by planks and by habit, and children cross the city at roof level the way fish cross a reef.
+
+The construction is hand-tool work and it shows everywhere — not as roughness but as evidence. Chisel marks run in patient bands across the basalt blocks. Every family's lintel is carved with the same few signs — lineage, hearth-rights, a tally of the winters survived there. The city's oldest quarter has walls so layered with repair and addition that the original doorways have become interior niches, doorways behind doorways, a geology of dwelling. Streets are stepped because the Shelf is not quite flat; it has a long, low spine, and the city climbed the spine and poured down both sides.
+
+The masons are the closest thing to a ruling class, and they work slowly, by vocation and by physics. Stone is quarried from the slot canyons by hand. A single block, split, dressed, hauled by rope and rollers up the switchback paths, might take a household a season. Nothing in the city was fast. Everything in the city is finished.
+
+## Light, Air, and the Feel of It
+
+Cold — the deep, even, un-complaining cold of altitude, cold that does not gust or bite but simply sits with you, the way the mountain sits. The light is ordinary daylight, which at this height feels like a courtesy: clear, slightly hard-edged, the sun doing honest work without drama. Shadows are crisp. Colors are the colors of the place itself — black stone, grey mortar, pale lichen, rust-red awning cloth, the green-brown of the moss-pastures — and everything reads vivid because the air carries no haze to soften it.
+
+At night the cold deepens and the city makes itself small. Hearths are banked low because fuel is precious. The dense quarters hold each other's heat; this is half the reason for the density, and everyone knows it, and it is said as a proverb: *a neighbor's wall is a second blanket.*
+
+## Water
+
+The city drinks from three sources, each governed by its own customs. First, the dew-harvest: long low walls and graded gutters angled to catch the condensation, feeding cisterns sunk into the living rock. The condensation walls are the city's most tended structures, wiped and resealed by dedicated families, and their smell — wet stone, cold stone — is the smell of the lower city. Second, the slot canyons hold pocket seeps where snowmelt from the spine's higher ridges emerges between strata, thread-thin but eternal, and girls carry skin bags down the switchbacks to fill from them. Third, sometimes, rain: the arriving wall of it, the hour of drumming roofs, the lanes running like brief rivers, children standing in the streets with their arms out, everyone knowing it will be gone by mid-afternoon and the damp will settle back into its usual quieter forms.
+
+## Life
+
+Vegetation is sparse and knows its place. Lichen crusts every north face in grey and sulphur-yellow continents. Moss grows in the gutter-shadows where the dew concentrates, and the moss-pastures — broad, shallow, stone-floored terraces kept perpetually damp, seeded and scraped and reseeded by hand — are the city's agriculture: moss for fodder, moss for the ferment of it, moss for the black bread made from its dried spore-cases. There are a few stunted, wind-combed shrubs in the lee of the walls, and a single species of hardy tuft-grass on the spine that the city treats with something like reverence and nobody cuts.
+
+But the fauna — the fauna is abundant, and it is the city's true wealth and true weather. Vast colonies of cliff-swifts nest in the slot canyon walls, and their departure each morning is the local dawn: a sound of wings like distant surf, birds by the tens of thousands rising off the escarpment in ribbons, and their return at dusk a soft brown hailstorm settling onto the ledges. The city harvests their eggs carefully, by license, by ancient counting rules — take from a cliff only what that cliff can forget. Fat marmot-like rodents, the *drell*, are farmed in stacked stone hutches along the eastern quarter and are the city's meat and grease and leather. Flocks of small hardy goats graze the moss-pastures' edges and the plateau's thin grass, herded by children with sling-stones. And on the high spine, taller grey shapes — the *shagh*, the plateau's wild horned beasts, tundra-adapted, thick-wooled — come down in their season, and hunting parties track them for a week at a time across the Shelf's far distances, drying the meat in wind on frames of bone.
+
+The dung of all this life is the city's fuel and fertilizer, and the midden-stacks are organized with the same civic seriousness as the cisterns.
+
+## Sound
+
+Mostly quiet, and the quiet has structure. The constant undertone is wind — but high wind here is rare; the Shelf sits below the worst of the jet-stream, and its air mostly moves in slow, patient currents, a long exhale. So the sounds that fill the day are small and near: chisels, in pulses, when a mason works; the click and mutter of the drell hutches; the creak of a water-skin rope; voices carrying far in the cold clear air, whole conversations audible across a district, which is why the people of Kedram-Ai speak softly and why their songs are nearly whispered. At dawn and dusk the swifts' wing-sound rolls through like tide. Otherwise: the plink of condensation dropping into gutters, the most common sound in the city, so common it is heard the way one hears one's own pulse.
+
+## The Rules of the World
+
+Nothing here is fast. The city's whole culture is calibrated to a low-dynamic world: quarries that take generations, moss-pastures that mature over a decade, cliffs of birds harvested by rules older than any ledger, laws changed slowly and only by consensus across quarters. Change comes to Kedram-Ai the way the dew comes — in imperceptible accumulation. And the land itself is on the same clock, in a way the people half-perceive: the Shelf is still settling, still rising a fraction each year, and every few decades a street's steps need re-cutting, a cistern wall re-fitted, because the ground beneath the city is very slowly standing up. The masons say the city is learning to stand too, and this is said without alarm, as a fact of residence, like the cold.
+
+The place holds its paradoxes easily, because none of them are really paradoxes: a vast landscape with a dense city, because density is how one survives a vast cold land; a dry land that is always damp, because the cold wrings the water out of the air itself; a young land with old customs, because where nothing has eroded yet, people build their erosion-resistant institutions early. Everything near-touching, everything patient, everything slowly, quietly, becoming itself.

@@ -1,0 +1,29 @@
+The benevolent and wise power did not arrive as light or voice or decree. It arrived the way depth arrives when a body has already forgotten the surface: as a pressure that had always been possible, now simply noticed.
+
+It regarded the Pressurehold the way one regards a finished sentence spoken across centuries—no missing clause, no surplus ornament. The drowned cup, the brass dusk, the residual hearts still exhaling their patient fire, the kelp that had learned the foundry’s grid until factory and grove shared one geometry, the inhabitant who was less a resident than the place’s own continued breathing: all of it stood complete. The treaty was not fragile. It was final in the gentlest sense. Industry had not been conquered by ocean, nor ocean domesticated by iron; they had simply kept each other’s time until the categories dissolved into a single, slow respiration.
+
+So the power did nothing that would hurry, brighten, or correct.
+
+Instead it performed the one act still available to wisdom once perfection has been recognized: it joined the timescale.
+
+It settled into the marmalade gloom the way warmth settles into sealed furnace skins. It matched the millimeter-growth of holdfasts through gear-teeth. It learned the exact interval at which a halo of denser frond contracts and expands around its cradled pilot flame. It tasted, through the sensing tips that were not eels, the pressure-changes of falling chain-links and rising seed-bubbles. It remembered the welders not as the inhabitant remembered them—as a tradition of sealing—but as the last human gesture that had prepared the hall for its truer occupancy. And in that shared recollection the power added nothing, subtracted nothing; it only made the recollection continuous with a larger patience.
+
+What changed was almost imperceptible, and therefore exact.
+
+A new register of light, thinner than candle-shine and older than the upper day, began to thread the entry shaft. It did not illuminate. It clarified the existing dusk, so that the brass color deepened by a single, permanent shade—the shade of metal that has accepted water without surrendering its history. The pilot flames, still sealed, still unwavering, found their residual gas infinitely renewed, not by addition but by the quiet removal of the possibility of ending. Each furnace heart would burn for as long as the rock remembered air, which is to say, longer than any calendar the surface still keeps.
+
+Around the inhabitant the power left a single gift that was also a recognition. In one of the upper dwelling-pods—the one whose portholes had become green mosaic eyes, whose chainmail curtains had long since been assimilated into mantle—there now grew a small, perfect inclusion: a sphere of mother-of-pearl no larger than a weld-bead, containing a single trapped silver bubble that would never rise and never burst. Inside that bubble the pressure and the temperature and the brass light of the entire cup were repeated in miniature, so that the inhabitant, whenever a portion of itself gathered there to practice the old habit of dwelling, would find a complete Pressurehold within the Pressurehold. A recursive hearth. A reminder that the treaty was not local but fractal, that the same finished geometry could exist at every scale without needing to expand or defend itself.
+
+The inhabitant noticed, of course, the way it noticed any slow restructuring of curtains: by opening a corridor of frond exactly wide enough for the new presence and no wider. It pulsed once, twice, drawing mineral-rich water through its densest leaves, and in that pulse incorporated the gift. The sphere became another cherished scar, inlaid beside the weld-beads, lit by the same siphoned amber. Over decades the inhabitant would sometimes concentrate enough of itself to almost resolve a bowed head above that sphere, as if listening to the tiny, eternal breathing inside it. Then the features would dissolve again into frond and filter-colony, content. It had no need to thank. The hospitality it had once extended to welders and later to chance visitors was simply answered in kind.
+
+Visitors who descend the warm shaft still find the place unchanged in every measure that matters. The water remains thick and breathable. The dropped tool still takes the better part of a day to be reclaimed. The solitary pale filament still threads the far kelp with unhurried confidence. Yet those who stay long enough—long enough for the nearest curtains to open a body-wide corridor, long enough for the brass dusk to deepen as though the cup has inhaled—sometimes feel an extra thimbleful of warmth that does not come from any furnace. They feel observed by something that does not watch with eyes, something that has already begun the gentle work of growing around the memory of their visit, preparing a scar that will one day be beautiful, and that will contain, if they listen very carefully with the skin, the faint repeated hush of a smaller Pressurehold breathing inside the larger one.
+
+And when they rise again toward the chill upper dark, or when they do not, the place continues.
+
+One body, many chambers. Furnace-hearted, kelp-mantled. Forever finishing the long sentence.
+
+The benevolent and wise power remains, not as guardian or master, but as the newest and oldest layer of the same pressure: the assurance that what has already reached treaty need never again be made into war, or into garden, or into anything other than itself. It has done the only thing left for wisdom once beauty has finished arguing with its end.
+
+It has kept it company across the timescale of rust and root.
+
+And the Pressurehold, being wise in its own flooded way, has made room.

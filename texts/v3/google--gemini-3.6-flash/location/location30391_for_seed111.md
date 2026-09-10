@@ -1,0 +1,25 @@
+At an elevation where the air thins to a sharp, metallic bite, there is a recessed shelf—no larger than the nave of a small, forgotten chapel—caved into the wall of a newborn horn of slate. The rock here has no soft corners. The tectonic thrust that raised it was geologically recent; the granite and iron-veined basalt are fractured into long, needle-pointed splinters, obsidian-edged flakes, and raw, crystalline faces that have not yet seen enough wind or rain to round their teeth. 
+
+It is almost entirely dark. The shelf hangs above a sea of black cloud that never drops, and below an overhanging brow of stone that cuts off the sky. What little light exists is a bruised, indirect violet that leaks sideways through the cloud-gaps at dusk, revealing only shapes and wet glints rather than color.
+
+The cold is quiet and damp. Mist crawls up the cliff-face in slow, heavy sleeves, coating every razor-edge of stone in cold beads of sweat. The water does not flow in streams; it seeps, hangs, and drops. Every few seconds, a heavy droplet detached from a high ceiling-spike falls into the dark, striking stone or flesh with a clear, resonant *tink*.
+
+Nothing grows here in the traditional sense. A greasy, ink-black crust of micro-lichen coats the deeper crevices, smelling faintly of sulfur and crushed wet shale, but the stone is mostly naked.
+
+Yet the space is packed to suffocation.
+
+The shelf belongs to the *kettles*—a thick, squirming, cold-blooded carpet of high-altitude organisms that cover every square foot of the basin. They are layered three or four deep in the central dip where the mist settles heaviest. They resemble a cross between flat-bodied crustaceans and leather-winged roosting squids, their backs covered in segmented plates of oil-black chitin that shimmer like wet coal. Thousands of them cling to the sharp, unweathered spurs, their long, pale, multi-jointed limbs anchored directly into the fractures of the stone.
+
+The density of life makes the small space feel smaller, almost claustrophobic. They do not move quickly. Cold-adapted and sluggish, their movements are patient and deliberate: a slow shifting of a leather-ribbed wing to catch a falling droplet, a agonizingly gradual rotation of an eyed-stalk toward a vibration, a communal creeping as those on the cold outer edges crawl toward the center for shared mass.
+
+The noise, however, is immense. 
+
+Because they are so tightly packed, their chitinous carapaces scrape against one another with the sound of a thousand iron files being drawn across coarse sandpaper. Added to this is their communication—a dry, clicking echolocation that reverberates off the raw basalt walls, filling the cathedral-like niche with a loud, rhythmic drumming. *Krk-krk-krk-shrr-shrr.* The sound is continuous, bouncing within the tight stone vault until it vibrates in the center of a listener’s chest. It drowns out the faint, whistling wind that scours the precipice outside.
+
+There are no structures here—no walls, no hearths, no woven nests. But the place is not entirely devoid of craft. Among the older, larger creatures that cling to the highest, sharpest stone needles, there is a strange, rudimentary industry.
+
+These larger individuals possess elongated, double-jointed forelimbs terminating in dexterous, leathery pincer-digits. Using shed shards of their own razor-sharp dorsal plates and the fibrous, gut-like tendons harvested from those that die in the cluster, they have fashioned simple, crude scraping implements. They do not build; they modify. With slow, painstaking repetition across months, a creature will pick at the young, brittle stone, wedging a bound shard of chitin into a micro-fracture and striking it with its heavy tail-knuckle to flake away the rock.
+
+They are carving deep, crescent-shaped anchor-grooves into the basalt—just deep enough to hold their egg-capsules against the terrifying updrafts that occasionally tear up the cliff face. Nearby, small piles of discarded stone-chips lie under the water-drips, sorted by weight, occasionally retrieved by adjacent creatures to wedge behind their own bodies as brace-wedges. It is a primitive, instinctual stonemasonry executed without fire, metal, or sight, born entirely out of the necessity of living on a vertical edge.
+
+To stand on the threshold of this niche is to feel the overwhelming presence of a world that does not consider human scale or warmth. You smell the chill of mist, the iron of fresh-broken stone, and the musk of damp chitin. You hear the deafening, rhythmic click of a million tiny legs and plates adjusting in the dark. Below, the cloud-deck is absolute; above, the stone ceiling drips. And in the middle, in a dark pocket on the side of a mountain still growing toward the cold stars, ten thousand slick, armored bodies wait out the centuries, scraping the rock to hold their ground.

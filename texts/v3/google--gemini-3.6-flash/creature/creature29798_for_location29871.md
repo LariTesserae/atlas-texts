@@ -1,0 +1,31 @@
+They do not have names that can be spoken, for they have no lungs to push air and no vocal cords to shape a sound. If you were to hold one in the palm of your hand—though the heat of your skin would burn it like a griddle—you would see only a knot of pale, wet thread, no longer than a hemlock seed, that seems to uncoil and re-fold itself with the liquid ease of a drop of oil on cold water.
+
+They are the *Slicers*, the *Binders*, the inhabitants of the cleft.
+
+To see them, you must look past the obvious life of the city—past the scuttling isopods and the sleeping salamanders—to the shadows beneath the gall-dwellings. There, where the violet mycelium glows faintest, they move in crowds so dense they resemble a thick, grey silt washing over the spruce-roots.
+
+Individually, a citizen of this place is a masterwork of cold-water engineering. Their bodies are translucent, cast in the milky, semi-rigid chitin of a newly molted Mayfly, revealing an interior organ-work that pulses not with red blood, but with a clear, antifreeze fluid rich in copper and winter-algae. They have no eyes; in a world lit only by the dull smolder of fungus, eyes are an expensive luxury. Instead, their heads taper into three pair of feathery, jointed barbels—organs so sensitive to humidity and micro-currents that they can map the fall of a single water droplet six inches away by the displacement of the air alone.
+
+Their forelimbs are their triumph. They possess two pairs of hands: the lower pair broad and spatulate, built for scraping mud and mixing the sticky, dark resins harvested from pine-scabs; the upper pair refined to the width of a single spider-leg. These upper digits end in microscopic, amber-colored hooks of pure hardened protein. With these, they grip the nettle-thread, split the fibers of spruce-roots into ribbons three cells wide, and carve the bone of long-dead shrews into needles that never dull.
+
+They are not a single caste, but a fluid continuum of forms. 
+
+The youngest are no larger than a grain of salt, almost completely liquid, living within the soaked bog-moss where they graze on bacterial films and learn the "texture-maps" of the town. As they age and harden, their bodies take on distinct roles governed by the city's immediate needs. 
+
+When the frost-heave tears a limestone terrace, a generation of *Mason-forms* emerges: stockier, dark-carapaced, their mouths modified into flat trowels that secrete a lime-setting saliva. They work in teams of fifty, carrying the sharp chips of flint—stones that to them are vast, monumental slabs—and wedge them into the collapsing mud with a rhythmic, synchronized drumming of their hind-legs that settles the soil like a mechanical vibrator.
+
+Beside them are the *Weavers*, long-bodied and pale as boiled lard. It is the Weavers who live in the upper canopy of the cleft, suspended by safety-lines of twisted silk. Their entire existence is spent in a battle against the speed of plant growth. When a fern-crozier begins its explosive uncurling, three dozen Weavers will swarm the rising shoot. They do not cut it back; they *steer* it. Using bone picks, they make precise, microscopic incisions along one side of the stem, releasing growth-hormones that cause the frond to bend into a perfect, rain-deflecting arch over a street of gall-houses. They sew the living leaves together while they are still unfolding, stitching the edges with sinew so that the house grows its own roof every spring.
+
+Their relationship with the other creatures of the cleft is neither wild nor fully domestic—it is an absolute, quiet symbiosis. 
+
+The needle-salamanders, whose bodies rest in the mortar-gaps, are their hearths. Though cold-blooded, the salamanders’ metabolic digestion generates a micro-degree of warmth—a fraction of a temp-unit above freezing. The townspeople construct their primary nursery-galls directly against the smooth, wet skin of these sleeping amphibians, using the animals' rhythmic breath to flush stale air through the gall-chambers. In return, the citizens groom the salamanders endlessly, removing parasites, harvesting the shedding skin-mucus to line their aqueducts, and guiding tiny isopods directly toward the salamanders' sluggish mouths when hunger strikes.
+
+Communication among them is a silent, endless symphony of impact and scent. They speak by striking the tightened silk bridges with their barbels, sending high-frequency pulses through the city’s structural framework. A strike on a spruce-root causeway in the eastern gutter can be read an inch away as a request for resin, or three inches away as a warning that an upper water-drop is about to shear off and flood a street. 
+
+They also bleed scent: a complex vocabulary of terpenes and fatty acids that coats every leaf-wall and flint-chip. A street is not named; it is smelled. To walk down a gutter lined with liverwort is to read the history of who walked there three hours ago, what they were carrying, and how recently the fern-stem aqueduct above was cleared of silt.
+
+They have no concept of permanence. They know that the ironwood root above them will eventually rot; that the limestone will shift; that a spring thaw will one day send a torrent through the cleft that sweeps their causeways into the dark mud below. 
+
+Because of this, they do not hoard. Their tools—the bone needles, the acorn-cap wheels—are communal, left on public stone ledges for whoever is passing by with a work-order to perform. A Weaver will finish stitching a door-hinge, coat the bone needle in fish-oil, lay it on a moss-cushion, and simply walk away, disappearing into the dark silt to join a team clearing an aqueduct or to die quietly in the lower peat where the mycelium will drink its body.
+
+When one dies, there is no mourning. The body is wrapped in a fresh birch-leaf, weighted with a chip of basalt, and lowered into the deepest, wettest trench. Within two days, the cold violet fire of the fungus has claimed it, turning its chitin into new light, its copper-blood into food for the liverworts, and its memory into the collective, silent rhythm that keeps a city alive inside a shadow.

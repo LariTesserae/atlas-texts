@@ -1,0 +1,3 @@
+Ask in the country around the basin who lives down there, and you get an answer that sounds like evasion: *the works*. It isn't evasion. It's a headcount.
+
+What lives in the compound is one resident, and the resident is the address. It has a skin — the cane wall, a standing crowd of its own outermost cells, green on the side that takes the wind. It has a skeleton — brick and lime, rounded now, worn like river stones, sweating. Its heart is the line-shaft: forty feet of hardwood turning in bearings the brick kept warm for it, one beat a day, a two-note creak you can hear from the gate and never afterward stop hearing, the way you never stop hearing your own pulse. A heartbeat

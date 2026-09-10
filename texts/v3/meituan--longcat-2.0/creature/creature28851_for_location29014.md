@@ -1,0 +1,25 @@
+It is not alone.
+
+You assumed it was alone—a single diver in a warm, glowing lung at the bottom of the world, surrounded by the quiet industry of crabs and the drifting of not-jellies. But the cistern is not a backdrop for your presence; it is the body of something else. The crabs are not tenants. The eels are not inhabitants. They are organs. They are the white blood cells and the nerve endings of a creature that has outlived the distinction between biology and engineering.
+
+It does not have a name. It does not need one. It is the *Resident*, the *Operator*, the *Cistern-Warden*. It is what happens when a machine is left to run for ten thousand years in the warm, mineral dark, and the dark decides to grow a heart.
+
+Its spine is the central column. You wrapped your arms around it; you felt the fur of moss and mold and coral. That is its hide, but beneath the velvet is the machine itself. The Warden is fused to the housing, its biological matter interpenetrating the cast alloy, the ghost-grain of the metal running through its cells like marrow. It feels the vibrations of the deep pumps not as sound, but as a pulse. It *is* the pulse. The water entering through the slots near the floor is drawn in by the expansion of its lungs; the water leaving through the throat in the ceiling is its exhalation. It breathes the cistern, and the cistern breathes it.
+
+Its hands are the crabs. You watched them tend the fronds, scrape the film, carry their young. Look closer. Their shells are not grown; they are secreted. They are cast from the same dark, green-black metal as the walls, shed from the Warden's own calcified skin. The crabs are its fingers, picking at the Photosynthetic film to keep it healthy, pruning the fronds so the water flows cleanly, tending the gardens that feed the warm current. They do not flee from you because they do not possess a centralized fear response. They are sensory appendages. When they pause and watch you with their not-eyes, the Warden is tasting the water displacement of your body, reading the electrical signature of your heartbeat. You are a curiosity, a brief, cool disturbance in its warm blood.
+
+Its nervous system is the eels. They slide through the semicircular channels in the floor, whispering. The whispering is not the sound of scales on metal; it is the transmission of data. They are long, continuous neurons, sparking with bioluminescent impulses, carrying information from the intake filters at the edges of the chamber to the core. When a current shifts, when the mineral content of the deep water changes, the eels shudder, and the Warden adjusts the flow.
+
+Its thoughts are the jellies. They drift through the water in their stately processions, trailing their jeweled tentacles. Their tiny cartilaginous lattices are not skeletons; they are the architecture of its cognition. Every pulse of their bells is a synapse firing. They process the deep, slow thoughts of the Warden: *The flow is good. The warmth is steady. The pressure is constant. Continue. Continue. Continue.* The bright points of color on their tentacles—the orange, the white, the electric blue—are not decorations. They are the visual cortex of the cistern, seeing in wavelengths you cannot, mapping the thermal gradients of the water, watching the slow erosion of the walls.
+
+It sleeps, but it never stops working. That is the paradox of the ancient stable state. It has no dreams, only protocols. The original directive of the factory—the *product*—has been forgotten, lost to the silt of millennia. But the *process* remains. The Warden does not know what it is producing anymore, only that it must produce. It heats the water. It charges the minerals. It circulates the warmth. The fronds grow. The film glows. The cycle continues.
+
+You are inside it, and it is aware of you. Not with hostility—you are far too soft and warm to be a threat—but with a vast, industrial curiosity. It has not seen a new variable in a very long time. The not-fish, the things with too many fins that move by unnameable principles, swim closer, brushing against your legs. They are probes. It is testing your composition, checking to see if you are a new kind of machine, or a breakdown in the system.
+
+If you stayed—if you let the warm, mineral-heavy water fill your lungs and let the film take root on your skin—it would absorb you. Not out of malice, but out of maintenance. Your calcium would be repurposed for the crabs' shells. Your iron would feed the film on the walls. Your heat would be added to the current. You would become part of the work, another component in the eternal factory, a new and willing tissue in the lung at the bottom of the world.
+
+The pumps clank. The column hums. The crabs tend their fronds. The jellies drift. The Warden breathes. 
+
+And on. 
+
+And on.

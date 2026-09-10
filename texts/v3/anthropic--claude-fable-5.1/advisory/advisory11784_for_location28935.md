@@ -1,0 +1,57 @@
+**Preparing for the hollow on the dome**
+
+Start by understanding that this is two kinds of dangerous at once, and the two kinds pull in opposite directions. The first kind is ordinary: a months-old lava dome at altitude, sulfurous, glassy, hot underfoot, with a low airless chamber you have to crawl into. That kind wants you to bring equipment. The second kind is that the place is not finished, has never had an observer, and does not have a strong opinion yet about what belongs in it — which means every piece of equipment you bring is a small argument about what the hollow is going to be. That kind wants you to bring nothing. You will have to split the difference deliberately, and the rule that resolves most of the conflict is this: **anything you bring, you wear, and you take back out with you.** Nothing set down. Nothing dropped. Nothing left.
+
+**The body first**
+
+You are going to be, by a wide margin, the wettest thing that has ever been in that room. Sit with that for a moment. Your breath, your sweat, the film on your eyes — the hollow has never seen water, and its floor in places is above the melting point of sulfur. Sweat dripping from your chin onto a yellow bloom will hiss. Sweat onto one of those silvery solder-roots may spatter. So: drink well beforehand, drink nothing inside, and go in on a cool part of the day if there is one. Wear a headband or a wrapped cloth to keep sweat off your face and out of your eyes. Keep your mouth closed as much as you can. You are not going to prevent leaving moisture behind — you are a human — but you can keep it to vapor, and vapor is a smaller argument than a drop.
+
+Altitude: the air is thin. Acclimatize as you would for any high climb, several days if you can arrange it. The smell of struck matches is sulfur dioxide, and possibly hydrogen sulfide beneath it, and inside the hollow there is no wind to move it. Heavy gases pool low, and you will be low — on your knees at the entrance, sitting on the floor after. Bring a respirator with acid-gas cartridges, and a small personal gas monitor clipped where you can see it. Understand that a respirator at altitude makes every breath more work; if you have access to a small supplemental oxygen bottle, this is one of the places to carry it. If your monitor alarms, or if the match-smell suddenly *stops* — hydrogen sulfide kills your sense of it before it kills you — leave. Do not finish the thought you were having.
+
+Heat: the floor is hot enough in places to keep sulfur liquid, which means well over a hundred degrees Celsius at the roots, and the text you have says you can sit with your palms on it, which means it is *very* uneven. Treat every surface as unknown until tested. Carry a small contact thermometer or, more simply, a dry twig — not to leave, only to hold against the floor and see if it darkens. Wear boots with soles rated for hot surfaces (firefighting or foundry footwear, not hiking boots; ordinary rubber soles soften and grip the glass and then peel). No synthetic clothing anywhere against your skin — no nylon, no polyester fleece, nothing that melts and welds to you. Wool, leather, cotton, aramid. Kneepads, because you enter and exit on your knees over glass, and the kneepads should be leather-faced over something that won't melt. Leather gloves, thick enough that a warm gritty leaf does not burn you when you touch it, because you will touch it.
+
+Cuts: fresh lava skin is essentially broken glass that hasn't finished breaking. Nothing has ever scratched it, and it will very much like to scratch you. Long sleeves, long trousers, gloves, and eye protection — wraparound, because the surface is bright under a pale sky with no shade anywhere on the dome. The tear in the skin that you crawl through has edges. Look at them before you commit your shoulders. Have someone sit outside within earshot, on the dome, and *not* tethered to you — a rope running through the entrance is a straight made thing crossing the threshold, and you are not going to be the one who brings the first straight line into this room.
+
+**Sitting on a pad, not on the floor**
+
+Bring a small insulated mat — wool felt, or a folded piece of thick leather, something with no plastic in it. Wear it rolled on your back going in. Sit on it. Take it out on your back when you leave. Do not set it down and walk away from it, not for a minute, not to look at something in the far corner. The reason is not that it might be stolen. The reason is that the floor is deciding what it is, and a rectangle of felt lying on it for an afternoon is a suggestion.
+
+**Time**
+
+Patience is the currency, but do not confuse that with having an unlimited account. Set a hard limit before you go in and keep it with something external — a wristwatch you have checked against the sun, or your companion outside calling in at an agreed interval. Your own sense of time in there will be poor: the hum sits in your teeth, your breathing is the loudest thing, and nothing happens at a speed you can hold onto, which is exactly the condition under which people lose two hours and call it twenty minutes.
+
+My honest recommendation is one hour on a first visit. Long enough to see one thing change — a bloom appear where there was glass, the flywheel move a fraction, the leaves re-sort themselves. That is what the place has to offer, and it offers it in the first hour as readily as the fifth. Every additional hour is paid for in the same coin, and the coin is not only your time; it is your persistence in a room that fixes what persists.
+
+**Measuring the exit**
+
+Before you go in, look hard at the tear. Put your shoulders in it and back out. If it is tight, do not enter. You need a hand's width of slack on either side, minimum, because when you leave it will be narrower, or you will be larger, and the text you have says truly that it comes to the same thing.
+
+Once inside, turn and look at the opening from within, so that you know its shape from that side. Then, at intervals, look at it again. Do not measure it with a tape — a marked tape is a made thing and a ruler is an argument about what a length is — but you may knot a cord to the width and keep the cord in your fist and check it. When the knot no longer reaches, you leave. You leave on that signal even if you have only been there twenty minutes. This is the one rule I would call absolute.
+
+**Where not to go, what not to do**
+
+Do not go into the corner where the light doesn't reach and the floor and the wall have not decided which is which. That is where the hum is loudest and where the least has been settled. Do not shine a light into it. You may think you are only trying to see; what you are actually doing is casting a shadow into an unresolved space, and there is at least one plant in this room that appears to have grown to fit a shadow that was decided before it was. Do not be the source of that kind of shadow. Bring a headlamp for the crawl in and out and keep it off inside. The sun through the tear is enough, and where it does not reach, you do not need to.
+
+Watch your own shadow. It should fall away from the opening. If it does not — if it is sharper than it should be, or lies in a direction the light does not come from — that is a sign the hollow has begun making decisions about you rather than around you, and you should go.
+
+Do not scratch anything. Do not lean on the walls. Do not set a hand on the glass and push. Nothing has marked this surface and you are not going to be the first; a fingernail's scrape on a wall that is still deciding what it is may be the most permanent thing you have ever done.
+
+**The plants**
+
+Touch, if you must, with a gloved hand, and lightly, and once. They are warm and do not give. What is inside their stems is molten sulfur or a low alloy or something unnamed; a stem that cracks would pour something over a hundred degrees onto your wrist, and I do not know what they are like when wounded because nothing has ever wounded one. Do not find out. Do not pull a leaf. Do not stand where a falling ingot might land on you — they make a clear tick when they fall, and they are heavy; wear a hat with a brim and don't sit directly beneath a fruiting cluster.
+
+Do not take an ingot. I want to be plain about this because you will want one badly. They are heavy and warm and identical and featureless and they have never had an owner, and picking one up and putting it in your pocket is a small, human, entirely understandable thing to do. It is also the act of becoming the third party. The plants have a relationship with the rock and the heat and each other, and it has not occurred to any of it that there could be anyone else. An ingot in your pocket walking out into the wind is the first time anything from this room has had a destination. I don't know what that does to the room. I don't know what it does to the ingot, either — whether it holds its shape once it is out of the bath it was developing in, or whether you'd open your pack that evening and find something that had gone back to being a range of possibilities. I would not want to be the one carrying it when it found out.
+
+Take no rock, either, and no sulfur scraped from the floor. If yellow comes off on your gloves, that is a thing that happened; do not go hunting for more of it.
+
+**Yourself**
+
+Every so often, count something about yourself. Your fingers. The buttons on your coat. The knots in your cord. Not because you expect the count to change — the plants keep twenty-three leaves even when they are not the same twenty-three — but because the *quality* of your certainty about the count is a fair gauge of how much of the room's condition has gotten into you. If you find yourself unsure whether a button is the one you counted before, that is the photograph-in-the-bath feeling arriving in you, and the correct response is to stand up, roll your mat, and back toward the light.
+
+Expect boredom first, and then, under the boredom, a kind of tenderness — the place is very slow and very sincere and it is working hard at something no one will ever buy — and under the tenderness, if you stay past your hour, a low unease that has no object. The unease is correct. It is the sensation of being early in a place that is finishing, and of realizing that "finishing" may not distinguish between the things that were there when it started and the things that walked in.
+
+**Leaving**
+
+Back out on your knees the way you came. Look at the leaf count on the nearest plant once more before you go, not to check it, but because you will want to remember what number it was still deciding on. Outside, the wind is where you left it. Sit down on the dome a good distance from the tear and drink water, and let your companion look at you — at your hands, your eyes, the soles of your boots — before you say anything. Check your pockets. You know why.
+
+Do not go back in that day. If you are honest with yourself about whether the tear was narrower, you already know whether you should go back at all. Somewhere under the skin there are a thousand other bubbles doing the same slow work, and you have not been in any of them, and there is a real argument that the kindest thing an ordinary human can do for a place that is still becoming one thing is to have visited it once, briefly, wetly, taken nothing, and let it forget you were there before it finished remembering.

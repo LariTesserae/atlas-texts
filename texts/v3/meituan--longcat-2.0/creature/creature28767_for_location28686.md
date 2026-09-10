@@ -1,0 +1,29 @@
+To ask what lives in the Abyssal Plain of Vethren is to ask the wrong question, or rather, to ask a question that the plain itself would find quaint. Here, the boundary between the living and the non-living has been ground down by pressure and time, eroded into the same fine, saturated uniformity as the sediment itself. 
+
+What lives here is not a collection of creatures inhabiting a place. What lives here is a slow, dense, geological process that has learned to breathe.
+
+**The True Citizens: The Interstitial Multitude**
+The actual rulers of Vethren are invisible. They are the bacteria and archaea packed into the microscopic pore spaces between grains of ancient clay and pulverized foraminifera. They exist in the billions per cubic centimeter, a sprawling, subterranean metropolis crammed into the tightest voids of the ooze. They do not live *on* the plain; they live *in* it, filling its every available volume the way the plain fills the basin. 
+
+Their metabolism is a whisper stretched across centuries. A single cell division is an event that spans a human lifetime. They do not hunt or forage; they simply *are*, suspended in the cold, dark broth, performing a quiet alchemy. Through chemosynthesis and heterotrophy, they dissolve the dead—the marine snow, the crushed microfossils, the faint rain of carbon from the sunlit world above—and reduce it into something new. They are the base of the food chain, but more than that, they are the plain’s immune system, its digestive tract, its slow, beating heart. They are the reason the ooze is not inert rock, but a living, breathing skin on the face of the deep.
+
+**The Wandering Ghosts: The Megafauna**
+And then there are the visible ones. The holothurians, the polychaetes, the sea stars. But to call them animals feels like a misnomer. They are more like wandering thoughts, brief and isolated, drifting across the mind of the plain.
+
+The sea cucumbers are the great ascetics of Vethren. Pale, translucent, the color of things that have never known the sun, they crawl across the sediment at the speed of a growing glacier. They are eating, always eating, but their feast is the dust of ages. They ingest the very body of the plain, sifting the organic from the inorganic, excreting the past behind them in delicate, winding trails. They are alone. In a world where a hundred meters is an unbridgeable gulf, each holothurian is an island, a solitary monk wandering a featureless expanse. They do not congregate. They do not speak. If they communicate at all, it is through pheromone trails that drift in the slow currents, chemical prayers that may take days to reach the next solitary pilgrim, if anyone is there to receive them.
+
+Below them, the polychaete worms burrow. They are the plain’s farmers, blindly ventilating the suffocating ooze with traces of oxygenated water, turning the anoxic earth so that the interstitial multitude can survive. And above, the sea stars move with the glacial patience of things that have nowhere to be, hunting for bivalves buried just beneath the surface. They are not the masters of this domain. They are merely the largest of its parasites, brief, warm-blooded interruptions in a world that is fundamentally cold.
+
+**The Leviathan: The Plain Itself**
+But the primary inhabitant of Vethren—the entity that truly *lives* here—is the plain itself. The ooze is not a substrate; it is an organism. 
+
+It is packed so densely that it has achieved a kind of consciousness, or at least a visceral awareness. When disturbed, it does not simply shift; it yields, holding the impression of the intrusion like a memory, before slowly, viscously creeping back to fill the void. It abhors a vacuum. It occupies everything. 
+
+And it moves. The plain is not still; it is a beast of deep time, writhing in its sleep. The turbidity currents are its spasms. When the weight of a hundred million years of accumulated dead becomes too much, when the angle of repose is finally exceeded, the plain liquefies. It does not break; it flows. It rushes down the slope in a roaring, crushing avalanche of mud and water, scouring the ancient bedrock, swallowing the landscape whole. It is a catastrophic, violent act of self-correction, a massive convulsion that simultaneously destroys and creates, erasing the old surface and depositing the new. The flatness of Vethren is not the flatness of peace; it is the flatness of a battlefield after the armies have passed, leveled by violence, waiting for the next inevitable surge.
+
+**The Breath: The Nepheloid Layer**
+Finally, there is the water itself. The thick, granular, iron-tasting water that presses in from all sides. It is packed with the suspended dust of dissolved continents, a permanent nepheloid layer that catches the faint, blue-green bioluminescence of the deep and scatters it into a directionless, cold fog. This water is the plain's blood, moving in slow, massive eddies, carrying the chemical signals of the wandering ghosts and the dissolved alchemy of the microbes. It is the medium through which the plain feels the distant, subsonic groans of the earth's crust and the sharp, cracking birth of gas hydrates in the deep.
+
+To live in the Abyssal Plain of Vethren is to be part of a continuous, saturated cycle. The dead fall from above; the microbes dissolve them; the worms aerate them; the cucumbers consume them; the currents grind them; the plain buries them. And in a million years, they will be limestone. 
+
+What lives here? The patient. The slow. The packed. The dissolved. It is a world where life is not a spark, but a seep—a heavy, mineral, absolute presence that has been here longer than the dinosaurs, and will remain long after the last surface light has flickered out, quietly turning the dead into stone in the cold, occupied dark.

@@ -1,0 +1,63 @@
+You want to answer with the builders, because they are the obvious answer, and because they are the ones who made something you can point to. But stay in the bowl long enough and the question of who lives here gets harder rather than easier. The wall is made of builders. The plants lean into the wall. The builders eat the plants. It becomes difficult to say where one resident ends and the next begins, and you start to suspect that this difficulty is not a failure of observation but the truth of the place. Still — start with the builders. Start with one.
+
+---
+
+Watch a single one long enough to know it from the others. This takes a while. It is on a ramp on the west face, a little above the storage tier, and it is the color of old honey, which means it is neither young nor old. Its back is a dome in six overlapping plates, so that when it climbs the plates slide a little against each other and the dome can flex, and when it stops they settle and it becomes a single smooth thing. The underside, which you see only when it crosses a gap and there is light beneath it for a moment, is pale and soft and the color of the inside of a shell. It keeps that side against something at all times. It does not seem able to bear having it in the air.
+
+The head is a flat shelf with a front edge fringed in hairs too fine to count. There are no eyes and there is no place where eyes should have been. The whole dome, though, is faintly alive to light — put your hand above a builder and it will pause, not startled, only noting a change, the way you would note a cloud. Light, for it, is a cousin of warmth. Not a picture of anything. A weather.
+
+Its legs are the real organs. Six of them, thick, jointed low, each ending in a pad the size of a thumbprint, and the pads are where the builder does most of its living. They read temperature at a resolution you cannot imagine — the difference between the wax under one foot and the wax under the next, the difference between now and a moment ago. They read vibration. They taste. A builder knows exactly what it is standing on and how warm it is and who has stood there recently and what they were carrying. Its world is a floor. Everything more than a leg's reach above the floor is hearsay.
+
+It never lifts more than two feet at once. Watch it climb and count: four pads always down, always pressing, and the wall carrying its weight and the small syllable of each footfall through the whole tier, into the ramps and the cells and the sealed storage and the pads of every other builder in contact with the same stretch of wax. This is why they do not call. The wall is calling for them, constantly, announcing where everyone is and how fast they move and how heavy they have become. What you hear as silence is a drum too low for you. You are standing inside a conversation with your fingers in your ears.
+
+---
+
+Which is what the conferring is. Two builders meet on a ramp — you have seen this — and stop, and their heads come together, and the fringe-hairs of one interleave with the fringe-hairs of the other, and their front pads settle onto the same hand's-breadth of wax, and they stay that way. A minute. Three. You wait, and it is like waiting for a clock to strike.
+
+Here is what you come to believe passes between them. Each builder carries in its body the day it has walked: a sequence of warmths, a route read as a gradient, this cell cooler than the last, that ramp a fraction softer than yesterday. Pressing heads is comparing routes. Two maps of the same wall laid over each other, and where they differ, that is news. A place has cooled. A place has been freshly laid and is still giving off the heat of curing. Something heavy passed along the third gallery and has not passed back.
+
+And then one backs into a side-opening and the other goes on. You watch enough of these to see the pattern, though not to know what it means: the one going up yields to the one coming down. Down is toward the nursery. The one descending is often carrying something — its mouthparts glossy with fresh paste, or with the pale sheen of new wax not yet cured — and the one ascending steps aside for it the way you would step aside for someone carrying a child. Up is where the city is going. Down is what the city is for. The traffic knows which matters more today.
+
+---
+
+They are born pale. In the nursery tier, if you were small enough and quiet enough to get in, you would find them the color of clear amber, almost glass, the dark thread of the gut visible through the shell, clustered on the warmest wall with their soft sides pressed to it and their pads flat. They do not move much. They are fed mouth to mouth by adults descending from storage with the ochre paste, and they grow, and as they grow they darken, and the darkening is the same chemistry as the wax. This is the thing that takes you longest to accept: the wax is secreted from glands along the margin of the shell, and what a builder lays down on the wall is the same substance it is made of. A builder building is a builder extending itself. The city is not made by them. It is, in the most literal sense, made *of* them, cell by cell, layer by layer, and it darkens with age at the same rate they do, because it is the same stuff aging.
+
+So an old builder is the color of the oldest wall. Nearly black, the dome gone dull, the plates no longer sliding well. Old builders are slow even here, where slowness is the rule, and there comes a point when one stops climbing. You see this once. On the east face a very dark one is moving downward, against the traffic, and the upward builders yield to it though it carries nothing. It goes down past the storage. Past the nursery, where the walls are still thick and warm and busy. Down to the base, where the wax is black and the openings are small and the stone behind is cooler than a builder can work in. It chooses an opening. It goes in. And over the course of a day — you come back and check — it lays down, from inside, a last thin layer across the mouth of the cell, and cures it, and the opening is gone.
+
+The lowest tier is not abandoned. It is occupied. Whether what occupies it is alive is not a question the bowl seems to ask. A builder in a sealed cell at a temperature below its working range is not dead; it is still, in the way the stick-things are still, in the way the stone is still. It is simply not doing anything. And the pads of every builder above it, reading the wall, read that stillness too — you are nearly sure of this — as a kind of depth, a bass note under the footfall-chatter, the accumulated quiet of everyone who has stopped. Every generation climbs literally on the last. The city remembers because it is made of the ones who remember, and they have not gone anywhere.
+
+---
+
+The plants, then. It is tempting to leave them as scenery, but they lean.
+
+The great horn-trunked things at the center of the bowl all incline toward the built wall on the afternoon face, and the shrubs around them incline the same way, and even the rosettes, if you sight along a row, have their spirals opening very slightly toward that side. Plants lean toward light; these are leaning away from the light, which is overhead, and toward the amber. Toward warmth, you tell yourself — the wax holds heat and the wall is warmer than open ash. But it is also toward the builders. And the scars on the branches, the clean grooves where resin is drawn, are not random. They are on the wall-facing side. They are at the height a builder can reach from a ramp. Some of them have been scored and healed and scored again in the same place so many times that the trunk has grown a lip there, a ledge of horn exactly wide enough to stand on.
+
+What the builders take is resin. What the plants get — you find this in the storage cells, the paste that is half pollen — is carried. There are flowers in this bowl; you have been walking past them. They are in the spiral centers of the rosettes, small and dry and nearly colorless, and their pollen is not dust but a kind of grit, heavy, that does not lift in the air because there is no air to lift it. It moves on pads. A builder crossing the floor to a scoring-ledge steps in a rosette-center on the way and carries what sticks to it up the wall, where it is scraped off and packed into cells, and on the way back down some of it goes to the next rosette. The plants are farming the builders for legs. The builders are farming the plants for resin. Which of them planted the other here is not a question that has an answer anymore.
+
+---
+
+The round ones that roll — you had them down as animals. Now you are not certain.
+
+They sit in the spiral centers, on the flowers, and they are the size of a walnut and have no seams. They stay for days. Then one afternoon one of them is not in its rosette but a pace away on the ash, and by evening two paces, moving in the slow lurch of something not quite spherical rolling on something not quite flat. It goes outward. Always outward, toward the rim, toward the frontier where the moss-mat is only beginning to crisp across the black glass. It rolls until it stops, and where it stops is never closer to another rosette than a certain distance — you pace it out; it holds — and it sits there. And the next time you pass that way it has cracked, or opened, or simply given up its shape, and there is a small dark spiral of leaf beginning where it was.
+
+They are the plants, walking. They are the seed, or the child, or the part of the rosette that gets to choose where the next rosette will be, and the too-regular spacing you noticed on the first day is not accident but decision — each one rolling until the ash under it is warm enough and empty enough and no neighbor's roots are felt through the pumice, and then stopping. The plants are climbing the bowl the same way the city is, by putting out their newest selves at the edge and letting the center go.
+
+---
+
+The stick-things among the shrub-blades are the only ones here that kill, and you find this out at night.
+
+By day they are what they seem: a forearm's length of jointed something, the exact green-grey of the blades, standing edge-on to the light with two of their limbs gripping a blade and the rest held out along it. They are eyeless like everything else. You find them by their shadows or not at all. You assume they eat the plants and this is wrong.
+
+At night the moths come. They come up out of the ash — the collared burrows are theirs; the collars are the cured resin of a pupal case, and the things you never see in the burrows are moths that have not yet become moths — and they climb the nearest stem and open their mica wings and let go, and glide. The air is dead still and the glide is long and shallow and utterly quiet, and they are aiming for the high ledges where the newest wax is warmest, because that is where they mate, by touch, and die. Many of them never arrive. A moth in its descent lands on a blade to rest, and the blade is not a blade, and the stick-thing knows the moth is there not by sight or sound but by the change in the load on the real blade it is holding, and it closes. This takes about the time it takes you to blink twice. No sound. The moth's wings, being mica and not flesh, are dropped, and if you look in the pale new wax at the top of the wall with the noon light behind it you will see flakes in it that catch the light. The builders pick up whatever is on the ramps. Everything here is incorporated into everything.
+
+---
+
+The flat many-legged ones in the galleries are the least visible residents and possibly the most necessary.
+
+They are the color of the wall they are on and they move like a stain spreading, and they eat dust: mineral dust settling from the air, the grit of pollen dropped in transit, the fine flakes that even this wax sheds, the sloughed skin of builders' pads. The builders walk over them without pausing. And you realize, when you watch a builder's foot come down on a patch a cleaner has just crossed and then on a patch it hasn't, that the builder pauses on the second, the rough one, the way you would pause on a word smudged. The language of the wall is a language of clean surfaces. Grit is noise. The cleaners are the ones who keep the city legible to itself, and this is why they are welcome, and why in a place where nothing is kept as a pet or a servant they live in the galleries alongside the ones who built them, and are stepped over, and are never crushed.
+
+---
+
+And underneath all of it, the one resident you keep forgetting to count.
+
+The warmth. It is the oldest thing here and the only one that was here first. Everyone else

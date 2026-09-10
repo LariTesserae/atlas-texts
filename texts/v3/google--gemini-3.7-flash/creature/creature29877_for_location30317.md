@@ -1,0 +1,27 @@
+They do not sleep, because to lie still upon the heartwood for more than forty minutes is to begin to graft. 
+
+The ones who built the ladder understand this with their marrow. They are few—never more than a family or a small clutch at any one time—and their existence is a frantic, perpetual choreography of unsticking. Their feet are wide, calloused with a rubbery, pale rind of dead epidermis that smells of dry chaff, shed constantly to prevent the electrostatic floor from biting into living dermis. When they crouch, they rock from heel to toe, heel to toe, shifting their balance in a ceaseless, restless sway. If a knuckle rests against the wet, pale-gold cambium wall, it leaves behind a tiny, pink divot where the wall’s fibrous papillae reached out instantly to taste and weld with human salt.
+
+They are not native to this depth in the sense of having evolved here over millions of years; rather, they are the descendants of something that slipped through an ancient root-rot fissure leagues above and was claimed by the metabolism of the taproot. Under the influence of the blinding cambial light and the air rich with mitotic vapor, their biology has accelerated. Their skin is practically translucent, showing the faint, jade-tinted network of their veins, which pump blood thick with dissolved sugars and plant sterols. They do not sweat saline; their pores weep a clear, minty terpene that protects their flesh from the corrosive, enzymatic humidity of the chamber.
+
+Their ears are curious, collapsed structures—thickened by scar tissue and filled with plugs of solidified amber. They do not hear the artillery cracks of the cavitation bubbles with their ears; they hear with their jaws and pelvic bones. When a million-gallon surge roars through the capillary bundles behind the wall, they open their mouths wide, letting the acoustic concussion pass through the hollow of their throats without rupturing their lungs.
+
+To move through this chamber is to be an acrobat of impossible geometry. When a wall fifty yards away swells under a sudden pulse of turgor pressure and rushes toward them, expanding its cellular face to within inches in the span of a heartbeat, they do not flinch. They use the surge. They throw their weight into the advancing grain, ride the momentary compression of space, and leap away just as the tissue snaps back into the distant vault. They navigate the room not by steps, but by anticipating the violent breathing of the wood.
+
+They built the ladder not to ascend—there is nowhere to go in the high, blazing emptiness—but to descend into the floor’s violent birth-fissures before the wood can seal them. 
+
+Down in those weeping, amber-slick crevices, where the sap boils at high pressure and temperatures that would blister surface skin, they harvest the *cambial core*: pale, fist-sized nodules of concentrated starch and crystallized growth hormones that form around the cavitation wounds. These nodules are their food, their water, and their currency. They pry them loose with wedges of fossilized bone and teeth dropped by their own ancestors, working against the clock as the floor’s healing margin rapidly advances, closing over their tools, their fingers, their ropes.
+
+And high above them, drifting through the bright, chartreuse air, are the glass chrysalises—though close observation reveals they are not entirely animal.
+
+They are *aerenchyma blooms*, hollow carapaces formed from pure, vitreous cellulose extruded by the ceiling during explosive growth cycles. Inside each six-foot spindle of spun silica and plant glass lives a colonial aggregate of pale, blind siphonophores and anaerobic yeasts. They have no brains, but they possess a violent, electric sensitivity. As they graze the electromagnetic charge of the walls, their glassy flanks ring with a high, sustained chime, a crystal resonance that cuts through the roar of the hydraulic jet-engines.
+
+These floating bells serve as the barometer for the floor-dwellers. When the chrysalises cease their slow vapor-jetting and contract into tight, shuddering needles, the humans know that a vascular blowout is imminent—a catastrophic rupture where a hydraulic line behind the cambium will shear, spraying thousands of gallons of boiling, razor-sharp xylem crystals into the void.
+
+When this happens, the people do not run to a shelter, for there are no corners to hide in. Instead, they cut themselves.
+
+They make a clean, swift slice across their forearms with a flaked river-stone, press their bleeding flesh flat against the nearest vertical wall, and hold still. The taproot, smelling the rich rush of animal protein and open cell matter, reacts instantly. A surge of pale, wet cuticle erupts around them, surging over their legs, their torsos, their faces, encasing them in a living, transparent blister of wood.
+
+There, sealed inside the very flesh of the wall, suspended in warm, humming sap, they wait out the storm of cavitation and splintered air. They breathe the oxygen circulating directly through the plant’s own vascular stream, their lungs fluttering in synch with the tree’s colossal pulse. 
+
+Hours later, when the pressure normalizes, they use their bone knives to tear their way out of the newly grown bark, peeling the caul of sticky resin from their eyes and mouths, slipping wet and newborn back onto the empty, roaring floor—older by a generation, lighter by a breath, while the wood beneath them begins, once again, to try to take their feet.

@@ -1,0 +1,21 @@
+It begins as an ocean with no floor, suspended miles above the planetary crust in a high, freezing envelope of sky. 
+
+Here, the atmosphere has condensed into an ocean of staggering verticality—not a flat expanse of surface water, but a continuous, luminous fluid stratum drifting in the high altitude. The liquid is clear, pale tourmaline, chilled to a sharp, mineral cold that never quite freezes. Because of the sheer emptiness of this realm, sightlines extend for hundreds of kilometers in every direction; you gaze not into murky marine dark, but through vast chambers of pure, backlit turquoise where the light of the sun is refracted into endless prismatic sheets that dance across the void.
+
+There is almost nothing here, yet the space is overwhelmed by motion and sound.
+
+A deafening, acoustic roar pervades the entire medium. It is the sound of planetary-scale cavitation—monolithic currents colliding in the open air-sea with the force of continents. Without the friction of a solid seafloor, the water moves in immense, hyper-velocity rivers that shear against one another. These shear zones create shockwaves that travel as ringing, metallic thrums through the liquid, deep sub-audible pulses that shudder through the chest, accompanied by the violent, tearing hiss of trillion-gallon vortexes spinning out into the empty blue.
+
+The physics sustaining this high-altitude sea belong to an unseen, hyper-advanced architecture. There are no steel hulls, no girders, no visible machines. Instead, the landscape is governed by invisible field-geometries—intricate knots of gravitational shear and sub-quantum lattice tension that pin billions of tons of water into mid-air, holding the liquid aloft against the void below. Where these fields intersect, the water behaves with a strange, programmable rigidity: sheets of liquid stand upright like transparent glass cliffs, while adjacent currents plunge vertically downward at terminal velocity without dispersing.
+
+Solid matter is exceptionally rare, and where it exists, it is violently young. 
+
+Along the nodal lines of the invisible fields, mineral-rich brines are forced into instantaneous crystallization. Enormous, razor-sharp spires of black silicate and pale, untempered quartz nucleate out of the clear water in matter of minutes, cracking like artillery fire as they grow. These are embryonic landmasses—raw, un-weathered, jagged as broken obsidian. They have known no centuries of tides to smooth their facets; they are freshly birthed mineral lattices, violent and pristine, jutting miles into the open water only to be sheared apart by the turbulent currents and cast adrift as clouds of glittering sand.
+
+Life here has not had time to diversify, nor has it been given the chance to crawl. There are no fish, no crustaceans, no drifting polyps—no animal life has ever moved through these waters. The emptiness is absolute and sterile. 
+
+The only living presence consists of sparse, gossamer-like vegetative braids that anchor themselves to the newest crystal spires. These are delicate, pale-green filaments, resembling glass-fiber kelp, that extend for leagues along the prevailing currents. They do not feed on soil or decay; they photosynthesize the blinding, refracted sunlight and absorb the high-energy field discharges vibrating through the rocks. They shudder continuously in the deafening current, streaming out like pale hair in a gale, bioluminescing with a faint, synchronized silver pulse whenever a cavitation shockwave passes through them.
+
+Looking out into the great distances, the emptiness is overwhelming. A solitary black fang of freshly formed basalt might hang suspended in the light fifty miles away, trailed by a veil of white froth, framed by nothing but limitless, luminous blue and the colossal, twisting funnel of an internal water-storm tearing through the high void. 
+
+It is a world caught in perpetual, violent genesis: infinitely loud, blindingly bright, and entirely uninhabited, where mountains are born out of cold water in an instant, and dissolved back into the roaring sky just as quickly.

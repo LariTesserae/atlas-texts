@@ -1,0 +1,36 @@
+In a world where light has been forgotten, life does not bother with the vanity of shape. Flesh here is functional, soft, and indifferent to symmetry, designed entirely around three absolute conditions: the sharpness of the ground, the warmth of the air, and the stray, sweet pulse of electricity bleeding from the iron.
+
+To know what lives here, you must first understand that nothing has a skin like yours. Dryness is lethal; rigidity is a death sentence against the unpolished basalt. Everything that moves, creeps, or slumbers in the basin is wrapped in a thick, self-secreting coat of tallowy grease, a heavy biological jelly that smells faintly of zinc and warm milk. This coat is their armor. When a creature slips over a razor-edge of ironstone, the rock cuts only the slime, leaving the pale gristle beneath untouched.
+
+Closest to the ground, where the warm brine forms flat, silent sheets, live the **Glass-Slips**. They are the most common of the basin’s fauna: long, hairless ribbons of dense, muscular fat, white as boiled pork and broad as a man’s thigh, though some grow to the length of a skiff. They possess no eyes, no fins, and no internal bones—only a dense lattice of cartilaginous rings that contract in slow, hydraulic waves. They move through the shallow water not by swimming, but by adhering to the bottom with thousands of microscopic, mucus-sweeping cilia.
+
+The Glass-Slips are non-aggressive, almost entirely devoid of fear. Because they navigate by the faint electrical aura of living muscle and hot metal, a visitor is to them merely a strange, warm pillar of moving salt. They will drift against a boot, folding around the leather with the heavy, unhurried weight of wet dough, their soft, circular mouths working with a rhythmic, wet *kiss-kiss* sound as they rasp away the surface oil, dead skin, or mineral crust. Their blood is rich in iron, dark and thick as motor grease, and when two of them meet in the dark, they do not fight; they coalesce into a single, writhing mass for days at a time, exchanging genetic material through their skin in a quiet, warm slurry.
+
+Above them, suspended in the crowded middle-air of the basin, are the **Amp-Suckers**. 
+
+These are the hound-sized, segmented leeches that cluster along the cables. Up close, they resemble swollen length of pale intestinal tissue, ringed with thick folds of fat that throb in time with the deep, distant strokes of the mud-embedded pistons. They have evolved specifically around the human-made—or machine-made—geography. Their underbellies are lined with broad, cupped pads embedded with dense clusters of electro-receptors, like the ampullae of a shark, but far more specialized. 
+
+An Amp-Sucker does not hunt for meat. It hunts for leakage. When it finds a junction box or a fray in a copper sheath where the current bleeds into the damp air, it fastens itself with a heavy, wet seal. A single transformer box might be completely obscured beneath a pale, pulsating knot of fifty or sixty of these creatures, all lying motionless, drunk on forty-cycle hum. They absorb the heat and the voltage directly through their skin, converting the charge into a dense, oily glycogen that drips from their tails in long, viscous threads. 
+
+These dripping threads are the foundation of the basin’s food web. The lower organisms—the rubbery liverworts, the strange, fibrous wire-grasses—drink this nutrient-rich oil as it falls through the dark, their tight, vibrating tendrils quivering whenever an Amp-Sucker above shifts its grip or drops a fresh droplet of grease into the mire.
+
+Higher still, in the lightless canopy where the lattice pylons disappear into the heavy ceiling, live the **Lattice-Weavers**. 
+
+They are the only things in the basin with hard parts, though their skeletons are not bone, but a strange, flexible chitin impregnated with pyrites and iron oxide. They resemble vast, spindly opiliones—harvestmen—with legs twelve feet long and thin as copper wire. They do not walk so much as they thread themselves through the iron girders of the pylons. Their feet are tipped with magnetic hooks that click softly—*tink, tink, tink*—against the wet iron as they climb.
+
+The Weavers build nothing that catches the wind, for there is no wind. Instead, they spin webs of conductive biological wire—fibers made of spun proteins and metallic salts—stretching them between the pylons and the sagging power lines. These webs catch the thick, aerosolized mist of machine oil, mineral steam, and airborne spores that hangs eternally in the basin’s upper atmosphere. When a web becomes heavy and sodden with dark grease, the Weaver reels it in with slow, jointless movements of its pedipalps, devouring the web and its trapped nutrients whole before spinning another.
+
+And then, deep in the sunken flats where the mud is thickest and the spatial logic of the basin begins to warp, are the **Founders**.
+
+You rarely see a Founder, but you are never unaware of them. They are the vast, slow things that occupy the bottom of the ecological ladder—or perhaps the top. A Founder may be sixty feet across, a broad, disc-shaped mound of pale, tallowy blubber and vascular lung-sacs, buried almost entirely in the warm silt near the blind pump-houses. They are so large and move so slowly that the iron cables often pass directly *through* their outer layers of fat, the flesh growing around the rubber sheaths without infection or resistance.
+
+A Founder breathes the basin itself. Through enormous, slick blowholes that open and close with a heavy, wet suction, they draw in gallons of the warm brine, filtering out the mineral salts, the dead Glass-Slips, and the grease-spores before exhaling the water back into the basin as a warm, fine mist. 
+
+They are intimately tied to the machines. A Founder will anchor its lower body around the base of a submerged hydraulic piston, using the violent, rhythmic shudder of the machine’s stroke to drive its own sluggish circulatory system. When the piston strokes deep in the earth, the Founder’s heart pumps; when the machine is still, the Founder enters a state of profound torpor, its vast body cooling by a fraction of a degree, waiting patiently for the iron to stir again.
+
+None of these creatures possess a voice in any traditional sense. They do not call out for mates, nor do they snarl in warning. Yet the basin is full of their speech. It travels through the metal and the water as a vast, continuous symphony of low-frequency vibrations: 
+
+* The high, metallic shivering of the wire-grass as a Lattice-Weaver steps across a girder.
+* The wet, rhythmic suction of three thousand Amp-Suckers drinking from an overhead line.
+* The low, resonant sigh of a Founder exhaling a barrel of warm brine through its blowhole twenty feet away.
+* And beneath it all, the soft, ceaseless rubbing of a million pale, wet bodies sliding over razor-sharp ironstone, oblivious to the dark, indifferent to the sky, perfectly content in the warm, electric grease of their forever-sinking home.

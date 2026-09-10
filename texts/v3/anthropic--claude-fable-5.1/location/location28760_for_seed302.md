@@ -1,0 +1,53 @@
+**The Weeping Shelf**
+
+You come up onto it the way you come up onto any high place: from below, over a lip, out of breath, and then the ground stops rising and there is suddenly too much of everything.
+
+The first thing is not what you see. It is the pressure on the sides of your head. From a mile out the roar has already been a weight you leaned into, but at the rim it stops being a sound you hear and becomes a condition you are inside of, like temperature. Your own voice is gone. You can feel it in your throat and it does not arrive. The sound has no rhythm and no direction; it is not louder here or there, it is not coming from anywhere, it is simply the medium. Later you will notice that your thoughts have slowed to match it, that you have stopped expecting anything to happen next, and that this is not unpleasant.
+
+Then the light. It is a high country, and the air is thin and scrubbed, and the sun has nothing to pass through. But the land itself throws the light back — pale stone, wet stone, and water in every state a thing can be in without freezing. There is no shadow that stays a shadow. Spray hangs in the gorges and lights from within. Every wall is a mirror that has been slightly ruined. You squint, and then you stop squinting because there is no relief to be had by squinting, and your eyes simply accept it.
+
+---
+
+The shelf is a plateau roughly the size of a small valley system, perhaps twelve miles across, tilted a few degrees so that everything on it drains one way. It is not a plain. It is broken into a labyrinth of terraces, gorges, basins, and standing fins of rock, so thickly interleaved that there is no line of sight longer than a few hundred yards and no place to stand where you are not within reach of falling water.
+
+The rock is limestone, or was. Now it is mostly the stuff limestone makes when water runs over it forever — travertine, a dense grey-white deposit that grows on every surface in rounded lobes and skirts and curtains. The terraces are dams of it. The fins are old fracture walls that the water has both eaten and reclad, so that they stand now taller than the rock that made them, cored with original stone and coated with a slow rind of new mineral. Everything is rounded. There are no angles anywhere on the shelf. Even the sharpest edges have been softened to the profile of a knuckle.
+
+And the rock weeps. This is the fact of the place. Every wall, every terrace face, every fin — water comes out of it. Not from cracks, not from springs you could point to. It emerges through the whole face at once, the way sweat comes through skin, beading, joining, running. The stone is a wall of a reservoir that is the entire mountain, and it leaks at a rate that does not change. Where the faces are tall, the weep gathers into sheets, and the sheets gather into falls, and there are falls everywhere: fifty feet, two hundred feet, a few that are taller than that, hundreds of them, so that from any given place you can count a dozen without turning your head and cannot, over the roar, distinguish one from another.
+
+---
+
+Density is the second fact, after the sound. The shelf does not have features set into space. It is made of features pressed against each other with nothing between. Water falls into a basin whose rim is already spilling over into a lower basin, whose lip drops directly onto a terrace already flooded ankle-deep and sheeting off its far edge. Behind that sheet is another wall, and the wall is weeping, and its weep joins the sheet. Spray from three falls meets in the middle of one gorge and becomes rain that has never been in a cloud. The mist fills the low places to the brim and pours over the terraces like a second, slower water. You are never in air. You are in spray, or under sheet, or wading, or standing in the weep of a wall with your back against stone that is running.
+
+There is no dry ground on the shelf. Not one square foot. This is not a claim about weather. It is a description of what the shelf is.
+
+The travertine underfoot is pocked into small cups, thousands to the square yard, each full, each overflowing into the next, so that the whole floor of a terrace is a moving film with a texture like hammered metal. Your feet do not slip. The deposit is rough as a tongue. Where the film is thicker, it is clear as air and the cups beneath it are bright white and you can see them perfectly and cannot see the water at all except as a kind of sharpening.
+
+The colour comes from the water's depth and nothing else. Films are invisible. Basins a foot deep are the pale bluish green of a chip of bottle glass. The deepest pools — and some of the gorges hold pools you cannot see the bottom of — are a blue so saturated and so lit from below by the white walls that it seems to be the source of the light rather than a receiver of it. Between the white stone and the blue water and the lit spray there is no other colour on the shelf. No brown. No green. No grey except in the deposit's shadows, and the shadows are full of reflected sky.
+
+---
+
+Nothing grows here. It is cold enough that you can see your breath in the spray, though it is not cold enough to freeze anything, and it never is and never was; the shelf has no winter. But the water that comes through the rock is saturated with dissolved stone, and where it hits air it begins immediately to let the stone go. Anything that stays still on the shelf is coated. A seed would be sealed before it could split. A spore, if one arrived, would be a small white bead within a day and part of the wall within a year. Whatever falls onto the shelf from elsewhere — dust, a feather, the rare dead body of something that misjudged the thermals — becomes travertine. The shelf makes everything into itself.
+
+So there is no soil, no moss, not even the black film of cyanobacteria that manages to live on most wet rock. The place is clean in a way that living places are not, clean the way the inside of a shell is clean. The only thing on the shelf that is not stone or water is the light, and the light is the thing that makes it look inhabited, because it moves — the spray drifts, the sheets shiver, the pools shift with what falls into them — and that constant fine motion reads, from a distance, as something alive.
+
+It is not. Nothing here changes. The rate of the weep has not varied, as far as the deposit can tell you, in the whole time it has been laying down. Cut a terrace face and the layers are as even as the pages of a book, no thick years, no thin. Erosion and deposition are in a balance so exact that the shelf is neither growing nor wearing away; where the falls cut, the weep rebuilds behind them at the same rate, and the whole structure creeps sideways at a speed too slow to be a speed. It is not that the shelf is old. It is that the shelf is finished, and has been finished for as long as it has existed, and goes on being finished.
+
+---
+
+There are animals, but you have to look.
+
+Swifts. They are the only thing on the shelf that is quick, and they arrive as a shock every time — a black hook flicking through a sheet of falling water and gone into a hollow behind it. They roost in the dry pockets that form where a fall has undercut its own wall, the one place on the shelf where water does not reach, and even there the air is so wet that the birds are always slick, and they shake themselves on the ledges in a spray of their own. They feed above the shelf, where the updraft off the cataracts carries insects up from the warm country below; the insects come as a faint rising traffic and mostly die in the spray before they land. The swifts are few. Perhaps forty pairs in the whole twelve miles. You can go a long time without seeing one, and then two will cut past your face at the same instant, silent under the roar, and be gone.
+
+Once, on the lip of a deep pool, you see something else: a pale shape, the length of your hand, hanging in the water a foot below the surface, not moving. Blind, you assume, and then are not sure why you assumed it. It is there when you look and gone when you look again, and the pool is too bright to see into for long. It is the only thing you will see in the water in all the time you spend there, and you will not be able to say afterward whether it was an animal.
+
+---
+
+Walk deeper in. The going is slow. Every route is a wade or a climb over a terrace lip with water sheeting past your knees, and every gorge ends in a fall, and you must find the place where the travertine has built a ramp up the side, and it always has, because the shelf is built for water to go down and water has been going down it for so long that there is a smooth way from every level to every other. You are never lost, exactly. You are only ever in a wet white room with an open roof, and every wall is a door.
+
+The sound does not change. You wait for it to change, for the moment you round a fin and the roar becomes louder because you are nearer a fall. It does not. It is uniform. This is because there is no near and far here; you are always beside a fall, always under spray, always within the weep. The sound is the shelf's own voice and it is the same everywhere on it, and after an hour you understand that it is not loud. It is total. Loudness implies something quieter to compare it with, and there is nothing.
+
+You find, at length, a place where you can stand — a broad terrace, unusually flat, ankle-deep, with the water moving over it so evenly that it does not seem to move. Walls on three sides, all weeping, none of them falling. The film rushes off the fourth edge with a long unbroken hiss that you cannot separate from the general roar. The sun is straight above. The mist here is thin. The walls are so bright that the white of them has a faint warmth, like the inside of an eyelid, and the water on the floor is so clear that the terrace looks dry, looks like a sheet of pale hammered stone laid in the sun, until you look at your own feet and see them standing in a moving mirror.
+
+You are not cold. You are not warm. There is spray on your face and there has been since you arrived and you have stopped feeling it as wet. The sound has stopped being sound.
+
+You could stay a long time here. The shelf would not object. It would coat you, eventually, as it coats everything, as it coated whatever was here before you and made it into wall; but it would not do so quickly, and it would not do so for any reason. It has no reasons. It weeps and shines and roars, and it does not change, and the swifts go through the falling water into the dark behind, and come out again, and the light on the shelf is the light of exactly noon, always, and always has been.

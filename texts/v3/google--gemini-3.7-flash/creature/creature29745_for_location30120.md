@@ -1,0 +1,27 @@
+The scrapers are only the most visible tier of a fauna that does not distinguish between architecture and geology.
+
+To understand them, one has to watch the seams where two plates of plum-colored iron meet. The scrapers—often called *suture-backs* or *trowel-heads* by the nature of their broad, flattened shovels—do not possess true blood. Their circulatory systems are open canals through which scalding condensate is drawn by capillary action, pumped through porous, chalky lung-slits by the flexing of their walking plates. They are essentially walking kilns. The sulfur and lithotrophic bacterial pastes they strip from the rivets are roasted in an internal gut-furnace that operates at the boiling point of water, drawing thermal energy directly from the flagstones through broad, vulcanized footpads. 
+
+When a scraper dies, it does not decompose in the biological sense; its calcite carapace welds itself permanently to the substrate through the precipitation of gypsum and heavy salts, becoming another permanent flange, another structural bracket slowly smoothing over an angle of the city. Centuries of them have died along the curbs, their fused shells forming the curbstones and the balustrades that keep the boiling runoff channeled toward the sluices.
+
+Above them, within the damp, echoing bays of the skeletal towers, lives a different order of life: the *veils*.
+
+They hang suspended across the hundred-pace intervals between iron trusses like enormous sheets of curing leather or wet, oiled sailcloth. These are colonial organisms, thousands of flat, rubbery zooids joined along flexible cartilaginous ridges. They are tethered to the high girders by thick cables of mineralized tendon that have grown deep into the rivet holes, expanding within the fastener cavities until they cannot be pulled free. 
+
+The veils do not hunt; they are passive aerodynamic sieves. As the planetary heat drives massive columns of boiling fog upward through the empty frameworks, the veils billow outward like sails, their lower margins lifting to let the draft pass, their damp underbellies coated in a thick, amber-colored mucus that catches the sulfurous dust, floating spore-clouds, and drifting flakes of iron oxide. Every few hours, as the convective updraft shifts or slackens, the veil contracts with a slow, wet shudder, rolling its margins inward to draw the accumulated grime toward a central, horizontal mouth-groove that runs the width of the span. 
+
+When the wind groans through the high iron tiers, the veils hum—a low, resonant vibration that vibrates through the framework, shaking loose the heavier salt crusts and sending pale showers of crystals tumbling down through the mist.
+
+Further down, where the water gathers into boiling sheets and drops through the floor grates into the flooded under-levels, live the *pipers*.
+
+They are long, segmented, blind creatures whose bodies resemble flexible conduits of horn and translucent silicate. They inhabit the drainage channels and the interiors of the siphon pipes, anchored head-first against the torrential flow of boiling condensate. Their mouths are hard, rotating rings of black chalcedony that grind at the mineral deposits inside the plumbing, keeping the sluices clear not out of service, but because the mineral-rich crust of lime and manganese is their sole sustenance. 
+
+The pipers have no eyes, but they are intensely sensitive to the rhythm of the city’s mechanisms. When the distant steam siphon completes its slow stroke—*tock... tock*—the shockwave travels through the water-filled pipes, and thousands of pipers contract in unison, their segmented bodies clicking against the iron walls in a rattling, metallic echo that travels through the sub-floor for miles.
+
+And beneath all of these, moving through the vast, open plazas where the steam is thickest, there are the *foundry-crabs* or *slab-movers*.
+
+They are immense, low-profile creatures, easily the width of a wagon, shaped like rounded, vitrified flagstones. Their shells are so heavily crusted with layered deposits of hematite, copper oxide, and pale yellow sulfur that they appear to be pieces of the pavement that have begun to drift. They move on dozens of short, hydraulic stilts tipped with blunt, horn-like pads, traveling along the thermal gradients of the avenues. They are the true apex of this chemical reef, though they are not predatory in any conventional sense. 
+
+A slab-mover feeds on the mass. It seeks the places where the mineral crust has grown too thick—where a sluice is threatened with calcification, or where a dead veil has dropped its heavy, fibrous corpse across an arcade. The creature settles over the blockage, drops a skirt of leathery, heat-resistant mantle to form a seal against the iron deck, and secretes a deluge of concentrated, boiling sulfuric acids from glands along its ventral rim. For days it remains stationary, dissolving the obstruction into a hot, nutrient-dense broth that it siphons into its cavernous core, leaving the iron beneath clean, etched, and slate-gray.
+
+There are no voices in this place. No cries, no mating calls, no sounds of terror. The inhabitants are as unhurried and durable as the trusses that cradle them. They have adapted entirely to the rhythm of an apparatus that was built to outlast its makers: a closed loop where biology has abandoned the sun entirely, choosing instead to become the living maintenance system of a high, scalding machine that will never cool down.

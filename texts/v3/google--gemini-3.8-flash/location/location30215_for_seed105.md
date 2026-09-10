@@ -1,0 +1,27 @@
+The water does not rest; it shears.
+
+It is an ocean without an upper boundary, or one whose surface lies miles above, far past the reach of anything that could measure it. Down here, upon the high crests of a submerged highland—a drowned cordillera whose plateaus sit thousands of feet above the abyssal floor—the medium is so cold it behaves almost like an oil: thick, viscous, dragging heavily against every surface. The temperature sits a fraction of a degree above freezing, salted to an extreme density that carries sound with a terrifying, immediate clarity.
+
+The noise is constant and concussive. There are no engines, no voices, but the sea is louder than a storm on dry land. Great internal waves, rolling between thermal layers hundreds of meters thick, collide with the high ridges of stone. They break not into foam, but into grinding sub-surface vortices that rattle the gravel and send heavy, rhythmic booms vibrating through the bedrock. Beneath the percussion lies the continuous, scouring hiss of cold brine dragging through vast forests of kelp.
+
+These forests are not sparse strands, but dense, muscular thickets—yet they do not cover the highlands entirely. The topography is broad and basin-pocketed, a sweeping alpine expanse drowned in blue-black dusk. Immense meadows of black-green vegetation crown the summits and cling to the stepped terraces of the ridges, separated by long, quiet gulfs of bare slate and gray silt where nothing takes root.
+
+Because there are no animals—none at all. 
+
+No fish slip between the stipes; no crabs scour the stones; no copepods drift like dust in the beam of absent eyes. The water column is completely vacant of breath and blood. The ecological work usually assigned to worms, scavengers, and grazers has been assumed entirely by the plants themselves, giving the flora a grotesque, hyper-competent dynamism. 
+
+Without herbivores to keep them checked, the plants grow thick, fibrous, and heavily mineralized. Some resemble weeping willows carved from vulcanized rubber, their fronds tipped with heavy, hollow bulbs that bang together in the current like wooden chimes. Others grow as massive, flat ribbons—thirty feet long and broad as roadways—leathery and cold to the touch, undulating with the heavy, hydraulic rhythm of the swells. To cycle nutrients in the absence of fauna, they shed their own extremities on regular schedules: vast sheets of rotting cellulose slough off into the drifts, carpeting the depressions in a deep, fermenting mulch of sulfur and carbon. In place of filter feeders, certain vascular reeds pull the water through hollow stems via osmotic pumping, emitting a wet, whistling drone as they strain the mineral dust from the current.
+
+The light is almost nonexistent. It is not the total pitch of an abyss, but the thin, bruised twilight of an ocean floor where sunlight is merely a memory carried down by occasional refracting curtains of pale, greenish murk. It is enough to reveal the outlines of the ridges, the swaying shoulders of the great kelp forests, and the sudden, uncanny presence of things constructed.
+
+They are small, rare, and exceedingly old.
+
+Upon the high spurs of the stone ridges, nestled just below the crests where the violent upper shear is slightly deflected, stand small assemblies of dry-stacked stone. They are low huts or pens, built from slab-slate that has been knapped and fitted with blunt, deliberate hand-tools. Around them, heavy posts of petrified, drowned timber are wedged into rock-crevices, bound to one another with coarse, braided ropes made of twisted weed. 
+
+These structures are primitive, the work of something that understood levers, knots, and gravity, but not metal. Some of the stone enclosures are circular, like low corrals; others are narrow pens fitted with woven hurdles of supple wood, weighted with cobbles. They resemble weirs, traps designed to catch things moving in the flow—yet they catch only drift-leaves, accumulating thick drifts of shedding kelp that decay into black sludge against their wicker walls. 
+
+Whoever notched the logs and lashed the stone with reed-rope left nothing else behind. No bones, no shells, no tools of horn or tooth, because there was never an animal here to yield them. If tools were used, they were chipped from the same cold chert that forms the peaks, and their handles have long since rotted or fused into the roots of the encroaching scrub.
+
+The scrub itself moves with a startling, plant-paced aggression. If an eddy changes course, diverting a plume of mineral-rich water across a previously bare ridge, the moss-mats follow within hours, creeping forward in wet, fibrous mats of crimson and bottle-green. Where the currents are violent, the plants brace themselves with thick, tap-root cables that drill into the cracks of the slate, cracking boulders apart over decades, creating fields of fresh, angular talus that roll down the submerged slopes in slow, grinding landslides.
+
+Every few minutes, the pressure shifts. A deep-sea thermal pulse—a subterranean wave driven by distant, titanic churnings—lifts the fronds toward the unseen sky. For a few moments, the entire plateau stands upright: miles of black stalks, towering ribbons, and feathered plumes stretching taut in the deafening, roaring draft of the water. Then the pulse passes, the current reverses, and the entire drowned world collapses back down against the stone with a massive, sodden slap, groaning beneath the dark and heavy cold.

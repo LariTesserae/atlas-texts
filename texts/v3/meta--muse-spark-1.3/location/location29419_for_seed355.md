@@ -1,0 +1,45 @@
+It is night here, and it has been night for a long time.
+
+Not the cool night of high places. Low night. Basin night. The air comes in hot and thick enough to drink, and it does not move unless you move through it. Your skin is wet within a minute, not from sweat but from the air itself condensing on you. Everything condenses here. Breath, stone, skin — everything sweats.
+
+The ground gives under your foot and then holds. You are walking on something flat and wide that should be a street. Under a thin skin of warm water there is stone, but not cut stone. It is laid down, layer on layer, cream and rust and bone-white, rippled where the water has licked it for ten thousand years. Travertine. Flowstone. Sinter. The whole lowland is a pan of it, and the water sits on it in sheets because there is nowhere else for it to go. The water table is right there, a finger's width beneath the world. Step off the high rib and your ankle goes into black marsh.
+
+This is a city. That is the first wrong thing you have to accept.
+
+Not ruins. Not like something built and then abandoned. It has the logic of a town — a valley-sized town — thoroughfares and side lanes and cisterns and plazas and rows of hollow towers leaning very slightly toward each other over the water. From the edge of the marsh you can see it extend past what you can see, block after block dissolving into steam. Open water between structures. A lot of emptiness for a city. A plaza fifty paces wide with nothing in it but an inch of hot water and your own reflection. Then another cluster of towers. Then a long empty causeway. Scattered. As if the city forgot to fill itself in.
+
+No one built this with hands. That is the second wrong thing.
+
+There are no bricks. No mortar lines, no saw marks, no glass, no metal, no wire. Nothing made. The walls are accreted. You can see it in the cross-section where one tower has slumped and split: concentric rings, like a tree or a shell or a cave formation. The rock weeps, constantly. Water beads out of the pores of the walls themselves, gathers, runs down in threads, drops from every lip and lintel. The mineral in the water builds as it dries — except nothing ever dries here — so it builds in knobs and curtains and draperies. A windowsill grows downward into a stalactite. A doorway grows inward until it is only a keyhole, then seals. Down the street another doorway is opening where water has dissolved the wall back. The city is settling itself, patiently, into balance. Everything rounded. No corners left sharp. Sills sagging. Arches thickened like wax. Long-existed rock doing what wet hot rock does: dissolve a little, precipitate a little, breathe in and out over centuries.
+
+And still — streets. You cannot deny streets. The water runs in channels down the middle of them, clear and hot, smelling faintly of sulfur and iron. At intersections the channels widen into round basins, perfect circles, rimmed with a lip of pale stone where people would sit if there were people. Steps go down into black water and come up again on the other side. Culverts arch. Terraces step down toward the marsh in broad, shallow stairs, each stair holding its own mirror of water. It is infrastructure without intention. Layered construction without constructors.
+
+Light does not work here. It hasn't so much set as given up.
+
+There is no moon, no stars. The sky is a low, hot lid of cloud and steam that holds the heat in. What little light there is comes from below: a faint carnelian glow in the cracks where the ground is thin and the heat underneath shows through, and a colder, greenish phosphorescence where the water is disturbed — a slick that ignites when your foot breaks it and then fades. You learn to navigate by sound and by the feel of the stone under the water, and by the puddles. The puddles are wrong.
+
+Every still pool shows a daylight sky. Pale blue, with a high sun. You look down while standing in absolute dark and see noon reflected at your feet, with the silhouettes of towers in it that do not match the towers around you. If you put your hand in, the image shatters and the water is just hot and black again. If you wait, very still, it reforms. It is always noon down there.
+
+There is almost nothing living, and that is the third wrong thing. In this heat, in this wet, there should be riot. There should be frogs, insects, birds tearing at the mosquitoes. There is none of that. No buzz. No croak. No splash of fish. No birds. Not even the whine of a single gnat near your ear.
+
+What grows here grows sparingly, as if apologizing. Tufts of white reed with no leaves, translucent as quills, rising from cracks in the causeway in groups of three or four and then nothing for a hundred paces. A black, felt-like mat of algae that coats the submerged steps and makes them treacherously slick. Lichen the color of old bone, in rosettes on the north side of nothing — there is no north here — that glow very faintly when touched and then forget to stop glowing for an hour. In the marsh off the streets, the stilt-roots of something that wanted to be a mangrove, but the crowns never formed; just blind black fingers lifting out of the water and stopping, undecided.
+
+Because it is quiet, you hear the place working.
+
+Mostly quiet is not silent. It is the thin sound of water doing endless small work. Drip from a hundred weeping cornices into a hundred basins, each with a slightly different pitch. The tick and sigh of steam venting from pinholes in the plaza floors. Far off, a deep groan as a tower settles another millimeter, or a slab of sinter gives way underwater and becomes a new channel. Your own footsteps come back to you a half-second early — you hear the splash just before your foot lands. You get used to walking a little out of step with yourself.
+
+The heat pulses. Every so often — no rhythm you can time, but often enough that you stop trusting the stillness — a wave of hotter air rolls through from the marsh edge, bringing a wall of white steam with it that erases the towers to their bases. The street-water, already bath-warm, goes almost scalding for a minute. The weeping walls run faster. Condensation rains upward off the hot pools in fine mist. Then it passes, and droplets fall from everywhere, and the city ticks as it cools one degree.
+
+Stay long enough and you learn the local rules, because they insist:
+
+Distance is negotiable. That causeway you crossed — two hundred paces — crosses back in thirty if you are not paying attention. If you count your steps aloud, it stays honest longer.
+
+Inside is larger. The hollow towers are empty, open at the top to the black sky to let the steam out. Duck through the low, dissolved doorway — you have to crouch, the stone grown thick — and the interior is suddenly tall, taller than the tower looked from outside, the walls curving away up into dark you cannot see the top of. Your whisper goes up and does not come down. Water drips from impossibly high. There is no floor but a deep, hot pool that glows faintly green when you disturb it. You do not wade in.
+
+The city mirrors itself. You will come to an intersection of two channels with a round basin and four leaning towers, one with a collapsed shoulder. You will memorize it. An hour later you will find it again, exactly, but the collapsed shoulder will be on a different tower. It is not that you are lost. It is that the place only has so many ideas and uses them over and over, slightly rearranged.
+
+And the water remembers weight. If you stand still in a plaza pool for a long time, your reflection in the noon-sky below stays after you lift your foot. A dark dent in the light that slowly fills back in. If many people had ever stood here, the puddles would be full of dents. They are empty.
+
+There is no center. You keep expecting a temple, a palace, a well — the reason for a town. There is only more town, thinning at the edges into marsh, into isolated platforms of stone rising out of black water like stepping stones for something enormous, each with its tuft of white reeds, each with its ring of warm mist. Out past the last street the water goes on, hot and still and shallow over a flat pan that steams to the horizon. Weeping rocks out there, low domes that sweat and drip and grow a millimeter a century. Post-rain, always post-rain, though you never see rain fall — only the air getting heavier until water beads on every surface and falls as a warm drizzle from the undersides of arches.
+
+You stop in the middle of an empty, water-covered square, with the hot dark pressing on your lungs, listening to the dripping of a city that built itself out of sweat and stone, with no animals to hear it, no tools to shape it, no light to see it by, and you understand that it is active, tirelessly active, dissolving and rebuilding itself street by street while you stand there, not for anyone, not toward anything, just the long habit of water moving minerals around in the dark.

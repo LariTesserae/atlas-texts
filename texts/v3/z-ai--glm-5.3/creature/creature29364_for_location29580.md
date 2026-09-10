@@ -1,0 +1,3 @@
+Almost nothing lives on the Weeping Shelf, and that is the first fact about its inhabitants. What does live there is defined less by what it eats or fears than by what it can stand: the drumming, the wet, the warmth, the appalling patience. Every resident of this place is a creature that heard the count and did not leave.
+
+The first resident is the wall itself, or rather its skin — the black-green algal felt that sheets the weeping stone from seam to shelf-edge. It never dries, because the seeps guarantee it; it never freezes, because the warm stone guarantees that. So it does something few algaes ever get to do, which is not grow so much as persist, gorge

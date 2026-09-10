@@ -1,0 +1,57 @@
+It arrives the way the plain arrives: audibly, before it can be seen, and then not seen at all, because there is nothing about it that the fog can bead on. It has no plates. It does not breathe. Where it is, the air is neither warmer nor colder, and the film beneath it does not mirror anything, and this absence of a reflection is the only sign of it, and it is a sign nothing on the plain has learned to read.
+
+The first thing it does is nothing.
+
+This takes a long time, measured in slackenings of the knocking — a hundred, several hundred; it does not count. It rests in the fog the way the eye rests in it, having given up on finding an edge. It learns the sound first, because the sound is what there is most of: the knocking, the phase and counter-phase, the surge and slacken, the hiss beneath, the horn-note that arrives from everywhere. It learns the film, the finger-depth of cold that is the ground's whole memory. It learns the herds as weather and does not mistake them for tenants. It learns the fever on their backs and the neighbours underneath and the warm floor that surfaces at the knuckle-stones. It learns the fold, and lets itself be folded, and is briefly in three places, and finds this neither wrong nor unpleasant. It learns that time here runs a little early or a little late and that both are wet. It learns the plain the way the plain would want to be learned if it wanted anything: slowly, without a hand laid on it, from the sky down.
+
+Then it finds the seams, and the quiet in them, and it stops learning and starts to attend.
+
+---
+
+There are things a power could do here. It considers them one by one, because that is what wisdom is for, and it sets each one down, and the setting down is most of what it does.
+
+It could raise a hill. This is the first thought and the most natural, because the eye wants it so badly, and because relief is the word both for a rise in the land and for the end of suffering, and the plain has neither. It turns the hill over in its attention for a while. A rise somewhere in the hundred miles, a single knuckle grown to a knee, dry on top. The eye would rest on it. The walkers would see it — they, at least, could see it, because around them distance holds — and they would turn along their seams toward it, all of them, because it would be the first somewhere the plain had ever offered. And the seams would empty. The beast with a catch in its hiss in the fourth line would work until it fell and no cold thing would stand beside it. The walking would become going, and going has an end, and the walkers are the only thing on the plain that has not ended. It sets the hill down.
+
+It could warm them. They are the only cold bodies in a world of steam, and cold is the thing that hurts, and it would cost nothing. But it looks closely at the cold and finds it is not being suffered so much as kept. A walker warmed would steam. Steaming, it would be a plume among plumes, and the fold would find it and lose its edges and set it back in the line, and the mill would not notice. The cold is not what they endure. The cold is what they are. It sets warmth down.
+
+It could give the plain a sun. It considers this least of all. Nothing here has ever wanted for light; the sky glows all over like the inside of a shell. A sun would only show the plain to itself in one direction at once, and the plain has not asked to be shown anything, and there is nothing green left in it that a sun could call up. It sets the sun down.
+
+It could end this. Drain the film, still the knocking, let the herds cool and the scuttlers starve and the neighbours stay down and the floor go cold, and let the plain be what it looks like it should be: a flat dead stone under a grey sky, quiet. This one it holds the longest, because it is benevolent, and because the knocking gets into the ribs of anything with ribs and the fog tastes of warm metal and there is a kind of mind for which this world reads as a wound. But it looks for the wound and does not find one. The herds are not in pain. They are working. The fever on their backs is not cruelty; it is what a body does about a body. The neighbours take what has fallen and nothing falls that was not finished. A mercy that has not been asked for is another kind of water, and the plain has had enough of being worn by water. It sets the ending down.
+
+It considers, last and briefly, forgiveness — because the walkers quit, and the plain has no one to forgive them, and being unforgiven is a weight even where no one is holding the other end of it. It looks for the fault. It looks a long time. It cannot find the thing they would need forgiving for. Stepping out of a line is not a crime against a line. *Quit* is a word the mill would use, if the mill used words, and the mill does not, and the power declines to supply it. It does not put a better word in its place. The plain has stopped needing to be told what it is, and that includes its walkers, and a name given from above is a hill of another kind.
+
+---
+
+So it goes down into a seam.
+
+It does not walk, having nothing to walk with, but it occupies the seam's width the way a walker would — a pocket, a little clear air, and it moves along the gap between two lines at the pace they move, which is the pace of a thing that is not going anywhere and has all the time the stone has forgotten. It keeps, without deciding to, a body-length from anything.
+
+It comes on a walker standing beside a beast. The beast's knock is late — not much, a fraction, the kind of lateness that on a temperate world would be a limp. The walker is beside it in its cold pocket with its seized plates and its blunt dry head lowered a little, and it does not touch the beast and does not call, and the beast works and does not turn. The power stands the other side of the seam, a body-length off, and attends to the attending. A night passes, or the slackening that is a night. The beast's knock comes a fraction later. Then it does not come. The plates along its flank stop sliding and begin, very quietly, to grind. The plume thins off its back like breath fading off a window. It steps sideways.
+
+Nothing else happens. The line closes. The material moves through the animal that had been behind. There are two pockets of clear air in the seam where there was one, and now a third, further off, that neither of them can account for. The two walkers stand a body-length apart for a while and then go two ways, and neither steams, and the fog shuts behind them.
+
+It understands the body-length then, and is glad it kept it. It is not a distance held out of fear or want. It is the width of a pocket. Two walkers closer than that would have one clear air between them instead of two, and one pocket where there were two, and they have already been one thing, folded, standing in ten thousand places with a cracked plate on the left flank, and they will not be that again for anyone. The distance is the thing they made. It is the only made thing on the plain. The power does not cross it.
+
+It looks, because it is benevolent, for what they lack. Not warmth. Not company; they have exactly the company they can bear. Not purpose; the listening is as much purpose as anything here can carry without being ground down by it. It looks at the walkers a long time and it finds, at the bottom, one thing, and the thing is this: they cannot stop. The scuttlers key to a falter, and a walker has nothing left to falter. The neighbours come for what has fallen, and a walker did not fall. A walker that grew tired of walking would find no place on the plain that would take it, because nothing here takes what only quit. It is not clear they tire. But it has seen one stand at a crossing after the other had gone, a good deal longer than listening would need.
+
+And it looks at the rings.
+
+Where a walker has stood a long time there is a bare place on the silt under the film, a body wide, where the warm floor has not come. The power has seen these and thought them permanent. Now it watches one after the walker has moved off. Nothing, for a while. Then the copper thins in from the edges — slower than anything, slower than the wearing that made the plain — and the bare place closes, and the floor is whole, and the plain has forgotten that anything ever stood there. This is how the plain is. The line closes over the gap. The mat closes over the ring. Nothing accumulates. Nothing is carried away.
+
+It considers this for the longest time of all.
+
+---
+
+Then it does one thing.
+
+It comes to a ring the walker has just left — cold, bare, a body wide, the film rocking gently over it — and it does what a hand would do if it had one. It lays itself flat on the silt and stays. The copper comes in slow from the edges as it always comes, and reaches the rim of the bare place, and stops. Not pushed back. Not burned. It reaches the rim and finds the rim is where it goes to, and goes no further, and lies there warm along the edge of the cold like the floor of a room meeting a threshold.
+
+That is all. One ring. It does not do it to the others; it does not know that it should. The plain is finished and one does not lay hands on a finished thing more than once. If it is wrong, the mat will take this ring too in the end, because nothing here is permanent but the plain, and the plain will not know it was ever touched. If it is right, then there is now, somewhere in a hundred miles of steam and bodies, one place. Not high. Not dry. A finger of cold water over a ring of bare grey silt where the floor declined to come back — and a walker coming along the seam some hundred slackenings on will find it, and will find no one standing in it, and will stop at the edge of it a body-length off, and will stand there a night, in its cold pocket, listening to no one's breath, and then will either go on or will not. If it goes on, the place is still there. If it does not, then the plain has, for the first time, something it can be said to keep.
+
+---
+
+It leaves for the same reason it did not raise the hill. A power that stayed would become the thing the eye rested on. The walkers would turn toward the quiet of it as they turn toward each other, and find it always there, and the finding would become a going, and the seams would empty from a different direction. So it goes back up the way it came, into the fog that is the herds' breath, and out of the fold, and is not seen leaving because it was not seen arriving, and the only trace of its having been here is a place where a film of water lies over cold stone and the warmth beneath does not touch it.
+
+The plain does not notice. The knocking falls into phase and out of it. The horn-note goes on for the better part of a minute and arrives from every direction, some of them early. A beast in the fourth line has a catch in its hiss, and three lines south the same beast has the same catch, and ahead, and behind. The neighbours come up between the legs of the herd and take what has fallen and go back down. The scuttlers cross a current and there is a flash and a smell and one fewer, if there were ever two. A walker moves along a seam, a body's width of clear cold air in the steam, grinding faintly, listening.
+
+Somewhere in it, now, there is one thing the plain remembers, and it does not know that it does, and it is loud, and it does not stop.

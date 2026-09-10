@@ -1,0 +1,35 @@
+**The Hollow Below the Cloud-Line**
+
+You come to it from above, which is the only way. The plateau up here is bare and cold and blown flat, and then the ground simply opens — a cleft, not wide, perhaps forty paces across at the rim and narrowing as it drops, so that from the edge you look down into something more like a throat than a valley. The walls go down farther than the light does.
+
+It is not night. It is never night here, and never day either. The plateau sits inside a cloud that has, as far as anyone could tell, always been there; the cleft is deep enough that the grey coming in at the top has spent itself long before it reaches the floor. What arrives is a kind of dim that your eyes take minutes to accept. Once they do, the place resolves in shades of black and near-black and the very faintest green, and after a while you stop thinking of it as dark and start thinking of it as the only light there is.
+
+---
+
+The walls are a coarse, layered stone that has been wet for so long it no longer knows how to be dry. Every seam weeps. Not dramatically — no falls, no rushing — just a constant sheen, a bead forming and lengthening and letting go, and another behind it. The rock is worn into shelves and bulges and hollows the shape of water, softened everywhere, no edge left on it. Whatever cutting the water did here, it finished a very long time ago. Now it simply maintains. The pool at the bottom is the same depth it has always been: to the knee at the center, ankle at the margins, floored with fine grey silt that takes a footprint and then, over a day, quietly loses it.
+
+Everything not stone is moss. Moss thick enough to sink a hand into, saturated so that pressing it releases cold water over your wrist. Liverworts lie flat and dark on the lower walls like spilled wax. Ferns come out of every crevice, and the ferns are the tallest things — they arch out over the water and meet from both sides in places, so that you move under a low roof of fronds beaded underneath with condensation. The air is a few degrees above freezing and so full of water it has weight. You breathe it and it settles in your chest. Your clothes are wet within the hour and never dry again while you stay.
+
+---
+
+What takes longer to see is that there is no room.
+
+The first thing you notice is the newts. They are on every wet rock at the pool's edge, dark-backed, pale-bellied, lying still with their throats just touching the water. Then you see them on the walls above the pool, and above those, up in the moss, so many that the moss itself seems to be moving when you look sideways at it. Then the snails, whose shells are the same grey as the silt, packed on the undersides of the fern fronds so densely that they touch, shell to shell, and the fronds sag under them. Millipedes in the moss, coiled, every handspan of it. Cave crickets pale as candle-wax along the shelves, feelers going, not jumping — they don't jump here, there is nowhere to land that isn't already occupied. Beetles, hundreds of them, walking slowly over the newts, who do not react. In the water, when you hold still, the silt is not silt but a floor of translucent shrimp and flatworms and something long and blind and white that moves under them like a thought.
+
+Above, in the overhang where the walls lean together, the bats. Not a colony — a lining. They hang so close that from below they look like a single hide stretched across the stone, and the wet that drips from them is warm for a moment before it isn't.
+
+And it is quiet. That is the strangest thing about so much life. The frogs — for there are frogs, small and brown, on every third rock — do not call. The bats do not chatter. The crickets don't sing. There is the drip, everywhere and unlocatable, a soft irregular tick like a house settling, and under it, if you hold your breath, the sound of a hundred thousand small bodies breathing wet air, which is less a sound than a pressure. Now and then a snail lets go of a frond and falls into the moss with a small dull sound and does not climb back up. Nothing else moves quickly enough to be heard.
+
+---
+
+There is one place, halfway down the eastern wall, where a shelf stands a little proud of the seep and is drier than anything else in the hollow — which is to say only damp. Someone was here once. Not to stay; there is nothing built, no ring of stones, no shelter, no ash. What there is: a scatter of flint flakes, dark and glassy, the debris of someone shaping a tool. And the tool itself, or one of them — a fist-sized stone with one edge worked to a rough blade, its worked face polished by use and then by water. It lies where it was set down. The moss has grown around it but not over it, as if the moss too were waiting for the hand to come back.
+
+Whoever it was took nothing and left nothing but this. Perhaps they came down for the newts, or the snails, which would feed a person indefinitely without ever growing scarce. Perhaps they came down because it was dark and quiet and out of the wind, and sat on the shelf and knapped stone for an afternoon, and then climbed back into the cloud. It is impossible to say how long ago. The flakes look as though they were struck this morning. Nothing here looks old, because nothing here weathers any further than it already has.
+
+---
+
+That is the thing you come to understand, if you stay. The hollow is finished. The water does not rise in spring, because there is no spring; the cloud does not thin, because the cloud does not move; the temperature at the pool's edge is the same at every hour you check it. The newts do not seem to eat, though there are beetles walking on them. The snails fall and are not replaced and yet are never fewer. You watch for a birth, a death, a molt, a shed skin, and you find none. It is not that time does not pass. Your own body tells you it does — the cold gets into your joints, your fingers stiffen, hunger comes. But the hollow does not participate. It reached its shape, and its census, and its dark, and it stopped, and it holds.
+
+You could stay a long time and never learn whether the creatures know you are there. They make room for a foot when it comes down, sliding aside with no urgency, and close behind it. If you sit on the shelf beside the flint the crickets will walk over your hands. If you lie on the moss you will feel the newts settle against your ribs for what warmth you have. None of it is threatening. None of it is welcoming either. It is just full — full in every direction, to the edge of the light and past it — and quiet, and cold, and wet, and entirely, permanently itself.
+
+When you climb out, the plateau's wind will feel violent, and the flat grey daylight of the cloud will feel like noon. You will look back at the cleft and not be able to see the floor, and you will know exactly what is down there, all of it, in the same places, and that it will be there in the same places when you are dead.

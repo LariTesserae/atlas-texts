@@ -1,0 +1,41 @@
+You look for them first in the wrong place. 
+
+You look for movement at your own height, for faces at face-level, for a silhouette that detaches from a doorway. There are no doorways you can see. There is only wall, and wall that is furred with living shingles, and fog, and drip. You think for an hour that the city is empty, kept by machines, that the animals have taken it.
+
+Then a section of what you took for roost shifts, and does not fly.
+
+That is how you learn to see them — by unseeing. By letting your eyes fail completely.
+
+They are low before they are anything else.
+
+Not short the way a child is short. Low the way a stone is low, built to stay inside the warm. In the knee-high fog between the pillars where the heat envelopes hold, a grown one comes up to your sternum and no higher. Broad across the shoulders and hips, barrel-chested, legs short and splayed, arms long enough that the knuckles almost brush the causeway when they walk. They walk bent, a wading crouch, because to stand upright here is to lift your head out of the warm into the kill-cold, and because the slick demands it. Their feet are wide and bare and calloused into something like hooves — you hear them before you see anything: a soft, deliberate slap-suck on wet glass, nothing like your boot-crack.
+
+At first, in the dark, you take them for another kind of animal. That is not an insult. They have made themselves animal enough to belong.
+
+They have no use for eyes. That is the second thing, and it takes longer to be sure of.
+
+Where eyes should be there are smooth, closed ridges, lidded over and sealed with a thin, oily film — not wounded, not missing, simply retired. A visitor keeps waiting for eyeshine, for a catch of headlamp. Nothing catches. The face is instead all ear and nose and mouth. The ears are large, mobile, bare-skinned dishes set asymmetrically, one a fraction higher, turning independently in sleep. You can see them swivel when a screamer passes overhead, triangulating. The nostrils are wide and flared open always, rimed with ice that melts and reforms. The mouth is wide, the lips thick and cracked from brine. From the throat comes almost nothing high — no shout could survive the frying hiss of ten million echolocation clicks — but low, felt things. When one passes close you feel a pressure in your molars answer the pillars: a 30, 40 hertz thrum in the chest. That is speech. That, and touch.
+
+Their skin is what the valley made it. Thick, dark grey-red, slicked permanently with oil and silica, beaded with condensate that never dries. It has to be. Everything drips here. Cloth would rot in a day. They go mostly naked under cloaks grown from the city itself — no, harvested: you realize on the second night what those pale, matted mantles are. Fallen moth-bats. The dead that rain daily by the thousands, white-furred, fist-sized. They gather them nightly with wide rakes, not in grief and not in waste. The meat goes to the culvert troughs for the shrimp and gulpers, the fur is felted while still warm with body-oil into sodden, stinking, superbly insulating capes. So they wear the roost. From a distance, huddled motionless under an arch to conserve heat, a family looks exactly like another shingle of sleeping wings. That is intentional.
+
+Because they roost.
+
+You find the terraces hollow when a fog-bank thins enough to press your cheek to the vitreous wall and feel warmth breathe through. Inside is not rooms but holds — low, windowless, gut-warm chambers curled around a heat capillary, floor slick with living orange film kept back from the sleeping hollows by stone lips. They sleep in piles, ten, twenty deep, layered three and four like the moth-bats above them, slow-breathing, exhalations joining into one visible plume that the exchangers drink and return as fog. Their hearts are slow. You can put your hand on a sleeping back and count: thirty beats a minute, twenty-five. Blood thick with altitude, lungs huge and shallow, breathing the thin, saturated air without hurry. The old ones barely move for days in the deep cold beyond the envelopes, entering a torpor the young watch over, turning them so condensation does not pool in their ears.
+
+When awake, they are always tasting.
+
+The air has no light to navigate by, so they navigate by heat on the cheek, by sound-shadow, by tongue. You watch one tend the farm — because that slick-orange you were warned not to step on is a farm — and understand. Crouching on a causeway edge where seep beads on vertical glass, they run broad, sensitive fingertips over the biofilm without breaking it, feeling thickness. Then a lick of the finger. Silica, sulfur, iron: the mineral tang means ready, the iodine-sweet means not yet. When ready, they scrape with a flat basalt shard, only a lane at a time, leaving starter to regrow. The paste is eaten warm, mixed with rendered ice-worm fat — those arm-thick white worms turning in the marsh mud — and with crackling shrimp pounded whole, shell and click and all. Nothing is wasted. The sloughed skin of biofilters, the condensate rich with minerals, the night-fall of wings: all of it circles through gut and culvert and marsh and back to gut. They eat stone and heat and sulfur breath, the same as the bacteria, only one step up.
+
+They do not hurry, because nothing here can be hurried. You learn this watching a maintainer at a pillar.
+
+The pillars lean, dull black, humming in your sternum. The maintainer — sexless under fur and oil, age unreadable — stands with forehead and both palms pressed to the stone, feeling. Not fixing. Listening for the drone to go lower before fog, higher before ice-heave. When a crack self-heals with fresh mineral deposition a millimeter a year, they are there to guide it with a fingertip, to coax the poured-frozen wall around a corner, to bleed a thermal capillary with a bone needle so the envelope holds. The engineers who built this no longer explain it in physics you would recognize, and neither do they. They keep it by ritual attention, by presence, generation after generation. The city grows around them as the caldera grows under them. New cracks steam. Old causeways sink an inch a year into warm mud. They move with it downslope, season by season, as one wall becomes too fouled and another, freshly grown, becomes preferable — exactly as the roost does.
+
+Their children you mistake longest for animals. Small, blind, almost hairless, they cling to the fur-mantles with hands and feet, mouths open to taste fog, making high clicking noises in play that mimic the moth-bats — not mockery, apprenticeship. In a world with no dawn to count, they learn to echolocate before they learn to walk straight, to find a mother by the particular low thrum of her chest, to go silent under an arch when the roost overhead holds its breath, to keep light off not as a rule but as a reflex, because light brings the screamers low and death comes on black wings.
+
+They do not look at you. They find you by the wrongness of your breathing — too fast, too high, too loud — and by the cold coming off your boots from beyond the envelopes, and by the chemical wrongness of soap and far-away green. An old one approaches, turns an ear to you, presses a warm, wet palm briefly to your sternum to feel your heart hammering at altitude. They do not speak in your range. You feel instead a low inquiry in your teeth, patient, unceasing. Stay close, it says without words. Stay low. Do not step where it is alive.
+
+By the third night you stop looking for people and start feeling for density, for warmth that holds its shape. Walls rising on all sides into fog and dark, white wings moving ceaselessly over like snow that will never land, black water seeping up through new stone, the whole basin humming in your bones — and among it, everywhere, these low, broad, sealed-eyed holders, moving slowly through the press of bodies, farming film, raking the dead, tending heat.
+
+No leaf, no blade, no green thing. And they are so thick in the dark you have to push through them to pass.
+
+The mountain is still making itself. The city is still making itself. They are still making themselves, wet and loud and crowded, and they do not hurry.

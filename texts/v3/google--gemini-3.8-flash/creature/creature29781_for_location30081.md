@@ -1,0 +1,37 @@
+In the troughs where the graphite runoff lies still, the first things that claim the warmth are not creatures of the surface, but the residue of the river that feeds the boilers three districts away. 
+
+The water enters the high-pressure system as brown canal wash, thick with silt, horse manure, and the cysts of riverbed life. Most of it is incinerated against the copper fire-tubes above, reduced to mineral crust and dry steam. But the blowdown washes the dead ash down here, and with it, whatever survived the heat in the form of spore or shell. In the lukewarm margins—where the black basalt sweats cold seep-water just inches from a boiling iron shoulder—these river-ghosts revive.
+
+They are flatworms, mostly, though unlike any found in the open canals. They have no color at all; they are the shade of lard left out in the rain, three inches long and as thin as a shaving of horn. Because they have no legs, they travel the greasy film on microscopic cilia, sliding along the slick basalt scalloping and over the flange-rims with a wet, rhythmic folding of their margins. They feed upon the scald-moss, stripping the tallow-pale rosettes down to the bare copper with rasps so fine they make no sound louder than the pop of a grease bubble. When the 20-minute accumulator stroke comes and the vault fills with scald, they do not die; they flatten themselves into the razor-cracks left by the dynamite, sealing their margins with an exuded slime of tallow and graphite that hardens against the steam like vulcanized rubber. 
+
+They are eaten, in turn, by the slugs.
+
+These are not garden slugs, but bloated, leathery things that entered the vault as eggs tucked into the straw lagging used to wrap the telegraph trunks. In the relentless, stewing heat, they have lost their pigment and grown thick-skinned, their hides ridged like the bellows of an accordion to dump body heat into the wet rock. They are four inches long, grey-black as the basalt itself, and blind. Their eye-stalks have withered to blunt, scarred knobs, but their senses are attuned entirely to the shuddering of the iron. When a pipe-saddle clangs with thermal expansion, they contract into hard, glistening buttons; when the cool water seeps down the rock, they gather along the wet line in dense, motionless rows, drinking the mineral sweat before it can boil away on the flanges.
+
+Between these things and the machinery lives the watcher.
+
+He does not have a name that is spoken down here, because there is no one to speak it to, though on the surface company rosters he is listed under a line-item for *Scour & Blowdown Inspection (Sub-grade).* He has been down here since the dynamite was still sweet in the rock. 
+
+He is not broad-shouldered. The vault would kill a wide man in a month, pinning him against the lagging until his shirts burned. This man is narrow, drawn out like wire, his ribs visible beneath skin that has the yellowish, waterlogged translucency of salt-pork. He wears no shirt—the heat would turn wet wool into a poultice that strips the flesh—only a pair of boiler-cloth trousers steeped in neatsfoot oil to shed the scalding condensate, and clogs carved from green ash-wood, strapped to his feet with lead-wire. Leather soles would rot in the grease-troughs within three turns of the mills; the wood chars on the bottom where he steps on the hot floor-grates, smelling perpetually of burnt timber, but it protects his soles from the iron.
+
+His ears are dead to the air, the drums long since driven in and healed thick from the pressure surges when the accumulator drops. He hears nothing of the steam's hiss, nor the *tick-tink* of the cooling bolts. Instead, he feels the vault through the ash-wood clogs and the palms of his hands, which are calloused into yellow, horn-like pads that can rest on a seventy-pound steam pipe for three seconds before the grease begins to smoke. 
+
+His lungs are the reason he cannot leave. 
+
+Down here, the air is nearly hydraulic—dense with steam, heavy with boiled lime, lard-oil vapor, and the sulfurous off-gassing of the moss. His bronchial tubes have adapted to the soup; they are lined with a thick, protective catarrh that keeps the scald from reaching the meat of his chest. If he were hauled up into the winter air of the foundry yard, the dry, sub-zero draft would hit those sulfur-scaled tissues like lye, causing them to seize and drown him in his own blood within ten minutes. He is an obligate creature of the blowdown now, as strictly bound to the humidity of the basalt vault as an eel to its sump.
+
+He lives in the blast-shadow behind the third expansion column. 
+
+There, a deep concussion fracture tore a wedge of basalt out of the wall, leaving a triangular hollow six feet deep and three feet wide. The cold seeps down the back of it in a steady, shuddering veil, while the front is curtained by the radiant wall of the iron cylinder. In that five-inch neutral zone between the frozen rock and the boiling iron, the temperature hovers at an even, stifling ninety degrees. 
+
+He sleeps there in an oilcloth sling hung from two steel pitons driven into the dynamite cracks. His bedding is dry waste—waste cotton used to wipe the engine cranks above, thrown down the street vents when it becomes too fouled for the wipers. He shakes the metal filings out of it, builds a nest that smells of old sweat and machine oil, and lies curled on his side with his knees drawn to his chin, rocking slightly with the 20-minute stroke of the hydraulic ram.
+
+His work is simple, small, and continuous. He carries an eight-inch box-spanner and a scraper made from a broken file. As he shuffles sideways along the catwalks—his back to the weeping stone, his belly inches from the lagging—he scrapes the scald-moss away from the gland-nuts before the mineral crust can freeze the threads. He watches the brass tell-tales on the steam-traps. If a trap sticks, the water backs up into the surface engines, and the surface engines are the god that feeds the rope down the grating.
+
+Twice a week, during the noon-shift pause when the mills above are quiet and the thrum drops an octave, a wicker hamper descends through the street vent on a tarred hemp line. It bumps against the lead telegraph tubes, spinning slowly in the thermal updraft. 
+
+He is always waiting beneath it. He catches it by its hemp fenders and drags it to a catwalk landing. Inside are his rations: loaves of heavy, sour rye bread that do not spoil easily in the damp; salt beef wrapped in grease-paper; tins of cheap tea; and grease-bricks for his tallow-pot. Sometimes there are tallow candles, though he rarely burns them; the red-orange filament bulbs give enough light to show where the rock ends and the hot pipe begins, and beyond that, he has no need to see.
+
+He does not write reports. When a packing gland fails or a pipe splits, he does not climb the ladder toward the soot-colored daylight. He simply takes a short length of scrap pipe and beats four times on the cold basalt wall—a signal that carries straight up through the stone foundations into the floor of the foundry office. 
+
+Then he retreats to his hollow behind the column, pulls the grease-rag over his face to filter the sulfur, and waits for the shudder in the soles of his ash clogs that tells him the pumps above have begun to throttle down. When the steam clears, he emerges to see what the blast has left behind, his skin white as the ferns, his eyes milky in the orange dark, scraping the grease from the rock with his file to make room for his feet.

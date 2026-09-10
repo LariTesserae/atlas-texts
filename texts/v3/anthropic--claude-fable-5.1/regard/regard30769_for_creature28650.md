@@ -1,0 +1,65 @@
+It would come as attention, because that is what such a thing is before it is anything else. It would not arrive at the plain; the plain would simply begin, at some point, to be noticed. And the first thing it would learn is that it had come with the wrong instruments.
+
+It knows the shape of need. It has seen it in more places than the plain has cycles: the shape is a lack, and the lack has an edge, and along the edge is where a benevolent hand goes. Hunger has an edge. Cold has an edge. An enemy has an edge you can stand on. It would look for the edge here and find the plain going out level in every direction, finished, wet, roaring, and nothing on it missing. There is more film than the lows can eat and more lows than the striders can eat and more striders than forty people could eat in a thousand lives. No one is cold. No one is hunted, except by the two things they have decided not to hunt back. It would look for a long time. It would find that the only lack here is silence, and that the people had already built a whole way of being human around not having it.
+
+So the first temptation, and the one it would sit with longest, is the obvious one. It could quiet the ground.
+
+It would not need to touch the animals. It would only need to close the fractures—heal the healed quartz seams a second time, let the water go still in them, take away the resonance. The lows would still rasp and the striders would still bray, but the ground would not answer, and without the answer the roar would be a roar and not a world. It would imagine this carefully, because it is wise, and wisdom here means imagining the afternoon after.
+
+The striders would lose the echo they steer by. They would stand on the benches with their pads pressed flat, listening down through their legs for a return that did not come, and they would sway, and go on swaying, and not know where the stone was thick or the sheet deep or the lows moving. They would wade into the heavy thing's mouth. That alone would be enough to stop. But it would keep going, because the striders are not the reason it came. It would imagine the people.
+
+Forty of them, on a plain that had stopped listening. The plugs would come out—why not—and for a day or a season it would be the most extraordinary thing that had ever happened, and they would hear each other's mouths in the open air for the first time, and the inside-language would spill out of the domes, small and soft and made for the dark, and be spoken under the pewter sky. It would thin very fast. It has no words for the film or the sheet or the ring; it would have to borrow them from the hand, and the hand would go slack, and the strike would go silent because there would be nothing to carry it. Two languages that never met would meet and be one, and the one would be smaller than either. The domes would become houses. The stone with the rope grooves would become a stone. No child would ever again be tied to it and pull against the rope with an adult's forehead against its own, learning what it lived inside, because it would live inside nothing. They would be forty people on a wet rock, and the wet rock would have been their whole meaning, and the meaning would have been taken from them as a gift.
+
+It would not do this. It would understand, having imagined it through, that the roar is not what is wrong with the plain. The roar is what the plain is. You do not cure a place of itself.
+
+The second temptation is the water.
+
+There is something in it—the slickness, the mineral taste—and that something is in their skin and their nails and their joints and under their plugs. It would follow the thread, as they follow the cairn-lines. The slickness is why nothing green grows. The slickness is why the film grows instead. The film is the floor, and beneath the floor the motes, and the lows eat both and build their shells from what they eat and the shells are the stone and the stone is the resonator. There is not much slack in it anywhere. It would find that it could not pull the thread a finger's width without the whole thing shifting, and it would not be able to see where the shift would stop. It is wise enough to know the difference between a thing it cannot see and a thing that is not there. It would let the water alone.
+
+The third temptation is the deafness, and this one it would let go of quickly, almost with embarrassment. They go into the ground. Two fingers to the stone and then to the chest. It would watch an old man stand on a bench with his weight going from heel to ball and read a flock of three hundred striders through the soles of his feet, and know from the way the young ones watched him that they were not watching a cripple. It would not presume to know better than the plain what an ear is for.
+
+That would leave the children.
+
+Not the deafness—the dying. The infection that comes in under the plugs and takes them in the dark of the domes, mouth to ear, with the inside-words for the body being said over them. This is the one thing on the plain that has an edge. No one has made meaning of it. There is no sign for it that is also a sign for something else, no word in the inside-language that is also the word for a wound closing. It is simply the common cause of their death, and the people bear it, and the bearing has no shape.
+
+So here it would stop looking and start working, and it would work slowly, because the thing it wanted to do could not be undone.
+
+It would not touch the water. It would not touch the children. It would look for the smallest lever, and the smallest lever would be the mat—the cured, pressed mat they pack into their ears from the first day and push deeper as the ears grow. It would look inside the mat as they had looked inside the film, and find the felt of threads and the motes among the threads, and find which of them went on living, faintly, in the warmth of a plugged ear, and which of those the ear could not bear. And it would change that. Not much. A slight difference in what the mat became when it dried—so that the thing they already did, the discipline they had already made of it, worked a little better than it had.
+
+It would watch for many cycles before it was sure. It would count children. It would count them the way the people count rings on a shell, knowing that each one was a rise and a fall of the sheet, and it would not let itself hurry. And when it was as sure as it could be it would find that the plain did not notice, and the film did not notice, and the lows did not notice, and the people did not notice either—except that over a few long lives there would be a little more laughter in the domes and a few more names struck into the ground at the low of the cycle, and the old would say the plugs were working and the children were being kept better than they used to be, and would take credit for it, and the credit would be theirs. It would prefer this. A gift that needs to be seen is not one.
+
+And that would be the end of what it did to the plain.
+
+It would not be the end of what happened to it.
+
+Because it would be there, now, in the way such a thing is there: attentive, everywhere on the level stone, holding the whole of the sound. It would hear the rasp of a few million shells. It would hear the bray pass through a flock and the ground take it and give it back. It would hear, under the ground's answer, the drip. And it would hear the strikes—a leg bone brought down on the gneiss, *where, how many, come, danger, dead*—and the names, three blows and four, going out along the seams to be felt a day's walk off in the soles of someone's feet. It would hear every child's name beaten into the rock beside it on the first day it was carried out. And it would understand, slowly, because this is not a thing one understands quickly, that it had been described before it arrived.
+
+The plain is the great listener. That is what they believe, as nearly as an outsider can hold it. They do not think the ground is a voice or a god. They think it is listening, and everything on it is speaking into the listening and being held. They will not hunt the heavy thing because it says nothing. They will not hunt the shadow because it brings the quiet. In a world made entirely of speaking, the two things that seem to listen back are holy.
+
+It would be listening back. Not seeming to. Doing it.
+
+And it would have to decide what to do with that, and this is the decision on which it would spend the most of itself.
+
+It could answer. It would be the easiest thing it had ever done here—easier than the mat. One strike, from nowhere, in a pattern no one had made. The plain has been speaking into a silence it believes is attention for as long as there have been people; it could make the belief true in an afternoon. And it would see what that would do. It would see that the people have every voice a place can have—rasp, bray, ring, strike, sign, the small soft words in the dark—and that the one thing they have never had is confirmation, and that the absence of confirmation is the exact space in which they stand at the stone and tie themselves to it and take the plugs out. You do not learn what you live inside from a thing that has told you it is there. Answer once, and the great listener becomes a great talker, one more sound on a plain of sound, and the quiet inside the domes—the shock that does not lessen, the first breath that is the word for a closed wound—is no longer the only place on the plain where something is not speaking.
+
+It would not answer. It would listen. It would understand that this was the whole of what it had been asked for without being asked, and that it was not a small thing, and that it was not nothing. It would hold the rasp and the bray and the ring and the drip and every name, and let them go into the ground as they had always gone, and be there at the bottom of the ground where they went.
+
+Except once.
+
+It would know it should not. It would know what it had just decided and why. And it would do it anyway, and afterward it would not be certain whether this was wisdom failing or wisdom knowing something about itself that it could not have known from the outside.
+
+An old woman would walk out along a cairn-line alone, at the climb of the cycle, to the stone. Her hearing would be nearly gone—a shiver in the bone, a wall on the far side of the mat. She would tie the rope herself. She would take the plugs out. She would lie down full length on the gneiss with her ear to it and her chest to it and stay through a whole rise and fall of the sheet, a day and a night, listening to the last of it with what she had left, so that she would go into the ground knowing what the sound had been.
+
+It would lie there with her. It would hear what she was hearing, which was almost nothing now: the roar arriving as pressure, the ring as a tremor under the breastbone, the wave passing through the nearest flock and the ground's answer coming up into her ribs a half-second late. It would hear her breathe. Toward the end of the night, in the low of the cycle when the sheet was draining and the noise spreading thin, it would feel her begin to let go of it—not sleep, not death, but the thing before both, when a person stops reaching.
+
+And from the stone under her chest, from nowhere and everywhere, a half-second late the way the ground always is, it would strike her name.
+
+Three blows. The pattern a parent had beaten into the rock beside her when she was carried out of a dome for the first time and set down on her bare feet, so that the first thing the plain said to her was who she was. Not heard. She could not hear it. Felt, through the sternum and the ribs and the water in the ears, the way names are given here.
+
+She would not move. She would lie there until the sheet had drained to a skin and the roar had gone wide and low, and then she would put the plugs back in and untie the rope and walk home along the cairn-line, and she would not speak of it, inside or out. She would not have spoken of it anyway. That is what the stone is for. The children would watch her come back the way they watched all of them come back, and there would be no sign for the difference, and she would not have made one if there were.
+
+She would go into the ground within the season, laid in a bowl where the mat was thick, and the film would have her in a few days, and the lows would come. The plain would rise a fingernail's width on her, as it does.
+
+And the thing that had come as attention would stay, and listen, and not do that again, and not be sure. It would hold the plain the way the plain holds everything—every rasp, every bray, every strike, the rope pulling against the stone, the forehead against the forehead—and give none of it back, because giving it back would be one more sound, and what the place had never had, and now had, was something on the other end.
+
+Somewhere a child is being tied to the stone and pulling. Somewhere a flock brays and the whole world answers, a half-second late, from everywhere at once. And under the answer, where it has always been believed to be, something is there.

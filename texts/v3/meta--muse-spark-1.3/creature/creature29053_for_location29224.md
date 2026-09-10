@@ -1,0 +1,37 @@
+Almost nothing lives here. That is the first honest count.
+
+Then you stay a little longer, and the count changes — not because there is more, but because what is here is so spread out, so slow, so thinned to fit the thin air that you were walking through it without seeing it.
+
+Start low, because everything here starts low.
+
+The black rosettes welded to the north side of the stones are not stain. They are lichen, and they are old in a way that makes the pavement seem hasty. Brittle as burnt paper, black to drink the morning cold before the sun takes it, they grow a millimeter a century and then stop to wait out a drought of a thousand years. They do not rot. Nothing rots here. They flake, they persist. Dead edges remain attached for eons, so a single rosette the size of your palm may be mostly dead ancestors holding a living rim. They live on rime that never melts — frost that lifts straight to vapor at touch of sun — and on dust. They need the dust devils the way a field needs rain.
+
+Out of the cracks, where dust has lodged and salt has cemented it, comes the wire-grass. It isn't grass. It's glass-clear and straw-yellow, a bundle of hollow needles that trembles instead of waving because the air is too thin to push it, only to pluck it. At dawn it stiffens white with rime that will vanish without ever wetting it; the plant drinks the vapor as it leaves, through pores that open for minutes only. It lives on static as much as sun. That's why it clusters in the needle-fields — not too close. Never within arm's reach.
+
+Under the interlocking mosaic of ventifacts, in the bone-and-rust dust between them, live the flicker. Rock-mites. You will never see one standing still. You see them as the sweepers see them: a prick of light as a glass back turns over between stones. They are the color of salt, the size of a rice grain, armored in silica they build from the fine glass the devils carry. By day they wedge under stone and eat lichen-spore that rains down grain by grain in total silence after two devils collide and explode into veil. By night they come up to lick the hexagonal salt curls for the trace of bound water in them. When a shadow passes they freeze. Which matters.
+
+Because the animal that leaves that three-toed stitch every few hundred meters — light, nocturnal, salt-licking — has learned to hunt that freeze.
+
+Call them stitchers. You will probably never see one in daylight. They are hare-sized but weigh almost nothing, hollow-boned, wide-footed, fur the white-grey of caliche so that by day when they wedge themselves into a crack and go torpid they are stone. At night their eyes open huge and amber to gather starlight, and they go out pogoing on long hind legs, barely touching: step step step, a dotted seam across the dust that the morning wind doesn't quite erase. They do not drink. They lick. The dinner-plate salt pans, the tinkling curls that lift with temperature change — they rasp those with long, dry black tongues for magnesium, for the ghost of frost trapped in crystal, and they snap up rock-mites with a flick too quick for the thin air to carry. By day they are gone. If you find one dead, it will not have rotted. It will be a mummy, salt-cured, preserved with its whiskers intact, lying soft-shouldered like the boulders for decades until wind unwraps it.
+
+And above them, all day, the sweepers.
+
+At first you take them for gulls lost a billion years inland. White, gull-sized bodies. Then you see the wings and you revise: twice too long, narrow as blades, jointed in a second elbow that shouldn't work but does. They never flap. They can't. The flight muscles are gone to ribbon; they are obligate soarers, born to ride the Table's own violent weather. They are launched in the morning off the low ghost-swells — those 30-meter swells that were once Himalayas — and they do not land again until dark. They ride and ride in the updrafts, circling without sound in air too empty to carry sound, watching the pavement for that flicker.
+
+They hunt with their shadow. Or rather, with its lateness.
+
+When one passes overhead its shadow crosses you a half-second late. Only here. Only a little. Light gets tired in this thinness, or time slips near the needles — your watch does the same, stopping near them then resuming three seconds fast, hairs standing up. The sweepers live inside that slip. They fly slightly ahead of their own darkness. The mites below see the shadow coming and freeze a half-second too late, mid-flicker, lit. The stitchers below have learned the opposite lesson and freeze early. It is a whole ecology built around a delay.
+
+They never land where you can find them. At dusk they drop out of the boil, fold those impossible wings — fold and fold again, like closing a fan made of paper — and wedge into north-facing crevices, under overhangs of desert varnish, white turned to grey. They go still enough that frost forms on them and lifts off them in the morning without wetting them. They breathe once a minute. Eight degrees is warm enough for them; they keep a salt-hot blood that barely cools.
+
+Birds will not fly over the needles. Sweepers will not either. They will circle them at a reverent distance. Because the needles are the other residents, and the oldest.
+
+Three to four meters tall, dark as smoked glass, slightly too narrow to be quite in focus. They cast two shadows, one that moves with the sun and one that doesn't. Around each one the air shivers even when there is no wind. Dust lifts in a perpetual slow fountain and falls back without ever touching them. Small stones orbit at ankle height, an inch off the ground, clicking. Put your hand near and your hairs lift; your watch stops.
+
+No one built them recently. Lichen grows over the fallen ones, which lie broken and still somehow upright in pieces. They are older than the pavement. The engineering in them is not engineering anymore — it is weather.
+
+They are not alive the way lichen or sweeper is alive. They do not eat, they do not breed. But they live here in the sense the Table lives: they do work. They make updrafts. They make devils. That is why the devils, born out of nothing, are not random — they lean toward the structures, are born near them, die near them, carry salt and spore and fine glass from one to the next in humming columns that make no hum. The needles are shepherds of wind. At noon you will sometimes see starlight in them, a faint prick even in daylight, as if the glass is thin somewhere else. Sometimes one will be gone when you look back, leaving only a clean circle of swept stone and a pillar of dust standing where it was, confused. An hour later it is back. Or another is there. It is difficult to census them because they do not fully stay.
+
+At night, across the vast dark, they tick — a single, soft, glass tick you feel in your teeth rather than hear — all across the floor, unsynchronized, like cooling stones. The grass listens. The sweepers, folded in cracks, listen. The stitchers pause mid-hop and listen. Something is stirring, and has been stirring for longer than mountains.
+
+That is who lives here: a black crust that waits, a glass grass that trembles, a flicker under stones, a light night-walker that sews its path in threes and licks stone for water, a white soarer that lives ahead of its shadow, and the tall dark things that never quite stay, still doing their long, inexplicable work of keeping the sky from ever finishing — while the ground beneath them finished eons ago and watches.

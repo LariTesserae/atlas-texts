@@ -1,0 +1,45 @@
+What arrives first is not the power but its attention, and the tableland receives attention the way it receives everything: it beads, briefly, and then it is gone into the stone.
+
+The power notices this. It has looked at a great many places, and most of them turn toward it — even the ones with no eyes lean, a little, the way grass leans toward a light. The tableland does not lean. The fog comes over the rim at the same hour, the ten thousand breaths go in and out, the drifters rise, and the attention hangs above all of it like one more thing without a shadow. This is the first piece of information, and the power is wise enough to take it as information: *here is a place that has already been found by everything it is going to be found by.*
+
+Still, it is benevolent, and benevolence has questions, and it puts them in the order they come.
+
+*Are they in pain?* This is the one it must ask first, because everything else waits on it. It looks into the nearest animal — into the folded legs that have not unfolded in a season, the small head pressed to the rock, the three or four meals a year. It knows what hunger looks like from inside and it looks for it. What it finds is not hunger. It is something closer to the condition of a stone that has been in a river long enough: not the absence of want but want that has been worn to the same shape as its satisfaction, so that the mouth at the edge of the clearing and the lichen closing toward it are not two things straining at each other but one slow event seen from both ends. The animal is not enduring. It is being the pace it is. The power has seen suffering that looks like stillness and it knows the difference, and this is the other thing.
+
+*Did they choose it?* Harder. The power goes down through the arrangement — into the long-toed people on the backs, the shelled ones, the dust — and asks each layer, in the way it can ask, whether it would rather be elsewhere. The question does not land anywhere. Not because it is refused but because there is no *elsewhere* for it to point at. The small people cannot want the next back; the next back is the color of the edge of the world. The power considers, for the space of a breath, showing one of them. Carrying it, gently, two feet. It would be so easy, and it would be the first thing the tableland had ever been made to see that it had not grown toward on its own, and the power sets it down. There is a soft grey weather already doing the work of stirring, at the speed the place can bear. Anything faster would not be a gift. It would be a wound in the shape of a gift.
+
+*What about the people?*
+
+This one it does not set down so easily. It turns and looks back along the time of the place — it can do this — to where the grooves were made. It watches a figure come up over the rim from the white with nothing in its hands. It watches the hundred yards walked out and walked back, out and back, for however long it took a foot to mark a rock that ten thousand animals cannot mark. The power has attended to enough grief and enough thinking to recognize a pace, and this is one. It does not get to know what was being paced out. The face does not turn up. Whatever it was, the person carried it to the one place on offer that was wide enough to set it down in, and set it down, and went to the rim for stones, and made a ring the size of a body, and lay in it, and the fog came over in the morning and they drank it, and they lay there.
+
+The power asks whether someone, somewhere below the cloud, is still waiting for this person. It could go and look. It could carry back a word. It sits with this a long time, by its own measure, and what it comes to is this: they came with nothing in their hands. Not even a stick. A person who intends to go back brings a stick. These were people who knew what the tableland was for and walked up into it on purpose, and whatever they left below the white, they had already answered for it before they climbed. The power is not the last thing they needed. It is only the first thing that has arrived since, and arriving late is not the same as being called.
+
+And then: *the young.* Because a benevolent thing cannot look at ten thousand of anything and not ask where the small ones are.
+
+Here it finds the answer the writer of the place could not, because the answer requires watching longer than a person can. So it watches. This is the first thing it does that no one has done before, and it does it the way the tableland would want: it lets a year go by in a minute, and a century in an hour, and it does not look away.
+
+It sees the spiral. From high enough and fast enough the arrangement is not still at all; it is a slow galaxy of pinkish stone turning on itself, and the turning has a grain, and the grain is the memory of where the lichen was thick a thousand years ago. It sees the ripple — a foot moves out on the eastern edge and the settling travels across forty miles of bodies like a hand smoothing a sheet. It sees a hummock of bones go grey and then crusted and then round. And it sees the thing it was looking for. On a certain morning, on a certain rounded hummock that was a skeleton once, the drifters come down at dusk and in the morning do not rise. A few. Then more. Over years the hummock thickens where they have settled, and the crust on it is not bone-crust anymore but fur-crust, faintly giving, and one dawn when the fog comes over, the whole low shape takes a breath.
+
+So that is how it is done here. Stopping and beginning are the same act, run so slowly that from inside a life they look like two. The bones were never an absence. They were the ground being got ready. The people who lay in the rings did not become the animals in some grim way and did not fail to; they lay down and the tableland did to them what it does to everything that stays, which is the only thing it does, and it takes exactly as long as it takes.
+
+When the power has seen this it stops asking questions, because it has run out of the kind that have answers, and it is left with the other kind, which is: *what does benevolence owe a finished thing?*
+
+Not rescue. There is nothing to rescue it from.
+
+Not improvement. The plateau will wear to nothing in the end and go into the white, and the power could hold it up, and to hold it up would be to say to a river delta that it has spread itself too thin. The tableland is a place for being ground. Holding it up would be the one unkindness.
+
+What is left is smaller than either and harder. It is to have been seen, once, by something that knew what it was seeing. And it is company. And it is — the power turns this over, and finds it is true — to be one more place.
+
+So it goes to the eastern edge, where the slab is. It has noticed something about the slab that the writer of the place noticed too: it is the only surface on the tableland a person could put their back to, and the person who set it up did not put their back to it. They lay down instead. The slab has stood for all this time waiting to be leaned on, and no one has, and this is the one small unfinished thing on a finished plateau.
+
+The power sits down with its back against it.
+
+It does not lie down. That is not what it came for, and it is not tired in the way the people were tired. It sits, the way a person sits at the end of a long day facing a field they have no intention of working, and it looks out across the whole arrangement to where the horizon darkens and gives out. It feels the stone at its back, cool on the lee side where the lichen is the shape of an animal's breath. It lets the fog come over it in the morning and bead on it and it does not brush the beads away. It lets the drifters settle on its shoulders at dusk and go up from them at dawn.
+
+It stays. It is very good at staying. This is the whole of what it does, and it is not nothing, and it is not much, and it is the size of the place.
+
+In time — it is not in a hurry to say how much — it is the color. The small long-toed people from the animal that lies in the hollow at the slab's foot come up over the rim of a knee, which is a journey, and find a new country, and stay. The shelled ones come with them. The dust. On quiet afternoons a foot moves, far off, and the power feels it in the stone and eases by a hair, and the ten thousand feel the easing, and settle.
+
+It keeps one thing back, and only one. When the last of the rock has gone into the white — the power can see that far, though it does not look often — it intends to remember the color. Not the place; the place is meant to go. Just the exact pale reddish warmth of it, the one shade of thing looking at itself. Someone should carry that. Everything else here is allowed to be ground.
+
+And so nothing comes to the tableland to change, and the power is no exception. It came here and stopped, and stopping takes a very long time, and while it is being done the fog is enough.

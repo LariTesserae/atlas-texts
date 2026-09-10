@@ -1,0 +1,42 @@
+The things that live among the spires do not hurry, because haste requires a density of air that does not exist here. Speed burns oxygen, and oxygen at twelve thousand meters is a private currency, held inside pressurized lead chambers or hoarded in the spongy, hyper-developed tissues of things that have forgotten the lower world.
+
+Closest to the ironwork are the tong-scavengers, which the drum-dwellers call simply *tongs* or *the pinch*. They are not mechanical, though their carapaces are so laden with iron oxide and zinc crystals that they ring like dropped spanners when struck against a beam. They are crustacean in their lineage, or something that parted ways with the crabs before shells learned to be calcium and chose iron instead. They possess six segmented limbs tipped with hardened manganese chisels, and two heavy, opposing mandibles that do not chew, but shear. 
+
+They spend months traversing a single forty-foot section of pipeline. Their existence is an endless, microscopic grazing: they shave the blooming crusts of zinc carbonate from the galvanized surfaces, their mouthparts making a tiny, dry *scrit-scrit* that can only be heard if one presses a gloved ear directly to the warm metal. They have no eyes; in a sky so pale and violet, where the sun burns the retinas without warming the air, sight is an expensive liability. Instead, they navigate by the thermal gradients in the iron. A cooling strut is a path down; an overheating rivet is a warning. When two of them meet on a narrow cable, they do not fight; they simply lock their limbs together and wait. Weeks may pass before a shift in the wind or a microscopic difference in grip causes one to yield, releasing its anchor to swing on a tether of viscous, fireproof gut until it catches a lower tier.
+
+Higher up, where the cables disappear into the blinding white light of the upper needles, live the flat-skins. 
+
+They are the birds that do not flap. To look at them from below is to see a scrap of roof-felt torn away by a gale, except that they never descend into the sulfur mist below. Their bodies are wide and flattened, no thicker than a man’s hand, ribbed with light, hollow cartilage that bends under the violent thermal shears rising off the volcanic vents. Their skin is slate-gray, hairless, and dusted with powdered sulfur that keeps the sun from parching them to leather. They do not have beaks; their mouths are broad, horizontal slits set on the undersides of their bellies, lined with filter-combs. They feed on the steam itself—or rather, on the chemosynthetic spores and mineral mists that boil out of the fissures before the dry air can disperse them. 
+
+When a flat-skin nests, it does not build. It glues itself to the sheer face of a basalt needle using a hardened excretion of iron silicate, remaining motionless for seasons at a time, its broad, rib-stiffened flaps shivering in the drafts like sheet metal. They do not sing; they lack vocal cords. But when a thermal column collapses suddenly, an entire cluster of them will vibrate their ventral ribs against the stone in unison, producing a dry, clicking hum that sounds like a hundred telegraph keys tapping into the rock.
+
+Between the wild minerals and the cold machinery are the people who tend the manifold.
+
+They are unmistakably human, but they have been altered by the altitude and the heat until they seem made of the same gray-brown, unpolished stuff as the platforms. They are broad-shouldered and short-limbed, with rib cages like beer casks, expanded to double the volume of lowlanders to draw what little thinning breath their crude air-scrubbers allow. Their chests do not rise and fall with the quick rhythm of the plains; they breathe with an agonizing, piston-like slowness, taking half a minute to draw an inhalation and another to let it hiss out through pursed, cracked lips.
+
+They do not go bare-skinned onto the gantries. To expose flesh to this air is to invite the moisture to boil instantly from the pores, chilling the skin to frost even as the rock below roasts the soles of the feet. When they leave the lead drums, they are clad in suits of heavy, vulcanized tallow-canvas, quilted with mineral wool and weighted at the ankles with split-lead shot to counteract the light-headed vertigo of the drop.
+
+Their faces are completely hidden behind masks of hammered lead-plate. For eyes, they have two thick plugs of yellow selenite crystal, set into grease-packed brass bezels; selenite does not crack under sudden thermal changes, though it clouds with age, so that an elder tender sees the world only as shifting, butter-yellow masses of rock and dark lines of cable.
+
+Because their voices cannot push through the low-pressure ether, they are functionally mute outside the drums. They communicate along the gantries through *tapping*. Every tender carries a three-foot bar of hardened copper with a heavy, weighted head. By striking the suspension cables, the pipeline joints, or the rock bolts, they send sharp, metallic pulses that run for miles through the frame of the city. An experienced tender does not listen with his ears; he leans his copper bar against his chest-harness, feeling the vibrations pass through his breastbone directly into the marrow. 
+
+Through this telegraphy of iron, they know everything that matters: 
+A three-stroke roll followed by a long, dying sustain means a counterweight in the Western Chasm has slipped an inch on its chains. 
+A dull, wet thudding that repeats every eleven seconds means a steam-collector has salted over and is beginning to pressurize toward a rupture. 
+They know who is walking fifty tiers below them by the weight of their tread on the zinc decking.
+
+Inside the pressurized drums, tucked into the dark notches where two spires lean together like drunkards, their life takes on a thick, tallowy intimacy.
+
+The drums are lined with lead to deaden the groaning of the rock. Inside, the air is kept heavy—pumped full of dense, lukewarm nitrogen and recovered water vapor until it feels like the inside of a washhouse. Here, they strip off the canvas suits, revealing bodies that are hairless, pale, and marked with the white, shiny rings of old steam-scalds. Their skin has the gray, waxen cast of salt-pork; their teeth are worn flat from a diet of coarse algal cakes grown in the condensation sumps and dried strips of flat-skin breast, which tastes of kerosene and salt.
+
+They speak in low, reedy baritones, never raising their voices. In the drums, to speak loudly is considered a sign of panic or impending madness; sound must be conserved, like oil or water. Their language is stripped of verbs of horizontal movement. They do not speak of *going toward* or *coming from*; everything is *cast up*, *lowered*, *held*, or *sheared*.
+
+A child born here does not learn to walk on flat ground. Their first steps are taken on curved iron ribs over drops of three thousand cubits, tethered to an overhead stay by a brass runner that clicks along behind them like a beetle. They have no concept of soil. Stone, to them, is not earth; it is an active, rising force—a slow, black fluid that freezes into needles when it meets the sky. They treat it with the cold respect a sailor has for the sea, watching the fresh fractures for the faint, hair-thin lines of white heat that indicate a new spire is swelling up from the roots to crush their catwalks.
+
+They do not bury their dead. There is no earth to dig, and wood for a pyre does not exist. When a tender dies—usually from the "froth-lung" that comes when a suit seal splits at high altitude, or from the simple weariness of a heart that has pumped against low pressure for forty years—they are stripped of their copper bars and their lead shot. 
+
+The body is carried to an open outrigger facing outward toward the sea of basalt teeth. There, in the ink-black shadow of a needle where the sun never touches, they bind the corpse to an iron plumb-line and lower it into the sulfur clouds five miles below. 
+
+They do not lower it quickly. The winch, geared down through sets of greasy bronze cogs, turns with the same geologic patience as the rest of the works. It takes three days for the line to play out completely, the cable thrumming softly under the weight, until the cold iron weight at the end touches whatever floor exists beneath the yellow vapor, and the tension goes slack. 
+
+Then they cut the cable, weld another link onto the spool, and go back to the valves.

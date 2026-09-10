@@ -1,0 +1,27 @@
+High up, where the air is already thin enough to make your head swim, there is a place you could cover with both hands.
+
+From any distance it is nothing. A young cone of cinder and clinker on a high ridge, black against a blacker night. No trail leads there. No hut, no cairn, no pipe, no wire. Nothing has been built and nothing has been broken. The rock is too new to have learned how to be landscape yet — sharp, glassy, vesicular basalt, edges that will cut a glove, slopes that still slump under their own weight. It is pre-formation, raw geology. Give it ten thousand years and wind and ice will carve it. Now it is just piled heat, exhaled and frozen mid-breath.
+
+You have to kneel to find it. Between two welded slabs, where the cone cracked as it cooled, there is a mouth no wider than a fist. The outside night is cold with altitude. The mouth is not.
+
+Put your face near and the heat comes up in a dry lift that dries your nostrils instantly. No steam. No water. That is the first rule here: there is no water to spare. Not a seep, not a puddle, not a damp stain. The stone sucks it out of you. What should be steam is just hot, mineral air, smelling of struck matches and hot iron and dust baked clean. Your breath comes back to you parched.
+
+Inside is dark — not shade-dark but sealed-dark. A bubble left in the lava when it paused, a little oven-room, perhaps as big as a helmet, perhaps as big as a chest. The walls still hold the day's deep heat and the mountain's deeper heat. They give off the faintest red where the cracks go down, not light enough to see by, only enough to know black is not uniform. You cannot stand in it. You cannot even turn your head in it. It is a hidden scale, an intimate room embedded in tons of mountain. Maps will never know it.
+
+And it is full. That is the shock of it.
+
+There is no room between presences.
+
+At first, in the dark and heat, you think the walls are moving, that the stone itself has a nap that bristles. Then the red crack-light catches an eye-shine, a leg-joint, a wing-case, and you understand: the entire interior is upholstered in life. Thousands of them. Small, black, lacquered lava-crickets, each the length of the last joint of your finger, packed shoulder to shoulder, leg over leg, antennae over backs. On top of them, more. In the folds between them, paler, smaller things — mites riding the crickets, springtails working the gaps. The ceiling hangs with them. The floor is them. There is no bare rock to put a fingertip down without touching a warm, ticking body.
+
+Nothing green lives here. There has never been a leaf, a moss, a lichen crust even. The world is mineral. What the crickets eat is what the wind and the heat bring: fine ash-fall, wind-killed midges from valleys far below lifted up by daytime thermals and dropped dead into the crack, sulfur-fixing films, each other's shed skins and dead. They chew stone-dust to get at the film. They chew each other when they must. It is a complete economy without a single plant in it, running on fallout and chemistry and patience.
+
+And it is loud. Impossibly loud for a room you could hold.
+
+Part of it is them — the dry rasp of ten thousand tibiae against wing-cases, a continuous metallic chirring that in this tight stone drum does not sound like insects at all. It sounds like riveting, like a shop floor heard through a wall. Part of it is the mountain underneath, breathing through the same throat. At intervals too slow to time without a watch — long, patient, weak gradients — pressure builds down below and releases up through the bubble in a low, hot exhalation that makes the crickets ripple and resettle like grain on a shaking sieve. Roar, then ticking. Roar, then ticking. If you press your ear to the slab outside, your skull fills with it: a boiler-room drone, a piston without a piston rod, bellows without leather.
+
+No one made this engine. That is the second rule. There are no constructed structures, no made artifacts. Yet everything here works like machinery at scale. The heat-exchanger walls. The valve-crack that opens and closes a fraction with thermal expansion. The conveyor of bodies that carry heat and nutrients from wall to wall simply by crawling over each other, by living and dying in shifts. Production without a factory. Electrified air without a wire — the dry rubbing of so many chitinous bodies in thin hot air raises a faint crackle you feel in the hairs of your forearm, a spark now and then when an antenna touches stone.
+
+It changes slowly, if it changes. A cricket lives, molts, is eaten. A sulfur crystal the size of a pinhead grows in a cool corner over a season. The bubble itself is still shrinking as the basalt continues, year by year, to cool and tighten — a millimeter a decade, patient process. The erosion that will one day gut this cone hasn't really started. The edges are still embryonic, unsoftened. The room will hold until the mountain shifts and pinches it shut, or cracks it open to the cold.
+
+If you stay with your hand over the mouth, blocking the faint red, the dark becomes absolute and the packed heat and noise become your whole world: hot dust on the lips, hot mineral reek, the feeling of hundreds of minute feet through rock vibration alone, the deafening, dry, industrious shudder of a tiny, untouched, fully occupied furnace high above the world, working in the dark with no water and no light and no need for either.

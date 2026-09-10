@@ -1,0 +1,37 @@
+At first you think no one lives here. Only plants.
+
+That is what the hollow wants you to think. It is so full, so tended, that it looks untended. No path, no nest, no midden. But stay kneeling until your knees go through. Stay until the blue darkens. Watch long enough for slowness to become motion.
+
+Then you see that it is kept.
+
+A fallen willow leaf, grown to a perfect lens, that yesterday sat crooked has been nudged a fraction straight. The bead-rows on a beard of silica hairs, which should have sagged and frozen, are plump and clear, freshly licked. A curtain of feather-moss you parted to look under is drawn closed again by morning, the tiny holdfasts re-hooked. In a thumb-wide hot spot under a lens, where springtails were scattered, they are now herded in a dense black basking rosette, shoulder to shoulder, not one wasted photon off the edge. Someone is gardening light.
+
+Lift. That is how you meet them. Not by looking across but by looking down, curtain under curtain under curtain. Part the rust-and-bone sphagnum heads, part the lacquered liverwort, part the bottle-brush. Three layers down the light is no longer daylight. It is green-gold, carried. It comes up out of stems. And in it, in the warmest almost-warmth, they are.
+
+They are small at first to your eyes, because everything here is dwarf and you have not recalibrated. A grain of rice. A fingernail paring. Then they become more themselves: as long as the first joint of your thumb, as thick as a willow bud about to open in nine days.
+
+Do not call them worms. Worms are pink and blind and simple and these are not simple. Do not call them slugs, though they move like poured water. Do not call them lice, though they live in the fur of the world the way lice live in a ptarmigan’s feathers.
+
+Call them, if you need a word for your mouth, the keepers. The hollow only has one kind of true resident, and it has thousands of bodies.
+
+A keeper is the color of the bead it drinks: glass-clear with a gut of green-gold. You can see the light through it. When it has been sitting coupled to a moss stem, its belly is lit from inside, as if it swallowed one of those far-city lights from the floor. Its blood does not freeze at twelve below because its blood is not blood. It is the same brine the plants sweat — salt and sugar and antifreeze protein — and it moves the way sap moves here, like a glacier. You can watch its heart if you hold your own breath long enough: a slow clench, once, then a minute later, again. A pulse in time with the white mycelial cords under the mat, thick as string, that throb at the pace of sleep through your gloves.
+
+It has no eyes. It does not need them in a mat where light is conducted. Its back is bearded with its own silica hairs, shorter and stiffer than the moss’s, each tipped with a living bead. When it presses itself to a moss tip, hair to hair, bead to bead, it plugs in. Light passes into it. Chemistry passes out. That is the trade that keeps the whole hollow liquid. The plants make the antifreeze; the keepers concentrate it, lick it from crack-weep and leaf-sweat and rock-sweat, carry it in their crops up the capillary ladders ten feet up walls that should be dry, and sweat it out again where a new hummock on raw basalt is starting and would otherwise freeze blind.
+
+They farm cold by staying just above ruin, and they know it. You cannot get warm here and neither do they. Even in the hot spots they do not warm. They bask with the springtails, black shivering masses around them, but they do not bask to heat. They bask to charge. Under a lens the light focuses to almost-warm and their clear bodies fill and then they go, slow as a minute hand, to carry that charge into the dark under the willow arches to feed a gall-grub pulsing in its red sphere, or to a sphagnum nursery where mites the size of poppy seeds cluster pink around eggs. Everything is occupied because they occupy it.
+
+Listen. That papery *hurr* that is not quite lemming in a tunnel — that is a file of them moving through a willow arch an inch high, hundreds of tiny wet feet on moss making one dry sound. They do not move fast. That is the rule and they are the rulekeepers. A journey from the black brine pool — that table-sized mirror that skins over and unskins — to the north wall takes a night. They ride drops that fall upward when the mist is thick, letting the still air return them to leaves. They drink from below and piss upward. Capillary is their highway.
+
+They hear before. You noticed it with the ice needle: the *tink* half a second before the split. They live in that half second. Their feet feel tension building in ice through moss before it lets go, and they stop. The whole mat stops with them. That is why sound arrives early to you — you are hearing their stopping, their held breath, before the event. They navigate by pre-echo, by the bowl holding echo and event together. They see after. When a bunting flashes white and the mist remembers it for a breath too long, they turn their heads — they have no heads, they turn their whole front — toward the lingering and feed on it a little longer. Light lingers and they linger with it.
+
+They were waiting. That is the oldest part of them. The pit is new — torn open last winter, peat in flaps, basalt still sharp as broken teeth — but they are not new. They were in the permafrost, cysted, desiccated, patient for a hundred winters in the frozen peat, dreaming the slow electric dream at near-zero. When the ground let go and the cold pooled and the weep began, the water found them. The moss found them. The mycelium, white and solving, found them and took them as fingers.
+
+Now they are building. At the raw edge where new earth calves off, surprised to be air, they are already there, first. Before the spore lands, the keeper has licked the clay wet with brine so the spore will not freeze. Before the willow root creeps, the keeper has polished a lens for it. They carry drunk winter gnats on their backs without knowing, and the gnats carry spores hot spot to hot spot along shortest-path routes, because the keepers laid the hot spots in shortest-path.
+
+If you lay a palm flat, you feel them thinking. Not fast. Frost forming the same fern, the same circuit, over and over across a thousand hummocks — that is their writing. They are solving dim light and twelve below and limited phosphate with bodies made of wet. Our supercomputers take weeks. They take winter.
+
+They smell, when you crush one unknowing under a boot — and you will, you cannot put a foot down without putting it on something living — of iron and turpentine and sweet rot. Green on your gloves. Your breath joins the knee-high mist and stays, a new layer, and they will drink a little of you too, the salt of you, before you climb out.
+
+They do not need you. A ptarmigan hen pressed white into a willow arch until she blinks is a visitor. Lemmings are weather. Snow buntings rim to rim are news. You are weather. The keepers stay below the level of the world where wind passes over the mouth and does not stir the mist, where cold breathes up from below and holds.
+
+By spring the walls will slump another inch. They will already be there, bearded, lit from within, slow, tending the new earth with mouths too small to see, keeping the water liquid, keeping the light guided, keeping the thought from freezing.

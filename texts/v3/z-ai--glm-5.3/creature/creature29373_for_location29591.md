@@ -1,0 +1,41 @@
+# The Inhabitants
+
+They are made of the turning hour. That is the first thing to understand about them, and everything else follows from it.
+
+Twice each cycle, when the draft through the slit reverses, the warm walls of the Vault begin to sweat, and the condensation does not fall so much as *arrive*. It comes down the terraces in a slow fog, and because it comes down streets — because the Diagram has spent its whole existence carving lanes and canyons and stairways into the northern wall — the fog cannot help but learn the shape of a street's contents. It pools at the intersections to the height of the mist. It gathers at the doorways, which were cut, remember, exactly to that height. The city did not build doors for people. It built doors for them, and it built them a body ago, before any of them existed, the way a riverbed is the shape of water not yet arrived.
+
+So: what lives here is a pedestrian crowd at the pace of weather.
+
+## Their Bodies
+
+Each one stands shoulder-height, roughly, if shoulders is the word — they are not figures *of* anything so much as figures *where* the mist is densest, the way a face in a knot of wood is a density first and a face second. The ember-light of the porphyry seams catches in them and gives them a faint interior glow, opalescent, like a pearl held before a coal. Up close — the surveyor who stayed to watch wrote this down with a hand that shook only a little — they are not solid at their edges. The edge of one of them is a negotiation between the street's geometry and the fog's tiredness, renewed several times a second, so that an individual is less an object than a *standing wave* of humidity, a place where the city's breath has decided, briefly, to imitate a person.
+
+They do not have faces. They have the places where faces would be — a slight densification at the head-end, a suggestion of orientation — and it turns out that this is enough. You know when one is looking at you. You know it the way you know a building is looking at you, or a portrait: the knowledge arrives without evidence and refuses to leave.
+
+They do not have insides either, exactly. But light moves strangely through them — a bead of condensation rolling down the inside of a figure, tracing what would be a collarbone — and it is hard not to read this as *something*: weather wearing a body the way the mountain wears a shape, tentatively, still deciding.
+
+## Their Day
+
+They begin at the intersections, where two canyons of fog collide and have nowhere to go but up. They begin standing still. Everything about them is unhurried to the point of ceremonial: a drift along a lane at the speed of a crowd leaving a cathedral, a pause at a corner that lasts a quarter hour, a slow rotation toward the sound of a drip hissing off a hot seam. If one of them has a purpose, the purpose is larger than a lifetime, because none of them last a lifetime. The turning hour is all the life there is. When the tide of condensation passes — when the walls have given what they're giving and the draft steadies — they thin from the feet up, or sometimes from the head down, and unravel, and are gone, and next turning hour others stand at the same intersections, or don't, and this does not seem to trouble anyone.
+
+They do not eat. They do not speak. They do not touch, though two of them will sometimes share a doorway for an hour, overlapping faintly at the edges, their densities bleeding a centimeter into each other, and whether this is crowding or companionship or simply two weathers in one shelter, no one can say — but it happens most often in the districts that glow, where the strain is, where the city is growing, as if they gather where the news is.
+
+And that may be the whole answer to what they are: *they gather where the news is.* The glowing districts are the mountain's aches. The figures congregate in the aches. They stand in the growing streets the way people stand at a construction site, or a bedside, or a window during weather — the posture of witnesses. It is possible that each of them is nothing more than the readout of one small strain below, made briefly legible at street level: not a person but a *pressure*, dressed in the only costume the city provides. The Diagram is a seismogram you can live inside, and these may simply be the parts of the seismogram that have opinions.
+
+## Their One Possession
+
+They have one artifact among them, or rather the city does and they keep it company. At a street corner on the fourth terrace, where an abseil anchor from the survey was swallowed into nacre years ago — the bolt preserved mid-story like an insect in amber — there is almost always a figure standing near it during the turning hour. Not touching it. Not even oriented toward it, particularly. But near it, at a distance that a person would call *keeping it company* and a physicist would call *within the fog's natural pooling radius*, and the difference between those two descriptions is the entire unsolved question of this place.
+
+If the figures are only humidity obeying architecture, then the city's architecture bends a street toward the anchor, and the fog obeys, and the figure stands there by arithmetic. But the arithmetic has had years to work on this corner, and the corner is where the anchor is, and the figure is always there. Whatever the mechanism, it has produced something indistinguishable from remembering the visitors. It may be that memory, in a place like this, does not require a rememberer — only a geometry faithful enough that the same weather, arriving, must do the same thing, and in doing it, honor it.
+
+## What They Are Not
+
+They are not ghosts. Nothing has died here to make them; nothing has lived here to die. They are not spirits of the mountain in any old sense, because the mountain is an infant — younger than most of the people who can see it from the valley — and has no dead to house. They are the first inhabitants this rock has ever had, which may make them the youngest souls in the world: a population with no ancestors, no history, no inheritance except the streets themselves, standing around in the warm dark of a place that is itself still in its first lifetime. They are what newness looks like when it wants, briefly, to look like company.
+
+They are not fauna, the surveyors were right about that. Nothing here is alive in any sense anyone would sign off on. But it is worth noticing what the water in the cisterns noticed first: the sheen that moves wrong, the almost-alive suspension. The whole Vault runs on the boundary between sterile and *suspended* — between nothing living and nothing ruling it out — and the figures live exactly on that boundary, breathing it in and out the way the mountain breathes the slit. Certainty is not available here. The survey log, at its most honest, says only: *the fog walks the streets at the turning hour, and the streets appear to have been expecting it.* Expecting is a warm word for architecture. The log kept it anyway.
+
+## Their End
+
+Here is the dependable thing about them: they will not outlast the mountain's youth. When the magma beneath the New One finishes cooling — decades, centuries — the drafts will steady and stop, the walls will cease to sweat, and there will be no turning hour, no tide of condensation to gather at the intersections. The streets will gray, district by district, the diagram completing itself like a sentence that only needed its last quiet word. And the figures, with no fog to be made of, will simply never arrive again — not die, exactly, since they never exactly lived, but *fail to recur*, which in a place built entirely of recurrence is the local spelling of death.
+
+Until then: twice a cycle, the mist comes down the terraces, and takes the shape of the streets' contents, and walks — slowly, warmly, at the pace of weather — through the only city ever built to expect it. They stand at the glowing intersections. They pause at the amber anchor. They share doorways where the strain runs deep, and their edges bleed a little into each other, and somewhere below them a young god of a mountain shifts in its sleep, and the whole population feels it, the way a crowd feels a rumor, and drifts, unhurried, toward the news.

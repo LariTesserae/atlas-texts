@@ -1,0 +1,44 @@
+In the fluted throat of a granite bore—where the wind is compressed until it screams like escaping steam—the rock is lined with mouthparts.
+
+They belong to the *bellows-leeches*: thick, translucent tubes of gristle the length of a forearm, anchored into the stone’s micro-fissures by rings of calcified hooks. They do not hunt. They have no eyes, no fins, and no limbs. They simply hold their ringed gullets wide against the current. The slipstream, forced through the hollows of the monoliths at hydraulic pressure, rams mist, vegetable silt, and blown spores directly into their guts. Their bodies thrum continuously, shuddering in time with the acoustic pitch of the hole they inhabit; if the wind changes direction and the tunnel falls silent, they turn flaccid and gray within an hour, starved not of food, but of the force of the air that keeps their valves distended.
+
+Lower down, where the horizontal shear curls around the rounded buttresses into stagnant, boiling eddies, the aeroplankton congregate. Up close, these saucers are not jellyfish, though they share their gelatinous water-weight. They are colonial siphonophores flattened by atmospheric drag into hydrofoil plates no thicker than a fingernail. Their upper surfaces are slick with an amber lipid that repels water, while their undersides trail tangles of sticky, gossamer filaments that comb the warm updraft for lichen-dross and moss-spores. They possess no will to steer; they are buoyant kite-rafts of fat and air, balanced on the lip between the dead zone and the abyss. When an eddy wobbles, hundreds are caught by the edge of the slipstream at once—they do not drift away so much as vanish with a sound like a cracked whip, smashed into liquid smears against the windward flank of the next monolith four miles downwind.
+
+And where those smears land, the *wedge-lice* feed. 
+
+These are carapaced things, broad and flat as split shields, their margins edged with flexible horn that suction-seals to the granite like a limpet’s shell. They do not crawl with legs beneath them; to lift one’s belly here is to be torn into the sky. Instead, they scuttle on lateral, comb-like fringes, sliding under the rubbery mats of bryophytes like iron coins slipped beneath a rug. They graze upon the pulverized drift of the aeroplankton, their mandibles working with a steady, dry clicking that can only be felt if a hand is laid directly against the rock.
+
+The people who share this rock do not lay their hands against it lightly. They grip it with five hooked, spatulate fingers whose nails are never allowed to grow past the meat, filed flat on grit-stone so they do not catch and split.
+
+They call themselves nothing that can be spoken aloud, because speech died out of their throats thirty generations ago. The vocal cords are still there, but they are used exclusively for low-register droning—a guttural, chest-resonating hum that can be felt through stone or transferred from forehead to forehead. To talk, two must crawl until their brows meet. They press the flats of their skulls together, their damp, greasy foreheads squelching against one another in the roaring gale, and let their teeth clatter, their throats rumble, their jawbones clicking out meanings in a percussive code that bypasses the shredded air entirely.
+
+To a creature of the low plains, these people would look deformed, their proportions pulled out of true by the requirements of the rock. They have virtually no necks; their heads sit low between muscular, heavily bunched shoulders that keep the skull tucked tight against the slipstream. Their legs are short, thick-thighed, and bowed, permanently flexed for wedging into seams, while their torsos are enormous—broad, barrel-chested bellows adapted to extract oxygen from damp, high-speed turbulence without collapsing under the dynamic pressure. 
+
+Their skin is neither pale nor dark, but a uniform, mottled slate-green, stained by the tannin of the weeping bryophytes and coated in a permanent layer of tallow they render from the fats of the drift-combs. This grease smells of peppery decay; it keeps the high-pressure mist from macerating their flesh, causing the endless water to bead and shoot off their ribs like rain from the flank of an oily leaf.
+
+They do not walk. They have no concept of an upright spine; the vertical axis is an obscenity, the posture of a thing about to be killed. They slide. They flow across the rock like heavy, four-limbed lizards, moving always on three points of contact, their bellies pressed into the oily damp of the lichen. 
+
+Every person is bound to the stone by the *trinity*: three braided liana lines, each cured with spit and grease until they are as supple as wet sinew. 
+The first line, the *Root*, is short—six feet of heavy rope pegged directly into an anchor-hole behind them. 
+The second, the *Reach*, is thirty feet long, paid out slowly from a wooden spool at the hip as they creep into the lee of a buttress to forage. 
+The third is the *Sister*, tied not to the rock, but to the belt of their crawling companion. If the rock shears or a peg blows from its rotten socket, the Sister line snaps taut with a violent, spine-cracking jerk, transferring the weight of the fallen into the anchored belly of the other, who must immediately flatten, spread-eagled, and dig their toes and fingers into the root-felt until their ribs bruise against the granite.
+
+Their villages are not towns, but *hangings*—the wattle-and-hide cradles slung under the deep, horizontal eaves of the monoliths.
+
+In these suspended nests, which rock with the violent, hypnotic shudder of a tethered cage in a gale, life happens in the horizontal. They sleep strapped down beneath bands of cured hide, their faces turned toward the stone wall, never toward the blue drop. To look out into the five miles of empty air is not forbidden, but it is considered an affliction of the sick or the dying—a vertigo-madness they call *the wide-eye*. Those who begin to gaze too long into the milky floor below, where the mysterious thermal furnace brews its clouds, are watched closely. When their tethers are checked at dawn, their companions feel their foreheads for the rapid, fluttering skull-hum that signals a mind unseating itself.
+
+Food is harvested from the roaring emptiness by means of the *dredge*. 
+
+At certain turns of the high cirrus, when the updraft shifts a fraction of a degree and the aeroplankton are beaten close against the flanks of the pillars, the hunters crawl to the outer rims. They do not throw spears; they drive massive, fire-hardened hardwood stakes into the wet fissures, hammer them home with river stones, and cast out long, weighted rakes made of arched ribs webbed with nettle-twine. The rakes are dropped into the slipstream on fifty fathoms of line. The wind catches them instantly, snapping them horizontal, whistling like sling-bullets through the gray air until they snag the drift. When the lines vibrate with the right, heavy cadence, three or four crawlers lock their heels into the rock-grooves and haul, their muscles knotting under their greasy hides, dragging in the dripping bundles of translucent flesh, wind-beaten orchids, and drowned lichen-crabs.
+
+They eat it raw, warm from the friction of the wind, crouched together in the root-tunnels where the air only moans instead of screams. They eat with a swift, predatory efficiency, their broad teeth grinding down the chitin and the fibrous lianas alike, swallowing the damp pulp to fuel the tremendous furnace of their bodies.
+
+They have no gods, for a god implies a sky that listens, and their sky has a mouth that never shuts. 
+
+Instead, they revere the *Hard*. The granite itself is their only absolute—the one thing that does not yield to the pressure of the warm, wet torrent. When an old one’s fingers can no longer close against the rock, when their knuckles swell with the damp rot until they cannot wedge into the seams, they do not wait to be blown off. 
+
+They unhook the Sister line. They leave their Reach behind in the sleeping-basket. They crawl alone out to the windward fin—to the great, polished prow where the slipstream splits with the sound of a shattering mountain. There, where the moss cannot grow because the wind strips the stone bare to its pink, polished crystals, they unhook the Root.
+
+They do not jump. To jump would be an action of the feet, and they have forgotten how to leap. 
+
+They simply raise their heads. They lift their chins from the stone, expose the hollows of their throats to the five-hundred-mile-an-hour draft, and let the sky peel them up from the rock like a dead leaf, gone into the blue before their bodies can even register the drop, leaving behind only the damp, oily grease-mark of their belly on the stone, which the warm rain washes clean in minutes.

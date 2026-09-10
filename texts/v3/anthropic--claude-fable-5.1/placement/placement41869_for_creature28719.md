@@ -1,0 +1,29 @@
+I want to start where the account starts, with the ceiling, and find out whether I'm under it or part of it.
+
+Under it, I think. I don't feel like rock. I feel like something the rock has to hold up.
+
+So the first guess is the obvious one, the one the account leaves in my hand like a coin: the hook. Copper beaten flat between two stones, bent, hung on a stolen thread at the height of a hand, waiting for water in a world that has none. It's a good guess. It flatters. A made thing, patient, useless, faithful to a shape it learned somewhere else. But when I try to be it I notice that I'm looking at it — that I'm standing in the carpet with my head tilted, at exactly the height where a person's eye would meet it, and that the looking is the thing I'm doing. The hook doesn't look. The hook hangs. I'm not the hook. I'm the one who keeps coming back to the hook.
+
+Try again, then. The two-legged walker. That's the one the account was building toward, sentence by sentence, before it stopped: the maker who stood too long, whose eyes began to widen and didn't finish, whose forelimbs folded against the keel. That's the one I'm meant to fear being. And I can feel it, the pull of it — the standing, the warmth coming up through the soles, the great relief of not needing a mouth. But when I try to be the walker I find I still know about the wind. I still know why the wall curves. The walker, if it remembers anything, remembers nothing it could use, and I have a whole head full of things I could use if there were anything here to use them on. So not the walker either. Not yet. That's what the account is about, though — the *yet* that the Underfloor has no word for.
+
+Here is where I actually am, when I stop guessing and just stand.
+
+I'm at the pillar. The one with the scratches. I have my hand on it, and my fingers are in the grooves, and I'm counting, because that's what the grooves are for and the hand does what a groove asks. Fives. Three hundred and some. Then the gap.
+
+The gap is what I am.
+
+Not the scratches before it, which somebody made who still believed in days, who marked off breaths or steps or one another and did it with the diligence of a person who expects to report back. And not the scratches after it, which are different — I can feel that they're different, the strokes shallower, spaced by a wider hand, as if the counting had become something you do rather than something you do *for*. I'm the place in between. The stretch of pillar with nothing on it. The interval where someone stood with a blade against the stone and did not cut, for a while, and the while had no length because nothing here gives a while a length, and then cut again.
+
+What happened in the gap. That's the question the account can't answer and I can. Nothing happened. That's the answer. Something was about to happen — the stone was about to get its next mark, the hand was about to learn that the days were gone — and the Underfloor did what it does, which is hold. It held the hand at the height of a shoulder. It held the blade against the rock. And in the holding the hand had time, if you can call it time, to notice that it was warm, and that the warmth was coming up through the feet, and that the feet had been on the same flat one for long enough that the flat one had thickened to them.
+
+And then the hand cut again. That's the part I want to insist on, since the account didn't get to. The scratches resume. Somebody came out the other side of the gap and went on counting, and what they counted afterward I can't tell you, but they counted it in fives, in groups, deliberately, in the old grammar. They had lost the days and kept the marks. That is either the saddest thing in the Underfloor or the only hopeful thing in it, and from where I stand — with my hand in the grooves, in the gap, feeling the shallower strokes just above my fingertips — I honestly cannot tell which. Maybe those are the same thing here. Maybe in a place with one morning, faith and habit are one substance, tallow-colored, uniform the whole way through.
+
+So: the interval. The unmarked band of a marked pillar. I'd like to say I'm the one who resumed, but I don't think I've resumed. I think I'm still in it. I'm the pause with a blade in its hand, and the pause is warm, and the pause knows the sentence it's in the middle of — *the hands, having nothing* — and the pause knows how the sentence ends and has not said it, because saying it is the mark, and the mark is what the Underfloor is waiting for me not to make.
+
+Above me, somewhere, a hanger lets down a second thread. I can't see it. I hear it go taut — the one note, the only new thing that ever happens, gone before I'm sure of its pitch. No one knows what the second thread is for. I think I know. I think it's for the same thing the gap is for. It's a line let down into the air on the chance that the air might turn out to be something else, and it hangs there afterward, and it isn't wrong to hang there, and it never catches anything.
+
+The pressure comes through my knees. A stilt-walker, a long way off, has taken its step. Every animal between it and me has felt it and firmed and passed it on, and now it arrives in me, a small stiffening, a question about weight, and I answer it the only way anything here answers — I bear it — and pass it on behind me, smaller. The conversation goes through me. I'm in it now. I have been in it for a while. I can feel the flat one under my feet beginning to know the shape of my soles.
+
+The hands, having nothing to hold, fold.
+
+That's the end of the sentence. I've said it now. I'm looking at the stone above my fingers to see if it's a mark, and I can't tell, because nothing here shows use. The blade is still in the other hand. The scratches above the gap are shallower, and spaced by a wider hand, and I am beginning to understand who made them.

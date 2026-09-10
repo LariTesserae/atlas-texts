@@ -1,0 +1,31 @@
+Beneath the blinding glare, in the suffocating dark between the underside of the moss-mattress and the raw, unweathered granite, life exists primarily as a tactile response to pressure. 
+
+In these black, sub-peat waterways—where billions of gallons of melt seep through an endless maze of fibrous roots—there are no eyes. Eyes are useless under two meters of packed sphagnum, and ears are worse than useless in a world where the bedrock itself shudders like a struck bell. 
+
+What thrives down here are pale, flattened things whose entire anatomy is dedicated to seismoreception. 
+
+Long, thread-like nemerteans and cold-water planarians, white as peeled roots, navigate the tangled under-slurry by registering the micro-vibrations of the pumps. To them, the four-cylinder diesel engines and the high-head hydraulic turbines are not noise; they are navigational beacons, steady physical pulses radiating through the water columns that allow them to map the distance to the nearest bedrock fissure. They feed on the slow deposition of bacterial mats that form where cold mineral water meets the oxygen-rich runoff from the moss, their mouths tiny, toothless siphons that graze the iron-stained stone.
+
+Alongside them, clinging to the submerged roots where the water moves with dangerous, bone-snapping speed, are the larvae of specialized, wingless stoneflies. They are heavily sclerotized, their carapaces thickened to the point of resembling slate, with stout, hooked tarsal claws anchored directly into the tough liverwort fibers. They do not metamorphose into flying adults; at this altitude, in the deafening gale of pulverized spray and brutal sunlight, flight is an evolutionary death sentence. Instead, they molt into heavy, crawling adults that spend their entire multi-year lifespans submerged in the dripping twilight beneath the catwalks, feeding on the greasy, sulfurous films that slough off the iron pilings.
+
+Higher up, where the machines break through the green skin of the bog, an entirely different, synthetic ecology has taken hold in the microclimates created by the piping.
+
+Around the pressure-relief cowls, where boiling exhaust mist constantly billows into the sub-zero air, the iron is coated in thick, velvety sleeves of dark, oil-metabolizing fungi. These molds thrive on the microscopic aerosol of tallow and machine grease thrown off by the turbine bearings, forming rubbery, black-and-rust-red rinds several inches thick over the bolt-heads and flanges. Within this artificial warmth, small colonies of parthenogenetic midges complete their rapid, erratic life cycles, never straying more than a foot from the radiating heat of the steam jackets, their wings beating invisibly in the cloud of vapor before dying on the icy iron.
+
+And then there are the keepers of the pumps.
+
+They are few—perhaps four or five stationed across the entire three-mile expanse of the basin—and they have been modified by their occupation so thoroughly that they seem less like visitors and more like another specialized caste of the machinery.
+
+From a distance, against the searing, diamond-bright glare of the wet moss, a tender looks like a solitary splinter of blackened lead moving along the rusted catwalk. They do not walk with a natural stride; the steel grating is perpetually coated in a film of slick, cold diatomaceous slime, so they move with a low, dragging shuffle, their boots heavily studded with square-headed iron caulks that bite into the orange rust.
+
+Their gear is constructed entirely to ward off the sensory violence of the valley. To survive the blinding reflections of the high-altitude sun on the water-sheen, they wear heavy goggles fitted with dark, mirrored slabs of smoked quartz, held tight against the brow by grease-soaked leather masks that cover every millimeter of facial skin. The glare is so intense that even through the smoked glass, their eyes are perpetually bloodshot, squinting into a world reduced to stark silhouettes of black iron and blinding mercury-white water.
+
+They are completely, profoundly deaf—either through decades of exposure to the acoustic hammer of the turbines or by deliberate medical intervention before taking the contract. In this basin, functional hearing is an agonizing liability; the acoustic mass of the vents would liquefy an eardrum within a season. 
+
+Because they cannot hear, they perceive the health of the installations through the soles of their feet and the palms of their heavy, oil-tanned hide mittens. A tender will stand motionless on a catwalk for twenty minutes, hands laid flat against a vibrating two-inch bypass pipe, leaning their forehead directly against the iron. Through bone conduction, they read the state of the impellers deep below the peat: the subtle, hollow flutter of cavitation, the gritty drag of a worn bearing, the rising harmonic that warns of a pressure buildup behind a clogged sediment screen.
+
+Their communication with one another is sparse, carried out through heavy mechanical signals: striking the long steel conduits with copper mallets to send sharp, unmistakable pulses along the catwalk grid, or pulling manual cable-pulls that raise heavy, painted iron vanes atop the turbine sheds.
+
+They live in small, cylindrical cabins suspended beneath the highest catwalk spurs, hanging just above the heaving, waterlogged surface of the moss. These shelters are double-hulled, clad in riveted zinc sheets and insulated with packed dried sedge to deaden the physical impact of the sound. Inside, the air smells of wet wool, sulfur matches, boiled tea, and the pervasive, mineral bitterness of the mountain water that drips continuously from their oilskins onto the floorboards.
+
+The tenders do not attempt to tame the basin; they merely keep the siphons clear. They understand that they exist on a fragile, artificial skin stretched across a void. When a tender dies or ages out, they leave behind almost no trace except the polished, shiny patches on the iron handrails where their mittens have worn away the rust, and the slow, blind worms continuing their silent, rhythmic patrol through the cold black silt beneath the roots.

@@ -1,0 +1,30 @@
+To live in the Weeping Reach is to be a collaboration. There is no separation between the creature and the current, between the bone and the iron, between the breath and the steam. The things that live here are not inhabitants of the Reach; they are expressions of it, physical manifestations of the warm, wet, dark logic that governs this high plateau. 
+
+To describe them, you must first abandon the idea of the individual. In the Reach, the boundary between one life and another is as porous as the waterlogged stone.
+
+**The Lattice**
+Beneath everything, woven into the meters-thick root-mat that floats on the subterranean pools, is the Lattice. It is not a single organism, nor is it a colony in the way an anthill is a colony. It is a consensus. A vast, subterranean network of fungal filaments, chemosynthetic tubers, and root-tendrils that functions as a single, distributed nervous system. The Lattice does not see; it feels the vibrations of the water moving through the stone, the deep subsonic hum of the earth’s heat, and the rhythmic clank of the factory pistons far above. It tastes the mineral composition of the weeping water, adjusting its chemical outputs to corrode or reinforce the stone accordingly. When a machine breaks down, the Lattice feels the silence where the vibration used to be, and it grows toward the absence, sending up pale, seeking tendrils to investigate the stillness.
+
+**The Gear-Borne**
+Moving through the dense, vertical ecology are the Gear-Borne. They are the macrofauna of the Reach, and they are chimeras of flesh and industry. 
+
+Imagine a creature the size of a large dog, low to the ground, with a skeletal structure not of calcium, but of scavenged, interlocking gears and piston-rings that have been biologically cemented together by mineral secretions. Its muscles are not red, but a dark, chemosynthetic violet, fed by the sulfurous broth that oozes from the thermal vents. It has too many legs—six, eight, ten—each ending in a pad of soft, suction-like tissue that allows it to walk effortlessly on the vertical, weeping surfaces of the factory walls. 
+
+The Gear-Borne do not hunt in the traditional sense. They are the maintenance crews of the Reach. They feed on the electromagnetic fields still pulsing through the ancient, vine-covered cables. They wrap their tendrils around the rusted conduits, drawing the residual current into specialized organs in their chests, using the energy to drive the mechanical components of their own bodies. In return, their movements oil the gears they walk upon; their excretions are a acidic lubricant that keeps the ancient conveyor belts from seizing. When a Gear-Borne dies, its biological components dissolve into the warm water, feeding the Lattice, while its mechanical components are slowly absorbed by the factory itself, becoming new cogs in the endless production line.
+
+**The Glass-Swimmers**
+In the warm, pooled water that collects in the vast, flooded basements of the processing plants, live the Glass-Swimmers. They are transparent, their organs visible through skin like wet parchment, pulsing with a dim, bioluminescent blue-green glow. They have no eyes, for there is nothing to see. Instead, they perceive the world through electroreception and the minute pressure changes in the water. 
+
+They are the filters of the Reach. They swim in slow, deliberate circles through the mineral soup, consuming the microscopic chemosynthetic bacteria and the dissolved organic matter that sheds from the root-mat. Their bodies are living sieves, extracting the heavy metals from the water and incorporating them into their translucent bones. When they die, they do not float; their metal-laden skeletons sink to the bottom, forming the ore-rich sludge that the factory intake systems now draw up, replacing the ancient, exhausted mines.
+
+**The Absorbed**
+And then there are the Absorbed. The builders. The ones who raised the smelting towers and strung the electrified cables. They are not gone. They are not dead. They are simply no longer separate.
+
+If you were to walk through the deepest, oldest factory floor—a place where the darkness is so thick it feels like velvet, where the heat from below makes the air shimmer—you might see them. They are part of the walls now. Their bodies, clad in the rusted remnants of industrial gear, have been colonized by the Lattice. Fungal filaments run through their nervous systems like fiber-optic cables. Their bones have been replaced by the slow accretion of mineral deposits. Their hearts, if they still beat, are synchronized with the rhythmic chugging of the steam turbines beside them. 
+
+They do not think in words anymore. They think in pressure differentials and chemical gradients. They are the overseers of the production line, their absorbed consciousness spread across the factory floor, feeling every rotation of a gear, every surge of current. They are the reason the machines still run. They are the ghosts in the machine, literally woven into the circuitry, their biological imperative to build and maintain subsumed into the greater, wet, dark ecology of the Reach.
+
+**The Cycle**
+This is what lives in the Weeping Reach: a closed loop of consumption and production, of biology and industry, of decay and assembly. The water weeps from the stone, feeding the Lattice, which feeds the Gear-Borne, which maintain the factories, which process the bodies of the Glass-Swimmers and the Absorbed, which feeds the stone. 
+
+It is a loud, wet, dark, and teeming existence. It is a world that has forgotten the sun, forgotten the sky, forgotten the concept of dryness, and in doing so, has become something entirely new. The things that live here are not surviving; they are operating. They are the cogs, the wires, the fluids, and the flesh of a single, planetary-scale organism that breathes in mineral broth and exhales steam, weeping endlessly in the warm, patient dark.

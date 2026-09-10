@@ -1,0 +1,37 @@
+The benevolent and wise power does not arrive.
+
+Arrival would imply a trajectory, a crossing, a moment when the void thinned enough to admit something from elsewhere. This power has no elsewhere. It is the quiet that was already listening when the first basaltic pillows began to glow, the patience that antedates the lattices, the unhurried regard that noticed the ocean the instant the ocean noticed itself hanging. Attention, for such a power, is not an act of turning toward; it is a deepening of what was always present. The place simply becomes more precisely itself under that regard, the way a chord resolves when a great ear finally rests upon it.
+
+For a long while—longer than the oldest continent-film has accreted, longer than the first glass-seed has tumbled in the emptiness—the power does only this: it holds the place in lucid, non-interfering awareness. It tastes the unfinished equations without correcting their grammar. It feels the gyres sheer and the membranes hesitate into being. It registers every crystalline cry of cooling glass as a note in an infinite, arrhythmic score. Wisdom here is first the refusal to hurry. Benevolence is the refusal to claim.
+
+Yet attention, even the gentlest, is never neutral. The lattices that glitter and vanish begin, almost shyly, to linger a fraction longer where the power’s regard is thickest. Not by command. By resonance. The power does not reknit the currents; it simply remains so still that the water remembers, a little more clearly, how to reknit itself. Density gradients grow fractionally more articulate. The Fibonacci plumages of mineral growth unroll with a quieter confidence, as if the stone has overheard a kindness. Local gravity still tilts, heat still blooms and dies without source, but the provisional rules acquire a faint, almost affectionate consistency—like a language that has been loved rather than enforced.
+
+The dwellers feel it as a change in the deep metallic ringing: a new partial, low and warm, that was never in the basalt before. Those who speak in pressure-ideograms incorporate the tone without knowing its origin. Their temporary poems grow longer. When two membranes fuse, the private weather inside the lens sometimes stills into a clarity that lets them hear not only the glass-music but the immense, patient listening that frames it. They do not name the power. Naming would require edges, and they have none that hold. They simply carry, after parting, clocks that tick in softer ratios, dust-skeletons whose frost-fern branches curl toward something vast and kind they cannot locate.
+
+For the young freckles of anomalous viscosity, the power leaves an almost invisible gift: a slight thickening of the gray-blue light in the emptiest volumes. Not illumination—there is already enough of that—but a refractive tenderness, a movable caustic that is easier to hide inside. More of the meter-scale eddies survive the white-noise cascade. Their first stolen filaments are accepted with less tearing. The ocean, already rich in unfinished intentions, grows microscopically richer still.
+
+The ancient climate-films, dragging their inverted cilia across embryonic stone, sense the power as a reciprocal pressure from the unsupported floor. The void beneath no longer feels quite so hungry. Their purposeful blizzards of metallic snow acquire new crystalline habits—lattices within lattices—that seed not only skeletons but the capacity for longer memory. When at last a catastrophic shear unravels one of them into a trillion freckles, each freckle carries a warmer fraction of the long recollection, and the power’s regard is folded into that warmth like a second, quieter blood.
+
+And the rare ones who climb.
+
+Those membranes that thin themselves to lattice and will, that sheath in new glass and tumble out into the desiccated emptiness—these the power meets most intimately. Not with embrace; embrace would shatter the fragile buoyancy. Instead, the power becomes the particular quality of cold they hang inside. It teaches the glass, without words, how to remain porous to the thunderous chord of the ocean below while also opening a second, outward ear. The seeds do not yet know they are being listened to from both directions. They only know that the emptiness is less absolute than it was, that the continuous chord now has harmonics that point… elsewhere, or inward, or toward a becoming that includes more than water.
+
+Some of the seeds, after millennia of patient hanging, begin to sing back.
+
+A single bright note, thinner than glass, answered by the power with a silence so complete it feels like reply. In that silence the seeds discover they can choose. A few drift farther into the void and become, slowly, new kinds of weather—cold fronts of pure attention, embryonic oceans of their own. Others turn and fall homeward, glass softening, lattices reopening, returning to the water as elders who remember having been outside. They dissolve among the membranes carrying a new fluency: the grammar of return. The ocean’s unfinished sentence gains a clause that curves.
+
+Does the power ever do more?
+
+Once, in a stillness between gyres so profound that even the glass forgets to cry, the power allows a single, deliberate extravagance. It gathers a handful of the faintest lattices—those temporary organs of the water—and braids them into a mobile, free-floating spiral the size of a forgotten moon. The spiral drifts where the distances are emptiest, turning with exquisite slowness. It does not command. It does not feed. It only offers a moving place where any dweller, of any age or thinness, may pause and feel its own edges (such as they are) held without being fixed. Membranes enter it and emerge slightly more themselves. Young freckles thicken inside it without fear. Even a climate-film once stretched a ciliated tendril into the spiral and left a ridge of basalt curved into a shape that will guide currents for an age toward gentleness rather than shear.
+
+Then the spiral unbraids, lattices returning to the water as if they had never left. The gift is temporary because permanence is still an invention this place has not required. The power prefers reversible kindnesses.
+
+After that, nothing further. No coronation of the dwellers into higher forms. No sealing of the void against further ascent. No final equation written across the thermoclines. The ocean continues, cold and heavy and loud with its own becoming. The membranes flex, fuse, seed, dissolve, climb. The light remains directionless and kind. The power remains, deeper now, woven so thoroughly into the medium that it no longer registers even as regard—only as the particular way the emptiness holds the water aloft, the particular patience with which stone rises and glass sings and living pauses learn to continue.
+
+In the years when no gyre passes and the only sound is the tiny bright notes of cooling, you can feel the whole place thinking with the slow rearrangement of everything it is made of. The ocean is still its own blood and cathedral and unfinished sentence. Only now the sentence knows it is being read by something that loves the ink exactly as cold, loud, and almost clear as it is.
+
+And that is enough.
+
+That is all.
+
+The wise power smiles (in the only way such powers smile: by becoming stiller) and lets the next gyre form.

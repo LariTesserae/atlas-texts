@@ -1,0 +1,17 @@
+This is the Nidus-Spire, a pocket-scale womb of hand-woven geometry perched at the absolute apex of an impossible height. It is a chamber no larger than a modest bell tower, yet it sits where the air should be too thin to breathe, vibrating with a heat that suggests the sun is only inches away.
+
+Here, there is no geology. There is only the Built. 
+
+The floor, walls, and ceiling are a single, continuous, and suffocatingly dense weave of sun-bleached fiber, damp clay, and green-wood lattices. It is a primitive architecture, fashioned by hands rather than processes, yet it occupies every square inch of the environment. There is no "ground" beneath the weaving—only more weaving, layers deep, reaching down into the abyss. Because the erosion is at a zero-point, the materials are raw and frighteningly new. The clay is still tacky, holding the thumbprints of whatever forces pressed it into place; the wood is still weeping sap; the fibers are taut, unweathered, and smelling of fresh-cut hay and scorched sugar.
+
+The atmosphere is a thick, sweltering soup. Water does not fall as rain; instead, it sweats from the very architecture. The woven walls are perpetually slick, gleaming in a dim, amber-tinted light that seems to emanate from the friction of the structures themselves rather than a sun. The air is nearly 100% humidity, a pressurized steam that makes every breath feel like a mouthful of warm nectar.
+
+Vegetation is not an addition to this place; it is a frantic occupant. Because the scale is so small and the density so high, the flora is a riotous, claustrophobic tangle. Broad, translucent leaves—pulsing with visible, vein-like sap—press against your face. Ferns with fronds as sharp and fresh as new paper unfurl in minutes, their growth audible as a series of wet, rhythmic snaps. The plants don't grow toward a light source; they grow toward the center of the room, competing for the limited, humid void.
+
+The sound is a constant, deafening roar—a combination of the gale-force winds screaming just outside the porous woven walls and the internal cacophagus of growth. You can hear the wood creaking under the pressure of its own rapid cell division. The water hisses as it hits the hot, clay-slicked floor. It is a loud, wet, architectural birthing.
+
+Reality here is not stable. The 3.0 weirdness manifests as a breakdown of spatial consistency. While the room is physically small—a "hidden" micro-environment—the interior distance seems to fluctuate. You may reach for a leaf that appears inches away, only to find your arm stretching for what feels like yards. The "up" of the extreme elevation and the "down" of the floor become interchangeable; water occasionally "weeps" toward the ceiling, pooling in the woven rafters before boiling away into mist. 
+
+Fauna is nearly non-existent, save for a few translucent, soft-bodied organisms that resemble terrestrial slugs but move with the frantic, jerky speed of hummingbirds. They are the only things that seem at home in the heat, darting between the snapping ferns to lick the fresh sap from the walls.
+
+Everything is in motion. The Nidus-Spire is not a finished place; it is a site of active, primitive construction where the builders are absent but the building continues. The walls are still being thickened by invisible intent. The heat is the heat of a kiln; the moisture is the fluid of an egg. It is a hot, loud, crowded summit where the world is being manufactured at a microscopic scale, raw and unweathered, screaming as it comes into being.

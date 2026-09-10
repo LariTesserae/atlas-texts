@@ -1,0 +1,23 @@
+The water is not sitting in a basin; it is lofted. It exists as a continental-scale shelf of pure, hyper-pressurized brine suspended miles above an unseen terrestrial floor, held against the sky by field-architectures so vast and pervasive they register not as machines, but as local alterations to the laws of gravitation and surface tension. 
+
+Because it is elevated into the upper atmosphere, the light here does not filter down through green murk. It strikes from above and from the sheer, vertical cliffs of the open fluid faces with a hard, diamond clarity. The illumination is vast and pale, a brilliant, cold daylight that penetrates kilometers into the interior before fading to a sharp cobalt. 
+
+There is almost nothing in it. 
+
+The emptiness is dizzying. You can look across fifty miles of interior space through water so chemically pristine, so devoid of suspended detritus or planktonic life, that the eye struggles to gauge distance. There are no clouds of silt, no drifting snow of organic waste. For immense stretches, the world is merely the optical distortion of light bending through varying density gradients—endless, vacant turquoise extending until the blue deepens into optical infinity.
+
+Yet it is deafening. 
+
+Water conducts concussive force with brutal efficiency, and this entire volume is in violent, hyperactive motion. Lacking a continental shore to arrest them, solitary internal waves—solitons standing eight hundred meters tall—race through the clear volume, unseen except where their shear planes refract the sun into shimmering bands. Where these colossal internal swells intersect, they do not splash; they cavitate. Pockets of vacuum are torn open in the fluid and instantly crushed by the immense ambient pressure, detonating with the sound of close-range artillery, a relentless drumfire of thunderous, metallic cracks that vibrate through the teeth and chest.
+
+From far below, punching upward through the floor of the suspension fields, come the spires.
+
+They are geologically embryonic. There is no sand here, no rounded pebble, no silted slope; erosion has not had time to begin. The rock is newborn, shoved upward by tectonic drivers or synthetic extrusion engines anchored in the planet’s crust. These formations rise as needles of black, vitrified basalt and glassy silicates, their surfaces so violently fresh that every edge is a razor. They do not look like mountains; they resemble black lightning frozen in mid-strike, jagged and geometric, rising three, four, five vertical miles through the clear water.
+
+Occasionally, the turbulent currents snap one of these basalt needles. The fracture occurs with a deafening, bell-like ping that reverberates for leagues, followed by the slow, chaotic tumbling of a mile-long shard of obsidian drifting downward through the suspension lattice, slicing the water like an axe before dropping out through the lower boundary into the air below.
+
+Life has gained only the barest, most desperate purchase. There are no fish. Nothing swims, nothing crawls, nothing hunts. The water is totally sterile of animal intention. What exists is sparse and austere: clinging to the leeward faces of the newest rock fractures are thin, fibrous mats of pale, cold-tolerant autotrophs. They look like spun glass or oxidized copper wire, anchored directly into the micro-fissures of the basalt. They do not wave gently; they are whipped rigid by the manic transit of the currents, feeding on the intense, cold radiation passing through the water and the rich ionic salts weeping from the freshly torn stone. In certain troughs where the shear forces momentarily drop, these filaments form sparse, hair-like pelts of dull jade, only to be stripped away when the next internal wave-front carves past.
+
+There is a terrifying purity to the space. It has the scale of an atmospheric system and the mass of an ocean, but it behaves like an engine running without an operator. At its margins, where the suspended sea meets the empty air, the water does not pour away; it shears against invisible planar limits, churning into sheets of hyper-dense, horizontal spray that mist into the stratosphere before being recaptured and pulled back into the churning heart of the shelf.
+
+Everything is hard edges, roaring hydrodynamics, cold light, and immense space. A world under violent, continuous construction, singing with the catastrophic music of shattering stone and imploding water, completely indifferent to the absence of anything that might watch it.

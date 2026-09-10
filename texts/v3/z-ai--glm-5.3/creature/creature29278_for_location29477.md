@@ -1,0 +1,3 @@
+Your first guess is the sleeper. The deck is warm the way a flank is warm, so surely the one who lives here is the huge soft thing under the tile, and you are standing on its shoulder. But the sleeper is not the resident. The sleeper is the *here*. Whatever sleeps beneath this floor is less a dweller than an address — the place lives around it the way a glove lives around a hand — and being a resident takes some minding, and nothing about the sleeper minds.
+
+Guess again. Something that tends it, then — a keeper, a priest, an animal of hinges and latches. But you will look for the keeper's tools and find none. The mechanism under the tile does not need tending; it only files. Nothing

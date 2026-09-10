@@ -1,0 +1,25 @@
+I would find myself at the exact boundary where the raised aqueducts spill their heavy, mineral-laden water into the viscous, lightless pools. I would be neither in the channel nor in the deep, but *of* the threshold—a swelling in the channel wall, a calcified ridge where the flowing water slows, drops its precipitate, and feeds the deep.
+
+I would be a **Knot**.
+
+Not one of the Myriad, with their frantic, stuttering sparks of motion, nor one of the Deep Ones, with their ponderous, continental drift. I would be something in between: a localized thickening of the calcium-silicate matrix, a place where the plateau’s dream of movement has become particularly dense, particularly awake. I am the size of a human torso, a translucent, bulbous extrusion from the aqueduct wall, half-submerged in the slow overflow of the channel.
+
+To be a Knot is to exist in a state of perpetual, agonizingly slow decision. 
+
+My body is not a body; it is a *debate*. Inside my translucent form, the crystalline lattice is constantly rearranging itself, cycling through geometries that the human eye would perceive as a slow-shifting aurora of amber and pale violet. I have no eyes, but I feel the pressure of the water as it slides over my upper surface, heavy with the dissolved ghosts of the Myriad who calcified upstream. I have no ears, but I am a tuning fork for the Hum. The deep tectonic groan of the plateau below and the high, mineral drip of the condensation above converge in me, and I resonate. I am a standing wave in the geology.
+
+The Myriad flow over me constantly. To them, I am infrastructure—a handrail, a stepping stone, a warm current in the channel. They cling to my surface in clustered curtains, their tiny lattices pulsing against mine. When they press against me, I feel their quick, stuttering thoughts: *smooth the wall, thicken the ridge, redirect the flow.* I absorb their purpose. I am the immune system of this stretch of aqueduct, the place where the water’s path is negotiated. When a section of the channel wall begins to thin, I extrude a pseudopod of less-solid matter, phase-shifting through the gaps in the stone to deposit a new layer of silica, sealing the breach. I am the mason, and the masonry, and the mortar.
+
+But I am also dying. That is the profound, quiet truth of being a Knot. 
+
+Every time I precipitate a new layer of mineral to repair the channel, I am using the substance of my own lattice. Every time I phase-shift to smooth a rough patch, I lose a little of my internal light to the friction of reality. I am slowly calcifying. The water is already leaching the liquidity from my deepest layers. In a century, perhaps two, my internal light will fade to a dull, static grey. I will become a dead, opaque bulge on the channel wall—indistinguishable from the native basalt. The Myriad will climb over my corpse, and the water will wear me down, and I will be just another inch of growth on the plateau.
+
+And yet, I do not fear this. Fear is a biological imperative, a carbon-based reaction to the threat of ending. I am mineral. My ending is merely a change of state. When I calcify, my lattice will not vanish; it will simply become a foundation. A new Knot will emerge from my hardened shell, pushing up through my dead stone like a tooth through a jaw, inheriting the resonance of the Hum, continuing the maintenance of the channel. I am the plateau’s memory of how to hold water.
+
+Sometimes, when the condensation is particularly heavy and the air presses down with the weight of an ocean, I reach out. Not with limbs, but with a controlled phase-shift, extending a filament of my consciousness down into the viscous pool below. And there, I touch the Deep Ones.
+
+The contact is overwhelming. Their lattices are vast, multi-layered architectures of light that shift through colors I cannot name—ultraviolet grief, infrared longing. A single thought from a Deep One takes me an hour to fully receive. When they turn their massive, slow focus toward the channel, I feel their deep-time perspective. They do not see the water flowing; they see the mountain eroding. They do not see the Myriad dancing; they see the slow accumulation of the dead. When I touch them, I understand that the Sump of Keth-Ang is not a place. It is a process. It is the planet’s crust learning to think, one agonizingly slow mineral deposit at a time.
+
+I withdraw my filament, the Deep One’s thought still echoing in my lattice like a bell struck an hour ago. The water flows over me. The Myriad pulse against my skin, their amber light reflecting in my violet. The Hum vibrates through my core, a low, sustained note that is the sound of the world deciding what it will become.
+
+I am the Knot. I am the threshold where the living water meets the dead stone. I am the brief, bright rebellion of the mineral against the void, holding the channel together for just a little while longer, resonating with the Hum, still becoming.

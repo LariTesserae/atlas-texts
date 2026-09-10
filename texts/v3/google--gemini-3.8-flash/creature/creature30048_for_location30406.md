@@ -1,0 +1,43 @@
+To understand what lives in the court, one has to follow the stairs that twist sideways—not as an anomaly of growth, but as an ordinary thoroughfare for things that do not recognize down as a single direction.
+
+The stairs are kept clean. The lateral flights, running horizontally across the pale green vertical timber, are swept by the *paviors*: broad, flattened organisms the width of carriage wheels, composed of overlapping plates of horn-like fingernail material that flex and cup against the wood. They do not have legs so much as hundreds of pale, wet suckers that drink the condensations of the wall as they slide. As they traverse the sheer drop, they graze on the microscopic bloom of yeast and cell-fluff that crusts the lintels. They move with the dry, rasping hiss of heavy sand falling on linen. Where a pavior has passed, the wood is buffed to an oily sheen, revealing the grain’s counterfeit scripts, which remain legible for only three or four seconds before the wood’s moisture curdles the shapes back into blank vascular lines.
+
+The things that actually walk the stairs—the ones whose heels have grooved the sideways timber—are tall, dry, and bipeds only by loose analogy. 
+
+They are called out of the upper casements by the sudden, shuddering shifts of the shadows. When the bedrock groans and the court adjusts its angle by several inches, a hundreds-strong population emerges from the loggias between the fourth and sixth tiers. They are spindly, eight or nine cubits in height, with skins like the silver skin of dried onions—translucent, papery, and constantly flaking off in long, silent strips that flutter down into the central emptiness. Their limbs are not articulated by balls and sockets, but by tight, braided hinges of ligament that make a sound like winding a leather watch every time they bend.
+
+They do not come down to the cambium floor; they cannot. Their bodies are built to withstand the tremendous hydraulic draft of the corner trunks. When they step onto the lateral stairs, their long, spade-like feet latch into the wood with a wet, thudding vacuum, and they lean out over the seventy-cubit drop at right angles, as if the sheer vertical face were a flat garden walk. 
+
+They appear to have duties. Many carry narrow, shallow trays woven from their own shed skin, filled with the gray, masticated fiber brought up by the leather-backed segmented crawlers. They do not eat it; they pack it into the mock-balustrades, smoothing it into the cracks with long, thumb-less forefingers, using their own vinegar-scented saliva to set the pulp like mortar. They are repairers of an imitation. They seem possessed by an anxious, ceremonial terror that the facade might stop looking like a row of municipal tenements—that an arch might revert to a branch, or a window seal itself over into a burl.
+
+They have heads—narrow, featureless spindles of smooth, yellowed bone without eyes or mouths, tipped with a pair of delicate, trembling nostrils that flare continuously, sampling the drift of mint and fermentation. They communicate not by sound, which would be lost in the jet-engine roar of the sap, but by striking the timber with their knees. A sharp, rhythmic rap of bone against lignum travels down a joist, turns a corner, and is received forty yards away by another spindle-creature pressing its chest against a lintel to feel the tap. 
+
+Behind them, inside the darkened rooms where daylight only reaches as a muddy brown wash, lives the bulk of the sedentary biomass. 
+
+These rooms are not natural hollows. They have the precise dimensions of bedchambers, sculleries, and box-beds, yet their furnishings are monobloc outgrowths of the floor: chairs that cannot be moved because their legs are taproots, basins that fill from the weeping ceiling and drain through porous sap-valves into the walls. In these basins sit the *nurses*.
+
+The nurses are soft, plum-colored mounds the size of bullocks, lacking limbs, faces, or shells. They are essentially liver-like sacks of cool, filtered lymph that have grown into the corners of the rooms, pulsing in counter-rhythm to the high-pressure screaming in the pillars. In their folds, the oily, blind birds seek shelter. These birds—the ones whose chattering clicks ring with the brightness of struck chisels—are not independent animals; they are the nurses’ senses. 
+
+Thousands of the birds leave the dark chambers in short, blind arcs, flying fifty or sixty feet into the sunlit bowl of the square, snapping at the air, clicking fiercely against the roar. They are charting the emptiness. They map the exact location of the invisible, vibrating organisms pinned in the center of the court. When a bird returns, it burrows directly into a wet slit in the nurse’s side, vomiting up the microscopic grease it has scraped from the air-folds, along with the precise sonic coordinates of the court's structural tension. The nurse absorbs the bird, digests its information, and swells, sweating a thin, sweet tallow from its skin that the onion-skinned workers come to scrape away with curved wooden ribs, using it to grease the hinges of the giant bark shutters so they fall smoothly when their weight comes due.
+
+Then there is the floor itself. 
+
+The wide, level court of cambium, two hundred paces across, is not vacant because it is abandoned. It is kept clear because it is an exchange floor, though the things being traded are neither coins nor grain.
+
+At the exact center, directly beneath the cluster of shivering, pinned organisms that make the air resist the hand, the floor occasionally uncouples. It does not open like a trapdoor; rather, the packed cambium splits into concentric rings, sliding back to reveal a shallow, dish-shaped depression fifty feet wide, slick with amber-colored oil that smells intensely of burnt clover.
+
+When this opens, the things that dwell beneath the bedrock come up. 
+
+They are slow, heavy, and have no need for the mimicry that consumes the walls. They are the *weigbers*: massive, disc-shaped slabs of solid heartwood that have separated from the parent root, dense as pig iron, each ringed with a collar of short, columnar legs like the pillars of an ancient crypt. They are blind, deaf, and nearly motionless. They crawl into the shallow dish with the slowness of glaciers, taking hours to heave their flat bulks from the dark under-soil into the warm daylight.
+
+Once they are arranged in the bowl, the vibration in the center of the air changes pitch. The transparent, vertebra-shaped creatures—which are now revealed to be the teeth or strainers of some atmospheric siphon—begin to sink. They do not drop; they are pulled down along the invisible geometry of the room until they rest directly upon the backs of the weigbers. 
+
+A silent transference takes place. The weigbers, through sheer density and the iron weight of their sap-chambers, absorb the barometric tension that the court has collected during the afternoon. The screaming of the walls drops an octave; the hydraulic shrieking inside the corner pillars falls from a steam-whistle to a heavy, churning thrum. The onion-skinned things along the balustrades freeze, their spade-feet locked to the sideways stairs, their bone-spindles tilted toward the floor in total, rigid communion. Even the commuters—the leather-backed fiber-carriers—halt in their tracks, holding their pellets in their mouthparts, vibrating in sympathy with the wood.
+
+For twenty minutes, the city is an engine at rest, discharging its gathered torque into the wood-stones at its heart.
+
+When the exchange is finished, the dish does not close immediately. The oily birds drop from the loggias in their thousands, like a rain of black grease, settling over the backs of the weigbers to gorge on the salt and vinegar left behind in the rings of the wood. The air smells sour, sharp, and cold.
+
+Then, with a concussive shudder that shakes the teeth in one’s gums, the shadow moves four inches to the east. 
+
+The floor slides shut with the sound of two great millstones grinding together dry. The weigbers sink back down into the dark sap-channels beneath the stone to cool. The high-pressure roar mounts again, climbing swiftly through the registers until it settles back into its jet-turbine scream. The leather-crawlers resume their endless, bureaucratic scuttle along the high cornices. The lateral bipeds begin once more to scrape and paste their gray fiber into the balustrades, anxious, hurried, endlessly maintaining the shape of a town that has never known a citizen, under the blank, warm light of an afternoon that never quite turns to dusk.

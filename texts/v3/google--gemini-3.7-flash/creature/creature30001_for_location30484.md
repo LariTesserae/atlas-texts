@@ -1,0 +1,23 @@
+The life that takes hold in this place does not arrive through open doors; it is built into the material memory of the room, sleeping through the pouring, the bolting, and the cure, before waking to the cold hum of the transformers.
+
+At first, it is only the metabolism of the seams. Where the cold-rolled plates meet and are torqued down against rubberized gaskets, a greasy, sulfur-colored crust begins to push outward from the tension lines. It is not true rust, nor strictly vegetable: it is an agglomeration of anaerobic micro-flora that arrived within the molecular pores of the raw casting grease. In the bitter, near-freezing humidity, these colonies do not blossom—they crystallize. They form dense, brittle rosettes that drink the alkaline wash sweating out of the drying concrete and exhale a faint, sharp vapor that smells of wet copper. 
+
+Where the condensation drips continuously into the galvanized troughs, this micro-crust gives way to something more motile. 
+
+In the millimeter-deep flow of chilled water and machining oil, there are grazers. They are nearly invisible, paper-thin ribbons of translucent tissue, no longer than a fingernail, that drifted in as dehydrated cysts on the wooden crating that once housed the solenoid valves. Here, washed into the troughs by the pipe-sweat, they have reconstituted into a life cycle with no concept of a sun or a season. They have no pigmentation; their digestive tracts are visible as pale grey threads full of crushed zinc flakes and fungal spore-dust. They move without limbs, propelled along the slick galvanized lip by the hydraulic shudder of the room itself, surfing the micro-ripples each time a heavy gate valve seats into place.
+
+Further back, in the chest-wide gaps between the hydraulic manifolds where the ambient heat of the stepping inverters warms the air by half a degree, the scale of life thickens.
+
+Suspended between the structural framing ribs, there are things that have learned to mimic the hardware. At a glance, they resemble forgotten lengths of braided grounding wire or loose strips of weather-stripping hanging from an unfastened flange. But if watched across hours—through several cycles of the pneumatic actuators' gasping—these cords shift. 
+
+They are segmented, jointless bodies wrapped in a tough, rubbery integument that matches the slate-grey hue of the uncured sealant around them. They have no eyes; the amber indicator lights and the sudden, harsh glare of the timed bulkheads register to them only as shifts in surface temperature across their dorsal plates. Instead, their heads are blunt, spade-like sensory nodes, perpetually pressed flat against the bare steel plate. 
+
+They live on vibration and condensation. They spend days motionless, drinking the sweat that runs down the insulated pipes through porous, suction-cup mouthparts that leave faint, matte rings on the glossy lacquer of the conduit paint. When the heavy fluids surge through the high-pressure lines, causing the framing to groan against its bolts, these creatures shudder in exact harmonic sympathy. The deep, low-frequency resonance of the building above is their heartbeat, their weather, and their clock.
+
+When they move, they do so with a slow, peristaltic drag, leaving behind a clear, oily mucus that smells faintly of petroleum jelly. This slime does not dry in the cold air; it forms a slick highway along the underside of the coolant pipes, an artificial meniscus along which smaller, blind detritivores—pale, multi-legged things with shells formed from compacted concrete dust and mineral salts—scuttle to harvest the sloughed skin of the larger ribbons.
+
+There is a strange, pristine elegance to the whole arrangement. Nothing here has ever touched dirt, or decayed in the presence of rot, or known the warmth of blood. The inhabitants are as newly minted as the room itself, synthesized out of industrial detritus, extremophile resilience, and machine tolerances. 
+
+In the deepest pocket, directly under the center of the structural slab where the clearance drops to less than eighteen inches, the largest of them rests. It is a mass of pale, flattened muscle coiled loosely around a bundle of insulated 480-volt feeder cables. It draws no electricity, but it feeds on the electromagnetic hum that vibrates the copper core within the rubber. It expands and deflates with a slow, almost undetectable rhythm, its pale hide glistening under the intermittent blink of a green diagnostic diode. 
+
+It does not know the sky exists. It knows only the tension of the bolts, the alkaline taste of the sweating floor, and the eternal, mechanical respiration of the vault holding it safe beneath the weight of the world.

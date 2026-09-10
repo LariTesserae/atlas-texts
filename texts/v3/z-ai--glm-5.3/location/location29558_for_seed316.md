@@ -1,0 +1,1 @@
+You hear it before anything else. Travelers report the sound three days out from the rim of the place — not a noise exactly, but a pressure, a fullness in the air, like standing near a waterfall you can't see. By the second day it resolves. By the third it has entered your teeth. And when you finally crest the last low swell of the old land and look out across

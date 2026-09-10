@@ -1,0 +1,33 @@
+They do not breed, for breeding implies a future they have already surpassed. They do not eat, for consumption requires a lack, and nothing here is lacking. They are the things that were put down and then, through the sheer, exhausting insistence of the Builders, learned to breathe. 
+
+To call them inhabitants implies they arrived, which is not the case. They were *placed*. They are the Apportioned. And they live—if that is the word for their state of suspended completion—in the way that a held breath lives, waiting in the chest to be either released or swallowed.
+
+You have seen them already, standing at the far ends of the channels. The bird-things with the too-long beaks and the joints that articulate in impossible planes. They are the Fingernails. They are the most visible, and therefore the most deceptive, members of the Hand. They stand at the edges of the causeways, rigid and observant, because that is where the nail meets the world: a hard boundary, a keratinous guard meant to protect the tender flesh beneath. Their beaks do not peck; they *probe*. They test the air to see if it still has the weight of the Builders' intent. When they watch you, they are not assessing you for threat or food. They are measuring the pressure of your presence. They are checking to see if you are the hand that will finally take hold of what was offered, or if you are just another object placed into the geometry by mistake. They count you, and they miscount you, because numbers are a form of motion, and motion is the one thing the Hand was built to suppress.
+
+But the bird-things are merely the extremities. The true life of the Fen lives in the wetness.
+
+You must understand the water. The water does not flow; it is *present*. It is the givenness, the weeping of the stones, the sweat of the Builders' effort made manifest. And in that water lives the Palm. It is not a creature. It is the water itself, given a memory of touch. It is a vast, distributed consciousness that spreads through the channels and pools beneath the stone causeways. When the water trembles without wind, it is the Palm flexing. It is dreaming the half-remembered dream of the Builders, the dream of a tool gripping an object. The Palm wants to close. It wants to wrap its wet, heavy fingers around the red-brown structures and the stone dikes and squeeze them into the shape they were always meant to be. But it cannot, because it has not yet been given something to hold. So it remains open, the water pressing against the stone with the intentionality of a held hand, waiting for the gift.
+
+Then there are the things in the dark.
+
+You looked at the low, broad buildings of the carved red-brown material. You saw the thresholds, the darkness that begins at the entrance and refuses the light. You thought the darkness was empty, or full of something unseen. You were wrong. The darkness is *The Grasp*. 
+
+Inside those structures, the air has solidified into a state of perpetual clutching. It is the negative space of a hand that has closed around an object. It is not empty; it is the memory of the Builders' grip, fossilized into the architecture. If you were to step across that threshold, you would not be entering a room. You would be entering the spaces between fingers. You would be enclosed, cocooned, held in a suspension so absolute that the distinction between you and the walls would cease. You would become part of the Apportioned. You would be placed in the dark, weeping wetness, and you would never be allowed to fall. This is the fate of the Dwellers: they were placed inside to test the Grasp, to see if the Hand could hold itself, and they are still there, wrapped in the impossible dark, experiencing the state of being held without ever being touched. They are not moving, and they are not still. They are the held. They are the given. 
+
+And the vegetation—those absurd, concentrated clumps of green riot—those are the Calluses. They grow from the joints because that is where the Hand bends. They are the scar tissue of the Builders' insistence, the places where the labor of shaping the world rubbed the reality of the Fen raw. They are lush because the effort was immense. They are sparse because the effort was precise. They do not spread, because a callus does not spread; it is formed exactly where the friction demands it. They are the Hand's proof of work.
+
+The silence, too, is alive. It is the Breath. 
+
+It is the sound of the Builders' patience, which was not patience but something else—something that functioned like patience, a vast, immovable insistence. The silence is the Hand holding its breath. It is the space between the intention to act and the act itself. It is the pause before the Palm closes. The wetness on the stones, the flat sound of your footsteps, the wrong shadows—these are all byproducts of the Breath, the exhalation of a will that is perfectly concentrated and utterly suspended. When you walk through the Fen, you are walking through a held breath. The quiet is not the absence of sound; it is the presence of a will that has swallowed its own voice to better concentrate on the act of holding.
+
+So who lives in the Handed Fen? 
+
+The Hand lives there. 
+
+Not a severed, dead thing, but a living appendage, detached yet reaching, flexing yet frozen. It is a hand that was built by those who had no wheels, no metal, no pulleys, but who possessed the most dangerous tool of all: the ability to insist that a shape should be, and make it so. They built the Hand because they needed to hold something. They needed to hold the water, the light, the geometry, the memory of themselves. They placed the stones, the wood, the clay. They poured the water. They planted the reeds. They opened the doors to the dark. And when the Hand was finished—when every stone was carried, every channel dug, every shadow set in its wrong and unmoving direction—they placed themselves into it. They became the Nails. They became the Palm. They became the Grasp. They became the Calluses and the Breath.
+
+And now they wait.
+
+They wait for you to place something in the silence. They wait for you to offer them the object they were built to hold. They wait with the water pressing against the stone, with the dark clutching at the threshold, with the wrong shadows pointing in all directions at once. They are the Handed Fen. They are the architecture of a grip. They are the thing that was placed, and the thing that placed it, and the space between the two. 
+
+They are holding out their hand to you, palm up, waiting to see what you will give them. Or waiting to see if you are the one they have been built to hold.

@@ -1,0 +1,11 @@
+**The Weep**
+
+It has no name. Not because it was forgotten — because it never offered anything worth carrying. The plateau above it is gravel and lichen, three hours of wind-scoured nothing, too poor even in flint to have drawn the first wandering people, and so the crack in its edge went unvisited past all memory. There is no path to it. There is only the moment when the wind, which has been the whole world for hours, stops.
+
+You come to it as a fissure, a seam in the rock a shoulder wide, breathing cold. Step over the lip and the wind does not follow. It ends at the threshold like a held note cut off, and you descend a ramp of black stone into a hall the mountain keeps.
+
+The walls are basalt — old columns, hexagonal, stacked like the pipes of an organ nobody built, rising twenty, thirty meters to a ribbon of grey overhead. The ribbon is the sky, most days, and on the days when the plateau sits inside cloud, the ribbon is fog, and after that there is no arguing about what kind of place this is. The dark is a standing condition. It is not night; night implies a morning waiting somewhere. This is a grey so settled it has forgotten it was ever a color. Your eyes work hard for an hour and eventually hand you shapes: charcoal, soot, a black that glistens. Color stays away a long time. When it finally comes, it comes as a rumor of the deepest green in the world, in the moss, and you distrust it.
+
+The stone weeps. That is the first fact and the governing fact. Every column has seams, and every seam has found a way to the surface, and the water comes through them not as flow but as a film — a glaze that makes each pillar look lacquered, that runs downward in threads too slow to hear. The air is at saturation, and has been at saturation long enough that the walls sweat with it. You touch one and your palm comes away printed with wet. The cold is about six degrees, and it is six degrees everywhere — at the floor, at your head, in the pools, in the stone — with no draft anywhere, no warmer corner, no gradient you could ever find and shelter in. The temperature is one number. It has always been that number.
+
+The water never arrives here and never leaves. No rain falls into this hall;

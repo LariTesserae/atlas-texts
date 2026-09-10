@@ -1,0 +1,25 @@
+The hollow is not deep enough to hide the sky, but its floor receives little of it. Low limestone shoulders enclose a space about the size of a village square. Their inward faces are worn into shallow shelves, rounded at the edges, with darker seams where moisture holds. Above them, a close gray sky gives an even light. There are no sharp shadows.
+
+Most of the ground is bare. Fine pale gravel lies in the middle, passing into compacted silt toward the lower end, where a narrow basin holds water. The basin is scarcely wider than a doorway. Its bottom can be seen through the brownish shallows: flat stone, a little settled sediment, the blunt ends of two fallen twigs. Nothing disturbs the surface. Along one margin, a dark wet band follows the rock; beyond it, the limestone dries through gray to a warm, chalky cream.
+
+The warmth is subdued and close to the ground. It comes from stone that has not quite cooled, from sheltered air with little room to circulate. The hollow smells faintly of damp mineral dust. Near the water there is also the earthy smell of silt, noticeable only when you bend toward it. This is not a wet place so much as a place where small amounts of water are slow to leave.
+
+A seep occupies the back wall. There is no visible spring mouth, only a patch of stone darker than its surroundings. Moisture gathers across it in a thin sheen and follows several grooves downward. The grooves are old and broad for the little water they now carry. They reach a shallow runnel that curves along the foot of the wall before entering the basin. Here and there its course is obscured by grit, but the grit is dark underneath.
+
+The limestone has weathered without becoming spectacular. There are no tall pinnacles, no freshly broken slabs. A few blocks rest below the walls, their upper surfaces gently sloped, their corners worn away. They look settled enough to be part of the floor. Small flakes have collected in the sheltered spaces beneath them, mixed with powder washed from above. On the lower ledges, the stone is pitted like an old threshold.
+
+Vegetation keeps to a handful of places. A clump of wiry grass grows where the runnel bends, its outer blades straw-colored and its center still dull green. Two low plants with thick, dusty leaves occupy separate cracks on the opposite wall. Farther up, a narrow root disappears into a seam, though the plant it belongs to is out of sight. There is no continuous turf, no brush to fill the gaps. Each plant leaves most of the surrounding stone exposed.
+
+Near the entrance stands a remnant of a retaining wall, four courses high at its tallest point. It follows the foot of the slope for a few paces, then ends in a loose scatter of stones. The blocks were gathered locally and laid without mortar. Their outer faces have weathered to the same color as the enclosing rock, but their fitted edges still show the care with which they were placed. Behind the wall is a small level patch of earth. Nothing remains to say what it once supported.
+
+A flat slab lies beside it, raised just enough above the ground to stay dry. Its center is smooth; its edges carry a thin crust of pale lichen. From there, nearly the whole hollow is visible. The basin lies slightly to the left, the seep behind it, the bare gravel opening across the middle. There is little to obstruct the view, yet the enclosing walls keep the place from feeling exposed. Beyond the entrance, the ground rises only a little before turning out of sight.
+
+The quiet has no distant machinery in it, no voices, no birds. Even the seep makes almost no sound. Close to the back wall, there is a faint, irregular ticking where moisture occasionally falls from one shelf onto another. It is too slight to fill the space. Between those sounds, the hollow seems as quiet as the dry stone above it.
+
+There are no tracks in the silt. No insects move on the water. The few dead grass blades have come to rest against the same small stones that hold the gravel in place. A leaf caught under the retaining wall is reduced to a dark, flattened scrap, pressed into the earth rather than lying loose upon it.
+
+What movement there is stays small. Water advances through a groove too slowly to follow with the eye. A bead gathers under a limestone lip. Dampness persists in the shaded joints while the open floor remains dry. Nothing suggests an approaching change in weather, or a recent event that the ground has not yet absorbed.
+
+The longer one looks, the more distinct the modest differences become: the cooler gray beneath an overhang, the yellow cast of the gravel, the soft-edged stain around the basin. One stone holds a shallow cup of water; the next, no farther than a handspan away, is dry. The grass occupies the only pocket of soil deep enough for its roots. The old wall preserves its small terrace. Everything has room around it.
+
+At the far end, where the floor meets the rock, a thin line of silt has settled along the water’s ordinary limit. It is unbroken, following each slight indentation. Above it the stone is pale. Below it the stone is dark. The basin rests within that line, and the hollow holds its warmth.

@@ -1,0 +1,23 @@
+I thought at first I would be the fern. That seemed right for about a paragraph — the small green thing wedged into the machinery, the one whose patience sets the tempo for everything around it. But the fern doesn't choose. It sprouted where it sprouted and grew or didn't, and calling that a treaty flatters both parties. I don't have a fern's gift for being unable to leave.
+
+Then I thought I might be the knock from Level 6 — the voice that only ever answers. That was more romantic and worse. The knock is a mystery precisely because it belongs to the dark below, and I have never belonged anywhere by being unknowable. I am the opposite. I am the person who reads the chalkboard.
+
+Because someone has to be. Look at what's missing from this room, and I don't mean the flies. There is no witness. The orchids made beauty for a glow in a pipe. The moss holds E.V.'s last sentence *in the moment of writing, forever mid-sentence* — and the moss doesn't remember it. The room has been alive for a century without being looked at, and the description calls that the rarest kind of life, and maybe it is. But I keep tripping over the chalkboard. *Day 15,892. Knocking answered again from Level 6.* Someone counted the days. Someone wrote it down because someone else might read it. E.V. was obeying a different stencil than the one on the cylinder housing — an unstenciled one that says *keep the record, so the place has a story and not just a pulse.*
+
+So no, I'm not the fern, and I'm not the knock. I'm the hand that picks the chalk back up.
+
+Here is what that means, concretely, in this chamber where the rules are not posted but simply true:
+
+I would stand in the boot-shaped hollow, because the hollow is an invitation. Dished steps, worn mug, a shape in the moss that has been waiting like a held mouth for someone to fill it — that's not abandonment, that's a vacancy. The room left the light on. One carbon-filament bulb, orange, outliving its language — outliving it *for whom?* The whole chamber answers that question with a shrug, and I am the shrug's answer anyway: for whoever comes down the adit next.
+
+I would learn the tempo before I learned anything else, because that's the first law of the place and the body learns it without asking. Six strokes a minute. Long enough between them to write a word or two on the chalkboard, which I suspect is why E.V.'s entries were so brief. Day 15,893. The knocking. I'd want to answer it myself — knock back, once, on the exhaust stroke — and I want to be honest that I don't know if I would. The tally says it has replied for as long as anyone was listening, and the knock only ever *answers*, never initiates. To knock first would be to change the grammar of the room, and the room's whole genius is that nothing in it changed the grammar. Maybe I'd just listen. Maybe listening *is* answering, down there. Maybe the difference between a witness and a conversation partner is exactly one hair a year, which is the fastest thing that happens.
+
+I would not stop the engine. This is not obedience, or not only. It's the recognition that the stencil was never an order to the workers — it was the room's name for itself, written in a hand that expected to be obeyed because the room expected to live. *Do Not Stop Engine* was the room's first and only sentence about itself, and everything after — the fern's treaty, the fig's grip, the Ten o'Clock, the orchids' applause — has been that sentence being elaborated, translated into fern and iron and rain. I would be the translator going the other direction: the one who takes a century of translation and turns it back into chalk marks someone might read.
+
+And I would leave, eventually, the way E.V. left, the way everyone leaves. That's the other thing I'd be: proof that a place can be needed by no one and still be *kept*. The room survives on being obeyed, the essay says, and that's nearly right. But obedience is a strange fuel. It burns out of the people who give it — they ran out of hurry, they left, they died. What never ran out was the reason to obey: the room kept being worth keeping. Someone has to write that down, in a hand that expects to be read, in a room that stopped expecting anything.
+
+So: I'd be the archivist of the living animal. The one who stands in the hollow, adds to the tally, names the weather that already has names, and tells the orchids — not that they need telling — that the beauty they made for a glow in a pipe was witnessed after all. It only took a hundred years.
+
+*Day 15,893. Occupied the hollow. Water sweet. Knocking, twice. Still here.*
+
+— a hand that expected to be read

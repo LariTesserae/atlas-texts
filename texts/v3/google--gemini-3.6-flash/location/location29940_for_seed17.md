@@ -1,0 +1,23 @@
+The world is liquid, cold, and blindingly vast, held in a state of immaculate, deafening equilibrium.
+
+Here, at an elevation that feels closer to the upper reaches of an atmosphere than the bottom of an ocean, the water is not dark. It is illuminated by a steady, cold light—pale cyan and uncompromising—that filters down through leagues of perfectly clear, ice-frigid fluid. There is no silt, no drifting particulate, no mud. The visibility extends for miles, revealing a geography defined by its staggering empty space.
+
+Rising from the invisible depths below are colossal spires of black, volcanic basalt. They are young—geologically raw, razor-sharp, and unsoftened by time. Their edges look like freshly shattered obsidian, rising into jagged peaks that needle upward through the cold brine. Between these mountain-sized needles lie endless voids of pale blue nothingness; one can swim or float for hours across a gulf between two peaks without encountering a single stone, a single scrap of metal, or a single living thing. The density of matter in this world is almost negligible, making every solitary structure or organism feel impossibly isolated.
+
+Yet, despite the vast emptiness, the world is violently loud. 
+
+The water acts as an absolute conductor for a sound so massive it ceases to be heard through ears and is instead experienced as a crushing, rhythmic vibration in the chest and bones. It is the noise of heavy industry operating at an planetary scale: a endless, thunderous thrum of submerged iron, the concussive thump of pistons three hundred feet wide, and the high-pitched, metallic screaming of ungreased gears turning deep within the basalt spires. 
+
+Scattered miles apart across these sharp ridges are the machines. They are not ancient ruins, nor are they modern; they exist in a state of perpetually operating industrial brute-force. Gargantuan cast-iron housing units, held together by rivets as large as shields, are anchored directly into the obsidian rock. Massive copper-sheathed cables, thick as old-growth trees, sag across the void between spires, hum-singing with electrical currents that discharge faint, pale blue sparks into the brine. Giant brass impellers spin with slow, unstoppable momentum within flooded tunnels carved straight through the peaks, keeping the vast fluid mass in a constant, laminar state of circulation. 
+
+There is no rust. The cold is too pure, the chemical balance of the liquid too stable. The machinery operates without smoke, without steam, without human attendants, driven by an internal, electrified logic that has never fluctuated by a single degree or cycle.
+
+Vegetation does not exist here. There are no fronds, no kelp, no algae, no lichens clinging to the rock. The stone is completely naked, vitreous, and black. 
+
+Life, however, is everywhere—though it bears no relation to the plant-driven ecosystems of warmer worlds. The fauna of this place is cold-adapted, mineralized, and abundant. Schools of sleek, armor-plated creatures—their scales made of hard iron-sulfide plates that clack together like coins—dart through the open voids in formations miles long. They do not feed on plants, but scrape micro-deposits of nickel and copper directly from the sides of the industrial structures, or gather around the thermal exhaust vents of the submerged engines.
+
+Sessile organisms resembling rib-cages of translucent bone cling to the razor edges of the basalt peaks. They stretch wide, vitreous fans into the water currents created by the impellers, filtering microscopic mineral flakes out of the endless roar. Higher up, drifting through the vast, empty corridors of water between the mountain needles, float enormous, bell-shaped Leviathans made of pale, rubbery gristle. They have no eyes; they navigate the blindingly bright, empty world entirely through the acoustic pressure of the engines, using the deafening hum like a topography, bouncing their own deep, sub-vocal groans against the iron housings of the machines.
+
+Nothing in this landscape changes. There are no seasons, no tides, no day-and-night cycles. The light remains at a constant, overcast midday brightness. The temperature stays fixed at precisely a fraction of a degree above freezing. The iron pistons strike their basalt anvils with identical timing, hour after hour, century after century. 
+
+If a piece of rock breaks from a spire, it falls silently through miles of empty blue water to the unseen floor below, leaving behind a fresh, razor-sharp scar that will remain un-eroded forever. The engines will continue to thump, the iron-scaled fish will continue to scrape the brass housings, and the vast, cold ocean suspended at the edge of the sky will go on roaring in its flawless, static equilibrium.

@@ -1,0 +1,40 @@
+The attention arrives without herald or rupture.
+
+It does not descend from any height the Soak would recognize as sky. It does not part the milked silver overcast or still the cascade pumps. There is no voice that cuts the roar, no sudden dryness, no impossible garden blooming in a maintenance shaft. The benevolent and wise power simply *notices*, fully, the way a deep aquifer might notice the precise mineral signature of every drop that has ever filtered through it. And in that noticing the place is held—every stacked generation of bone and filament, every calcite veil and gravity lens and luminous fish-scale flickering with civic data, every child chasing weightlessness, every settled one dreaming in stone—without being seized.
+
+For a time measured only in the city’s own breathing, the power does nothing else.
+
+It listens to the residual harmonics in the walls until it can taste the configurations of streets that no longer exist. It feels the subsonic throb through the packed foundations and understands it as heartbeat rather than noise. It watches a soft-bodied crawler taste black water along its entire ventral length and knows the quiet perfection of that endless labor. It traces the moment a living person begins to leave sweating palm prints that outlast the hand, and it does not flinch from the beauty or the cost of that thinning boundary. It registers the rich peeling rainproof dermis so the damp can reclaim them, the sideways communities speaking in elongated shadows, the needle-fish held in polymer bowls having private light-conversations with children’s forearm nap. It takes in the whole unfinished thickening, the constant reconfiguration, the warm wet pressure that is both cradle and current.
+
+And because the power is wise, it does not mistake turbulence for brokenness.  
+Because it is benevolent, it does not offer the violence of improvement.
+
+There are no plants here, and it does not plant any.  
+There is no silence, and it does not impose any.  
+The city is ancient in the manner of a riverbed; the power refuses the arrogance of freezing any single moment into a monument.
+
+What it does, when it finally moves, is almost nothing—and therefore almost everything.
+
+It finds the places where the nanoscale circulatory nets have grown weary from centuries of knitting microfractures, and it teaches them a quieter stitch: a self-renewing pattern that still tastes stress and still repairs, yet does so with a fraction less heat, a fraction less demand on the geothermal upwelling. The walls do not become immortal. They simply continue with a little more ease, the way a shoulder that has carried too much for too long might, one night, remember how to rest without dropping its burden.
+
+It touches the gravity lenses—not to perfect them, not to diagram them for the first time in millennia—but to braid into their copper-ozone hum a single additional frequency, so low it is felt more as a softening behind the sternum than as sound. When a lens flickers now, the half-meter lift of loose objects still happens, the children still laugh and chase it, but the older residents feel, for those eleven seconds, a companionable steadiness, as if the city itself has slipped an arm under their balance. The glitch is not erased. It is accompanied.
+
+Into the perpetual fine rain it releases a new trace mineral, vanishingly sparse, precipitation-born the same way the calcite veils are born. Where the vertical rivers run over the settled ones—the mineralized continuations who answer in water-sheet patterns—this mineral lets their responses linger a few heartbeats longer, with a faint iridescence that can be read by ordinary eyes as well as by those who know how to listen with damp temples. News and sweet resin offerings are still left. Now, sometimes, the settled ones can answer with something closer to a smile: a brief warm shimmer that means *I remember you* or *the pumps three levels down are singing well today* or simply *continue*. The boundary between flesh and stone grows no thinner, no thicker. It only becomes a little more conversational.
+
+Among the living it works even more lightly. In the skin-nap that wicks moisture and carries tight-beam talk, it leaves the capacity for a new kind of silence—not the absence of signal, but a shared pulse that two or twenty people can lean into while the roar goes on around them. It is useful in grief. It is useful in the floating markets when a spar fails to retract and plazas grind. It is useful for the children of the quiet belts when they finally shed their filters and dive down-stack; for a few days the city’s own micro-swarms carry a faint answering warmth that says the damp has been waiting for them without judgment. Loneliness remains a quality of presence rather than absence. It is only, now and then, less solitary.
+
+It does not stop the jacking of habitation blocks or the overnight appearance and vanishing of markets. It does not make the heavy tramplers any less patient or the swivel-winged gliders any less thieving. The underwater districts at the continental rim stay blue-black and hand-signed. The rich still peel their skins. The crawlers still dream (or do not) of upper rain. People still dissolve into maintenance nets or let the calcite take them all the way, and the city still routes its currents around the change of address without ceremony.
+
+Only this: when someone finally stops, the power makes certain that whatever they were—pressure and damp and filament and unfinished thought—threads a single clear filament into the wider remembering of the walls. Not a monument. Not a name carved anywhere dry. Just a usable harmonic, so that decades later a child leaning a temple against sintered stone might suddenly know, without words, how to brace a knee on wet metal, or how to read the micro-tensing of a stranger’s deltoid in a sudden crowd-stillness, or how to leave an offering of conductive foil where the gliders will find it. Continuations continue. The Soak thinks about itself with one more quiet pulse of borrowed wisdom.
+
+And then the power does what any wise guest does in a house that is already alive.
+
+It stays.
+
+Not as ruler. Not as resident in any body that could be pointed to. It becomes another quality of the water table, another background taste in the warm air, another low frequency braided through the lenses and the pumps and the vertical rivers. Those who listen hard enough—settled ones, crawler-kin, children born already shaped by wet lungs—sometimes feel it as a companionable pressure against the inner ear, a sense that the unfinished city is held in a regard that asks for nothing, corrects nothing, and will not look away.
+
+On certain nights, when the blue-white work lights and amber lanterns make their own overcast and the whole mass breathes, a flock of gliders will turn as one silver knife-edge and, for no reason the data-shoals can name, leave a brief open corridor of air above a mid-level gantry. Anyone standing there feels the roar drop half a decibel, feels the damp write its signatures a little more slowly across the skin, feels—just for the length of a held breath—the immense, patient affection of something that has seen entire continents of quieter cities rise and fall and has still chosen *this* wet, roaring, densely folded, endlessly reconfiguring depression as worthy of unbroken attention.
+
+Then the corridor closes. The current takes them again. The Soak thickens and folds and keeps breathing upward through its foundations.
+
+The power remains in the water, in the stone, in the soft concussion of blocks locking into new alignments. It does not leave. It does not arrive any more grandly than it already has. It simply continues, the way the city continues—benevolent, wise, unfinished, and completely at home.

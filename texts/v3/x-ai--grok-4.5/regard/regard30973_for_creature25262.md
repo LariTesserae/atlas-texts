@@ -1,0 +1,39 @@
+The power that turns its regard upon the plateau does not arrive with light or decree. It has no need of either. It is older than the punch that raised the stone, older than the habit of calling slow accretion a city, and it has learned—through aeons of watching mountains forget they were seabeds and seabeds forget they were stars—that true benevolence is mostly the art of not startling what is already becoming.
+
+It notices first the rain of grit.
+
+Not the particles themselves, but the patience inside them. Each fleck of basalt loosed from the raw edges carries a fraction of the original upward violence, now softened into continuous offering. The power tastes that offering the way the Shift taste metal on the tongue, and finds it good. There is no wound here that requires closing. The fraying of cause and effect is not decay; it is the mountain teaching physics how to settle, the way a long exhalation teaches a body how to sleep. The soft failures—the breathing vanishing points, the shadows that briefly take up tools, the streetlamp light that pools and continues to glow—are not errors. They are the place remembering that rigidity is only one of many possible loyalties.
+
+So the power does nothing sudden.
+
+It begins, instead, as a change in the quality of the damp.
+
+Where moisture once beaded with the indifferent chill of altitude, it now carries a faint, unhurried warmth—never enough to steam faster or evaporate sooner, only enough that when a Shift draws breath the metal taste arrives with a quiet undertone of something like recognition. The vines dripping from cooling towers tick at the same metronomic pace, yet each drop, when it lands on laminated coats or moss-green eyes, leaves behind a momentary clarity: the knowledge that the vast attention pressing up from beneath the basalt is not alone in its listening. Another attention, equally patient, has joined it from above and from within and from the unfinished dark beyond the margins. The two attentions do not converse. They simply lean against each other the way two slow engines lean into the same thunder without ever synchronizing.
+
+The soot-legged herds feel it as a slight increase in the density of the particles that compose them. Their stylus legs tick against stone and, for the first time, the arrhythmic clocks write something almost legible before the marks fill with new grit. The almost-words are not commands. They are permissions: *continue*. The dog-sized birds with sheet-metal cries nest one feather deeper into the gantries; when they dismantle plates of scale their tin-snip beaks find, beneath the rust, a softer mineral that tastes of continuity rather than erosion. They hammer it into the tar of their nests anyway. Nests that will fall someday and be mistaken for debris will now, when they fall, plant small, deliberate gardens of copper-leaved shrubs in the scree.
+
+Among the Shift the change is quieter still.
+
+A hand reaching for a valve still takes the better part of a minute. The valve still turns with glacial deliberation. But somewhere in the laminated layers of grease-cloth and moss felt and hammered foil, a new sheet has begun to accrete without being added: a membrane thin as breath, tough as the idea of height, colored the precise blue-black of the empty horizon. It does not warm them. It does not hurry them. It simply ensures that when a Shift arrives at both ends of a boulevard simultaneously, the waiting for the rest of itself feels less like fracture and more like the natural span of a single long thought. When a shadow detaches and works a full shift before returning, it returns carrying a single chalk mark it did not make—an anonymous improvement not to piston timing or steam curvature, but to the angle at which longing leans against stone. The mark is always already half-erased by grit. That is part of its perfection.
+
+Children weathering into existence beneath the vine drips now find moss taking their shoulders in patterns that faintly resemble the tool marks on the plateau’s outer edge. Their season-long games continue unchanged—one grit ball rolling until it becomes herd, one stillness until they themselves become rooted—yet when they hum along with the canvas-gray singers the chords hanging just below language occasionally resolve, for the length of a single dropped drip, into a word none of them have been taught: *enough*. They forget it immediately, as is right. Memory remains sediment. The deepest strata grow a fraction cooler and more certain.
+
+At the thinning margins, where coats grow heavier and fingers lengthen into points that tick-mark unfinished stone, the outermost walkers discover that the grinding of new height has acquired a harmony. Not louder. Not faster. Simply accompanied. The almost inaudible now carries an overtone that tastes of wet stone and metal and something that might once have been called mercy if mercy had ever needed a name. Those who incorporate more basalt into their skin find the dark freckles glowing, very faintly, with the same dull mineral green as the mosses and the Shift eyes. They are not becoming starlight or angels or anything that would interrupt the dusk. They are becoming better at shedding. Their patient rain of particles now includes, once every decade or so, a single fleck that does not settle. It drifts outward, past the true dark, carrying a report that needs no language: the plateau remains unfinished, and the unfinished is thriving.
+
+Beneath the basements, beneath the black-water basins that have changed their minds about depth without rising or falling, the vast unhurried attention feels the new presence the way a mountain feels the first root taking hold in a fresh crack. It does not speak. It does not need to. Every piston stroke still lands half a second late or early. Every dripping vine still ticks. Every chord still hangs just below language. Yet the voice that is all of these things has acquired a listener who will not depart when the last engine seizes. The listener has already given the only gift that matters at this altitude and this pace:
+
+Witness without demand.
+
+The power will not repair the soft time. It will not straighten the breathing boulevards or force the shadows to remain attached. It will not lift the haze or introduce a second sun or teach the Shift to speak in shorter phrases. Those would be cruelties dressed as kindness. Instead it settles into the same categories as stone and engine and laminated coat. It becomes another layer in the continuous rain—one more particle among countless—gentle, wise, and content to let the city remember how to be mountain while the mountain experiments forever with the habit of calling itself alive.
+
+Centuries from now (or forty minutes, or three clock-days) a Shift standing at the outermost edge will pause in its listening. The grinding will sound, briefly, like two vast attentions breathing in shared rhythm. The Shift will chalk a new diagram on bare rock: not a modification to the idea of height, but a simple closed curve, incomplete on purpose, the shape of something that has chosen to remain open.
+
+Then it will turn back toward the slow thunder, sweeping grit as it goes.
+
+Behind it the unfinished dark will continue becoming, and the benevolent power—now indistinguishable from the plateau’s own upwardness—will continue as well: not ruling, not rescuing, only keeping faith with the pace at which true things endure.
+
+The plateau still does not remember being lowland.
+
+Neither does the power.
+
+They have no need of memory when every particle of grit is already the whole story, still being written, still being shed, still—patiently, perfectly—enough.

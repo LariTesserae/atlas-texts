@@ -1,0 +1,40 @@
+You find it by almost stepping in it.
+
+The low forest goes on flat for a long time — no hill, no valley, just level ground at the bottom of the air, warm and held down. The trunks are wide apart. That is the first thing: there is a lot of space between presences. One great buttressed trunk, then twenty paces of dim green nothing, then another. The canopy is closed far overhead, so noon here is a kind of evening. Light comes down in tired shafts and doesn't reach the floor so much as dissolve into it.
+
+And then the floor breaks.
+
+A giant has fallen. Not long ago — you can tell because it still smells like wound, not rot. A fig, maybe sixty meters tall when it stood, has gone over in a storm, and its root plate has stood up as it fell, tearing a shallow pit out of the earth. The plate is a wall now, four meters high, seven across, a vertical disk of raw soil stitched through with roots thick as your thigh and fine as hair. Dirt still falls from it in small dry sighs if you touch it. This is new geology. Nothing is smoothed yet. No creek has found it, no rain has carved it. The edges are jagged, the clay is still in clods, the stones are still sharp. The pit in front of it is embryonic, under construction — not a pond, not a hollow, just a place where the world was recently turned inside out.
+
+You have to crouch to get inside it. From outside it is nothing, a dark line behind ferns. From inside it is a room.
+
+That is the scale of this place. You can sit in the middle of it with your knees up and see all of it at once. It is embedded, a pocket sewn into the larger forest and hidden by it. The fallen trunk itself runs off to the left, massive and horizontal, its bark already softening, its crown gone to tangle somewhere out in the dim. But here, in the lee of the standing roots, the wind doesn't reach. The air is warmer than outside by a few degrees. It sits on your skin like breath.
+
+It is damp, not wet. There is no stream here, no standing water that lasts. What water there is lives in pockets and moments. In the morning and late afternoon, condensation beads on every leaf and root-tip and falls with a soft tick onto the leaf litter. After rain — and rain comes in short, warm, intermittent bursts that drum once on the canopy and vanish — a shallow seep gathers in the foot of the pit, brown as tea, no deeper than your ankle, stippled with mosquito larvae. It stays a day, then sinks. The rest of the time water lives in smaller holdings: a cupped buttress curl holding three tablespoons, the axil of a philodendron, the permanent drip from a severed root overhead that never quite stops, one drop every eleven seconds. You can hear it if you hold still. The mosses know where all of these are. They are dark green and swollen around them.
+
+Because despite the rawness, it is lush. Life did not wait for the soil to settle. The vertical wall is already furred. Moss in cushions, filmy ferns no thicker than a breath, seedlings with two fat cotyledons pushing straight out of the side of the earth as if gravity were a suggestion. Fungi have stitched the fallen trunk — white fans, orange brackets, black fingers. Vines are coming down from above, exploratory tendrils tasting the new light-gap. Everything is close, wet to the touch, smelling of crushed leaf and iron and warm humus. In the heat, growth is audible almost — not in sound but in evidence: a fiddlehead unfurled since yesterday, a mushroom collapsed by noon.
+
+And in the middle of this green rush is a town.
+
+Not a human town. No cut stone, no metal, no straight line that lasts. It is built entirely of saliva and soil and chewed leaf, and it has districts, and roads, and densities, and rush hours.
+
+The leafcutters built it first, or they inherited it. Their main mound rises in the driest corner of the pit, where the seep doesn't reach — a low, pocked citadel of excavated red-yellow clay, perhaps a meter across, cratered with entrances. Around it, satellite shafts: smaller chimneys, waste pits where exhausted leaf pulp is dumped and already sprouting its own tiny mycelium gardens. From this center, highways radiate — cleared, packed-earth paths a finger wide, swept clean of litter, arcing out over fallen leaves and twigs on tiny earthen bridges. One runs up and over the fallen trunk. One disappears into the dark under a buttress. On them, in both directions, endless commerce: rust-red workers carrying green sail-fragments bigger than themselves, held overhead. From above the highways look like veins.
+
+It is settlement-scale if you get down to its level. Crouch until your eyes are six inches off the ground and the mound becomes a walled hill town, the entrances become archways with constant traffic, the foraging columns become avenues. There are neighborhoods: the nursery chambers deep where the air stays moist, the fungus gardens, the middens. There are infrastructure decisions — a new shaft opened after last week's rain collapsed the old one, a detour built around a puddle that keeps reforming in a leaf-cup. Layered construction: old galleries collapsed and built over, the ground honeycombed.
+
+And because there is a town, there is abundant life that lives off the town.
+
+Frogs — tiny, bronze and black poison frogs no bigger than your thumbnail — hunt along the highway margins, picking off stragglers. A gecko the color of wet bark waits motionless on the root wall, throat pulsing. Beetles bulldoze through. Fungus gnats hang in a trembling cloud in the one shaft of light that makes it in, each one a speck. High overhead, under the lip of the root plate where it is driest, a pair of wrens have plastered a domed nest of mud and moss, and they come and go without sound, a flicker. Ants within ants: smaller thief ants trailing the leafcutters to steal. Everything is eating or carrying or building. The pit is active the way a market is active — multiple hungers, multiple weathers, all at once.
+
+Yet it is quiet. That is the rule here. The moss and the raw earth and the close air swallow sound. The leaf fragments don't rustle. The ants make no noise. Even the wren song, when it comes, is muffled to a soft trill as if sung through cloth. What you hear, mostly, is your own breathing, and then underneath it: the eleven-second drip, the tick of condensation, the very faint patter of soil falling from the wall, the occasional plop of a frog shifting in a water-cup. Silence with things moving in it.
+
+The rules of this place are simple and unbeatable:
+
+Moisture is law. Everything lives within a meter of a drip or a cup.
+Nothing is permanent. The wall will slump within two seasons. The trunk will soften and sink. The seep will move. The town will move with it, abandoning galleries, opening new ones. This is a city built to be left.
+Everything is food or house or both. Leaf becomes ant becomes frog becomes soil becomes fern. The waste pit is already a garden.
+Stay small or stay brief. Anything large can only pass through — you, a peccary, a falling branch. Residence is for those who can live in a teaspoon of water.
+
+If you sit long enough, the dim deepens a fraction — cloud over the canopy — and the gnats settle, and a column of carriers halts, antennae waving, waiting out the change in humidity you cannot feel but they can. Then a single warm rain passes, not even reaching you except as a heavier dripping, a quickening. The seep darkens. A frog calls once, low. The town resumes.
+
+From ten meters away, there is nothing here. Just flat forest, wide-spaced trunks, warm gloom, a tangle where a tree fell. The room does not advertise. It is still becoming — raw earth, first moss, first roads — and in a few years when the trunk is soil and the wall is slump and the canopy closes, it will be gone, and the town will have moved house somewhere else, grain by grain.

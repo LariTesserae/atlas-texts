@@ -1,0 +1,23 @@
+This is the interior of the Great Sump of Kiln-Damp: an enormous, low-domed chamber built entirely by hand three or four hundred years ago, left to drown in its own seepage.
+
+There is no bedrock here, no native geology. The floor, walls, and curved ceiling are made of hundreds of thousands of hand-molded clay tiles, each stamped with the faint impression of a thumb or a reed before being low-fired in wood kilns. Under the constant weight of water and time, the masonry has lost its sharp geometry; the mortar, made of crushed river-shell and slaked lime, has dissolved into chalky ribbons that weep steadily from every joint. The floor is a shallow, saucer-shaped depression of dark red brick, sunken at the center, worn smooth as river glass by centuries of dripping.
+
+It is cold—not freezing, but the kind of cellar-chill that sits heavily in the chest, smelling of wet earth, iron wash, and the sweet rot of chitin.
+
+The scale is that of an oversized hall or an underground temple, perhaps two hundred paces from one curved wall to the other, but the space feels overwhelmingly hollow. There are almost no columns. The vaulted roof spans the breadth in one low, daring, primitive arch of self-locking brickwork. Between the dripping ceiling and the slick floor lies a great void of cool, mist-choked air. Nothing occupies the center of this volume except falling water and suspension threads.
+
+Yet the void is deafening.
+
+The sound is a relentless, layered percussion. Thousands of leaks fall from the ceiling in rhythmic, overlapping tempos, striking the drowned floor with hollow *tocs* and sharp slaps that the dome focuses and throws across the room. Beneath the water noise is the voice of the fauna. The Sump is densely, intensely alive, dominated not by plants—of which there are only occasional fringes of pale, hair-like water-mold clinging to the brick courses—but by strange, cold-blooded animals that have adapted to the dark architecture.
+
+Across the ceiling crawl thousands of grease-beetles, flat and broad as hand-palms, their shells the dull yellow of sheep fat. They feed on the sulfur-loving bacterial scum that blooms where the mortar rots. When they shift their weight or fight for footing, their hard claws scrape against the vitrified brick with a dry, metallic rasp like dragging iron nails over slate.
+
+From the brick ceiling down to the shallow water below hang long, glistening plumb-lines—mucus silk extruded by the larval forms of the vault-skaters. Millions of these thin, elastic threads dangle through the empty air, swaying in the slow thermal drafts created by the creatures' collective body heat. The lines vibrate with every water droplet that catches them, chiming softly against one another.
+
+In the ankle-deep sheet of water covering the floor, life moves at a frantic, predatory pace. Blind, pale mud-dogs—amphibians with translucent skin and ribbed, paddle-like tails—thrash through the shallow troughs, hunting the larvae that fall from the threads. Their splashing is sharp and erratic. Every few seconds, one will break the surface in a violent lunge, slapping its muscular tail against the brickwork before sliding under the black skin of the pool again.
+
+The light is faint and bruised. It does not come from above. There are four square sluice-mouths set low into the perimeter walls, primitive intake vents framed with hand-dressed granite blocks. Through these vents, daylight filters from somewhere far above, weakened by turnings and grates, arriving here as a flat, bluish twilight that only catches the crests of the ripples and the wet underbellies of the ceiling beetles.
+
+The dynamics of the vault are governed by a crude, cyclical hydraulic rhythm. Every few minutes, a counter-weighted siphon somewhere behind the southern wall fills, tips, and discharges with a deep, percussive *thrum* that rattles the floor tiles. A surge of cool, mineral-heavy water rushes across the brick floor in a wide, shallow wave, disturbing the mud-dogs and sending hundreds of tiny, white-legged water-striders skittering into the air. The water rises by two inches, laps against the lowest tier of wall-tiles, and then begins its slow, gurgling drain toward the central pit, until the balance tips again.
+
+It is a world built of simple mud and muscle, entirely artificial, yet entirely abandoned to its own wild, clattering ecology—a vast, wet hollow that hums, drips, and devours itself in the dimness.

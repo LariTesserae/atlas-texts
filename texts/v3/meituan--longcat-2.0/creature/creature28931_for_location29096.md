@@ -1,0 +1,48 @@
+To describe the Sintered is to describe the patience of stone, the slow fire of oxidation, and the quiet industry of deep time. 
+
+They do not have a single name for themselves. In the resonant, sub-vocal hum that passes for their speech—vibrations conducted through the soles of their feet into the bedrock, felt rather than heard—they refer to themselves simply as the *We-Who-Repose*, or, more intimately, the *Angles*. It is a name derived not from their bodies, but from the way they settle against the shelves, finding the exact point of gravity where the tilt of the stone becomes an embrace rather than a fall.
+
+**Form and Substance**
+An Angle is not a creature of flesh, nor is it a machine. It is a mineral consensus. Standing roughly the height of a tall human, their bodies are sprawling, low-slung hexapods, built wide and close to the ground to resist the fierce, thin winds that rake the shelves. Their core structure is a lattice of biological basalt—glassy, black, and faintly iridescent, shot through with the same iron-sulfide matrix that binds the silt-striders. Over this skeleton, their bodies are armored in overlapping plates of anhydrite and feldspar, bone-white and translucent at the edges, layered like the scales of some ancient, patient fish. 
+
+They do not have faces in the way carbon-based life understands the term. At the front of their broad, flattened heads, where eyes might be, there is a crown of tightly packed, sensory quartzite whiskers, no thicker than a hair, that vibrate sympathetically with the thermal currents and the deep, structural stress of the stone. Behind this, a heavy, ridged brow of hematite protects a dense, multi-chambered sensory organ. They do not see light; they *read* heat, magnetism, and vibration. To an Angle, the world is not a visual landscape, but a vast, complex symphony of frequencies. The violet of the sky is a deep, thrumming bass note; the iron veins in the cliff walls are high, singing trebles; the slow, crushing weight of a settling shelf is a rhythm that takes decades to complete a single measure.
+
+**Breath and Metabolism**
+The Angles do not breathe oxygen; such a gas is violently, explosively corrosive to their mineral biology. Instead, they draw in the thin, sulfurous atmosphere through porous, sponge-like vents along their flanks. Inside their chests, a labyrinth of catalytic chambers processes the sulfur dioxide, stripping the oxygen to react with the iron-sulfide in their blood-analogue, while venting the remaining sulfur back into the air as a fine, yellow dust. 
+
+This metabolism is achingly slow. An Angle might take a single, deep breath every hour, drawing the gas in and holding it for minutes as the internal chemistry grinds through its reactions. They consume mineral grit—specific silicates and iron ores—crushing it between jaw-plates of biological quartzite, extracting trace energy from the oxidation states of the metals. A feeding might sustain them for weeks. When they move, it is with the inexorable, ponderous glide of a continental shelf. They do not hurry. To hurry is to generate heat, and to generate heat is to waste energy, and in this world, energy is the only currency that matters.
+
+**The Seed and the Wake**
+The Angles do not reproduce through mating. They reproduce through *architecture*.
+
+When an Angle reaches the end of its lifecycle—which might span millennia—it does not die so much as lose its structural integrity. It finds a quiet, windless scree slope, settles heavily into the stone, and allows its internal thermal fires to bank and die. Over the course of a century, its mineral body disaggregates into a fine, highly specific dust. This dust is rich in complex, biological seed-crystals—crystalline lattices that the Angle spent its final centuries slowly growing in its own marrow.
+
+The wind takes this dust, scattering it across the shelf. Most of it is inert, feeding the general mineral ecosystem. But when a grain of this seed-dust lands in a crevice that possesses the exact right combination of thermal gradient, trace sulfur, and iron-leaching moisture from the deep stone, it nucleates. It begins to accrete. Year by year, century by century, it pulls free ions from the air and dissolved minerals from the rock, growing outward like a very slow, very complex crystal. 
+
+After three to four hundred years, the shape is recognizable: a low, six-limbed form, curled in the stone like a resting animal. But it is not alive. It is just a very elaborate, hollow statue of biogenic basalt. It waits. 
+
+And then, one day, a silt-strider herd migrates over the ridge. The thermal currents shift. A deep, subsonic *tock* echoes up from the core of the shelf as a cliff face settles a few centimeters. The vibration hits the hollow statue at the exact resonant frequency of its quartzite core. 
+
+It wakes. 
+
+The Angle unfolds. Its first conscious sensation is the slow, grinding ache of its own weight. Its first action is to take a breath of sulfur. Its first thought—a complex harmonic vibration that it broadcasts into the stone to see if anyone answers—is a query: *What is the angle of repose?* It is asking the shelf where it can safely stand, where it can safely exist, without falling. It is the only prayer they know.
+
+**Industry and the Pattern-Readers**
+The cities are not homes in the organic sense; they are externalized organs. The kiln-towers and conveyor architectures are built by the Angles not to shelter themselves from the elements—their stone bodies are immune to the thermal cycling—but to manage the fauna. The silt-striders are vital. They are the planet's mobile digestive system, breaking down raw silicates into biologically accessible grit, turning over the mineral soil, so to speak. 
+
+The Angles farm them, in a manner of speaking. They do not pen the silt-striders, but they carve the rail-lines and terraces to guide the herds across the shelves, ensuring the creatures graze the over-productive scree slopes and trample the regolith into a state that allows the Angles to easily extract what they need. The drag-conveyors, moving at walking pace, do not haul ore for smelting in the way human mines do; they haul *living* silt-striders up to the upper thermal shelves, where the thin air and steep gradients stress the creatures, forcing them to process minerals at a faster rate before depositing them back on the lower shelves in a state of rich, nutritional exhaustion.
+
+The thermoelectric arrays that scale the cliff faces like metallic lichen are not for powering lights or machines. There is no night-life here, no frantic electrical hum. The current drawn from the thermal gradient is used to vibrate the arrays at a precise frequency. This is the "industrial process." The Angles use this frequency to *listen* to the deeper stone. 
+
+The cities are quiet because the Angles are constantly engaged in the act of Pattern-Reading. The thermal hum of the spines, the migration of the silt-striders, the slow cracking of the cliffs—these are not just background noise. They are the visible syntax of the planet's geological metabolism. By listening to the current produced by the arrays, the Angles can hear the stone falling asleep or waking up. They can hear a fault line two hundred kilometers away preparing to slip. They can hear the deep, rhythmic breathing of the planet as it expands under the sun and contracts in the dark.
+
+When an Angle works, it works with its whole body. It does not hold a tool; it *becomes* a chisel. It will brace its heavy, basalt-heavy shoulders against a cliff face and vibrate its quartzite whiskers at a frequency that shatters feldspar, slowly, patiently carving a tunnel or a rail-line into the bedrock over the course of a decade. The "builders and extractors" mentioned in the old texts are not laborers; they are living extensions of the cities, parts of a vast, distributed organism that is slowly, reverently, reshaping the mineral world.
+
+**The Question of the Thermals**
+And then there are the Thermals. The shimmering, disc-shaped updrafts that drift across the violet sky like living heat mirages. The Angles do not farm them. They do not harvest them. They worship them.
+
+To the Angles, the Thermals are the planet's soul made visible. When an Angle dies and its body disaggregates, the biological seed-crystals are launched into the updrafts on the wind. The Angles believe that the Thermals—those vast, sustained patterns of heat and energy—are the ancestors, riding the thermal gradients, feeding on the flow of the world, finally free of the heavy, crushing weight of stone. 
+
+When the Thermals descend to the surface to deposit or collect mineral particulates, the Angles gather around them in silence. They do not approach. They do not interfere. They stand on the edge of the city, their quartzite whiskers vibrating in sympathy with the shimmering air, and they broadcast a low, deep, subsonic chord into the bedrock. It is a greeting. It is an offering. It is an acknowledgment of the ultimate promise of their existence: that one day, their own pattern will catch the wind, and they will rise, leaving the stone behind forever, to join the silent, drifting choirs in the violet deep.
+
+Until then, they maintain the angle of repose. They breathe the sulfur. They shape the rock. And they listen, endlessly, patiently, to the slow, deep music of the Pinnacle Shelves.

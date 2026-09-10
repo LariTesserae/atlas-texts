@@ -1,0 +1,36 @@
+In a world without the hard resistance of stone or the sudden violence of dry air, life does not bother with skeletons of bone, nor with sharp hooves, nor with the frantic, fuel-hungry furnaces of warm-blooded predators. Form here is soft, expansive, and patient. The creatures who wander the swells and drift through the mist-panoplies are made of the same saturated, fibrous logic as the floor beneath them. 
+
+### The Swell-Drifters and the Felt-Padded
+Moving across the great, yielding rises are the *Oilers*—broad, low-slung quadrupeds whose bodies are less like distinct animals and more like slow, ambulatory mounds of tallow and wet velvet. They have no claws; their limbs terminate in wide, disc-like pads composed of interlocking, fibrous rings that act like snowshoes across the peat, distributing their immense weight so evenly that they leave no more than a faint, glistening depression that springs back into shape within an hour.
+
+Their skin is thick, semi-permeable, and mottled with patches of pale ochre mold and dormant liverwort. They do not have eyes in the conventional sense, for there is nothing far away to see through the milk-fog; instead, along the ridges of their broad, sloping skulls run parallel grooves lined with sensitive, gelatinous cilia that taste the shifting humidity gradients and register the distant, sub-audible groan of shifting root-arches leagues away. 
+
+The Oilers feed without biting. Their lower jaws are scoop-shaped troughs lined with continuously growing plates of dark, fibrous horn. They lower their heads and press their mouths against the weeping fissures of the city-sized trunks, drinking the tea-colored sap and grazing away miles of slippery bacterial film. When an Oiler sleeps, it does so for months, settling into a shallow hollow in the peat until the creeping ferns begin to weave across its flanks, binding it temporarily to the world-floor until a shift in the warm wind wakes its slow pulse.
+
+### The Suspended Life of the Sky-Pools
+In the vast root-crowns, where the perched seas sit warm and undisturbed, the water is thick with organisms that neither swim nor sink.
+
+* **Vellum-Skates:** Paper-thin, translucent beings the size of carpets that drift through the tea-dark phytotelmata. Their bodies are held rigid only by hydrostatic pressure, filled with the very rainwater they inhabit. They possess no mouths; their undersides are a velvet network of absorbent filaments that continuously draw in the dissolving pollen and dead spores that rain out of the upper mist. To move, they do not flap, but simply open and close tiny hydraulic vents along their margins, sighing their way through the warm water with the slowness of drifting leaves.
+* **Radula-Worms:** In the deep silt at the bottom of these high pools live segmented worms as thick as human thighs, whose hides are armored with plates of amber harvested from the bark-fissures. They are the stone-chewers of this world, though they chew not rock, but the compacted, fossilized wood-fibers of dead root-shelves. Over centuries, their slow digestive churnings hollow out the under-canopy, creating labyrinthine underwater galleries where younger, fragile larvae cling like bunches of swollen, glowing grapes.
+
+### The Air-Plankton and the Veil-Gliders
+The air is so saturated with moisture and buoyant spores that the boundary between swimming and flying is blurred. 
+
+Drifting through the tepid milk of the sky are the *Spore-Sheets*—colonial organisms that resemble wide, undulating scarves of oily parchment, some stretching thirty paces from tip to tip. They have no internal organs, only an intricate venous network that traps pockets of methane brewed by the decomposing peat far below. They ride the warm, rising convection currents that wash up the flanks of the great domes, suspended indefinitely between the high clouds and the canopy. 
+
+Beneath them, hanging upside-down from the damp undersides of the root-arches, are the *Weepers*. These are slender, blind primates of a sort—though their limbs have lengthened into supple, rubbery ropes and their fingers have fused into broad, weeping suckers. They live entirely in the inverted shade of the under-canopy, never touching the open floor. They communicate across the deadened, sound-muffled air not with cries, but by striking the hollow, drum-like reservoirs of the giant pitcher-plants with their thickened knuckles, sending deep, resonant thuds pulsing through the living wood.
+
+### The Stone-Tenders (The Ancient Continuity)
+There are minds here, too, though their thoughts move at the cadence of a rising peat-bog.
+
+They are called, if they have a name at all, the *Silt-Born* or the *Tallow-Folk*. They are bipeds, but radically transformed by ten million years of unbroken damp. They stand long-limbed and heavy-footed, their skin hairless, slick, and the color of wet slate, veined with faint traceries of symbiotic blue lichen that smolders faintly when they gather in the under-canopy caverns. Their eyes are small, dark pearls shielded beneath heavy, lidless brows—eyes that see only the difference between the jade glow of noon and the bruised purple of twilight.
+
+Their culture has no fire, for nothing here can be made to catch, nor is there any cold to drive them toward it. They have no concept of wheels, for the ground is a mattress into which all hard axles would sink. They do not mine, for there is no stone to be reached beneath the miles of rotten pulp.
+
+Instead, their entire existence is organized around the rare, smoothed monoliths and the ancient circular foundations. To the Silt-Born, these drowned stones are not historical remnants—they are *anchors*. In a world where everything shifts, swells, decomposes, and grows, stone is the only matter that does not breathe. 
+
+Groups of Silt-Born spend whole generations clustered around a single ring of pebbles. They scrape the encroaching wood away from the stones using tools made from the calcified radulae of the giant gastropods. They sleep with their rubbery spines pressed firmly against the smoothed rock, seeking the rare, unyielding coolness that only stone retains. They believe that if they do not hold the stones, the world-floor will continue to rise indefinitely, lifting them into the thin, cold air of the upper sky where the mist gives out and life dries into dust.
+
+Their language is not made of rapid words. It consists of low, sustained chest-hums that resonate through the spongy ground, traveling through the root-mesh to be felt in the soles of another tribe three rises away. A single greeting can take an entire morning; an agreement to share a sap-well may be hummed back and forth over the course of an entire damp autumn.
+
+They do not bury their dead; they carry them to the great weeping fissures of the mother-trees, laying them in the warm, tea-colored sap. Within weeks, the body is drawn into the bark, preserved in amber, and lifted slowly over centuries into the canopy—becoming, like everything else, a permanent part of the soft, eternal landscape that holds them.

@@ -1,0 +1,53 @@
+Go down. The way in is a stair of stamped iron treads, each one sweating, each one bowed in the middle from a century of feet that aren't coming back. The air thickens as you go. At the surface it was hot; here, twenty steps down, it is hot the way the inside of a mouth is hot — close, wet, breathed-through. The rail is too warm to hold for long.
+
+The stair lets out onto a floor that is not a floor. It is a bed of fallen things — brick, slag, the fine rust-mud that iron becomes when it has been damp for a very long time — over which a skin of moss has closed like a healed wound. The moss is the colour of cooked liver. It is spongy and gives back heat when you press it. Everything here gives back heat.
+
+You are in a hall. That much is clear even in this light. The roof is a shallow vault of brick, and it has held, mostly; there is one place, off to the left, where it has not, and through the breach comes the only daylight the hall receives — a slack grey column, not a shaft so much as a leak, that lands on the floor and lies there without spreading. Everything else is lit by the fault in the darkness that lives in the walls: seams of something luminous and dull, orange-going-brown, like coals that have been asked to keep burning past their strength. They are not coals. They are pipes. Iron mains as thick as a body run along the base of every wall and up the piers, and their surfaces have oxidised into a scale that holds a low incandescence, the way a stove's cast door does after the fire is banked. They throw just enough light to give the hall its edges and its distances and no more.
+
+The heat comes up from under the floor. Not evenly — there are hotter places and less hot places, and you learn them with your feet through your boots, and you learn to move around the hotter ones. What is under the floor is not in question, exactly; it is only that there is no way to look. The hall was built here because of what is under it. That was the point. Somewhere below the rust-mud and the moss there is a firebed that was never a fire, a rock that has been giving out heat since before anyone thought to put a boiler on top of it, and the boilers — you can see them now, three of them, tall and riveted, ranked along the far wall like the drums of some instrument that no one plays — the boilers were not there to make the heat. They were there to *take* it.
+
+---
+
+The sound is the thing you would have noticed first if you had come here with no eyes.
+
+It has no single source. It comes from the pipes, from the boiler shells, from the brick itself, and it is loud — properly loud, the loud of a foundry floor or a weir in flood — and it is continuous. What it is, once you have stood in it for a while, is *expansion*. Iron warming, iron cooling, iron warming again, each fractional movement of each plate against each rivet producing a tick or a groan or a high sustained note, and there is so much iron here and it has been doing this for so long that the individual sounds have long since fused into a roar. Inside the roar you can pick out registers. There is a low grinding that seems to circle the hall clockwise, round the wall mains, taking about forty minutes to go all the way round. There is a bell-note that comes from the middle boiler at what may be regular intervals and may not. There is, from somewhere behind the boilers or beneath them, a sound like a held breath being let out through teeth: steam finding a way through.
+
+You cannot speak here and be heard. You give up trying almost at once. The sound is not hostile. It is simply the size of the room, and you are not.
+
+---
+
+The plants grow on the iron.
+
+That is the first thing about them and it is hard to get past. The moss on the floor is one thing; moss will grow on anything. But rising from the flanks of the boilers, from the pipe seams, from the bolt-heads on the piers, there is a vegetation that has decided iron is soil. Ferns, or something that stood where ferns stand in the arrangement of things — long, pinnate, drooping, with fronds the width of a hand and the length of an arm, coloured a dark oxblood shading to black at the stems. They emerge from splits in the scale where rust has opened the metal like bark, and their roots (you can see them where a frond has died and fallen away) go *in*. Not along the surface. Into the plate. The rust is what they eat. They are turning the works into themselves at the rate that iron turns into rust, which is to say slowly, and with tremendous patience, and completely.
+
+They are wet. Every frond is beaded with condensate, because the air here is at the edge of what it can hold and the leaves are, by a small margin, cooler than the air. Water gathers on the undersides and runs to the tips and falls. Under each fern there is a spot on the moss darker than the moss around it. Where several ferns hang together over a stretch of pipe the dripping is constant, a rain that never reaches the ceiling, and in those places the moss has grown up into low mounded pillows, and out of the pillows there is another thing — a stalk, pale, waxy, leafless, ending in a closed bud that never seems to open. There are dozens of them. They lean, very slightly, toward the boilers.
+
+Along the top of the wall mains, where the pipe surface is hottest, there is a third growth, and this one is the strangest, though it takes a while to see why. It is a kind of climbing plant, thin-stemmed, with small round leaves like coins, and it has grown along the mains in both directions from some original point, following the pipe, never leaving it, and its leaves are all turned the same way — not toward the leak of daylight, which would make sense, but toward the pipe. Flat against it. Absorbing. The plant is photosynthesising, if that is the word, off the glow of the rust. It is feeding on the dregs of light given out by cooling metal, and it is doing well enough on it to have covered, by now, most of the length of the hall. Where the two directions of its growth met, on the far side, there is a knot of stems the size of a fist that neither direction has been able to grow through. It is possible the knot has been there for decades. It is possible the plant does not know it is one plant.
+
+---
+
+There is nothing living here that moves.
+
+No insects on the moss. Nothing in the drip-pools under the ferns — you crouch and look, and there are no larvae, no worms, no thread of anything wriggling. No webs in the corners where the pipes turn. No droppings on the ledges. Nothing has flown in through the breach in the roof, or if it has it did not stay, or if it stayed it did not last. You do not know which and it is not something the hall will tell you. The vegetation reproduces by extension — the ferns send a runner along the seam, the moss creeps — and there is no pollen because there are no flowers, only the waxy buds that do not open. Nothing here has ever needed anything with legs.
+
+It gives the place a particular quality that is hard to name at first and then is easy. The hall is *unsurveilled*. Nothing here has ever looked back.
+
+---
+
+The industrial remnants are not many and they are not arranged. There are the three boilers. There is, in the corner farthest from the stair, a fourth structure that is not a boiler — a squat housing, hip-height, with a shaft coming out of it that used to go up through the roof and now ends in torn brick. A pump, or a governor, or a winding-engine. Its casing has split along its seam and the ferns are in it. There is a tool bench along one wall, iron-topped, with a vice still bolted to it; the vice jaws are closed on nothing and rusted fast. There is a line of hooks in the brick at head height and one thing still hanging from one hook, a shape gone so soft with rust and moss that it could have been a coat or a bag or a lantern. There is, half buried in the moss near the leak of daylight, a wheel.
+
+The wheel is the one thing in the hall that turns.
+
+It is a flywheel, perhaps two metres across, spoked, mounted on a horizontal shaft that runs back into the darkness toward the boilers. It is so slow you cannot see it move. You can only see that it *has* moved — that the spoke you lined up against a brick a while ago is no longer lined up. You watch. You give it a long time. In the time it takes for the low grinding note to make one full circuit of the wall mains, the wheel advances by perhaps a hand's width along its rim.
+
+What turns it is the hall. The shaft runs to a crank, and the crank runs to a rod, and the rod runs to something in the boilers, and the something is not a piston in any sense that would have satisfied the people who built it. But the boilers warm and cool with the slow tides of heat that come up from below, and the iron lengthens and shortens, and the lengthening and shortening has found, by luck or by a design no longer legible, a way to push. A hair. A hair again. The wheel turns a little less than once a day. It has been doing so for long enough that the moss on the floor beneath it is worn in a shallow ring.
+
+---
+
+The rules of the place are few and are not written anywhere but are perfectly clear.
+
+Heat moves up. Water moves down. Iron becomes rust and rust becomes plant, and the plant, when it dies, becomes the liver-coloured floor, and the floor is a little higher each century than it was. The light will fail as the scale on the pipes thickens; already there are stretches where it has gone from orange to the colour of dried blood and you can see that in time the coin-leaved climber will have nothing left to eat, and it will go too, and the hall will be dark and loud and hot and green and then dark and loud and hot and brown. Nothing here is in a hurry to reach that.
+
+The sound will not stop. As long as there is heat under the floor and iron to receive it, the hall will roar. It is not the roar of anything working. It is the roar of a thing being slowly, carefully, thoroughly *taken apart* — by warmth, by wet, by the roots — and it happens to be as loud as production ever was.
+
+You climb back up the sweating stair with the noise pressing on your back like a hand. Near the top the air begins to thin and cool and the sound behind you closes down to a hum, and then, at the last step, to nothing you could point to — only a warmth under your feet, a faint tremor in the iron, the sense that the ground here is not the bottom of anything.

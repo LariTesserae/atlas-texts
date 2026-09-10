@@ -1,0 +1,20 @@
+This is the **Sump-Basin of the Gilded Piston**, a localized industrial hollow measuring no more than three hundred yards across. It is a deep, architectural bowl—a cathedral of infrastructure sunk into the low-lying silt of an ancient flood-plain. Here, the distinction between a machine, a building, and a plant has been eroded by centuries of humid equilibrium.
+
+The air is a heavy, golden-brown suspension. It is warm, holding the static heat of working engines, and so saturated with moisture that the atmosphere feels less like gas and more like a thin, breathable syrup. Everything is sweating. The massive, tiered iron walls that ring the basin are slick with a permanent film of "machine-sweat"—a mixture of condensing steam, lubricating oils, and nutrient-rich runoff.
+
+The terrain is a vertical urbanism. Narrow, rusted catwalks and brass-railed balconies are stacked like the shelves of a library, climbing the walls of the basin in dense, overlapping layers. These structures are not ruins; they are operational, but their purpose has shifted toward the slow, rhythmic maintenance of the water. Great copper pipes, thick as redwood trunks, pulse with a low-frequency vibration, carrying hot mineral-water from deep subterranean vents to the surface.
+
+At the center of the basin, the water gathers in a series of shallow, interconnected pools. This is a technical marsh. The floor is not mud, but a fine silt of oxidized iron and pulverized brick, through which thick, black cables snake like submerged roots. 
+
+The vegetation is aggressively lush, feeding on the warmth and the metallic runoff. It is a flora of extreme specialization:
+*   **Filament-Moss:** A neon-green, spongy carpet that blankets every flat surface, muffling the metallic echoes and glowing faintly where it absorbs the discharge from overhead electrical nodes.
+*   **Valve-Ferns:** Large, waxy fronds that grow exclusively from the exhaust ports of steam-vents, their leaves rhythmically flapping in time with the slow, pressurized release of hot air.
+*   **Copper-Vine:** A parasitic, wire-like creeper that mimics the industrial cabling, wrapping itself around pipes to draw heat, its leaves shaped like small, serrated shims.
+
+There is no animal life—no buzzing insects, no nesting birds. The only "respiration" comes from the machines. The basin is loud, filled with a continuous, symphonic thrum. It is the sound of a city-sized engine running at a resting pulse. There are deep, percussive clunks from somewhere beneath the water, the rhythmic *hiss-sigh* of hydraulic governors, and the high, singing whine of steam passing through narrow apertures. The sound is so constant it becomes a physical weight, a pressure against the chest.
+
+The scale is intimate yet overwhelming. Standing on the lowest level, you are surrounded by the density of a metropolis, but the boundaries are always visible—the soaring, weep-stained walls of the basin rise up to a ceiling of thick, low-hanging smog that obscures the sky. The light is dim, filtered through this perpetual haze, casting long, soft shadows. It feels like being inside the clockwork of a submerged god.
+
+Change here is patient. A gear the size of a house might complete a single rotation over the course of a week. A slow, steady drip of oil from an overhead crane might take a decade to carve a notch into the brass plate beneath it. The erosion is "established"—the metal is not decaying into chaos, but is being sculpted into a new, balanced form. The rust has become a protective skin, hard and smooth as obsidian.
+
+Everything is near-touching. The density of pipes, ladders, vents, and foliage creates a labyrinthine texture where one cannot reach out without touching something warm, wet, and vibrating. It is a landscape of high saturation—deep copper oranges, vibrant moss greens, and the charcoal black of wet iron—all held together by the heavy, rhythmic heartbeat of an industrial system that has forgotten its original purpose and has settled, instead, into a long, slow life of simply existing.

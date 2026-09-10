@@ -1,0 +1,43 @@
+# What Lives in the Valve Grove
+
+Start small, because that is how the room itself would want it — and because most of what lives here is very small indeed.
+
+Under the green turf, woven through it, at the base of everything, there is a mat of pale threads and slower creatures, a felt of life so fine it has no single name. The floor is a lawn, and the lawn has livestock: translucent grazers the size of dust, working the film of algae the way snails work a garden, generation upon generation of them rising and settling in the warm dark at rates the room approves of. They have never known a current worth resisting. They have never been cold. If a rotifer could be said to have a temperament, the temperament of these is contentment, and there are more of them in this one room than there have been human visitors in sixty years, which the room regards, in its slow way, as the correct ratio.
+
+Above them, the visible cast.
+
+## The grazers
+
+The snails came down the light-well early, or their eggs did, riding the flood on some leaf or some luck, and they have made the place theirs with the modest thoroughness of snails everywhere. They are thinner-shelled than their ancestors — the water is mineral-rich but mineral-strange, threaded with copper, and shells are expensive in a place where calcium must be budgeted — so they have become dark, slight, almost elegant, their spirals gone lean and translucent, so that held to a lamp (no one has; no one would) you could see the shadow of the animal coiled inside.
+
+Their work is mowing. The moss-analogues grow thick on the warm iron and would smother their own substrate if left alone, so the snails travel the pumps' flanks in slow rasping caravans, trimming the green ruffs to a velvet, and the trails of their passing show as pale waxen lines on the metal, a handwriting across the machines that no one reads and nothing needs to. They cluster thickest on the brass, which holds the heat best, and they move — this is true, and divers have verified it with the patience the room demands — they move *toward* the warmth with a certainty that looks, in such a dim animal, like devotion.
+
+## The filterers and the seam-rider
+
+Where the copper pipes cross and the soldered joints swell with decades of mineral fur, there are colonies of something like lace — a bryozoan or its patient analog, spreading in frost-patterns across the seams, each colony a fine net of animals that never go anywhere and never need to. The room sheds silt constantly, in grains too small to see, and the lace eats the sheddings, and this is the room's quietest economy: the room feeds the colonies on its own dander, and the colonies in time become part of the architecture, so that the pipes are gradually growing their own insulation out of gratitude.
+
+And in one specific place — high up, near the crown of the vault, at the split pipe where the thread of water rises into itself — there is the seam-rider: a single small shrimp, glass-clear, quick by the standards of a room where quickness is blasphemy. It lives in the crack where the pipe confesses its pressure, riding the upwelling, cleaning the seam, the only creature in the Grove with a job that requires it to be vertical. It is the room's one nod toward industry. It works the way the pumps used to work — tending a flow, keeping a passage open — and if you wanted to be sentimental about it (the room would tolerate this, barely) you could say the shrimp is the last employee, still at its post, still on the clock that the drip keeps.
+
+## The Tenant
+
+And then there is the other one.
+
+Divers find it late, which is correct. It is usually mistaken, at first, for one of the belt-ribbons hanging from the vault — a pale draped length swaying very slightly in a current that shouldn't exist — and the mind files it as machinery's laundry and moves on. Then the draped length opens its mouth, slowly, the way a question opens, and closes it again, and the mind un-files everything.
+
+It is a salamander, in the way the room is a basement: technically, ancestrally, at some point in history. It is the length of a person, and pale as the plants are pale, grown out of the light into something that no longer needs to be any color at all. Its skin is thin enough to see through, thin enough that its dark slow organs show beneath like the veins show in the leaves — it has converged, without meaning to, on the room's own favorite aesthetic, the translucent veined look of everything here that grew toward a rumor. Behind its head, where its ancestors wore gills, it carries a ruff of frills, blood-filled, gently moving, and this is the room's private joke: the machines wear ruffs of moss, and the Tenant wears a ruff of flesh, and together they dress the same.
+
+Its eyes are almost gone — two silver smudges, decoration only. It does not need eyes. It navigates by warmth, which in this room is the same as navigating by meaning, and by pressure, which in this room is the same as navigating by news. It feels the town overhead the way the diver does, in the chest, and it has been feeling it for so long that the town's slow tides are to it what weather is to a farmer: not information, but texture.
+
+What it does all day is the same thing the room does all century. It drapes itself over the warmest iron — coiled around a flywheel, laid along a pump's flank where the brick banked its fire longest — and it settles its metabolism to the temperature of the walls, which is to say it settles its whole being to the temperature of 1902. It eats rarely and without drama: a snail every week or two, taken so slowly that the snail — an animal not famous for panic — never quite registers that anything has gone wrong. The Grove has exactly one predator and one death in it, and the death is slower than the room's weather. Where the Tenant habitually sleeps, the turf runs greenest and thickest, fed beyond even the Grove's standard of lushness, so that its bedroom is visible from across the room as the single richest patch of green — the room's warmest spot made warmer, the way a body makes a dent in a bed.
+
+## Its arithmetic
+
+Here is the part divers do not say aloud, after the part about the dream.
+
+The Tenant has no fear. Not reduced fear — none. Nothing in its history, or its ancestors' history in this water, has ever moved fast enough to be dangerous, and when a diver's light crosses it, it does not flee, or coil, or blanch (it could not blanch; it is already the color of having done so). It opens its mouth in the mild amphibian question, holds still while the beam passes over it like weather, and goes back to whatever it was doing, which was nothing, which was the point.
+
+And its age does not add up. Sized as it is, grown as slowly as growth happens here, counted in rings or in years or in the honest arithmetic of metabolism, it comes out older than the flood — older than the room that made it, since nothing could have entered before the water did. This is a problem the mind sets down gently, the way you would set down something heavy at the top of the stairs, and does not pick up again. The divers' other report — that its breathing seems, if you stay long enough, to fall into time with the drip, one slow breath per several falling drops, as though the room's clock were keeping *it* rather than the reverse — this report they also decline to say aloud. The room tolerates witnesses. It does not require them to understand.
+
+One more thing, and it is small, and it is this: on one of the belt-ribbons, among the hanging gardens, there is a cluster of pale eggs — few, slow, each yolk turning at intervals nothing measures. If they hatch, the young will disperse up the light-well, as young of this kind apparently always have, one to each drowned cellar, one to each sealed warm basement under each forgotten hillside — a species whose members mostly never meet, distributed one per room across a whole buried country, each holding the warmth of its own dead machines, each the single moving piece of a place that has otherwise finished arranging itself.
+
+The Grove does not need the Tenant. But it keeps it, the way it keeps everything — slowly, out of a settled preference for having all its presences pressed together, iron and water and green and this one warm pale length of time coiled where the fire used to be. Nothing in the Valve Grove is finished. The Tenant, being the least finished thing in it, is therefore — by the room's patient arithmetic — the most alive.

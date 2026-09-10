@@ -1,0 +1,11 @@
+You hear the Hollow an hour before you see it.
+
+The trail comes up through gray shattered rock, above the last dwarf willow, above everything that could be called a meadow, and long before the ridge tops out there is a sound in the air: a single sustained low note, felt in the sternum more than the ears, the way a bottle hums when wind pours across its lip. That is what the place is, at the top of the world — a rim shaped like the mouth of a bottle, and a wind that almost never entirely stops. The note holds for days. It changes pitch with the weather, and the herders read it like a barometer: a third higher, heavy by noon.
+
+Then the ridge levels, and the bowl opens below you.
+
+It is small. That is the first thing that surprises — after all that altitude, all that climbing, the place itself would fit inside a large hamlet. A glacial cirque, a stone bowl perhaps four hundred paces rim to rim, with a headwall rising dark on the far side and a flat green floor. You could walk the whole of it in an hour. The other peaks stand at your eye level across the gap; the morning's clouds are already below the rim, moving like a slow sea. Your breath is short and thin. And the bowl is loud — roaringly, strangely loud, wind and water and a din of animals layered into a permanent chorus, for the cirque is a resonator and everything that happens inside it is doubled and returned off the walls.
+
+What happened here is old and finished. Ice carved the bowl some immense time ago and then left, and the mountain has done nothing since but keep it. The headwall is glacially polished, grooved like wood grain. The benches on its flanks are settled. The talus slopes are ancient, locked together by roots and lichen, stable as pavement — a stone dropped anywhere on them just sits. Nothing here is actively crumbling; the erosion is all in the past tense. The place reached its final state centuries ago and has been resting in it.
+
+And it is nearly empty. This is the second surprise. Inside the rim there

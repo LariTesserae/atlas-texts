@@ -1,0 +1,23 @@
+To move here, life cannot rely on the wet mechanisms of muscle and lung; it has no use for digestion, wet rot, or the hurried burning of carbon. What inhabits these terraces belongs to the physics of the plate itself.
+
+At first, the mesas appear entirely static, but if observed across the long arc of a sun that never dims, the ground reveals a slow, deliberate kinematics. 
+
+The smallest inhabitants are the *cleats*—flat, polygonal plates of native antimony and cold-rolled iron that rest against the bare silicate shelves. They possess no eyes, antennae, or legs. Instead, their undersides are etched with microscopic, directional grooves, like the teeth of a microscopic ratchet. As the sun beats into the upper face of their shells and the bedrock draws heat from below, the differential expansion of their bimetallic layers causes them to flex with imperceptible, continuous power. They creep across the glass flats a fraction of a millimeter per hour, not searching for food, but seeking areas of higher galvanic potential, settling over subterranean quartz veins to drink the faint, pulsing current of the mountain’s crust.
+
+Where the bronze fronds are thickest, one finds the *calipers*. 
+
+These are articulated, needle-thin organisms forged from naturally drawn tungsten wire and pale, crystalline calcite. Standing four to six feet high on three hair-fine stilts, they look like drafting tools left upright on a surveyor’s desk. They have no center of mass in the traditional sense; their bodies are counterweighted systems of gossamer trusses that sway in total equilibrium, utterly silent. The calipers do not eat the metallic flora. Rather, they tend the tension of the canopy. Moving with a delicate, clicking gait—advancing only when a thermal shift releases a tiny internal pawl—they position themselves over the bronze leaves, using precise, clamp-like mandibles to crimp the edges of the metal foil, tuning the leaves’ resonant frequency to match the deep hum of the bedrock. 
+
+Between the calipers and the flora, there is no boundary between gardener and garden; they are merely the active, mobile joints of the same overarching circuit.
+
+Out across the vast, polished voids, where the shelves drop sheer into the empty sky, exist the *cantilevers*.
+
+These are the plateau’s apex forms, though they hunt nothing. They are colossal, singular beams of porous, high-tensile titanium lattice, sometimes hundreds of paces in length, perfectly straight and balanced on a single, frictionless fulcrum of natural corundum. A cantilever may remain perched on the brink of an abyss for centuries, perfectly still, extending its long, tapered prow out into the dry, empty light. It lives by induction. As cosmic radiation and unshielded solar winds sweep across the high atmosphere, the cantilever collects the ambient charge across its entire length, focusing it down into its solitary grounding point on the mesa’s edge. 
+
+When two cantilevers meet along the same fault-line, there is no contest or aggression. Over decades, they pivot with infinitesimal smoothness until their terminal points align, a hairsbreadth apart. Across that minute gap, an invisible potential builds until a silent, continuous arc of violet static bridges the two, transferring whole geometries of stored charge—a lifetime of light, balance, and tension passed from one sovereign frame to another.
+
+Reproduction in this place is not a matter of seed and womb, but of deposition and fracture. 
+
+When a creature’s lattice becomes saturated with charge, it does not die in the organic sense; it reaches an absolute modulus. It seeks a cleavage plane in the virgin ironstone and welds itself to the rock in a final, searing flash of galvanic discharge. From this fused anchor, the natural crystal lattices of the stone begin to order themselves around the template of the parent frame, slowly extruding a new pair of calipers, a new set of ratcheting plates, or the first, nascent spar of a cantilever, perfectly formed, sharp-edged, and ready to assume its place in the quiet, perpetual balance of the height.
+
+They do not fear time, for there is nothing here to rust them. They do not fear the void, for they are built to span it. Their experience of being is not one of thought or sensation, but of load: a pure, ceaseless appreciation of weight, conductivity, thermal drift, and the mathematical beauty of an unbending sky.

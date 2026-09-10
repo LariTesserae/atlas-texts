@@ -1,0 +1,51 @@
+What lives on the shelf is what has found a way not to be coated, or has been coated and not minded. There is no third kind. The place asks one question of everything that arrives — will you keep moving, or will you become wall — and it asks it without interest in the answer, and it asks it of you from the moment your boot is in the film.
+
+---
+
+The swifts, first, because the swifts are what you will see.
+
+They have solved the question by never touching the shelf. They roost in the hollows behind the falls, but a hollow behind a fall is not on the shelf so much as inside its one exception — a pocket where the water has eaten the wall back faster than the weep can reclad it, and the sheet goes past the mouth in a grey-white curtain, and behind it there is a shelf of spalled stone that is not dry, exactly, but is merely wet rather than running. The birds hang on it in rows. They are always slick. Their feathers never fully dry, and they have the look of things dipped in oil, and when they shake the spray comes off them in a small private rain that joins the general one.
+
+Their nests are the only record of years on the shelf. A swift builds with saliva and a few of its own feathers, a shallow cup glued to the rock, and on the shelf the cup is a bead of stone by the time the eggs are laid, and cannot be reused, because the young in a stone cup would be sealed to it before they were fledged. So the birds build on top. Each year a new cup on the old one. The back walls of the hollows are stippled with them, hundreds of small white knobs, and the knobs are grown together lower down into a single lumpen crust that is nests all the way through, generations of them, layered like the terraces are layered, evenly, no thick years and no thin, because there have been forty pairs of swifts on the shelf for as long as the swifts have been laying down, and there is nothing to change that. Only the topmost cups are open. Put a finger into one and it is warm.
+
+The young make one flight that matters. They go from the ledge through the sheet, and the sheet hits them, and they either come out the far side into light or they do not. The ones that do not land on the terrace below the fall, in the film, and they are still, and the film runs over them and through their feathers and by the next noon they are furred with white, and by the next year they are a rounded lump on the terrace floor a little larger than the others, and by the time the deposit is a hand deep over them there is no way to tell that lump from any other. The adults do not go down to them. Nothing on the shelf is worth going down to.
+
+They sleep on the wing. This is a thing swifts do, but here it is not a habit but the whole arrangement — they rise at dusk in the updraft off the cataracts to a height where the roar thins to a hiss and the shelf below is a grey and blue smear of lit spray, and they circle there, half asleep, for the hours when the sun is off it. They are the only living things that hear the shelf from outside. They come down at dawn through the returning noon into the sound and do not seem to notice it, the way you do not notice, after an hour, that you cannot hear.
+
+---
+
+The pale thing in the pool is the second answer, and it took you longer to understand it than it took to see it.
+
+The water lets go of its stone when it meets the air. That is the whole mechanism of the shelf — the weep comes through the wall, and the instant it is in the light and the wind it begins to shed what it carried, and the shedding is the travertine, and the travertine is everything. But at the bottom of a pool sixty feet deep the water has not met air. It went from the inside of the mountain to the inside of the pool without passing through the weather, and it is still carrying its stone, and it has nothing to give it to. The floors of the deep pools are the only surfaces on the shelf that are not growing. They are original limestone, grey, bare, and lit from above by the whole blue column, and they are unchanging in a different way from the terraces: not finished, but never begun.
+
+That is where the thing lives. It hangs a foot off the floor, or a fathom below the surface — depth does that to distance, and the light makes it worse — and it does not swim, because there is no current at depth and nothing to swim toward, and it is exactly the density of the water it hangs in, so it neither rises nor sinks. It is pale, but not white. The white of the walls is mineral. This is the pale of something that had a colour once and has let it go, the way the water lets go of stone, because there was nothing to keep it for.
+
+It has no eyes that you can find. You assumed, when you first saw it, that this was the blindness of caves, and then you looked around you and understood that it was the opposite. Everything here is lit from below and above and within. There is no direction for the light to come from, and sight without direction is not sight but glare. The thing in the pool has been in that glare for the whole time the shelf has been finished. It has sealed itself against the light the way the walls seal a seed. What it knows of the pool it knows through its skin.
+
+What it eats, if it eats: the insects that ride the updraft out of the warm country and die in the spray and fall into the basins and sink. Sixty feet of saturated water is a long way to fall, and the water above is depositing, and by the time a midge has reached the depth where the thing hangs it is a bead of stone with a speck of protein at the centre. The thing takes it in and holds it and, over a time you cannot measure, dissolves the shell and lets the bead go again, smaller, to settle on the floor. It is the only creature on the shelf that eats stone, and it does not eat much, and it is cold, and it has slowed itself to the rate of the weep.
+
+You saw one. There is no way to say how many there are, or whether there is more than one. The deep pools are connected below — the mountain is a reservoir and the pools are its windows, and the karst behind them runs for miles — and the thing may not live in the pool at all. It may live inside the mountain, in the dark and the pressure where the water is still whole, and come to the windows the way you came to the rim: because the ground stopped rising, and there was light.
+
+It has the shape of a salamander and the patience of a mineral, and you cannot say which it is, and it does not need you to.
+
+---
+
+The third answer is in the walls, and you will see it only if a fall has cut one back and shown you a face in section.
+
+The layers are even. Everyone who has looked has said so. But within the pages there are things that are not lobe or skirt or curtain: a plane the width of a feather, curved; a dash the size of a rice grain that was an insect; a small dense sphere with a hollow at its heart that was a seed the shelf sealed before it could split, and the hollow is still there, and the seed is still in it, and it has not rotted, because rot is a kind of time and the shelf has none.
+
+Once, in a fin, at about the height of your chest, you saw a rounded profile like a knuckle that ran for the length of a forearm and bent and ran again.
+
+Everything that ever stopped on the shelf is still on the shelf. The swift chicks under the terrace floors. The dust. The bodies of what misjudged the thermals, the shapes of them intact under the rind, wings folded or not. These are not dead in the way the word means anywhere else, because dying is something that happens over hours and days and the shelf does not deal in hours and days; they are stopped, and the deposit that closed over them is unchanged since it closed, and inside it they are unchanged too. The shelf does not keep its dead. It keeps its still.
+
+There is a flat terrace, unusually broad, ankle-deep, walls on three sides, where the standing is good. You found it. You are not the first to find it, because a shelf that has been finished for as long as it has existed has had visitors for as long as there have been things that climb, and the terrace is where the climbing leads. In the wall behind it, a little to the left of where you would naturally stand, there is a place where the weep comes off the face in a shape that is not quite the shape of the rest. It is taller than the other lobes. It is narrower. Where the curtain of water falls past it there is a bulge at the top, and a slope at the sides, and at the bottom, where the wall meets the film, two rounded masses like the cups the floor is made of, only larger, and spaced a little apart.
+
+Whoever it was stood here. They stood in the film with their back to the weeping wall and the sun straight above and the sound not sound, and they were not cold and not warm, and they had stopped expecting anything to happen next, and the spray stopped feeling like wet. Their boots took a coat. The coat thickened. There was no reason to move, because the shelf gives no reasons; it does not hold you and it does not ask you to go. They stayed until the wall came round in front of them, and the weep found their shoulders, and now they are a wall that weeps, evenly, at the rate that has not varied in the whole time the deposit has been laying down. They are the shelf's most complete inhabitant. They are the only one who chose.
+
+---
+
+So: what lives here is what refuses to stop, and lives in the air above the roar and comes down only to the one dry exception; and what stopped in the one place where stopping is permitted, at the bottom of the blue, where the water has not yet learned to let go; and what stopped anywhere else and was finished, and is in the walls, and is the walls.
+
+And there is you, on the flat terrace, in the light of exactly noon. You have been standing a while. The film runs over the tops of your boots and you have stopped feeling it. The wall behind you is running, and its weep has found the small of your back. There is a fine roughness on the leather at your ankle that was not there when you came over the rim, a grain, a first white grit, that you would need to bend down to see, and you do not bend down, because there is nothing to see it for.
+
+A swift goes through the sheet in front of you, black, silent, and does not come out where you expect.

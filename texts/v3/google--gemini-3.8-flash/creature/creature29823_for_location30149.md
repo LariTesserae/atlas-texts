@@ -1,0 +1,47 @@
+To survive where pressure has been coaxed into weight and rock bleeds like an udder, an organism cannot be light. The light things—the hollow-boned migrants that drift too near the bruised lip of the cold deck—simply burst when they tumble into this pocket, their marrow frothing before they hit the fig-boughs. 
+
+The things that stay have the density of green boxwood or soft pig-lead.
+
+Consider the **Girth-Cattle**, though they are neither kine nor hoofed. They are broad-flanked, low-lunged quadrupeds whose skin has the specific blue-gray grain of boiled ham. They do not walk so much as pinch; their toes are four heavy, opposed digits tipped with horn that can drive directly into the crumbly margins of the gabbro where the alkaline water softens the stone. They move along the horizontal limbs of the ferro-figs, their wide bellies hanging below the wood like hammocks full of river silt. They have no teeth. Instead, their mouths are great, triangular rasps—a muscular tongue covered in hundreds of blunt, copper-hardened pegs that lick the liverwort clean off the bark, leaving white, steaming scars that the fig heals over before the next dawn. 
+
+They are deaf. The stone carries so much noise—that bottomless five-cycle thrumming that never ceases—that their ears have grown shut, sealed over with thick plugs of yellow lard. They feel the approach of their own kind through the palms of their flat feet, leaning their foreheads together when they meet upon the boughs, exchanging musk through two slit-like glands beneath the eye-folds. Their dung does not fall; it is too oily. It sticks where it drops, rich with semi-digested lichen, immediately seized upon by the **Walnut-Ticks**—the six-legged, shell-backed masons who leave their blue-glass ring at noon to carry the fat back to their paper spires in little gray pellets balanced between their palps.
+
+The ticks themselves are an anomaly of stillness. In an environment that boils and drips, they move with an iron-jointed, clockwork twitch. Their shells are not chitin, but an agglomeration of silicate and heavy waxes that does not wet. A drop of warm water striking a tick does not break; it rolls around the hemispherical carapace like mercury on oil, sliding off to smash on the roots below. When they die, their bodies do not soften or rot. They are gathered by their siblings and cemented into the walls of the mud-city inside the blue ring, so that the dry quarter-mile of their settlement is paved with millions of tiny, dark, unblinking faces, smoothed down by the passage of three hundred generations of hairy tarsal pads into a floor like terrazzo.
+
+Higher, where the rock seams run straight and the mist turns the color of curdled tea, live the **Tallow-weavers**. 
+
+They are men, perhaps, if one takes the very long view of the blood. Their skins are the color of watercress kept too long in a crock—a pale, translucent yellow-green through which the deep red knots of their venous valves are clearly legible. They have no bellies to speak of; their ribs flare forward like the baskets of skiffs, providing vast anchorages for the double-diaphragms that must shovel this thick, sirupy soup into their lungs and out again. They never drop below the eight-thousand-meter mark. The cloud-floor down there is cold-bellied and greasy with sulfur, and they speak of it—when they speak at all, which is in short, whistle-clicks like the breaking of dry twigs—as *The Suet*.
+
+The Weavers do not build houses. The idea of a wall is strange to them, where every vertical surface is hot to the touch and oozing. Instead, they sleep hitched to the vertical iron seams by leather straps cut from the bellies of dead gliders. They hang vertically, cheek pressed against the humming alloy, their toes tucked into the clefts, sharing the heat of the deep machine. A family looks like a fringe of dark rags drying on a chimney.
+
+Their fingers are extraordinarily long—sometimes thirteen inches from the knuckle to the gray nail—and possess an extra joint that bends backward with the same facility as forward. With these, they handle the *hair*. 
+
+The hair is not their own. It grows from the margins of the mirror-veins: a dense, golden-white fungus with the tensile strength of copper wire that feeds on the alkaline seep. The Weavers shave it with blades made of bismuth-shell, boil it in fig-sap until it goes limp, and spin it into ropes so heavy they sink in water like chain. With these lines, they knit the spires together. 
+
+Not all of them—only those that "sing in the same tooth." A young Weaver can tell by putting his mouth against the wet rock whether a spire three miles off is rising or settling on its thermal roots. If two needles are counter-humming, they will eventually lean apart and snap their bridge-lines; if they hum in fifths, they are locked, and between them the Weavers swing their great, sagging walkways of woven hair.
+
+A Weaver rarely sees another colony. To them, the world is three hundred yards of wet gabbro, four fig trees, a single hot seam that smells of stewed salt, and the great yellow sky that groans every nine days like an iron kettle coming to the boil.
+
+The only things that travel the gulfs are the **Slick-skins**. 
+
+They are the parchment-gliders seen from the heights, though up close they have none of the delicacy of bats. Their skin is three fingers thick, an oily blubber through which six small, dull eyes stare without lids. They have no mouths on their faces; their faces are simply gray wedges of cartilage meant to split the dense, hot air. Their feeding-gaps are situated on the ventral side, between the ribs—long, puckered horizontal slits lined with horn combs. 
+
+When the afternoon squalls hit—those great, silent dumps of warm brine that wash the spires until the liverwort peels off in sheets—the Slick-skins leave the hollows. Hundreds of them launch together, not by falling, but by sliding out into the rising warm columns that boil off the southern faces. They circle up into the purple bruise of the upper limit, where the air finally begins to thin and turn blue-cold. 
+
+There, at the boundary where the two atmospheres slide against one another with the screech of dry leather, they feed. The transition layer is full of drowned things: insects carried up from the lowlands forty miles away by some deep hurricane, frozen into beads of brown ice; birds that flew too high and stiffened; rafts of dry thistle-seed that blew off forgotten continents and were sucked into the perimeter of the heat-lung. 
+
+The Slick-skins pass through this frozen garbage with their bellies open, scooping the cold frost into their fat interiors, then plunge back down into the eight-thousand-meter broth, their hide smoking as they re-enter the steam, their three sets of eyes turning inward to watch the white grease melt into their bellies.
+
+Below them all, never rising above the roots of the lowest figs, moves the **Gristle**. 
+
+The Weavers will not point at it; they spit into their hands and wipe the palm across their ears if they hear the *slup-slup* of its skirts on the wet stone. It is not an animal that can be counted. It may be one thing that has wrapped the lower skirts of sixty spires in a single, pale web of fat, or it may be a million blind leeches that have forgotten where one ends and the next begins. It has the consistency of wet lard that has sat in a butcher’s bucket for a week. It moves three feet every month, climbing the seams where the alkaline water is hottest, dissolving the bark of the figs and leaving the wood beneath as white and dry as a bone dragged from a fire. 
+
+Sometimes, when the tidal breath of the place deepens and the heat grows so heavy that the Weavers can do nothing but hang from their straps with their mouths agape, the Gristle will produce a flower. 
+
+It does not happen often—perhaps once in a Weaver’s life. A gray bladder, large as a church-tank, rises out of the white cloud-deck between two spires. It has no petals; it is simply a bladder of thin, transparent peritoneum filled with gas that smells of old cabbage and phosphorus. For three days it floats there, held between the needles by the convergence of the updrafts, glowing with a faint, curdled green phosphorescence that makes the wet faces of the rock look like rotten tallow. 
+
+Then it pops. The sound is not loud—a flat, wet *thwip*, like a boot pulled from deep bog-iron. 
+
+For an hour afterward, the Weavers reach out into the brown air with their long, triple-jointed hands, catching the seeds as they drift past. The seeds are as big as walnuts, greasy, warm, and have the soft, yielding texture of plums. The Weavers do not plant them; they eat them whole, skins and all, their eyes rolling back until only the yellow whites show. 
+
+For days after the bursting, no one speaks. The city in the blue ring stays shut behind its gates of mud. The Girth-Cattle hang motionless from the boughs, their foreheads pressed against the wood, their four-toed feet locked into the bark like vices. The whole mountain range seems to hold its wet breath, listening to the iron seams beneath the skin of the rock as they shift their frequencies, vibrating not like a machine, but like a throat clearing itself before it sings some different, older note that no living ear has yet been tough enough to bear.

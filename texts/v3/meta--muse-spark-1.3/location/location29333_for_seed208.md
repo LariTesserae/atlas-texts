@@ -1,0 +1,35 @@
+It is flat first. That is the first thing your body understands before your eyes do.
+
+There is no up here, or almost none. The land has been worked so long by ice and water and time that it has given up on hills. It lies, a great shield of dark old rock barely lifted above the sea, stretching away in every direction until the grey eats the distance. You can see weather coming for an hour before it reaches you. You can see a bird flock as a smudge three miles off. Your own footsteps feel too loud because there is nothing vertical to stop them.
+
+The rock is ancient in a way that makes other old things feel young. Not jagged mountains, not cliffs. Potholes and ripples and long striations, as if giant hands dragged gravel across it and then smoothed it with palms. Pink-grey granite gone soft at the edges, black basalt polished to a wet sheen, slabs of quartzite that ring faintly if you tap them with a heel. Every boulder left behind by the ice sits rounded and half-sunk, lichenless, tide-worn. The whole plain dips and rises in inches, not feet — and those inches are everything, because the water lives in them.
+
+Water is everywhere, but almost never deep. It does not gather into proper lakes. It sheets. A skin of cold water an inch thick over stone for half a mile. Shallow meres in the rock-basins that mirror the cloud so perfectly you misstep. Rills that braid and unbraid around nothing. And even where there is no standing water, the rock weeps. You put your hand to a boulder and it comes away wet. Seeps bleed from hairline cracks, gather, drip, join the sheet. The air itself is saturated, cool enough that your breath hangs and thick enough that distant things have halos. It is not quite raining. It is the hour after rain that never ends, the air condensing on itself, on your jacket, on the stones until they glisten.
+
+There are no plants. That takes a while to fully believe, because your brain keeps looking for green. No grass, no moss cushions, no trees to break that huge dim sky. Only mineral. Black stone, grey water, grey light. And then — when you crouch — you see the other living cover.
+
+Where the water thins, the rock is painted. Thin skins, bacterial and fungal, orange-rust and sulphur-yellow and pale bone-white, slick as oil. They do not rise more than a millimeter. They smell of iron and rot and salt. In the still pools they form wrinkled veils that tremble. This is the meadow here. This is the forest. Everything eats this, or eats what eats this.
+
+And so, impossibly on such a barren floor, there is teeming.
+
+You hear it long before you see it clearly. The sound arrives as pressure.
+
+A low roar that resolves, as you walk, into layers: the endless trickle and seep of water over stone, the click and clatter of hundreds of thousands of small hard bodies, and over it all the birds.
+
+They are everywhere in clumps, because the emptiness between is so large. For half a mile there will be nothing but wet rock and sky and your own breathing, and then the ground ahead will darken and begin to move.
+
+The shallows boil with copper crabs, flat-backed, fist-sized, clicking claw on stone as they graze the orange mats. In the deeper potholes, shoals of pale blind fish flicker, mouths up to take midge larvae. Clouds of midges themselves hang low in pillars, hatching out of the water in pulses so thick they bend the light. And above them, the birds that came for all of it — tall, long-legged waders the color of wet slate, with white throats that balloon when they call, and smaller black diving birds that nest in the thousands on the bare rock with no nest at all, just a single speckled egg in a hollow.
+
+When a flock lifts, the wings alone are weather. And their voices — not song, but a high rattling shriek, *krr-krr-krr*, repeated by ten thousand throats and bounced back by flat stone and low cloud — becomes physically painful. It is deafening out on the open. You feel it in your sternum. You have to open your mouth to equalize it. The Quartzite slabs under the water hum with it sympathetically. Even the crabs add to it, their shells drumming as they scuttle for cover when the shadows pass.
+
+Predators work the edges of the noise. Low, dog-like coastal foxes, mud-grey, trotting between pools with fish in their jaws. Huge mottled otters that slide from mere to mere, leaving S-wakes. A pale gull-like thing that steals eggs and is mobbed screaming until it drops them. Nothing stays still. The tide, though miles from the true sea, pushes up through fissures twice a day and freshens the whole system, bringing in new fish, new crabs. Then it drains with a long sighing, leaving stranded pools wriggling. The bird colonies shift, quarrel, resettle. Death is quick and public: a fox takes a wader, the flock screams louder, midges settle on the blood, crabs clean the bones by morning.
+
+Human marks are sparse and low, as if the place does not permit anything tall. You almost trip over the first one because you are watching the birds.
+
+A V of stones, hand-stacked without mortar, arms fifty paces long, converging on a narrow gap in a rill. A fish weir. Empty now except for crab shells. Further on, another, collapsed and rebuilt, collapsed and rebuilt. Small cairns of flat slabs, each topped with a white shell or a crab carapace — markers, offerings, waypoints across a land with no landmarks. In a slight rise, barely a rise, a single bothy: drystone, beehive, turf-less roof of whalebone and driftwood dragged from some other forested coast far away. Inside, a cold hearth, a pile of bone hooks, a chopper of greenstone, strips of hide drying stiff in the damp. No metal, or almost none — a single rusted nail hammered into the lintel like a charm.
+
+Someone lives here, or comes here, seasonally. Someone who knows how to be quiet in a loud place, how to move when the tide turns, how to read the orange mats for where the fish will be. Their tools are all hand-work: chipped, ground, lashed. They do not try to change the flat. They add a few careful stones and let water and animals do the rest.
+
+The light never gets bright. It stays at the level of late afternoon before a storm, pearl-grey, diffuse, sun a paler smear behind cloud that never breaks. Shadows are soft or absent. Colors stay muted except for the rust-orange of the mats and the sudden copper flash of a crab bank turning all at once. Everything looks wet, even the air. Cool air prickles your cheeks, seeps into your cuffs. Your fingers go stiff quickly. Water you scoop to drink tastes of stone and iron.
+
+The rule here is simple and old: stay on the high stone, keep your feet dry if you can, because the low sheets hide potholes that go to your knee with ice-cold water. Do not shout to be heard over the colonies — wait for the wave of sound to pass. And do not expect silence to mean emptiness. The empty stretches, those long half-miles of nothing but glistening rock and sky, are just the plain breathing between heartbeats. Walk a little further, and the ground will darken again, and lift, shrieking, into the dim air.

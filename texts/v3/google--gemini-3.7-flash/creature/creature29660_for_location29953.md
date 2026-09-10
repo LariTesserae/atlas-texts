@@ -1,0 +1,25 @@
+In the shallow reflecting basins and along the slate gutters, where the water is no more than ankle-deep and clear enough to make the stone beneath it seem magnified, there are resting shapes that at first glance appear to be smoothly dressed blocks of pale granite. 
+
+They are the inhabitants of the fracture-plains. 
+
+They are heavy, long-bodied beings, possessing a symmetry that is quiet and faintly humanoid, though softened and thickened, as if turned on a slow lathe out of river-silt and dense cartilage. Their skin is seamless, devoid of hair, scales, or pores, having the texture of wet, fine-grained leather or the pale under-bark of the mountain trees. It sheds no oils and sloughs no dead cells, which is why the waters they inhabit remain continuously, immaculately pure. 
+
+They do not breathe in the sharp, rhythmic manner of lowland creatures. Instead, their broad, flattened torsos take in the dense humidity through wide, gill-like slits set flush along their flanks, filtering moisture and the rich mineral salts that seep endlessly from the sheared basalt. Because their respiration is purely osmotic, they make no sound—no panting, no inhalation, no sighing against the stone. 
+
+When they move, it is with a deliberate, hydraulic slowness. They do not lift their feet high to step; they glide upon broad, soft-soled footpads that match the width of the runnels, displacing the water with a gentle, glass-like ripple that dies against the stone curbs within paces. 
+
+They are the builders and the tenders of this vast shelf. 
+
+Their strength is vast, but it is not explosive. It is the static, crushing strength of ice or swelling timber. When a block of basalt must be quarried from a newly exposed fault, they do not swing picks or strike with hammers. They drive dry wooden wedges into the rock’s natural hairline fractures using the slow, relentless press of their chests and palms, then stand quietly beside the stone, guiding a thread of water into the fissure. They will wait for days in total silence, standing shoulder-to-shoulder in the shallow flow, watching the wood swell until the mountain stone shears cleanly open with a dull, subterranean *thump*.
+
+Afterward, they transport the megaliths across the forty-pace thoroughfares not on rolling logs, but along the lubricated sheets of the aqueducts, sliding multi-ton lintels across the wet slate beds with steady, unhurried pushes of their long, thick-fingered hands.
+
+Within the low, flat-roofed stone halls, there is no furniture as lesser lands understand it. There are only tiers of shallow, terraced stone baths fed by the mountain's weepings. Here they recline for decades at a time, entirely submerged except for the pale domes of their brows and their dark, lidless eyes, which are tuned to the soft, diffused spectrum of the high mist. 
+
+Their social life is conducted entirely through the medium of the water. To speak, one will press a broad hand against the slate bed of a common aqueduct and release a sequence of low, rhythmic pressure pulses. The vibration travels silently and instantaneously through miles of interconnected channels, plazas, and hall-cisterns, received by the sensitive lateral lines running along the flanks of everyone resting in the network. A single thought—a proposal for a new terrace, an observation about the mineral taste of an eastern seep, or simply a state of peaceful wakefulness—ripples through the entire city without ever breaking the silence of the air.
+
+Because there is no decay here, there is also no true death in the biological sense. When an inhabitant reaches the end of their immense span—often after many centuries of tending the same runnel or leveling a single plaza—their metabolism does not rot; it merely mineralizes. The silicates and calcium in the water slowly replace the soft tissues of their flesh. 
+
+When they feel this calcification begin, they do not retreat into hiding. They walk out into one of the wide, empty plazas, select an unpaved interval or an unfinished corner of a terrace, and lower themselves onto the stone. Over decades, the thin, warm sheet-wash deposits fine layers of silica over their limbs until they become indistinguishable from the megaliths around them. Many of the smooth, perfectly leveled monoliths rising from the courtyards are their ancestors, standing in timeless communion with the architecture they laid down.
+
+Around them, the highland ferns unfurl their wet fronds, and the moss creeps over the joints of their masonry, held in check only by the steady, washing flow of the water they have organized. They live neither in haste nor in dread of an end, existing as a living extension of the mountain’s slow, warm bleeding—a civilization of living stone and moving water, dreaming in the bright, stationary fog.

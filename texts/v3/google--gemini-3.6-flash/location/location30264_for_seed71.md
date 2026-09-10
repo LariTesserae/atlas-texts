@@ -1,0 +1,27 @@
+The air at the roof of the continent is thin, wet, and intensely cold, smelling of crushed frost and wet slate. 
+
+Here, at an altitude where the sky turns a deep, hard cobalt at midday, lies an ancient tableland. It was once a ridge of jagged peaks, but eons of ice and wind have planed the mountains down to their oldest stable forms—broad, rounded domes of black basalt and polished granite, smooth as the backs of slumbering beasts. The landscape feels finished, as though geography here reached its final conclusion millions of years ago and has spent the remaining time simply settling into its own weight.
+
+Despite the bitter temperature—which hovers just above freezing and drops into sharp frosts whenever the clouds part—the tableland is drowning in cold moisture. Mist does not hang in the air so much as it drifts in heavy, visible curtains, clinging to stone and soaking into the vegetation. 
+
+And the vegetation is astonishingly lush. It does not grow tall—there are no trees, no woody stems to catch the high-altitude gales—but it forms a thick, springy carpet over every flat surface and vertical face. Cold-adapted mosses in shades of liver-red, dark spruce-green, and pale lichen-silver cushion the bedrock three feet deep. Rubbery, broad-leafed ferns with leaves like wet leather sprawl across depressions where ice-melt collects, their fronds glistening with constant, dripping condensation. Small, cup-shaped lichens hold pools of freezing rainwater, and when the wind blows, green spores rise from the turf in slow, misty clouds like cold steam.
+
+Smeared across this endless, soggy highland is an urban footprint of staggering proportion, built entirely through primitive means.
+
+It is a city that spans leagues, though its density is low—its structures are set far apart, separated by vast stretches of untouched mossy tundra. The architecture is cyclopean yet crude. Millions of hand-chiseled slate slabs and massive granite megaliths are stacked without mortar to form terraced hillsides, broad avenues, and windowless halls the size of cathedrals. The engineering relies on sheer weight and brute geometry: dry-stacked walls twenty feet thick, braced with petrified timber beams and fastened with heavy bone pegs. Spanning the wide chasms between basalt hummocks are suspension footbridges, their cables thick as a man’s waist, woven by hand from the tough, fibrous root systems of the high mosses.
+
+Chisel marks—broad, manual, and irregular—are visible on every stone. It is a settlement built at the scale of an empire, yet constructed with the tools of an iron-age quarry.
+
+There is no sign of who built it, and there are no animals here. The silence of the fauna is absolute. No birds cross the high, pale sky; no insects buzz in the wet ferns; no burrowing creatures turn the peat. The landscape possesses an eerie, sterile purity—there is growth and decay, stone and water, but no pulse of blood.
+
+Instead, the dynamics of the place are driven by the environment itself, and by a quiet, profound unraveling of spatial rules.
+
+Because the plateau is so old, reality has worn thin along its edges. Distance here is not a reliable metric. A straight stone avenue, laid out with neat basalt curbs, appears to stretch three miles into the horizon; yet walking it takes only forty paces before you reach its terminus. Looking back, the street again stretches leagues into the misty distance behind you. 
+
+Architecture here does not always obey gravity or orientation. On the higher terraces, massive stone archways cast long, crisp shadows under the pale sun—but the shadows sometimes fall at right angles to one another, unaffected by a single light source. Water, dripping continuously from the eaves of the dry-stone halls, occasionally falls upward for a few feet before catching the wind and drifting sideways into mist.
+
+The city is active, though uninhabited. It rearranges itself at the pace of a glacier. Overnight, a terrace wall made of ten thousand loose slate stones will shift four hundred yards to the east, perfectly intact, leaving a pristine square of bare basalt where it once sat, without dropping a single stone or disturbing the moss carpet around it. The air carries subtle, localized weather cycles: one courtyard may be trapped in a perpetual, micro-scale snowstorm no larger than a house, while thirty feet away, under the same gray sky, cold sunshine bakes the ferns until they smell of earth and damp vegetation.
+
+The soundscape is sparse and quiet, composed entirely of elemental processes. There is the wet *shhh* of wind combing through miles of dense moss; the rhythmic, glassy *tick-tick-plip* of condensation freezing and thawing on the edges of slate roofs; and the occasional, deep rumble of a megalith miles away, sliding an inch along the wet stone to align with a geometry known only to the plateau.
+
+It is a place of endless, cold breathing room. You can stand on a high, terraced plaza—carved by primitive hands out of the top of a dead mountain—and look out over leagues of green velvet, black wet stone, and impossible, twisting horizons, feeling the immense weight of a world that has outlived its own physical laws, quietly maintaining its ancient, lonely order.

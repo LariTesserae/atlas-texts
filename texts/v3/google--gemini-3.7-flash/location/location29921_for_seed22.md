@@ -1,0 +1,23 @@
+The void arrives first as a physical weight upon the eardrums.
+
+It is a hollow the size of an inland sea, yet there is almost nothing inside it. The density of matter per cubic kilometer is practically zero: a colossal, evacuated gulf spanned only by hair-thin suspension spars and needle-sharp crystalline pylons that stretch unbroken for thirty miles before anchoring into the gloom. Because there is so little mass to baffle or absorb pressure waves, the acoustic energy of the structure does not dissipate; it accumulates, ringing off the unweathered faces of synthetic carbon-glass until the air itself vibrates with a flat, roaring, deafening hum. It is the sound of planetary-scale induction fields straining against dead mass, combined with the frantic, unceasing chatter of millions of high-altitude organisms bouncing their calls across forty leagues of emptiness.
+
+The light is the color of bruised slate. It does not fall from a sun, but bleeds outward from the structural joints of the framework—a dim, coherent indigo that barely reaches two hundred meters before dissolving into the warm, particulate haze. 
+
+Where surfaces do exist, they are unthinkably lush.
+
+Because the system is young—assembled or sheared into existence perhaps only a few seasons ago—none of its edges have surrendered to rot or abrasion. The synthetic stone and mirror-smooth field housings possess knife-clean bevels and pristine ninety-degree drop-offs. Yet clinging directly to these fresh, razor-sharp trusses is a dense, warm pelt of runaway vegetation. Broad, fleshy fronds the color of tarnished copper drink the ambient dampness out of the air. There are no rivers, but intermittent thermal cycles cause condensation to bloom across the cold undersides of the struts, shedding warm, heavy sheets of mist that fall thousands of feet through the dark before evaporating mid-air. 
+
+In these damp micro-climates, the botany thrives in hyper-specialized frenzy. Fern-analogues with fibrous, self-knitting stems wrap around structural cables, weaving green-black suspension webs that catch the falling fog. Fungal colonies the size of district blocks pulse with a low, sluggish metabolism, their caps hard as lacquered wood, jutting outward from vertical pylons to catch the downward drift of bio-matter.
+
+Between these lush, narrow ribbons of life lies vast, yawning nothingness. To look down is to look into miles of warm, dark, open air, broken only occasionally by the distant, ghost-like silhouette of a suspended sector. 
+
+These sectors are organized like cities, though built with an engineering that disregards terrestrial physics. Entire civic grids—avenues of interlocking, monolithic basalt blocks, stepped terraces, and hollow hexagonal towers—hang without cables, locked in place by localized quantum-pinning nodes that thrum with a bone-shaking, sub-bass pulse. These urban clusters are totally depopulated of their makers, yet they are not dead; their internal climate controls still cycle, and the damp air currents carry their warm, mechanical breath out into the wider dark. 
+
+The fauna has claimed the emptiness. 
+
+Because the fall distance is measured in leagues, the ecosystem belongs to creatures that never touch the floor. Great, rib-winged gliders—pale, blind, and ten yards from tip to tip—carve silent arcs between the hanging city-blocks, their skins vibrating in sympathy with the structure’s roar. Thousands of smaller, beetle-shelled scavengers crawl over the damp underside of the tech-conduits, grazing on the moss and dropping into the void whenever threatened, using tiny, high-frequency stabilizing fins to ride the updrafts back into the lower canopies. Their collective clicks, trills, and distress shrieks are magnified by the geometry of the hollow, turning the dim air into an overwhelming acoustic chamber.
+
+The atmosphere stays warm, heated from below by the invisible radiator-surfaces of the megastructure's foundation. Every twenty minutes, a dynamic wave sweeps through: a purge-pulse from the deep infrastructure that re-aligns the magnetic suspension. When it hits, the deafening drone shifts up a whole octave, the mist shivers into perfect geometric droplets suspended stationary in the air, and the copper-colored vegetation curls tightly against the sharp edges of the spars, waiting for the surge to pass.
+
+Then the pulse recedes. The damp drops resume their fall into the black, the fronds unfurl into the indigo dimness, and the roar returns to its baseline, shaking the ribcage of the empty, green-threaded world.

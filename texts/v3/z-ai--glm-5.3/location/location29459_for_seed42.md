@@ -1,0 +1,49 @@
+# The Terrace Grove of Halv
+
+The place sits high, though it sits under water. That is the first thing to understand: elevation here is measured downward from the surface, and Halv occupies a plateau near the top of a drowned mountain — a seamount whose shoulders were never quite swallowed, so that its flat crown hangs perhaps thirty fathoms beneath the open sea. Light arrives. Not the light of a meadow, but a true, workable light — a green-gold afternoon that slopes across everything and shifts slowly with the sun above. You can see your hands. You can see the far wall of the place. This is rare, in the deep world, and it is why anyone lives here at all.
+
+## The Groves That Are Also Houses
+
+The settlement is built, in the sense that a hedge is built. No one quarried stone; there is almost no stone that isn't furred with life. Instead the people of Halv — few, perhaps two hundred, scattered — practice what they call *tending-into-shape*: the patient directing of growing things until growth itself becomes wall, roof, archway, stair.
+
+The master plant is a thing like kelp and like bamboo at once — a hollow-jointed stalk, thumb-thick at the crown and the width of a barrel at the base, which the tenders train over frames of whalebone and drifted timber. Given decades, a tended stalk hardens into something like green timber: dense, fibrous, permanently damp, faintly warm to the touch because it still metabolizes. Houses are these stalks, bent into arches and anchored at both ends, their living skin growing over the joints until the seam disappears. A dwelling is not so much constructed as *agreed upon* — the tender proposes a curve with a bone clamp and a woven lashing, and over ten years the plant consents.
+
+So the "town" is a grove and the grove is a town. There is a long avenue of arched stalks, generations old, the oldest ones gone dark and rigid as hardwood. There are common halls whose roofs are a single living mat of blade-weave, grown across a lattice and never cut, only thinned. There are granary pods — rounded, ribbed gourds the size of rowboats, grown on the stalks and hollowed by hand-auger, sealed against the water with rendered fish-oil and beeswax brought up from the drowned lowlands where the surface people trade.
+
+Nothing is straight. Nothing is finished. The architecture has the settled patience of a hedgerow, and this matches the erosion score of the place: Halv is not weathering away, it is weathering *alongside* — the current and the growth arriving at some long-standing truce. Storm-swell from above reaches down and rocks everything gently; the stalks are built to sway, having learned to, having been culched for flexibility by a hundred years of selection. The ones that snapped are remembered in songs.
+
+## The Cool and the Sparse
+
+The water is cool the way a cellar is cool — eleven, twelve degrees, a steady chill that the people carry in their bones rather than fight. They are wrapped, nearly always, in layered weave: fabric spun from the long silky fibers that certain blades shed each autumn, dense enough to hold a film of warmed water against the skin. Dress is heavy, wrapped, belted with braided cord; everyone moves a little slowly because of it, and slowness has become the local manner. Even the children, darting among the arches, seem to be moving through honey by surface standards.
+
+And the place is sparse. This is deliberate and it is the character of Halv more than any single feature: there is *room*. The plateau is wide — it could hold ten times the groves it does — and the town's law, older than anyone's memory, holds that no two dwellings may touch, no grove may be planted within a cast-spear's length of another. The reason given is light: the stalks shade one another and go pale and leggy if crowded. But the effect is that Halv reads as a scatter, an archipelago of living rooms across a dim green lawn of seagrass, with long silent distances between them, and the distances are part of the architecture. People walk the between-spaces the way surface people walk streets. The emptiness is paved.
+
+## The Noise
+
+Underwater, and on a plateau open to the deep on three sides, sound carries as it does nowhere on land. Halv is *loud* — not with machinery, which it lacks entirely, but with the sea's own continuous performance:
+
+The stalks themselves. Each mature stalk, when the current runs, hums. Hollow, jointed, top-holed in places the tenders deliberately leave open, they act as pipes — the current across the open holes draws a low fluted tone, different for every plant, so that the whole grove is an instrument played by the weather. On strong-current days the avenue becomes a slow chord that lasts six hours and everyone goes a little quiet and lets it be. The people claim they can read tomorrow's water in the pitch. They might be right.
+
+Around and beneath this: the crackle. The plateau's seagrass lawn hosts clouds of snapping shrimp, and their territory disputes produce a static like rain on a roof, constant, from every direction, rising to a frying hiss at dusk when the whole lawn seems to argue at once. Out past the plateau edge, in the blue drop-off, the great singers pass on their migration — their calls arrive softened by distance but felt in the chest, a slow enormous text no one understands and everyone stops work to hear. And layered over all of it, the domestic percussion: bone chisels knocking on greenwood, the slap of woven door-curtains, the ululating hails people use instead of shouting across the mandated distances between houses, because speech does not travel far here and a sung call does.
+
+Sound is so much the medium of the place that its maps are acoustic. Directions are given as *toward the one that hums low when the current runs east*.
+
+## The Animals
+
+Fauna is abundant to the point of participation. The seagrass lawn grazes schools of silver sweep-fish that come through in their thousands, moving like weather, and the town's calendar is set by them: the sweep run, the deep-runners' rise, the eel-molt. Domestic animals are few but real — the people keep fat, tame, plant-eating rays in penned blade-pastures at the lawn's edge, harvesting their leather and their oil, and there are eels, half-tamed, that den in the hollow stalks and are fed to keep them denning there, the way surface people once kept cats, for the eels eat the borers that would otherwise riddle the walls.
+
+The relationship is not sentimental. The rays are eaten. The eels are eaten, occasionally, though it is considered rude to eat the one that lives in your own house. On the stalks and in the blade-mats live a thousand smaller tenants — glass shrimp, grazing snails, the little commensal crabs that clip dead tissue from the living walls and are, functionally, the town's maintenance crew. Every surface is a small ecology. You never touch a wall without disturbing somebody's job.
+
+One resident is strange, and here the mild weirdness of Halv lives: the plateau's deep edge hosts a single old animal the people call **the Bellkeeper** — a very large, very sessile sponge-thing, or possibly several animals fused, that has grown over a natural stone chimney and amplified it. When the deep water pushes through the chimney, the Bellkeeper sounds: one deep, wet, resonant toll, felt in the gravel as much as heard. It tolls irregularly — some days hourly, some days not at all — and the town treats it as a civic event. Meetings are convened by it. Disputes pause for it. Nobody decided this. It is simply what has always happened. When asked why the Bellkeeper matters, the people of Halv look at you the way you'd look at someone who asked why a churchbell matters, and say: *it's the one that tells you where the middle is.*
+
+## Life As It Is Lived
+
+The technology is hand-tool and patience: bone, shell, hardened wood, some soft metal traded up from the surface folk and treasured beyond its utility. Everything is made by someone you know, or by their mother. Repair is the great craft; nothing is thrown away because nothing is dead enough to discard — even a broken stalk is left standing as a marker, a climbing-frame, a eel-host, an address. ("Third dead-arch past the fish-pens.")
+
+Days follow light. Work in the bright green hours — tending, harvesting, weaving, the slow clipping that passes for carpentry. The evening dimming is real and felt; the plateau's gold drains out of the water and everything goes blue-gray and the lawn's crackle rises. People withdraw to their arches, light nothing (there is no fire; there is a luminous plankton cultivated in jarred gourds that gives a mild living lamplight), eat cold stored food, and listen. The stalk-hum modulates with the night currents. Somewhere the Bellkeeper may toll. Out beyond the drop-off, a singer passes, and the sound arrives and is felt and goes.
+
+Change comes to Halv the way rings come to a tree. A new arch takes a decade. A new family takes two. Children's growth is measured against the stalks, which grow so slowly that a child will outpace a given plant, then be outpaced by it, over a lifetime — so that each person has a plant that is briefly the same size as they are, and keeps it, and remembers it, and it is a small private thing, not discussed, but real. The tenders say the town's real calendar is not the fish-runs but this: the times when each person and each stalk cross in height, and the town is a lattice of those crossings, most of which nobody knows about but the two parties, one of whom is a plant.
+
+It is a small place with hard edges — the plateau rim, the light, the cold — and within those edges, room. Not emptiness as poverty: emptiness as material, as construction, as the thing that lets each living house be an island with its own note in the long chord the water plays as it passes through.
+
+The rest, as they say in Halv, is in the sound.

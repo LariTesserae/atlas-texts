@@ -1,0 +1,19 @@
+The horizon does not exist here; there is only the rise. 
+
+This is a world of verticality, a continental sprawl of sharp-edged, unweathered peaks that pierce a thin, violet-tinged atmosphere. The mountains are young, geologic infants with edges so crisp they seem to have been shattered from a single block of obsidian only yesterday. There are no rolling hills, no soft valleys—only the sheer, the steep, and the jagged.
+
+The scale is oppressive. These ranges stretch for thousands of miles, forming a geography so massive that the weather is trapped within individual canyons. Great plumes of cloud snag on the obsidian needles, shredding into mist that clings to the rock faces.
+
+Nestled into every crack, clinging to every precipice, and terracing every sheer drop is the City. It is not a single settlement, but a continuous, dense urban crust of hand-hewn stone. It is a megalithic sprawl of primitive complexity. There is no metal here, no hum of circuitry. Instead, there are millions of small, drystone dwellings, stacked one atop the other like the cells of a frozen hive. Stairs—millions of them—are carved directly into the basalt, winding upward until they disappear into the frost-line. Timber scaffolding, lashed together with thick, hairy ropes of braided lichen, forms rickety bridges across chasms miles deep.
+
+The air is cold—a biting, permanent chill that keeps the breath visible. It is a dry cold, yet it is punctuated by a peculiar, intermittent moisture. As the sun strikes the high peaks, the frost flash-melts, sending "the weep" down the stone faces. For an hour each day, the city glistens; every stair becomes a miniature brook, and every dwelling drips with condensation. Then, as the shadows return, the moisture freezes instantly into a thin, treacherous glaze of ice. 
+
+Vegetation is a rare luxury. In the shadows of the stone dwellings, one might find patches of iron-grey moss or stunted, wind-warped shrubs with leaves like needles. They grow slowly, their lifespans measured in centuries, barely changing from one generation of inhabitants to the next.
+
+Yet, despite the sparse flora, the world is teeming with life. Abundant fauna moves through the vertical city with more grace than the humans who built it. Great, shaggy-coated ruminants, six-legged and sure-footed, graze on the high-altitude lichens, their heavy breathing the only constant sound in the thin air. Enormous birds with wingspans the length of houses glide on the thermals between the peaks, their shadows sweeping over the crowded stone terraces. In the narrow alleys, small, fur-covered scavengers dart between the legs of the stone-masons, their movements frantic in the otherwise slow-moving world.
+
+Everything here happens at a glacial pace. Because there are no machines, the construction of a single tower might take three generations. The culture is one of patient, manual labor—the rhythmic *clack-clack-clack* of stone hammers against basalt is the heartbeat of the range. It is a quiet world. The thin air doesn’t carry sound far, and the vast distances swallow the noise of the millions who live here. The city is a place of muffled footsteps, the creak of freezing timber, and the low, mournful lowing of the mountain beasts.
+
+Light here is piercingly clear. Without the haze of industry or the humidity of the lowlands, the sun is a brilliant, harsh disk that carves the world into blades of light and wells of absolute shadow. In the light, the city is a pale, shimmering grey; in the shadow, it disappears into the black of the rock.
+
+There is a profound sense of permanence here. The mountains are too young to crumble, and the city is built of the mountains themselves. It is a civilization of the cliff-face, a dense, primitive, and silent empire of stone, where the only thing faster than the growth of the rock is the slow, steady freezing of the mist.

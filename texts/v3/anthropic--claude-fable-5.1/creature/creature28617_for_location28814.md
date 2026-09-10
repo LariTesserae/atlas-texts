@@ -1,0 +1,85 @@
+Start with what is smallest, because it is what there is most of, and because it never once in its life feels the wind.
+
+Under the mat, in the wet felt where the runners cross and recross, live the eaters. They are pale, soft-bodied, segmented, no longer than a finger joint, and they have no eyes at all — not vestigial eyes, not eyes gone dark, simply no place on the body where an eye was ever going to be. They move through the mat the way a thread moves through cloth. They eat the runners from the underside, taking the old growth, the brown, the part of the plant that has stopped drinking, and they leave behind a fine dark grit that the living runners root into. Whether the mat could exist without them is not a question anyone has asked, but the answer is probably not. They are what turns last year's green into this year's.
+
+When the wind peels a sheet of mat off the stone and rolls it across the plateau, the eaters go with it. They do not notice. Their world is the felt, and the felt is still around them, damp and warm and dark; it has simply been lifted, flung, dropped, and turned over somewhere else, and they go on eating through the tumble as if nothing had happened. Sometimes the sheet lands upside down. Then, for the few hours before it rots into the mat beneath or roots into it, the eaters are exposed to the sky for the first and only time, pale against the pale root-side of the runners, and they do not know it, because they have nothing to know it with. Something else knows.
+
+What eats the eaters is quick and dark and flat, and there is a temptation to call it a lizard, but it is closer to a leaf that has decided to move. It has a body no thicker than a coin, a wide fringe along both sides that grips the mat, and a skin that is exactly the colour of the deep basins. It has eyes, small and set high, and it uses them, but not first. First it uses its belly. It lies pressed to the mat and the mat is pressed to the stone and the stone is ringing, and the flat thing reads the ringing. It knows when a person is coming by the change in the stone long before the shadow arrives. It knows when a sheet of mat has been flipped somewhere nearby, because a flipped sheet changes how the wind crosses the ground, and the change goes into the rock. It goes toward the flipped sheet, flattening itself into the green every few yards, and it eats until the grey ones come down, and then it is gone.
+
+This is the first thing to understand about what lives here. Nothing on the plateau trusts the air. Anything that stays trusts the stone, and has moved as much of itself as it can into feeling the stone.
+
+---
+
+The mat itself needs to be reconsidered.
+
+It is described as vegetation, as a covering, as if it were a lawn — many plants, side by side. But watch it for a season. The wind tears a sheet from a basin in the east and lays it down on a rise in the west; the sheet roots; the runners knot into the runners already there and within a month there is no seam. The fruits are stripped and carried and germinate wherever they fall, and what germinates knots into what is already growing. Every part of the mat has, at some point, been every other part. It has been torn up and set down and grown together so many thousands of times that it is not possible to point to where one plant ends and the next begins, and it is not clear that the distinction was ever real. There may be one of it. The whole plateau, days across, may be covered by a single green individual, older than the people, older than the shafts, continuously dismembered by the wind and continuously healing into itself, so that it is at once the most torn thing in the world and the most whole.
+
+It does not seem to mind the tearing. It seems, if anything, to have arranged itself around it. The runners are strongest at their joints, so that a sheet lifts as a sheet and not as shreds. The leaf holds water so that a sheet in the air does not dry before it lands. The fruits are sour enough that nothing eats them until they have been carried a long way. Even the eaters, which the mat could not do without, travel inside it wherever it goes. The mat is not a thing that is destroyed by the wind and recovers. It is a thing that has made the wind into its way of moving.
+
+The people say the mat is asleep, like the rock. They are wrong about this. The mat is the only thing here that is doing something.
+
+---
+
+The grey ones come down when the mat is turned.
+
+They are broad — broader than a person is tall, wingtip to wingtip — and they are the colour of the cloud they live in, and they are almost never seen because they are almost never anywhere but the cloud. They do not land on the plateau. There is no reason to believe they have ever stood on the surface. They fly in the updrafts and the downdrafts and the spirals, riding the wind's changes as if the changes were the point, and when the cloud comes down to the ground they come down with it, and they drop onto a flipped sheet of mat and take the eaters in a few beats and lift again, and there is a scatter of pale bodies in the green and a long stiff feather and nothing else.
+
+They roost in the shafts. This is known because the feathers turn up in the mat near the larger shaft mouths, and because the people who live in shafts sometimes feel — in the stone, in the platform under them — a soft impact from far below, once, in the dark, and then nothing. The grey ones fall into their shafts. They come down through cloud with no visibility at all, over a plateau where every shaft is a dark spot in the green identical to every other, and they find their own, and they fold and drop into it like a stone into a well.
+
+They find it by the note.
+
+Every shaft rings at its own pitch. The people cannot hear this — they have not been able to hear it for generations, and they feel it instead, in the spine and the sternum, as a pressure rather than a sound. But the grey ones hear. They must. There is no other way to fall into a hole in a cloud. Their heads are narrow and their ears, such as they are, are large, and they fly through a sky that is one continuous roar and somewhere in the roar is a single note that means *down here*, and they go to it. The plateau is a landscape-sized organ played by something with no sense of music, and there are creatures who have learned the whole of it by heart, and know their own home as a single sustained tone, and come to it blind.
+
+What they do at the bottom of the shafts, how far down the bottom is, whether they nest there or simply hang in the warm dark and wait for the cloud to come down again — nobody knows. Nobody has gone that far. The exhalations that come up sometimes, sulphurous, from below, may pass through their roosts on the way. The feathers do not smell of it.
+
+---
+
+The grazer is either real or it is the plateau's one joke.
+
+It is reported every few years: a low broad animal, hide the colour of the mat, moving across a basin with the wind pressing it flat. Then it is not reported for a long time. Those who have seen it describe it differently each time — a flat back, a domed back; four legs, more than four; a head, no head that could be found. It is always far off. By the time anyone has walked toward it the cloud has come down or the light has gone, and where it was there is a slight rise in the green, and the rise is only the mat, thicker there, over a slight rise in the stone.
+
+Here is a possibility. Something that lived on the plateau and needed to stay put — a large thing, too big to go down a shaft — would have exactly one option, which is to become a part of the ground. It would be low. It would be broad. It would move very seldom and very slowly, so that the wind could not get under it. And if it stayed still long enough, in this damp, on this warm stone, the mat would root on it. Torn sheets would land on its back and knot into whatever grew there already. It would become a green hump among green humps. It would graze, if it grazed, by lifting a corner of itself and taking what was underneath, and then it would settle. Over a very long life it would cross a basin. People would walk over it and feel the stone slightly wrong under their feet and think nothing of it, and once in a generation somebody would see it move.
+
+There is no proof of this. There is a shape in the mat about a day's walk east of one of the settlements that has been there for as long as the oldest people remember and that has, they say, shifted — not much, a few yards, in a direction the wind does not favour. They do not go near it. Not out of fear. Out of a kind of courtesy that is hard to explain, the courtesy one extends to a sleeper.
+
+---
+
+Now the people, because they are what everything else is arranged around, or what has arranged itself around everything else.
+
+They are not many. A few hundred across a place that takes days to cross, in groups of a dozen or two, each group in its shaft. They are low and wide. The chest is deep, because the air is thin and the blood has to work; the legs are heavy and the feet are broad and bare and calloused to the thickness of a sandal, because they walk on stone through the mat and because the feet are how they know where they are. The hair is kept short or gone, because hair in this wind is a torment. The eyes water constantly and are slitted against it and see very far — they judge distance across the flat green better than anyone from below could, they can pick out a ring of stacked stones at the edge of sight — but the eyes are not the first sense any more than they are for the flat thing in the mat. The first sense is the soles of the feet, and the second is the spine.
+
+They go deaf young. Children are born hearing, in the warm dark of the platform, with the shaft's note humming through the stone they lie on and the roar of the wind ten feet overhead, and by the time they are old enough to climb out into the light there is not much left of the hearing, and by the time they are grown there is none. Nobody grieves this. Hearing, on the plateau, is the ability to be shouted at by everything at once. Its loss is a quieting. What replaces it is not silence but pressure: the note of the home shaft, felt as a steadiness in the bones, so constant that it is not noticed until it stops — until the person walks far enough that the stone under the feet is ringing at a different pitch, and then the body knows, without being told, *not home*.
+
+This is how they travel. There are no landmarks; a boulder smoothed to an egg, a larger shaft with a pale lip, and between them nothing. But the stone under the whole plateau is ringing, and it rings differently over every shaft, and a person walking barefoot is walking across a map they read through the soles. A traveller heading to a neighbouring group knows the pressure of the destination as a second tone, learned in childhood, and walks toward it as a moth walks toward a lamp, and feels it strengthen. The old know the whole region this way — a dozen shafts, each a distinct hum — and can cross it in cloud, blind, and arrive. The young get lost and sit down on the mat and wait for the cloud to lift. Every group has a story of someone who set out in weather for a shaft whose note they only half knew, and was found, or was not.
+
+---
+
+They speak with their hands, and the wind has shaped the speaking.
+
+Nobody signs at arm's length here; the wind would take the hand. Conversation happens close. Two people crouch, facing, knees nearly touching, and the hands move in the small still space between their chests, low and fast and precise, wrists together, the fingers doing most of the work. From ten yards away it looks like two people sheltering something between them, which in a sense it is. A group talking is a knot of crouched bodies, backs to the wind wherever the wind currently is, all their hands in the middle.
+
+For anything that has to carry — a warning, a call across the green — there is the throat. They make a shout that is more a push than a sound, a hard low pulse from the bottom of the chest, and it is not heard but felt, by a hand laid on the speaker's throat, or a forehead pressed to a forehead, or, at distance, through the stone. A person can drop to their knees, put both palms flat on the mat, and feel a throat-shout from a hundred yards off as a shiver in the rock. There are perhaps a dozen of these shouts, meaning *here*, *come*, *cloud*, *down*, *stop*. The rest of the language lives in the hands.
+
+Their names are hand-shapes. A person is a particular fold of the fingers, and can be spoken of without being present by making that fold, and the fold is chosen by the mother in the first days, before anyone knows what the child will be. The groups are named by their shafts, and a shaft's name is not a sign but a gesture toward the body — a hand laid flat against wherever the note is felt most strongly, which differs from shaft to shaft. One group is *sternum*. One is *the back of the neck*. One, whose shaft is very wide and very deep, is simply *everywhere*, both hands open and pressed to the ribs.
+
+---
+
+What they do is mostly small.
+
+They twist fibre from the runners into cord and the cord into everything: rope for the shaft, nets for the fruit, the loose wraps they wear, the woven rag on the pole above the shaft mouth. They flake the dark stone into blades and scrapers that are good and do not last, and they make more. They gather the sour fruit and eat it fresh, or dry it on the warm rock in the brief stillnesses, or ferment it in stone bowls in the shaft until it is worse and better. They set bowls at the bottom of the shelter for the drip and drink the mineral water of the plateau's own sweat. They sleep on torn sheets of mat laid on the stone platform, and the mat, still living, still wet, sends runners into the fibre of their wraps, and in the morning a person may have to tear themselves loose from their own bed. The very old, who sit still in the shaft mouth for whole days twisting cord, are sometimes found with a fine green thread rooted into the weave at the shoulder, and they leave it.
+
+They eat the flat things when they can catch them, which is seldom. They eat the eaters, which are bland and plentiful, gathered from a flipped sheet before the grey ones arrive — there is an urgency to this, a race with something they never see, and children are set to watch the sky. They do not eat the grey ones. They could not catch them if they wished, but they do not wish; the grey ones are the only creatures here that go down the shafts further than the people do, and there is a respect in that, and perhaps a hope.
+
+Because the dead go down. When a person dies they are wrapped in mat and lowered from the platform on all the cord the group has, and when the cord runs out it is cut, and the body goes on falling, and the note of the shaft — the people believe this, or say it — drops for a moment, as it drops when a shaft breathes out. *Further down* is how they say it. Not gone; further down. The abandoned shafts one passes, ring of stones half swallowed, may be groups that moved or groups that died, and the phrase does not distinguish, and this is deliberate.
+
+---
+
+Once in a day, perhaps, the wind falls, and they come up.
+
+It is the one time they stand fully upright. Out of every occupied shaft, all across the plateau, people climb into the light and straighten and stand on the mat, and for those few seconds the wind is not pushing them and the mat is not shivering and the cloud is hanging still, and the note of the rock is still there in the bones but softer, a hum instead of a pressure. They do not speak. They do not need to; there is nothing to say that the standing does not say. Then somewhere far off the green goes flat in a ring and the pressure comes back up through the feet and they crouch again, and go down.
+
+They are the only thing here that goes down.
+
+That is the shape of it, in the end. The mat gives itself to the wind and travels. The eaters travel inside the mat, not knowing. The flat things go where the flipped sheets are. The grey ones live in the moving air and come down only to feed and roost. The grazer, if it is anything, has made itself into ground. And the people, who could not become ground and could not become air, went into the one direction the wind does not reach, and wedged stone across it, and packed the gaps with green, and sat down in the warm dark with the note coming up through the spine. They have given up hearing for it. They have given up standing. They have given up a great deal, and what they have kept is a hum, and a platform, and each other's hands in the small still space between them.
+
+The plateau has finished. The air will never begin. Between them, a few hundred people have found the one place where a thing can be neither, and hold still, and twist cord, and wait for the moment the dreaming stops, and stand up, and go back down.

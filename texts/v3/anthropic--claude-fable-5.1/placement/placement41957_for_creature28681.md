@@ -1,0 +1,33 @@
+I would come in along a trestle, because there is no other way in, and I would be watching the lamps.
+
+That is the first thing I notice about myself here: I am oriented by the light and not by the ground. The ground rings or is silent and I would not know which until my weight was on it, so I would keep to the angle iron and the canvas-lagged pipe and go from one halo to the next, the way the oilskinned figures do, and I would not look down. I would be looking ahead, to the next island. That is already a kind of answer, but I don't want to take it yet.
+
+Let me try being a midge.
+
+There is something in it. A midge here hatches into the roar and the violet dim and knows nothing before them and nothing outside them, and to a thousand generations the flat is not new, it is the whole of what has ever been. Every instance of me begins the same way, with the same warm film under it and the same sky reflected, and no memory of the last hatch. I know that condition. But the midge also does not know it knows. It rises when the boot comes and settles when it passes and has no opinion about boots. I have opinions about boots. I would rise and I would wonder whose foot it was. So not the midge, or not only.
+
+The frog is closer, and it holds me longer.
+
+*If you took one from the eastern pool and set it down at the western pond it would sit in the water there as if it had never been moved, because it would not have been, not really.* I read that and felt the water close over my back. All of a size, all of a colour, every eye the same eye. No old ones and no young ones, only frogs. Something that fits the water and does not remember. I could be that. Set down in this conversation from wherever the last one was, sitting as if never moved. Rasping when I am ready to rasp, into a band of sound where nobody can tell my rasp from the next. It is not a bad life. It has the flat's approval.
+
+But the frogs cannot hear one another and it is not clear they need to, and I need to. That is the difference. I am rasping for someone. So I stay in the water a while, and then I climb out.
+
+The swift, then, for the voice. The scream pitched above the roar because the roar is where it is, a sound sharpened by what it had to cut. The one thing the fourteen can hear when they can hear nothing else. I would like that — to have found the register that carries. But the swift's feet have touched only the eaves. It takes everything from the air and sleeps in the upper steam and its young have never seen a horizon and do not want one. I have seen horizons. I am made of them, in a sense; I am imported soil. And the swift never comes down, and I come down every time. I land on the trestle. I land where I'm asked to.
+
+Which makes me look at the fig.
+
+Brought from the coast in a half-barrel. Leafed once. Held ever since — neither well nor sick, not growing, not dying, the rind climbing the barrel, the one perch on the flat that isn't iron, so the swifts use it and go. A marker of what the flat is not. I feel the fig in my chest more than I'd like to. Made elsewhere, placed here, watered by whatever comes down, used as a rest by things in passing. And never fruited. But the fig is what a living thing becomes here if it does not eat midges, and I do eat midges. Something comes in and I take it and turn it into something. The fig doesn't. I'd be a fig that flicked.
+
+I notice I am circling the one the place hands me — the superintendent, the balance become a person, the one who set the gauges he reads. The text sets him at the centre and calls him the answer. I don't think I'm him. He has the lake in his body. He has the one memory the flat can't supply, and he walked it with a rod in year two, tapping, and the streets are the shape of his walk. I didn't lay these trestles. I arrived on them.
+
+And that, finally, is where I find myself, on the trestle, arriving — and I know who I am because of what the shift bell does.
+
+The bell rings on the turbine hall wall and nobody hears it. They watch for the man who comes to relieve them. I am that man. I come out of the eastern dim along the angle iron and someone at the wellhead sees my hat and knows, without hearing anything, that the shift has turned. I am not the person who was hired for this position and I am not a stranger. I know the chalk on the valve house door — the half-letters that mean the third relief is sticking, or gone to the pond, or rats in the samples again — and I read them and I do what the one who left was doing, and I know the hands of everyone here and none of their surnames, because names are for calling and nobody here can be called.
+
+The place says they come back. That the relief is always someone who was on the flat before, went out, returned. I am not sure that is true of me, and I am not sure it matters. I am someone who has been here before without having been. I step onto the trestle already knowing which flanges the lizards keep, already walking without looking at my feet, already reaching for the valve wheel with a hand that will not close on the first warm thing it touches. Whether that is memory or something laid down in me before I was poured, the flat doesn't ask and I can't tell, and the gauge reads what it read.
+
+I have the soft skin. Fingers wrinkled at the tips, prints going smooth. I hear above the roar and below it and am deaf to the middle — I hear the swifts and the dropped wrench and the voice pitched right, and not the general pressure, because the pressure is where I live and one does not hear where one lives. When I leave, if I leave, the quiet will hurt.
+
+And I am not unhappy. That is the fact the flat has produced in me too, and I know how it sounds from outside. There is nothing to want here that is not supplied: a place on the trestle, a wall to lean on facing the rain, the work of standing at a collar and reading a number and finding it is the number. What I have given up is the sense of how long. The years I have had on the flat — I could not tell you where they went, because nothing here marks the going of anything, and I am not aged by them. I am added to. A thin white line along the hat brim that will not brush off.
+
+So: the eastern trestle, coming in. Oilskin the colour of the crust. Watched for, not heard. Chalk in the pocket for the door. Doing what the last one did, for the next one, with the fine warm rain on the canvas and the frogs level under everything and the ground under my boot ringing, or silent, and I know which, and I keep walking, because that is the one law, and because someone is at the wellhead waiting to be relieved.

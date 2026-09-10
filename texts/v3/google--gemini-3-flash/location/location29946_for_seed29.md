@@ -1,0 +1,17 @@
+The space exists within the heart of a sun-bleached obsidian spire, a needle of volcanic glass piercing the thin, high-altitude atmosphere of a nameless peak. It is not a room, but a fissure—a pocket no larger than a heavy iron trunk, hidden behind yards of lightless, unyielding stone. 
+
+The air here is a thick, parched medium of suspended mineral dust and static. There is no moisture; the concept of a drop of water is alien to this chemistry. Instead, the environment is defined by an oppressive, dry heat—a baking 2.7—that radiates from the very atoms of the surrounding rock. This heat is not a breeze but a weight, a heavy physical presence that presses against everything within the chamber.
+
+Because the erosion is so low, the geometry of the space is terrifyingly sharp. The walls are not smoothed by time or wind; they are jagged, crystalline lattices of raw, unweathered basalt and razor-edged silica. Every surface is an emerging edge, a fresh fracture in the crust of the world, appearing as though the mountain were still in the process of being violently born.
+
+The most striking feature of this micro-environment is its density. The space is saturated. There is no "open air." Every cubic inch is occupied by either the jagged protrusions of the walls or the bodies of the inhabitants. It is a packed, pressurized cabinet of existence. 
+
+Despite the lack of a builder—there are no bricks, no mortar, no intentional architecture—the space functions with a brutal, industrial logic. The mountain itself acts as a massive, natural engine. Due to the high-altitude temperature fluctuations and the immense pressure of the rock above, the fissure undergoes a slow, mechanical rhythm. The walls groan and shift with the force of geothermal pistons. Great slabs of obsidian grind against one another with a tectonic, mechanized cadence, functioning like a colossal, slow-motion mill. This is the "tech" of the world: a geological industry of friction and pressure, electrified by the constant discharge of static from the grinding silicates.
+
+The sound is a constant, deafening roar. It is the bass-heavy thrum of a factory floor, the sound of stone being pulverized into powder, amplified by the enclosure. It is a rhythmic, industrial cacophony that never ceases, vibrating through the bones of anything within.
+
+In the near-total darkness, life thrives in a feverish, crowded abundance. There are no plants here; the biology is purely faunal and non-aqueous. The creatures are small, chitinous, and multi-limbed, resembling armored mites the size of a thumb. They are packed together in the crevices, carpeted over one another in layers. They do not need water; they feed on the energetic potential of the static electricity crackling between the grinding stones and the fine mineral flour produced by the mountain’s mechanical labor. 
+
+Their movements are slow, matching the 0.8 dynamic of their world. They move with a patient, glacial intent, shifting their armored carapaces only when the "pistons" of the rock walls provide a gap. They are part of the machine, their shells polished to a mirror sheen by the constant friction of their neighbors. 
+
+Everything here is emerging and yet ancient. The mountain grinds its teeth, the heat rises in a dry, invisible shimmer, and the tiny, crowded inhabitants wait for the next tectonic stroke of their dark, industrial cradle. It is a landscape of high-pressure stasis, a hidden engine room where the Earth slowly processes itself into dust.

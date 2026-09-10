@@ -1,0 +1,21 @@
+The dark here is not empty; it is thick, humid, and entirely opaque, like being submerged in warm broth. 
+
+There is no sky to speak of, only an overhead ceiling of scalding mist that hangs perpetually at the height of a four-story roof, raining a continuous, tepid sweat down into the blackness. The air is so laden with moisture that every breath feels like drinking; water coats every surface instantly, running down stone in unbroken, silent sheets. The heat is oppressive and biological, the steady ninety-five degrees of an unventilated sickroom, radiating from below.
+
+In this black, boiling soup lies a city, though there are no tools here, and never were. 
+
+The architecture does not bear the mark of the chisel, the trowel, or the kiln. Instead, the landscape itself has settled, over unfathomable spans of time, into the distinct, undeniable geometry of high municipal order. Great boulevards of polished, river-softened basalt cut through the low basin, wide enough for armies that never existed. Rising from these submerged streets are colossal, monolithic blocks—tenements, administrative complexes, and towering arcade walks—composed of continuous, seamless grey siltstone. Their corners are gently rounded by eons of hot condensation, softened like old soap, yet the intent of the grid is unmistakable. There are intersections, alleys, recessed entryways, and dry interior courtyards, all laid out with the cold, bureaucratic regularity of an empire, spaced far apart across miles of shallow, warm slough.
+
+Between these monumental structures, the terrain is flat and desolate. An inch or two of warm water covers the sunken flagstones of the plazas, stretching out into vast, empty expanses where the city’s grid seems to have simply run out of momentum. There is almost no green. Occasionally, hanging from an underside lintel or wedged into a drainage cleft, there is a clump of pale, filamentous matter—neither moss nor vine, but something like stringy, waterlogged fat—that feeds purely on the thermal humidity. Otherwise, the stone is entirely bare, slick as wet tallow.
+
+Nothing moves that has eyes or blood. The only life is the slow, mechanical respiration of the basin itself. 
+
+The physical rules of the place have worn thin, distorted by the unending heat and the weight of the dark. In the wider avenues, gravity is not entirely reliable: the water does not always flow toward the lowest point. In certain intersections, the runoff from the monoliths gathers into smooth, trembling ribbons that creep *up* the vertical faces of the buildings, pooling on ceilings before detaching in heavy, slow-motion spheres that drift through the pitch-black air until they burst against an opposite wall. 
+
+Elsewhere, the geometry of the thoroughfares folds back on itself. One can wade down a long, straight canal flanking a row of hollow, windowless facades, walk for twenty minutes through the knee-deep warmth, and find oneself arriving at the exact spot from which the journey began, facing the same direction, with the wake of one's own steps still rippling through the water ahead.
+
+Sound travels poorly through the saturated atmosphere. It is muffled, swallowed instantly by the curtains of steam. What remains is a soft, rhythmic percussion: the endless, polyrhythmic ticking of drops falling from unseen cornices into unseen reservoirs; the distant, hollow *thump* of air pockets burping through the mud beneath the stone paving; and the faint, wet friction of stone blocks shifting against one another. 
+
+For the city is not static. It grows and erodes at the pace of a glacier, yet with the deliberate purpose of a living organism. Deep within the foundations, where the basalt meets the boiling mud of the basin’s floor, walls are being slowly extruded, rising an inch each century to replace the upper floors that melt under the perpetual rain. Archways slowly swallow their own openings; stairwells gradually flatten into ramps of silt, then melt entirely back into the boulevards.
+
+To stand here is to stand in a city that built itself out of the swamp’s desire for form, only to find it had no use for inhabitants, light, or air that can be safely breathed. It merely exists in the dark, sweating, massive, and entirely closed.

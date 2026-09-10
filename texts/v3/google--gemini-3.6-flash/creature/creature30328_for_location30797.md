@@ -1,0 +1,27 @@
+The feet that dished those wooden stairs are broad, flat, and hard as horn. 
+
+They are the feet of the *Tenders*—though they have no name for themselves that relies on spoken words, for the air is too full of mechanical thrum and midge-drone for delicate speech. They are humanoid in the way a dry, centuries-old vine is tree-like: thickened by time, bent by constant resistance, and so thoroughly saturated with the vault’s chemistry that their bodies seem less like flesh and more like cured leather stretched over dense, heavy bone.
+
+They are not tall—rarely standing more than five feet—but their torsos are barrel-shaped, built to draw thick, wet air into expansive lungs that have long since adapted to the vinegar-tang of sap and the particulate dust of bronze-beetle chitin. Their skin ranges from a deep, oil-rubbed charcoal to a dark, bruised plum, stained irrevocably by decades of splashing in the tannin-red runoff and rubbing against copper-grease conduits. It is hairless, smooth in some places like polished agate, and deeply creased at the joints, where thick white tallow is smeared into the folds to prevent friction-chafe in the relentless humidity.
+
+Their eyes are broad and set wide apart under heavy, browless ridges. They lack dark pupils; instead, their irises are luminous, milky silver-green, possessing a reflective layer that catches the faint amber glow of the carbon filaments and glowing galls. They do not blink often. A transparent, sliding membrane sweeps horizontally across their eyes every few minutes, clearing away the fine mist of sap-droplets and midges without interrupting their gaze.
+
+Watch one move down an avenue between the living monoliths. 
+
+It walks with a low, heavy-hipped sway, bare soles slapping soft and wet against the root-pavement. It wears almost nothing—only a wide harness of supple, oil-soaked cambium bark slung across its chest and shoulders. Hung from this harness are the tools of its existence: heavy scrapers made of hammered brass, bone wedges for prying split bark, horn flasks of boiled lard, and long, curved needles strung with iron wire.
+
+It does not walk alone. A seven-foot salamander slithers out from a wet gutter, its blind snout sweeping side to side. The Tender does not startle or pull back; it simply lifts one broad foot, steps cleanly over the creature’s wet, glistening back, and continues on. The salamander nudges against the Tender’s calf, snuffling at the lard-smell on its skin, before sliding back into the tannin water.
+
+Up on the gantry bridges, three more of them are at work around the crotch of a massive load-bearing trunk where a twelve-foot flywheel spins. They operate not through spoken commands, but through tactile resonance and high, bird-like whistles that cut through the low-frequency roar of the iron pumps. 
+
+One presses its bare chest flat against the vibrating bark of the trunk, eyes closed, hands spread wide across the grain. It is listening to the internal pulse—the wet *hiss* of sap being driven through the vascular channels by the mechanical stroke. It feels the heat of the bearing box through its palms. If the trunk shudders with an uneven cadence, the Tender opens its eyes, reaches into its belt, and drives a brass wedge into a weeping fissure in the bark, redirecting the flow of thermal fluid until the rhythm smoothes out.
+
+Beside it, another uses a curved scraper to clear thick clusters of fist-sized bronze beetles from the copper conduits. The beetles do not fight; they click angrily and tumble into a wicker basket slung beneath the gantry. These beetles are a primary yield. Later, in the hollowed interiors of the monoliths, the shells will be cracked for their heavy, fat-rich oil, and their sweet, paste-like innards will be boiled with sap-scum to feed the young.
+
+Inside the monoliths, where the air is still warmer and smells intensely of toasted grain and fermented sugars, the domestic life of the vault unfolds in silent, orderly warmth. 
+
+The living quarters are carved into the thick, fibrous walls of the monoliths—not cut with saws, but trained during growth using hot iron forms around which the cambium was forced to swell. Deep inside these damp, glowing alcoves, families sleep together in low, woven nests suspended from internal root-tendrils. They sleep soundly despite the continuous *chug-clack* of the pumps; to them, the cessation of that sound would be the only nightmare capable of waking them.
+
+Their children are born small, slick, and dark-skinned, with wide, gripping toes that allow them to scramble up the rough, wet bark of the upper tiers long before they can walk upright. They play in the misty canopy thirty feet above the floor, swinging from iron cable to fibrous vine, harvesting the sweet, cold-burning galls to hang outside their family doorways.
+
+When a Tender dies, there is no burial in stone or burning on a pyre. The body is stripped of its iron and brass tools, washed in cold tannin water, and carried to the mechanical heart of the basin—to the base of one of the six great engine-trees. A fresh slit is scored into the bark near the iron bearing box where the wood is warm and soft with grease. The deceased is laid into the weeping wound. Within weeks, the fast-growing cambium rolls over the form, swallowing skin, bone, and breath into the dark grain. A year later, a smooth bulge in the teak-like wood is all that remains, locked forever into the structure of the engine, helping to hold the heavy pig-iron flywheel as it continues its slow, wet stroke.

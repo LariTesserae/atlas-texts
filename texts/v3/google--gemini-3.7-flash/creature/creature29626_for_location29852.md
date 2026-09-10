@@ -1,0 +1,35 @@
+To live upon the shears, one must first surrender the memory of horizontal earth. 
+
+The people who inhabit the hanging tenements—the *gantry-folk*, though they call themselves simply *the tethered*—are shaped entirely by the geometry of the drop and the fickle, incomplete physics of the rift. They are a squat, heavy-shouldered breed, their torsos broadened by the relentless lung-work of breathing thin, vaporous air. Their knees are permanently loose, bent in a habitual, low-slung crouch that allows them to shift their center of mass in an instant when a gravity-seam rolls underfoot like an uneasy swell at sea. 
+
+Their skin carries the dull, greyish pallor of those who live beneath iron ceilings, stained indelibly with coal-slur, tallow, and the powdery violet bloom of raw bismuth dust. They do not wash in water—water is caught strictly for boilers and drinking—but scrape themselves clean with dry cakes of compressed shale-flour and oil. 
+
+Around their waists, every person, from the gray-bearded boiler-stoker to the four-year-old child, wears the *harness*: a broad belt of cured ray-hide lined with wool and studded with heavy brass rings. To these rings are clipped the *tracers*—braided steel tethers weighted with lead bobs. A gantry-child learns to "throw weight" before learning to speak: tossing a plumb-line into an alleyway to test which direction *down* is pulling before stepping off a zinc threshold. 
+
+In their culture, the cardinal directions are meaningless; orientation is measured in tensions and drifts. A room is not north-facing, but *rock-tethered*, *shear-ward*, or *abyss-hung*. 
+
+Domestic life inside the brick tenements is arranged around the walls rather than the floors. Tables and hearths are mounted on heavy ball-and-socket swivels. Pots are fitted with threaded lids, and beds are essentially canvas cocoons lashed between structural iron ribs. When a family sleeps, the groaning settling of the tectonic plate might tilt their bedroom forty degrees through the night; they wake without surprise, simply tightening the leeward ropes and stepping out onto what was yesterday a bookshelf, but is now the only stable footing.
+
+They eat what the mist and the boilers provide. Along the undercarriages of the catwalks, tenement cooperatives tend the *drop-gardens*—long nets of shredded zinc-sponge and boiler-slag where weeping liverworts, fleshy gray chanterelles, and pale shelf-fungi grow into dense, dripping curtains. Protein comes from the chattering life of the girders. The long-legged arboreal crabs are trapped in willow-wire cages baited with rancid engine tallow; their blue meat is sweet, smelling faintly of sulfur and cold copper. 
+
+Between the people and the wild fauna exists an uneasy, symbiotic domesticity. 
+
+Foremost among their companions are the *grip-mastiffs*—thick-ribbed, hairless hunting hounds bred with six splayed, opposable toes on each paw, capped with curved, horn-hard talons that lock into the heads of iron rivets. Blind from generations in the twilight, these beasts navigate by the hum of the dynamos and the smell of ozone. They wear heavy brass chest-plates to prevent them from floating away in the null-gravity seams, and they are trained to run lines between distant gantries, leaping fearlessly across mile-wide drops with copper messenger-capsules clamped in their jaws.
+
+Above and below the dwellings, the wild ecology of the rift churns in the damp twilight.
+
+The blind skimming-rays—which the miners call *velvet-mantas*—do not merely drift; they migrate in massive, slow-swirling spirals that follow the exhaust-plumes of the city’s deepest coal-furnaces. These creatures possess skins of dense, oily cilia that capture the soot and spore-fall; every few hours, they bank sharply against the sheared bismuth faces, scraping their bellies along the stone to scrape off the encrusted nutrients with a sound like tearing canvas. Flocks of smaller, needle-beaked *scritchers*—leathery, four-winged proto-birds—ride the backs of the rays, picking off the parasites and phosphorescent mites that burrow into the mantas’ thick blubber.
+
+Deeper down, where the iron scaffolding gives way to the unfinished abyss, life grows weirder, slower, and colder.
+
+In the regions where gravity hangs slack—where dropped tools float in lazily orbiting clouds like dead constellations—live the *tallow-drifters*. These are colonial siphonophores the size of canal barges, translucent and gelatinous, glowing with a soft, bilious yellow light. They have no organs for propulsion; they simply inflate and deflate huge, vapor-filled bladders of warm methane, hanging motionless in the chasm between districts, catching stray drift-coke, dead rays, and dropped cargo in webs of stinging, thread-like tentacles that hang hundreds of feet down into the dark. Tenement boys sometimes hunt them from the lowest catwalks with harpoons wired to dynamo batteries, harvesting the burning oil from their floats to fill the street-lamps.
+
+Along the stone shears themselves, where the bismuth cools into raw, iridescent staircases, dwell the *shear-ticks*. These are not true insects, but heavy, carapaced mollusks the size of iron kettles. They do not move on legs, but dissolve the newborn mineral faces with concentrated acid-glands, inching along the rock by re-solidifying the liquefied stone behind them. As they feed on the heavy metals, they exude a crystal slag that hardens instantly into razor-sharp ridges—natural handholds that the tether-wrights seek out when driving new foundation bolts into the virgin cliff.
+
+Even the fungi here are predatory and industrious. *Solder-mold*, a chalky, silver-white crust, grows exclusively on the hot seams of boiler pipes and structural rivets. It feeds on the microscopic vibration of the machines, its hyphae boring microscopic anchor-holes into cast iron, slowly welding disparate plates into a single, calcified biological mass. The city's maintenance squads wage an eternal, clanging war against it with scrapers and kerosene torches, knowing that if the solder-mold is left unchecked, it will seize the hydraulic joints and lock the city’s flexible swing-bridges into brittle, unyielding bone.
+
+Yet despite the iron, the steam, and the relentless peril of the void, this world is not silent or dead. 
+
+At the end of a shift, when the dynamos throttle back to their resting pulse and the great exhaust vents exhale their last horizontal clouds of ochre steam, the city settles into its peculiar music. 
+
+The tethered lean out from their zinc porches, their boots swinging over three miles of absolute nothingness, smoking thin pipes of dried lichen. Beneath them, the bells of the wire-crabs chime softly in the moss-beds; the giant rays groan their low, whale-like calls as they bank through the violet fog; and the newborns, swaddled tightly in their hanging wicker cradles, are rocked to sleep not by the swaying of a mother’s arms, but by the slow, immense, tectonic breathing of the stone against the iron.

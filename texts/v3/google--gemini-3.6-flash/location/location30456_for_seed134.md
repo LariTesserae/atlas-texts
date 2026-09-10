@@ -1,0 +1,23 @@
+This is a flooded chamber high within a volcanic spire, a cathedral-scaled pocket of dense, chilled liquid suspended miles above the lower valleys. The space is no larger than a grand basilica—a hundred paces across, bounded by towering walls of pristine, pitch-black obsidian and vitreous quartz. The rock here is young and un-softened; every ledge is a razor, every pillar a sharp-faceted crystal that has never known the smoothing rasp of weather. 
+
+The fluid filling the chamber is clear as air but cold and heavy, thick with dissolved iron and heavy salts. High above, open fissures in the spire’s crown admit a harsh, brilliant column of daylight that pierces straight down to the chamber floor, illuminating the entire water-column in stark, high-contrast clarity.
+
+No plant grows here. There are no fronds, no mosses, no microscopic algae to tint the water. Yet the space is crowded to the point of suffocation. 
+
+It is a natural engine room, functioning with the violent, precise logic of heavy industry, though no hand has ever carved a stone or laid a wire. 
+
+At the center of the vault, three massive columns of black basalt fit loosely into vertical shafts in the rock floor. Geothermal pressure from deep within the spire builds beneath them in long, patient cycles. Every seven or eight minutes, with a deafening subterranean shudder that shakes the water like a solid mass, the rock pistons rise six feet, forcing thousands of gallons of heavy brine through narrow mineral flues carved by ancient lava bubbles. The flues act as fluidic switches and natural turbines. As the cold liquid is blasted through these tight obsidian passages, it produces a deep, metallic thrumming—a roaring, rhythmic *chug-shriek-thump* that echoes endlessly off the vitreous walls.
+
+Along the edges of these flues grow dense, crystalline beds of piezoelectric quartz. The intense hydraulic shearing forces generate massive static potential across the rock faces. Blue-white electrical arcs, thick as wrists, snap rhythmically between the sharp mineral points, illuminating the dark liquid in blinding flashes and filling the vault with the sharp, loud *crack-hiss* of underwater lightning. The water vibrates with a constant 60-cycle hum.
+
+This brutal, inorganic power grid supports a teeming, hyper-dense fauna—an ecosystem entirely composed of strange, hard-shelled animals that have evolved to exploit the raw kinetic and electrical energy of the chamber.
+
+They fill every inch of available space. Layered three-deep against the sharp obsidian walls are millions of iron-plated barnacles, their carapaces shaped like hexagonal nuts and bolts, snapping their mineralized cirri in unison to the pulse of the water vents. Swarming around the electric arcs are schools of sleek, blind organisms resembling jawless, bronze-armored fish. They have no fins; instead, their flanks are lined with rows of calcified, pulsing cilia that operate like tiny internal combustion pistons, driving them through the liquid with a dry, mechanical clicking sound.
+
+In the lower crevices, where the mineral slurries settle, giant segmented arthropods—each the size of an anvil and encased in heavy, pyritic armor—grind raw iron ore between heavy, gear-like mandibles. Their feeding is a continuous, loud metallic screeching, like lathe-work on cold steel. They do not eat plants or prey; they ingest the raw mineral deposits precipitated by the electrical discharges, metabolizing the charge directly.
+
+The environment operates with immense, patient inertia. The stroke of the basalt pistons is slow—a steady, deliberate rise and a heavy, grinding drop—yet the noise is a constant, deafening industrial din. The sound of cavitation bubbles collapsing against the sharp rock face rings out like hammer blows on metal. The airless liquid carries the sound straight into the stone, so that the entire mountain peak throbs like a working compressor station.
+
+Despite the roar and the electrical violence, the overall structure of the place changes very little over time. The rock is too hard to erode quickly; the cold temperature keeps biological metabolic rates disciplined and rigid; the light remains steady and bright through the upper glass-cracks. The creatures live, breed, and die on the edges of the razor-sharp crystal gears, their shed iron carapaces falling into the central vent to be ground into magnetic sand by the next stroke of the stone engine. 
+
+It is a small, bright, crowded world of cold water, sharp glass, deafening thunder, and living metal—an unbuilt factory operating at the top of the world.

@@ -1,0 +1,41 @@
+The land is so low that water seldom has to fall. It spreads instead, feeling its way across pale clay, filling a shallow depression, rounding a shelf of stone, joining another body of water through a passage almost hidden beneath the surface. Across the whole basin there may be only a few feet of descent. The current becomes visible where a strand of algae bends, or where floating husks collect against the upstream side of a root.
+
+In the distance, dry ground appears as long, dull-backed islands. Some are broad enough to walk for an hour without wetting your feet; others are no more than a rise of gravel bearing three shrubs. Beyond them lie further sheets of water and further low rises, their edges difficult to distinguish in the warm haze. Nothing closes the view. Even the clouds seem to occupy a shallow layer, spread widely over the plain.
+
+The rain has stopped, but nearly everything is still giving up water. It beads on the undersides of leaves, seeps from exposed clay, and hangs in small clear bulges beneath the lips of rock. The air is warm enough to soften the distinction between wet skin and weather. In full daylight the shallows shine almost white. Beneath that brightness, their bottoms are ocher, gray-green, or dark brown, according to the depth and the amount of decaying matter gathered there.
+
+The stone has very little left to lose. What were once resistant ridges are now low, rounded exposures, their grain showing through a thin polish of water. There are no fresh fractures, no heaps of sharp rubble. Loose pieces have the flattened shapes of things long rubbed against one another, though the streams here are no longer strong enough to move them. Many lie half buried in silt, with a darker line marking the level of the last long flood. On the broadest slabs, water occupies depressions worn so gradually that their edges cannot be found by touch.
+
+Some of these hollows hold only a skin of warm water. Others are deep enough to shelter fish through the dry months. Seen from above, they would form an irregular chain across the exposed bedrock, but at ground level each seems separate: a still pool with a brown rim, a few bubbles rising, a little rush of movement under the reflected sky.
+
+For a place with so much water and warmth, it carries surprisingly little green. The old soils have been washed thin. On the rises, rain drains through pale sand almost as soon as it arrives; lower down, the ground stays saturated long enough to suffocate many roots. Life takes hold in the narrow interval between those conditions.
+
+There are scattered sedges with stiff, sharp blades, gray-leaved shrubs on slightly raised patches, and occasional trees whose crowns are much wider than their height. Their roots travel just beneath the surface, exposed here and there like dark, rounded ribs. Several lean without quite falling. Under them the ground is thicker with leaves, and the water is stained the color of weak tea.
+
+Between these patches, the openness persists. A hundred yards of bare wet clay may separate one clump of vegetation from the next. Thin films of algae coat the shallows. A few floating leaves gather along a bank, then the next pool has none. The abundance is mostly low down, small, or submerged.
+
+It becomes apparent first as sound.
+
+Frogs call from places that appear empty, some with a hollow knocking note, others with a sustained rasp that carries far across the water. Insects produce a high, continuous vibration above the sedges. From an isolated tree comes the repeated harsh cry of a bird, answered much farther away. At intervals a fish strikes the surface with a flat slap. The sound is startling because the water around it remains so still.
+
+These noises overlap without filling the landscape evenly. Near a vegetated pool the air can be almost painfully loud. A little farther out, on bare stone, individual calls separate again, each arriving across a different distance. There is no rushing stream beneath them. When the animals pause, you hear small things clearly: water dripping from a branch, a bubble breaking in mud, the faint dragging sound of a snail feeding on a wet rock face.
+
+Wading birds stand widely spaced along the shallows. Their legs and reflections make narrow dark marks in all that light. They spend long periods watching, then take two deliberate steps and thrust their bills into the water. Small fish scatter in a brief silver fan. Farther from shore, broad-backed turtles rest almost completely submerged, their shells carrying a dusting of green growth. One lifts its head to breathe and lowers it again without disturbing anything beyond a few inches.
+
+Dragonflies patrol the open margins. Their movements are quick, but they keep returning to the same stems. Beneath them, tadpoles crowd the warmest pockets of water, turning the pale bottom dark. Tiny crustaceans work through fallen leaves. Burrows stipple the damp banks, each with a little apron of freshly moved mud. Around a drying puddle, tracks accumulate: bird toes, the sliding groove of a turtle, the fine, confused writing left by smaller feet.
+
+The mud preserves these marks only briefly. Water wells into them from below, softening their edges. By evening a sharp footprint may be a shallow oval; after the next rain, it is simply part of the plain again.
+
+Nothing here stays dry with complete certainty. A rise that carries shrubs may become an island for several weeks. A passage used by animals may disappear beneath six inches of cloudy water. Yet the floods are seldom violent. They arrive as a slow widening. Pools reach their rims, narrow channels fill, and separate reflections join into one. Leaves lift from the ground and drift a short distance before catching. Animals retreat to the higher stone, where there is ample room but little shelter.
+
+As the water subsides, it leaves broad bands rather than a distinct shore: floating debris first, then dark mud, then a skin of drying clay. In the hottest weather that clay cracks into small plates. The next rain closes the cracks with swollen sediment. Season after season, the surface opens and smooths again.
+
+By afternoon, heat rises visibly above the bare islands. The distant trees lose their lower trunks in the shimmer and seem to rest directly on the brightness. Close by, the light is plain and revealing. You can see insect wings stuck to the mud, grains of quartz in the rock, the delicate red threads of worms exposed beneath a lifted leaf. The water smells faintly mineral in the open and thickly organic under the shrubs. Occasionally a deeper pool releases the sour smell of buried vegetation, which lingers in the still air before dispersing.
+
+A breeze crosses the basin slowly enough to watch its progress. One patch of water roughens, then another. The pale undersides of a shrub’s leaves turn outward. The reeds bend and recover. For a moment the reflected clouds break into thousands of bright pieces, and the submerged world becomes easier to see.
+
+Beyond the nearest islands, the same conditions continue with small variations: darker water over peat, firmer ground where a buried seam of stone approaches the surface, a wider channel deep enough to remain cool at midday. These differences matter. Fish gather in the channel. Birds return to its edges. A tree grows taller where its roots find an old pocket of sediment. The broad plain, apparently uniform from a distance, is closely inhabited according to depths and heights scarcely greater than the length of a hand.
+
+Toward evening, shadows finally give the terrain some relief. Low shelves appear along the rock. The shallow banks become visible. Each tuft of sedge casts a long mark across the wet ground. The calls of frogs grow louder as the air cools by a degree or two, and small winged insects rise above the pools.
+
+The day’s warmth remains in the stone and water. A turtle eases off a submerged ledge. Somewhere beyond the nearest trees, a bird settles with a short, heavy flapping. The pools continue their almost imperceptible passage toward lower ground, carrying a little dissolved mineral, a little fine clay, across a surface already worn nearly level.

@@ -1,0 +1,33 @@
+You find it by crouching.
+
+From above it is nothing — a low blister in the salt-pan, a weathered dome of basalt no higher than your knee, cracked along one side where the old flows settled and cooled. The desert around it is empty and noon-white, but the crack is dark. You have to lay on your belly and pull yourself in. And then the floor drops a hand's breadth and you are inside.
+
+It is a room. That is the scale of it. One room, low and long, perhaps twenty paces by thirty, hollowed like a gourd. The rock above arches close enough to touch if you stand on tiptoe. In that closeness, the heat is kept.
+
+It is furnace-hot in here, but dim. The light comes only from the slit you came through and two or three needle-holes where the roof thinned — thin blades of outside glare that do not illuminate so much as hang in the dust. The rest is ember-dark, brown-red dark, the kind of dark your eyes adjust to until you can see the grain of everything. The stone itself radiates. Put your palm to the wall and it is warm as a living flank, steady, long-existed warmth, not a fire but the memory of fire settled into balance. The air shimmers faintly even in dimness. It tastes of hot dust and iron and wax. There is no damp anywhere. No seep, no well, no condensation in the coolest corner. Even your breath dries before it leaves you. Your lips crack within minutes.
+
+And yet it is lush.
+
+That is the first wrongness that becomes right. From the floor, from the walls, from the thatch of the tiny dead town, the dry-green grows thick.
+
+They are not plants as you know thirst. They drink no water because there is none to drink. Their leaves are opaque, swollen, black-green to amber, lacquered with wax an inch thick. Snap one — though you won't after you see how slow they grow — and it does not bleed sap but exhales hot oil that seals the wound in seconds. Cinder-plume fern, ash-flag, bottle-wort: broad fronds ribbed with silica that clink faintly like glass, low подушки of needle-leaf that store day-heat in their cores and unfurl at nightfall in this perpetual dusk. They root in dust, in ash, in the crumbled mud-brick itself. What they want is heat and mineral and time, and here they have all three. So they have made a jungle in miniature, waist-high to a crouching person, dense and glossy and utterly dry to the touch, rustling like paper.
+
+And among them — the town.
+
+It is unmistakably urban. Not a camp, not scattered huts, but a settlement with intent. A main street, straight as a rule, swept — yes, swept — clear between the fronds, packed earth darker from generations of feet. Flanking it, terraces of small rectangular houses built of sun-baked mud and hand-patted clay, stone-footed, flat-roofed with woven ash-flag mats now half-swallowed by bottle-wort. Doorways low enough you must duck. Inside one: a stone mortar and pestle, a loom of sticks and twine, a stack of dry seed-cakes hard as pottery. Further in, layered construction: a second story added to a corner house, a retaining wall to hold back the slow drift of dust, a granary bin raised on stones, a cistern — dry, cracked, repurposed as a seed-store, its plaster interior flaking. Everything is hand-made. You can see fingerprints in the bricks. Chipped basalt flakes, fire-blackened hearth rings, bone awls — no, not bone. Thorn awls. There was never metal here, or very little. Just the primitive kit: cut, pound, weave, bake in hot stone.
+
+No one lives here now. That is the second thing you learn. The density of presence is almost nothing. The air between stalks is vast. Sound echoes too long for such a small room. No lizard skitters, no fly drones, no rat in the granary, no bird nesting in the roof-holes. No animal life at all. Not even the whisper of mites. The seed-cakes lie untouched, not gnawed. The emptiness is complete and old.
+
+The town was left, not destroyed. Pots set down. Mats folded. The street swept one last time. And the plants, which had always lived alongside, simply continued, keeping to a strange civility: they have not choked the street. The fronds lean in over the edges, lush and crowding, but the way is kept open, as if by agreement. Roots go around foundations rather than through them. A plume grows straight out of a hearth but does not topple its stones; it uses them as a trellis.
+
+It is loud in here. That surprises you. Without animals you expect silence, but this pocket is never silent because it is active.
+
+Listen: the wax-leaves tick and pop as they expand in the heat, a constant low crackle like a fire just in another room. Every few minutes a mature pod bursts — *tak!* — and throws its dust of dry spores into the air, and they sift down hissing on the lacquered leaves. The tall ash-flags groan when the heat-draft moves through the slit, a draft you feel on your neck, superheated, cycling in and out as the rock breathes. Roots creak in the wall-cracks. Dust settles. Somewhere a mat slumps and sheds a shower of husks. It is the sound of growth without eating, of a whole ecology running on heat and stone.
+
+The rule of this place, once you sit long enough to feel it, is simple: *nothing leaves, nothing needs.*
+
+Water never comes, so nothing asks for it. Animals never come, so nothing waits to be eaten or to eat. Everything here — house, plant, heat, dust — has weathered together so long it has settled into a slow exchange: rock gives warmth by day and returns it by night; plants trap dust on waxy leaves, drop it as richer ash when fronds die; ash becomes brick-dust floor; floor feeds new seedlings; houses shade roots and trellis vines. Erosion has stopped being destruction and become maintenance. Corners are rounded. Thresholds are worn into shallow bowls. It is all in balance, established, patient.
+
+If you stay until your eyes fully adjust, you see the unusual thing you first missed: the light in the wax. Each thick leaf holds a deep, dim glow — not reflected light from the slits, but stored heat made visible, a dull ember-orange at the core of the green-black. The whole under-canopy pulses very faintly with it as drafts pass. The little town at dusk, which is always dusk, sits among low lanterns that are not lit but living.
+
+You will have to back out on your belly to leave. The street will remain swept behind you. The pods will keep bursting, loud in the hollow dark, with no ear but yours to hear them, and no water to ever wash them clean.

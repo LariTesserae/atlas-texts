@@ -1,0 +1,19 @@
+The descent ends not in a floor, but in a suspension. 
+
+This is the Sub-Vapor Terrace, a pocket of the deep crust roughly the size of a cathedral’s nave, yet it feels impossibly vast because of how little occupies the center. It is a hollow carved from young, violent geology. The walls are obsidian-slick and jagged, showing the fresh, sharp teeth of a rift that opened perhaps only a century ago. There is no softness in the stone; every edge is a razor, every overhang a clean snap of tectonic force.
+
+The air here is thick, warm, and perpetually saturated. It is 2.0-wet—not a body of standing water, but a world where the distinction between air and liquid has begun to fail. A constant, heavy mist descends from the ceiling, which is lost in the gloom. The water doesn't fall as rain; it weeps. It coats the vertical faces of the rock in a shimmering, rhythmic pulse, sliding down in sheets that hum as they vibrate against the stone. 
+
+The light is a bruised, dim violet-grey, provided not by a sun but by the infrastructure itself.
+
+Rising from the lightless floor are three—only three—slender, hyper-dense towers. Though the space is "empty" (a 0.2 density of presence), these towers are masterpieces of 2.8-tech urbanism. They are not built; they seem to have been precipitated out of the humid air using physics that ignore the crushing pressure of the depth. They are composed of a matte, white material that looks like bone but possesses the tensile strength of carbon nanotubes. They are encrusted with a dizzying array of bridges, balconies, and flickering data-spines, all scaled for a population that isn't there. 
+
+The towers are silent, but the environment is not. The sound is a constant 1.5-loud roar—the thrum of the "weeping" walls, the heavy splash of water hitting the unseen depths below, and a low-frequency tectonic groan that indicates the rift is still opening. 
+
+Vegetation has claimed the infrastructure with aggressive speed. Without a single animal to graze them, the plants have become strange and architectural. Huge, waxy ferns with fronds like serrated glass cling to the white towers, drinking the constant runoff. Mosses, thick as upholstery and glowing with a faint, internal amber heat, carpet the narrow bridges. The plants are active; you can see the visible pulse of fluids moving through translucent stems. They lean toward the towers, perhaps drawn to the faint electromagnetic hum of the machines buried within the white bone-stone.
+
+There is a profound sense of "active" vacancy. The lights on the towers blink in complex sequences, processing data for a city that exists elsewhere, or perhaps for a city that hasn't arrived yet. The water recycling systems—visible as shimmering, gravity-defying ribbons of liquid snaking between the towers—operate at peak efficiency, purifying a deluge that no one drinks.
+
+The world here is a paradox of scales. The physical space is small, a mere hamlet’s footprint, but the emptiness between the three towers makes it feel like a void. The technology is god-like, capable of holding back the weight of the earth and weaving white silk into skyscrapers, but it serves only the ferns and the weeping rocks. 
+
+It is a warm, wet, lonely greenhouse at the end of physics. You stand on a jagged obsidian ledge, the mist soaking through your clothes in seconds, watching a trillion-dollar automated sensor sweep a beam of light across a forest of silent, dripping ferns. There is no one here to witness the precision of the machines or the sharpness of the stones. There is only the sound of the water, loud and rhythmic, like the breathing of a very large, very patient machine.

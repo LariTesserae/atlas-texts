@@ -1,0 +1,41 @@
+You expect barrenness up here.
+
+That is what extreme height promises — thin blade-air, stone scoured to bone, cold that empties the lungs. And for the first four thousand hand-cut steps, that is what you get: a tower, not a mountain. Or a mountain that has become a tower from so many hands piling on hands.
+
+It was all made. That is the first thing you understand with your feet before your eyes do. There is no slope, no scree, no bedrock anywhere. Only fitted work: basalt blocks the size of loaves and doors, stacked without mortar at the base, with mud-slurry higher up, with lashings of black palm-fiber higher still where the wind would take mortar before it set. The stair is not cut, it is laid. Each tread cupped a little by feet, but not worn — not really worn. The edges are still too sharp. If you run your palm along the wall you come away with dust and glitter. Fresh fracture. Chisel scallops like fish scales. The whole massif smells of broken rock and wet clay. It was finished yesterday. Or it is not finished yet.
+
+The air thins until your thoughts go bright and stupid. The cloud sea drops away below you until it is a flat white floor. The sky above deepens to a bruised violet at noon. Sound gets huge up here, wind roaring around the piled stone like water around a pier. Prayer strips — hand-woven, hand-knotted, madder-red and turmeric-yellow — snap so hard they crack like whips.
+
+Then, near the summit cap, shoulder-height in a wall that should be solid: a low door. A lintel of unseasoned wood, still bleeding sap, lashed with cord. You have to fold yourself double to enter.
+
+Inside is night and noon-heat at once.
+
+It is a room no bigger than two sleeping mats laid side by side. You can touch all four walls if you spread your arms and stoop. The ceiling is so low your hair brushes it and comes away wet. That is the second shock: after the cold blade-air outside, the air in here is thick, soupy, furnace-hot. It hits the back of your throat. It condenses instantly on your skin, on your eyelashes. Your breath comes back to you.
+
+Everything in here was carried up. The floor is not earth — it is tight-fitted flagstones laid over a void, and through the joints you can hear the wind whistling up from three kilometers down. On the flags stand pots. Dozens. Hundreds if you count the tiny coil-cups nested inside larger jars. Hand-coiled, thumb-printed, still soft at the rims. No wheel, no kiln-fire hotter than dung. A few green copper pins, hammered flat, pin a sagging trellis of lashed saplings to the wall. Stone adzes, hammerstones, a wooden mallet swollen with water, left where they were dropped. Work stopped mid-stroke.
+
+And green. An impossible, insulting green for this height.
+
+Every surface that is not skin or stone is leaf. Taro with ears big as shields crammed into corner jars, roots bursting through the unfired walls. Ferns unrolling from cracks between blocks. Orchids with bruised-purple throats hanging from the trellis on fiber strings. Moss — moss is the mortar here. It has been smeared, living, into every joint by careful fingers, and it holds, vivid and spongy and dripping. Seedlings in split gourds. Cuttings in hollowed stone cups. Vines that have no room to climb so they climb each other. There is no space between presences. A leaf overlaps a leaf overlaps a hand overlaps a pot overlaps a wall. If you shift your weight, something brushes your ankle, your cheek, your wrist. The room is packed to saturation, a lung full.
+
+It weeps. That is the only word for the water.
+
+It does not flow in. It exudes. The fresh stones sweat. The ceiling sweats. Your own skin sweats and that sweat is immediately taken. The hot air cannot hold itself; it bruises into mist right in front of your face. Droplets bead on fern tips, swell, fall — plink into jars, plink into the central pool. The central pool: a shallow, knee-wide basin pecked directly into the floor slab, brim-full, black and warm as blood. It never spills and never empties. The mist above it thickens, yellows in the dim light from the two slit-windows — slits no wider than your thumb, stuffed with translucent fiber to dim the already dim violet sky — and then, impossibly, it rains. Inside. A three-second, three-foot rain shower from ceiling to floor. You hear it before you see it. Then it stops. Then the cycle starts again. The room has its own weather. The mountain's weather is far below. This one is private.
+
+Light is a rumor. Amber, green-filtered, steamy. It comes in blades through the slits and dies in leaves. After a minute your eyes adjust and you see the dust of making still hanging in it: stone flour, pollen, spores. Nothing has settled. Nothing has had time to settle. Every edge in here is still sharp, still becoming. The peck-marks in the basin are crisp as fresh footprints. The vine lashings have not yet frayed. This place is embryonic. It has not been eroded by anything, not even by time. Or time moves too fast for erosion to catch.
+
+Because it is loud and it is moving.
+
+Listen, once the blood stops pounding from the climb: the roar of high wind through the slits, low and constant as surf. Under it, a furious small patter — drip, drip, hiss where a drop lands on the warm stone near the back wall where compost heat rises through a vent. Compost: leaf litter and nightsoil packed behind the stones to make bottom-heat, and you can smell it, sweet-rot and iron. Under that: creak. Vegetal creak. You think at first it is the trellis settling, but it is growth. A fern crosier unwinding audibly. A taro leaf shouldering aside a neighbor with a wet squeak. A root ticking inside a pot as it splits it from within. The room is in motion, predatorless but competitive, every plant racing for the slit-light.
+
+There are almost no animals. Too high, too new, too full. Only what was brought, by accident or on purpose. Tiny blind white crickets in the moss joints, singing at a pitch that makes your teeth ache. And in the central pool, a single mottled catfish, no longer than your finger, circling and circling, imported as a fingerling in a gourd of water. It is the only fauna and it knows it; it watches you with old eyes.
+
+And then — because up here the world is thin — it breaks.
+
+At first you tell yourself it is the heat, the altitude, the dim. But the rain falls up once. Just one drop from the pool rising to the ceiling, slow as a bubble, and joining the mist. The far wall, which you could swear was three arm-lengths away, is suddenly at your elbow, and the pot you just stepped over is behind you without you having moved. Your breath fogs, and where it lands on bare stone, moss blooms in seconds, green fire spreading from the moisture. You hear hammering from below — stone on stone — and then you realize you are hearing it *before* the vibration travels up through your feet. Cause arriving late.
+
+The builders are still building. That is the rule here, unspoken but absolute: because nothing is finished, everything must continue. The wall behind the taro is double-thick on the left and single on the right; someone was in the middle of thickening it when they stopped for air. The cord on the trellis is half-knotted. The room instructs you without words: add. Press a handful of moss into a weeping joint. Tighten a lashing. Set your cupped hands under a drip and pour it back into a thirsty pot. The water cannot leave — there is nowhere for it to go but around. If you tried to carry a jar down the tower, it would be empty before the first landing; the room drinks it back as mist.
+
+You stay longer than you meant to, folded among leaves, sweating, dripping, listening to crickets and wind and growing things and your own loud heart. Outside, the void drops away forever. Inside, the ceiling sweats and rains onto your upturned face, warm as tears. The fresh stone cuts your knee and the cut wells, and a fern leans toward the iron smell.
+
+It is a womb at the top of the sky, handmade, half-born, too small for weather and doing it anyway.

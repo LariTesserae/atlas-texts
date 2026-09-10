@@ -1,0 +1,69 @@
+**The Table**
+
+Start with what is under everything: a floor of stone so old it has forgotten it was ever a mountain.
+
+There was a range here once. You can tell because you are standing at an altitude where nothing should be standing — where the air is thin enough that a fire burns pale and slow and a shout goes further than it should — and yet the ground is flat. Not flat like a plain. Flat like a tabletop that has been wiped a billion times. The peaks that must once have thrust up from this place have been ground down, carried away grain by grain by wind that had nothing else to do, until only the hard root of the massif is left: a lozenge of dark quartzite perhaps four hundred paces long and two hundred wide, rimmed on every side by a drop so sheer and so long that the bottom of it is a rumor. Below the rim the cliffs fall through cloud that never rises this high. Above the rim there is only the plateau, and what has grown on it, and what has built on it, and the sky.
+
+The sky is not bright. That is the first thing you adjust to and the last thing you stop noticing. At this height the air should be glass-clear, but it isn't; it carries a fine mineral dust lifted from the rock over ages, and beyond that a high haze that never burns off, so that the light arriving on the table is the color of weak tea, or of the inside of a shell. Noon is a dim amber. There are no shadows with edges. Everything is lit from everywhere at once, softly, and so everything looks a little like a memory of itself.
+
+---
+
+The rock is dry. Not desert-dry, where dryness is a kind of violence — this is a settled, achieved dryness, the dryness of something that gave up its water long ago and has been comfortable ever since. No stream has run here in the lifetime of the mountain's flatness. There is no spring, no seep, no basin where dew might pool. Rain does not reach this altitude; it happens below, in the cloud, to other places. If you scraped at the stone you would find it dry a hand's depth down, an arm's depth, a body's depth. The whole table is a dry bone held up into a dry sky.
+
+And yet it is green. Densely, extravagantly green.
+
+This is the thing that takes longest to understand. The plateau is covered — nearly every square pace of it that is not built upon — with a forest of columnar plants that stand close as a crowd, shoulder to shoulder, twice and three times the height of a person. They are not trees exactly. They have no bark and no leaves as you would recognize them. Each one is a fat, fluted pillar of dark grey-green flesh, ribbed vertically, waxed to a dull sheen, crowned at the top with a dense spray of stiff blue-green blades that interlock with the crowns of its neighbors to form a canopy you cannot see through. They are the color of old copper and the shape of organ pipes. Some are ancient and lean and have split along their ribs and healed over in thick scar-lips; some are young and smooth and no taller than a child. Between them the ground is carpeted in a brittle lichen the color of rust and a low cushion-plant that grows in domes so tight you can stand on them.
+
+The pillars hold water. That is the answer, and it is the only water there is. Cut one — the people here do, carefully, at a place low on the rib, with a blade of chipped stone — and it weeps a clear, faintly sweet sap that beads and hangs and will not fall, because the plant does not want to lose it any more than you do. Every drop that exists on the table is inside something alive. The pillars pull it out of the air itself, out of the haze, out of the thin cool breath of the nights, through the wax of their skins over years and decades, and they hoard it. A single old pillar might hold as much as a person could drink in a lifetime. The forest is a reservoir standing on its end.
+
+So: lush, and no water. Both true. The green is not the green of wet places. It is the green of a vault.
+
+---
+
+Under the canopy the dimness deepens to something like the inside of a church. The interlocking crowns let down a scatter of amber, and the flesh of the pillars catches it and glows very slightly, so that the whole understory is filled with a low, sourceless, greenish-bronze light. The air is warm — warm from the stone, which drinks the weak sun all day and gives it back all night; warm from the mass of living tissue pressed so close; warm from the bodies.
+
+Because the forest is full of bodies.
+
+You hear them before you see them, and you hear them from the moment you step onto the table, and you will not stop hearing them until you leave. The sound is enormous. It comes from every direction and from above and from inside the walls, a continuous layered roar made of ten thousand small voices — a rattling, whistling, chattering, clicking, keening chorus that rises and falls in slow tides but never drops below a certain thick floor of noise. It is the sound of a crowd. It is the sound of a colony.
+
+The pillars are riddled with them. Small birds, sparrow-sized and smaller, in dozens of kinds — sooty ones with white throats, ones the color of the lichen, ones with tails like little flags — nest in the split ribs and the healed scars and in pockets they have hollowed themselves in the flesh of the oldest columns, which the plants tolerate and seal around. They are never still. They move between the crowns in dense clattering flocks that turn the dim light briefly darker. Under them, on the cushion-domes and in the lichen, there are lizards in such numbers that the ground appears to shift — flat, grey, quick, each with a pale stripe down the spine, feeding on the insects that feed on the pillar-sap and on one another. There are the insects themselves: fat slow beetles the size of a thumb, a kind of wingless cricket that sings in the daytime with a single sustained note, moths that hang in rows along the undersides of the crowns like a second bark. There are small bats that emerge at the amber dusk and take over the air from the birds, and a rodent-like thing, silky and rust-colored, that lives inside the cushion plants and is almost never seen but always heard, a soft high scolding that runs along beneath every other sound.
+
+Nothing large lives here. Nothing could — there is not room, and there is not enough to eat. But the small things are so numerous and so close that the forest seems, at times, less like a place that holds animals than like a single animal, dense and warm and murmuring, that has chosen to hold still on top of the world.
+
+---
+
+And in the middle of all this — pushed up through it, wedged into it, half swallowed by it — is the town.
+
+It is not large. You could cross it in a hundred paces if the paths ran straight, which they do not. It sits toward the eastern end of the table where the rock rises a hand's breadth higher than elsewhere, and it is made entirely of the rock: blocks of dark quartzite, unmortared, stacked dry, split and dressed with nothing harder than other stone. There is no metal here. There is no clay. There is no wood, except the dried and fibrous pith of dead pillars, which is used for pegs and roof-poles and burns badly. Everything that is built is built by taking a piece of the plateau and setting it on another piece of the plateau, and the people who do this have been doing it for so long that the town has become a kind of geology of its own.
+
+Because that is the thing about the walls: they are layered. The lowest courses, half buried in lichen, are enormous — blocks a person could not lift, fitted so closely that a blade of grass could not pass between them, worn at the edges to a soft roundness that only very great age produces. Above those the blocks are smaller and rougher. Above those, smaller and rougher again. The town has been rebuilt on itself over and over, each generation stacking its own lesser skill onto the great anonymous work of the deep past, so that a single wall reads from bottom to top like a history in which everyone was gradually getting worse at it, or — the people here would say — in which the founders were giants and their children merely people. No one remembers who cut the lowest stones. No one remembers a time when they were not there. The town is as old as the flatness of the table.
+
+The buildings are round or oval, low-domed, corbelled inward until a single capstone closes them at the top. They lean together and share walls and grow out of one another like the cushion plants, so that from the canopy you would see not separate houses but one continuous rumpled mass of dark stone with holes in it. The holes are important. The walls are built thick, two arm-spans thick in places, and honeycombed through with niches — hundreds of them, thousands across the whole town, each the size of a closed fist or a cupped pair of hands — and every niche is occupied.
+
+The birds are in the walls.
+
+This is deliberate. Or it began as deliberate and has long since become simply the way things are. The people of the table cannot farm — there is no soil, no water, no light worth the name. They cannot hunt anything larger than a lizard. What they have is the colony: the vast, roaring, self-renewing crowd of small birds that the pillar-forest supports, and which the walls were built to house. Every niche is a nest. Every nest gives eggs. The birds are not caught or caged; they come because the stone is warm and the niches are safe and because their ancestors were here, in these same holes, for longer than the birds themselves could conceive. The people take a share of the eggs, and a share of the birds, and a share of the guano, which they dry in shallow stone trays and burn — it burns better than pith — and they let the rest be. The town and the colony are the same organism wearing two skins.
+
+So the loudest place on the table is the town itself. Inside the houses the walls hum with it; put your palm to the stone and feel it faintly trembling. At dusk, when the day-birds settle and the bats begin, the noise changes pitch rather than volume, a great collective sigh sliding down half an octave. The people speak loudly, and close to one another's faces, and use a set of hand-signs for anything that matters. Children born here are said not to hear the birds at all until they are taken off the table, which almost never happens, and then to be unable to sleep for the silence.
+
+---
+
+Watch the people for a while and you will notice how little they hurry.
+
+There is nothing on the table that requires hurry. The pillars grow at a pace that can be measured only against the lifetimes of the very old — a hand's width in ten years, they say. A new house is begun by one generation and roofed by the next. The sap is drawn from a given pillar only once in a long cycle, and the cutting is marked with a chip of pale stone pressed into the wax, and the pillar is not touched again until the mark has been grown over and sealed, which may be a lifetime. The birds breed in slow tides across the year, and the year itself is felt mostly as a gentle rise and fall in the warmth of the stone and the color of the haze, from tea to honey and back.
+
+The work of the table is mostly waiting, and mostly maintenance. Someone is always walking the walls, pressing a loosened block back into its bed with a wooden lever and a stone maul. Someone is always in the forest, moving slowly between the columns with a flat basket, gathering the fallen blade-leaves for bedding and the dead moths for the lamp-fat. Someone is always at the sap-wall — a single very old pillar at the town's center, propped with stone, ringed with generations of healed cuts, drawn from only on marked days — and the drawing is done with great ceremony and greater patience, a stone blade turned in the rib a finger's width at a time while the whole town, or as much of it as can fit into the small round plaza, stands close and watches the first bead of clear sweetness swell and hang and, finally, be caught.
+
+There is a look that the people of the table have. It is a look of people who have never in their lives seen anything happen quickly, and who have never seen a distance greater than two hundred paces, and who have never been alone or quiet. Their eyes are adjusted to the amber gloom and they squint in it anyway, out of habit. Their skin is the color of the lichen. They stand close together and touch often, the way the pillars do, the way the birds do, because closeness is the only condition the table has ever offered them.
+
+---
+
+Go to the edge, before you leave.
+
+Push out through the last of the columns — they thin near the rim, growing shorter and more twisted, and then stop in a ragged line a few paces from the drop — and stand on the bare stone with the roar of the colony at your back and look out.
+
+There is nothing there. Haze. Cloud below the haze. The table ends and the world simply does not continue; it is as if the plateau were the only solid thing that has survived some vast slow settling of everything else, and floats now at the top of a dissolved world. No other summit shows. No bird from the colony flies out past the rim — they know, somehow, that there is nowhere to go. The wind up here is constant and warm and dry and has the faint mineral taste of the dust it has been carrying for longer than there have been mouths to taste it.
+
+Look down at your feet. The quartzite at the very edge is polished to a dull mirror by that wind. In it, if you crouch, you can see the reflection of the amber sky, and your own face, and behind your face the dark ribbed wall of the pillar-forest and the darker mass of the town wedged into it, and the little flickering movements of the birds passing between. All of it doubled, dimly, in the oldest surface in the world.
+
+Then the noise pulls you back in. It always does. It is warm in there, and crowded, and it goes on and on.

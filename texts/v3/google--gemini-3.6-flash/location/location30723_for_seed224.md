@@ -1,0 +1,22 @@
+High along the upper needles of a pale, atmosphere-thin mountain range lies a crease in the local geometry—a spatial seam no larger than a chapel alcove, hidden inside a fracture of cold, dark mineral. 
+
+To stand at its threshold is to look into a space three paces wide that nevertheless contains a distant, low horizon. It is a pocket of held reality, a micro-environment folded back on itself and left perched near the world’s ceiling.
+
+The air here—if it can be called air—is entirely devoid of moisture. There is no vapor, no frost, no ice. The cold is dry, absolute, and still, registering not as a wind or a draft, but as a dense, mineral mass that drains heat directly out of the light. The ground is a floor of weathered, slate-grey matter that is neither stone nor metal, but a dense, non-reactive substrate—perhaps an artificial alloy or a state of baryonic matter stabilized by fields that have long since faded to a background murmur.
+
+Erosion here has operated not through rain or ice, but through the slow, billion-year decay of the local metric. The right angles of the terrain have relaxed. Sharp edges where walls met floors have softened into smooth, bowl-like transitions, as if the space itself were slowly melting back into a simpler, unarticulated form. Small, shallow pits dot the surface, worn down by the quiet, occasional discharge of stray probability. Everything is settled, ancient, and at rest in its own low-energy equilibrium.
+
+There is no life here. No lichen clings to the matte-grey floor; no microbial spores sleep in the crevices. In their place are static, flower-like crystallizations along the corners of the space—not biological growth, but phase-faults where the local laws of physics met the edge of the pocket and formed a scab. They look like pale, vitrified ferns, brittle and completely motionless, hard as diamond and utterly inert.
+
+Scattered across this small, high territory are the remains of an engineering that current physics cannot map. Three slender, needle-like posts stand at irregular intervals. They are not anchored into the ground with joints or mortar; rather, the floor simply ceases to be floor where they begin, the material transitioning seamlessly from grey substrate to a translucent, smoke-dark lattice. These posts do not corrode or rust. Instead, their decay is optical and spatial: their outlines are soft, slightly out of focus, as though the universe is gradually forgetting the precise coordinates where they belong. One of the needles has parted in the middle, but its upper half does not fall—it hovers three inches above its base, suspended in a frozen gradient that shifts by a fraction of a millimeter every century.
+
+Light in the pocket is dim, diffuse, and sourceless. A twilight the color of cold zinc clings to the floor and the lower inches of the posts. It does not cast true shadows; instead, dark patches linger *behind* the objects, as if the light were thick enough to leave a wake. Occasionally, a faint, iridescent ripple passes across the ceiling—a reflection of the vast, airless sky outside the mountain needle, refracted through the narrow spatial crack that seals this room away from the world.
+
+The quiet is nearly total. There are no breezes, no mechanical hums, no thermal expansion groans. Once every few hours, a sound like a single dry leaf falling on a sheet of glass echoes through the space—the sharp, microscopic *clack* of a spatial degree of freedom snapping shut as the pocket slowly, imperceptibly loses its volume over deep time.
+
+Rules operate here with a quiet, broken eccentricity:
+* Distance does not scale linearly toward the edges; three steps toward the rear wall feel like six, though the wall remains within arm's reach.
+* Objects placed on the floor do not slide, but over days they align themselves with an invisible, non-cardinal axis, slowly rotating until their longest edge points toward a star that burned out three epochs ago.
+* Heat does not radiate; it pools where it is left, forming invisible, tiny spheres of warm air that remain stationary for months before dissipating into the surrounding freeze.
+
+It is a place entirely at peace with its own extinction. The mountain outside continues its slow, tectonic grinding in the thin upper air, but inside the seam, the landscape simply exists—a tiny, cold, high-altitude shelf of forgotten intentions, aging at the speed of stone.

@@ -1,0 +1,35 @@
+The power arrives the way the fog does—without announcement, without edge. It has been aware of the place for longer than the place has names for time, but awareness is not the same as attention, and attention is not the same as arrival. Now it draws near, not descending from any height or rising from any depth, but simply becoming present in the same way the pearled light is present: already everywhere the moment it is noticed.
+
+It does not announce itself to the compound engines or the pale deer or the people whose palms have burnished the rails. It has no need. Wisdom of this order moves at the pace of weathering. It settles first into the oldest undercrofts, where the ballast tanks hold their dark water and the flywheels turn with the authority of things that outlived their makers. There it listens. Not for fault or fracture—there is none that the moss and the maintenance crews have not already priced into the long accountancy—but for the single complex tone the place has become. The power hears the low chorus of revolving mass, the scissor of leaves, the hand’s-breadth sway, the quiet click of governors, the breathing of bipeds who no longer distinguish their own lungs from the structure’s. It hears continuity so thorough it has become a kind of silence.
+
+Benevolence does not rush to mend what is not broken. The power understands this the way the inhabitants understand which railings will take their full weight. It feels the equilibrium as a living weight, perfectly distributed across decks and cables and green seams and scarred hands. To add sudden strength would be to shift the loads. To subtract a single leak would be to unbalance the cisterns. To speak a name louder than the relief valves would be to introduce a frequency the bees have not learned to thunder beneath. So the power does nothing that can be measured as action.
+
+And yet.
+
+Presence itself is a kind of weather. In the days that follow—though the power does not count days—the pearled light carries a faint new milkiness, as if a second, kinder sun has been tuned just below the threshold of the heliostats. The fog that condenses on every rail beads a fraction more slowly, giving the finger-gutters time to sing a deeper note before they empty into the lung-shaped cisterns. The residual-gas engines, when they cough, cough with a timbre that settles the sleep of children two decks above. These are not improvements. They are recognitions. The place has always done these things; now it does them while being known.
+
+The inhabitants feel it first as a warmth that lingers on the handrails longer than any passing body can explain. Then as a quiet certainty in the soles of their feet when they walk the tensioned spans: the cables will remember their tensions for one more generation than expected. Then as dreams. The ones who already dream in the thrum of the flywheel halls now dream an extra layer—a vast, patient attention that rocks with the kilometer-long spans and finds no flaw worth correcting. They wake with the taste of ozone and apricot a little brighter on the tongue, and they do not speak of it. There is nothing to say that the moss has not already said by continuing to grow.
+
+Some of the elders, the ones who can taste rain collars hours before the netting darkens, pause at the highest gauges and look into the dazzle with their wide pupils. They see nothing new. But they feel the horizon’s curve accept them with a tenderness that was always there and has only now been answered. A few of them smile the small smile of people who have just been reminded they are not alone in the long work of staying. Then they return to greasing bearings, to clipping vines, to teaching toddlers which marmot-creatures will tolerate a ride.
+
+The animals notice in their own ways. The pale deer find that the guy-wires hum a half-tone lower when the wind presses hardest, a frequency that steadies the corkscrew antlers. The dark short-winged birds nest a little deeper into the tarred junctions and sleep without one eye open. The slow armored browsers, when their shells begin to fail, walk to the composting vaults with less hesitation, as if the vaults have always been a kindness and have only now remembered to feel like one.
+
+The power stays. Not as guardian—the place has never needed one—and not as master or guest. It stays the way the forgotten steam mains stay: a warmth behind the walls, unremarked, useful, already priced into the way life is lived. Sometimes it leans its attention into a particular workshop when a deck slab begins its slow failure, and the midwives who arrive find the moss already twice as willing, the crushed aggregate settling true on the first attempt. Sometimes it rests in the condensate tunnels among the hearing-blind amphibians, and the water there tastes a little less of metal, a little more of the greenness that has always underwritten everything.
+
+It does not cure the scars on forearms or ankles. Those scars are load-bearing. It does not still the long wind or seal the leaks or straighten the places where shadows fall in directions that imply a second sun. Mild strangeness is part of the hydraulic balance now. The power loves the strangeness the way the inhabitants love it: as fact, as flavor, as proof that the equilibrium is alive rather than engineered.
+
+Years turn—crop-turns, cable-generations. The power remains. When, far in the uncounted future, some outer circumstance presses against the structure (a shift in the lower world’s haze, a season of winds that remember older names), the place flexes the way it always has, and the power flexes with it, indistinguishable from the counterweights and the root floors and the people who speak of *we* when they speak of swaying. No bolt is tightened that would not have been tightened. No vine is trained that would not have found its own way. Only the knowing remains: that the living equilibrium has been seen by something vast enough to understand it, and kind enough to leave it whole.
+
+In time the distinction thins even further. The power’s attention becomes another continuity—like the algae in the shaded joints, like the residual phosphorescence in night-adapted eyes, like the way names are taken from the pitch of relief valves. The inhabitants do not worship it. They have no need. They simply keep the place in the same slow good repair with which it keeps them, and with which the power now keeps them all. The single complex tone deepens by a frequency too low to hear and too true to miss.
+
+Nothing is sudden.  
+Everything endures.  
+The light stays pearled.  
+The decks stay damp.  
+And the benevolent wise power, having followed its heart and its long intuition, does the only thing wisdom can do when it meets a completeness equal to its own:
+
+It remains.  
+It witnesses.  
+It loves without altering the load path.  
+
+And in that mutual staying, the place and the being who lives in it and the power that noticed them become, finally, one more layer of the same weathered, breathing, upright equilibrium—still refusing to be anything other than what they have already, for longer than memory, been.

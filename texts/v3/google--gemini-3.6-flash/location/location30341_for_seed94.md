@@ -1,0 +1,25 @@
+At six thousand meters above the unseen lower world sits the Fen-Shelf, an elevated shelf of black basalt and native iron that stretches from horizon to horizon, wide enough to generate its own weather.
+
+The air here is cold, sharp, and intensely wet. It does not rain in sudden squalls; instead, the sky maintains a continuous, cool sweating. Clouds rest their underbellies directly on the higher ridges, shedding a fine, silver drift of moisture that coats every surface in a shimmering, cold grease. The light is clean and broad—normal daylight filtered through high-altitude vapor, throwing long, soft-edged shadows across thousands of square miles of undulating, dark-green terracing.
+
+There are no sharp, young peaks here. Erosion completed its violent work eons ago. The mountain roots have been smoothed into colossal, rounded domes and vast, shallow amphitheaters. The rock is old, settled, and heavy, carved into stable, parabolic curves that hold water like giant bronze bowls. 
+
+Every acre is crammed to capacity. There is no open ground, no dry gravel, no exposed dirt. Where the bare rock exists, it is coated in a three-foot-thick turf of iron-absorbing sphagnum that ranges in color from dull oxidized copper to deep crimson. Above the moss rise thickets of cold-hardy, jointed reeds whose hollow stems are reinforced with silica and magnetite, clicking softly against one another when the high mountain air moves through them. Beneath these, fern-mats grow so densely packed that they form a springy false floor, suspended two feet above a dark, subterranean network of cold, flowing water.
+
+Though no hand has ever set a stone or raised a beam here, the landscape operates with the rhythmic, heavy logic of an industrial foundry. 
+
+Deep beneath the moss-turf, subterranean geothermal beds interact with the endless downpour. Naturally formed conduits—tubes of sintered iron and calcium formed over millions of years by mineral-depositing bacteria—crisscross the peat beds like a sprawling refinery network. Pressurized cold water sinks down into the ironstone fractures, hits hot rock far below, and is forced back up through these natural pipelines. 
+
+Every few hundred paces, small, chimney-like vents of hardened limonite protrude through the moss. They do not explode; they breathe. At steady, three-second intervals, they release low, wet bursts of warm, sulfurous steam with a soft, mechanical *thrum-pah*. The sound does not ring out; the wet moss swallows it immediately, reducing the continent-sized geothermal exchange to a faint, muted pulse, like a million engines idling beneath a heavy wool blanket.
+
+In the low troughs between the basalt swells, peat has compressed over millennia into thick, black, paraffinous seams. Cold, oily seeps bubble up through the watercress, spreading iridescent slicks across the quiet pools. This natural petroleum nourishes specialized, rubbery liverworts that grow in sheets as smooth and black as vulcanized gaskets, sealing the margins of the watercourses and directing the flow into narrow, fast-moving channels.
+
+The life here is abundant, quiet, and heavy-bodied. 
+
+Herds of broad-hooved grazers—their coats dense, coarse, and permanently slicked with rain—move across the moss carpets with a slow, deliberate trudge. Their hooves are wide and flexible, spreading like leather pads to keep them from breaking through the floating turf into the dark water below. They feed on the iron-rich reeds, their teeth flat and stained dark brown by minerals. They communicate not through calls, but through low-frequency thumps of their heels against the turf, sending vibrations through the water-logged ground that can be felt miles away.
+
+Smaller creatures—flat-ribbed amphibious burrowers with sleek, otter-like pelts—slide through the flooded tunnels beneath the fern canopy. The water is alive with small, hard-shelled organisms that filter iron flakes and sulfur from the streams, their dark carapaces glinting like scattered ball bearings in the clear, shallow pools. Overhead, large, broad-winged skimmers drift effortlessly on the warm steam columns rising from the vent-fields, their shadows sweeping silently over the endlessly repeating terraces.
+
+The dynamic of the place is constant, cyclical, and self-sustaining. Rain falls, cold and pure, from the clouds resting on the high plateau. It filtered down through yards of dense, living biomass, picking up heavy loads of iron, oil, and sulfur. It passes through the natural plumbing of the earth, powers the quiet, rhythmic steam-vents, warms the root-systems of the giant mosses, and feeds back into the atmosphere as cool condensation that clings to the high black ridges.
+
+It is a place of immense, quiet mass. The silence is profound, built not from the absence of sound, but from the total dampening of a vast, continuous work. The cold wind carries the smell of wet slate, crushed cold leaves, raw iron, and warm grease. Everything is moving, everything is wet, everything is occupied, and everything has been precisely like this for ten million years.

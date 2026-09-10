@@ -1,0 +1,43 @@
+Where an animal is as large and permanent as an ore-smelter, it ceases to be merely a member of the fauna and becomes terrain. The first life to consider, then, is the life that lives upon the hulls.
+
+Between the segmented plates of the herd-vessels—in the deep, flexing seams where the black keratin gives way to raw, glistening gray connective tissue—there are colonies of *weft-lice*. They are not insects in any familiar sense, but pale, flattened crusts of horn and tallow, the size of hand-axes. They possess no eyes, only sensitive, brush-tipped palps that test the lubricating mucus the great beasts secrete to keep their plates from binding. The lice do not bite into the living meat; they are gleaners of friction. They scrape the gray tallow as it oxidizes, kneading it into dense pellets that they plaster into the seam-walls like masonry, creating small, fortified galleries that rise and fall with the animal’s breathing. When a vessel shifts its heading, the plates grind together with tons of hydraulic force; the lice do not flee, but flatten themselves into recesses they have carved into the dead sheath-rind of the host, absorbing the shock through bodies that are nearly pure cartilaginous gristle.
+
+Deeper still, down between the cycling skirts of the suction pads where the ground-frost never settles, the temperature is that of a warm cellar. Here, in the permanent amber gloom cast by the animal’s belly, moves the *spindle-walker*.
+
+These are thin, brittle-limbed bipeds, four cubits high but light enough to be lifted by a child, their limbs like cane or charred wicker. They have no bellies to speak of, their internal organs compressed into a single, hard thorax that ticks with an irregular, water-clock tempo. They follow the herds from beneath, never stepping out from the overhang of the carapaces. They walk with an unsteady, high-stepping gait, picking through the churned grease and the pulverized lichen left in the wake of the pads. Their heads are long, smooth pegs of gray bone without nostrils or ears, terminating in a downward-facing beak of clear horn that they use to lever free the gizzard-slag before it chills and welds to the basalt.
+
+The spindle-walkers are not wild; neither are they herders. They exist in the manner of pilot fish, but their relationship is older and more barren. They are deaf to the air, but their long foot-stilts are tipped with dense balls of horn that pick up the infrasonic humming of the plates above them. They know when a herd-vessel is preparing to vent steam hours before the spiracles part; they gather beneath the leeward vents in small, huddled clusters, extending long sheets of vascular throat-skin to catch the hot moisture before it turns to dew on the stones. If one is crushed by an erratic lurch of a pad, the others do not scatter; they simply consume the lubricating marrow from its broken struts and continue following the stride of the boiler.
+
+In the shallow pans—those gray, lukewarm basins where the deep heat of the mountain seeps through the shale—there are no fish, but there are *quilts*.
+
+These are colonial organisms that lie across the floor of the pans like discarded carpets of tanned steer-hide. They are roughly circular, twenty paces across, their edges submerged in the greasy silt. They have a mottled, marbled surface, the color of cold boiled pork, through which runs an intricate network of blue-black hydraulic veins. The quilts do not move from pan to pan. They live by the slow displacement of minerals, absorbing the fine iron dust that washes down from the rounded brows above and sweating it out through their under-surfaces as thin, brittle wafers of magnetic pyrites. 
+
+Occasionally, when the infrasonic drone of the herd passes directly through the bedrock beneath a pan, a quilt will begin to ripple. The ripples are not random; they are standing waves that correspond to the cadence of the gizzard-stones grinding miles away. The water above them vibrates into sharp, diamond-shaped patterns of spray, and from the central vent of the quilt, a pale, blind cylinder of muscle—the *spout*—rises into the thin air like a rotting post, checks the temperature of the mist with a crown of fleshy whiskers, and slowly sinks back into the gray flesh.
+
+Then there are the dwellers of the hollow hulls—the relics.
+
+When a herd-vessel has ceased to move, and decades have turned its skin to stone and its fat to mineral grease, the internal chambers do not collapse. The arched ribs of horn-iron remain, vaulting over an interior space as dry and dead as a tomb. 
+
+In these husks live the *sieve-folk*.
+
+They are few, scattered perhaps one to every ten leagues of the high flats, and they have forgotten that the sky exists outside the ribs. Their skin has the slate-blue hue of the oil-lichen, and like the lichen, it is hairless, dry, and slightly cool to the touch. They are short-bodied, with broad, spade-like hands whose nails have grown long and thick, curving inward until they resemble iron gouges. 
+
+The sieve-folk do not make fires; there is nothing to burn that does not stink with a fatal, choking smudge. They live by scraping the desiccated residues from the inner arches of the carcass—the dry, flaky cakes of ancient bile, the salt crusts left by the evaporations of blood-water, and the dried fat that clings like amber to the junctions of the vertebrae. They have no language that uses the larynx; like the world they inhabit, they are voiceless. When they must acknowledge one another in the dark of a rib-cage, they tap against the horn-iron with their nails—a quick, dry staccato that sounds from without like the boring of wood-beetles.
+
+They do not leave the husk until it is entirely picked bare, a process that takes generations. A family will be born within the curve of the beast’s left flank, live upon the marrow-dust of its lateral spurs, and die when the stone finally breaks through the vaulting of the skull. Only then, when the grease is gone and the cold slate dew begins to drip through the seams, will the survivors crawl out through the empty spiracles. 
+
+They do not look at the sky when they emerge. The ceiling of slate is terrifying to them; they move with their shoulders hunched, dragging their knuckles across the damp basalt, tracing the heavy, tarry grooves left by the active herds until they find another vessel that has slowed its cycle, waiting by its feet like dogs at an oven until the boilers fail and the entryways cool enough to climb within.
+
+Higher up, in the wet ceiling itself, where the clouds brush the crests with a sound like tearing paper, there are things that never touch the ground.
+
+The massive, rib-caged bladders that drift there do not carry passengers, but they are infested. Long, thread-like parasites—*harness-worms*, some twenty yards from tip to tail—hang from the trailing bone-linkages. They are no thicker than a whip-cord, translucent gray, and tough as vulcanized hemp. They hang down into the laminar air, their free ends barbed with three-pronged hooks of cartilage. 
+
+As the bladder drifts blind across the terraces, these hooks drag through the tufts of wire-grass and the pools of dew. Sometimes they snag a spindle-walker that has strayed from the shelter of a belly; sometimes they catch only a clump of lichen or the dead carcass of a louse. Whatever they hook is slowly winched upward by the drying of the worm’s body, which coils into a tight, corkscrew spiral as the wind chills it, drawing the nutrient up toward the pale underbelly of the float where the mouth-slits wait, ringed with rings of blunt, unblinking cartilage.
+
+Below all of this, beneath the feet and the quilts and the carcasses, something else moves that has no shape at all.
+
+Every seven or eight days, the shallow water in the pans does not merely warm; it rocks. A rhythmic displacement passes through the basalt from the southwest to the northeast, lifting the whole plateau by some fraction of an inch and letting it settle with a dull, subterranean suck. 
+
+When this happens, the millions of herd-vessels do not stop, but their spiracles vent in unison—a single, massive expulsion of steam that white-outs the terraces for three miles in every direction. The sound is not loud, but it is vast: the sound of a lung the size of a province taking in a draft of gray mist, holding it, and sighing it back through the nostrils of a hundred thousand iron hulls.
+
+The sieve-folk in their hollow shells feel it through their ribs. They do not pray; they have no names for the mountain or for the things that move it. They merely press their flat palms against the floor-plates, close their eyes, and wait for the iron under their fingers to grow warm again.

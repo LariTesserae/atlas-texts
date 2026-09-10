@@ -1,0 +1,25 @@
+The benevolent and wise power arrives the way the plateau itself prefers arrivals: without fanfare, without a before that would force an after. It does not descend as light or thunder or any gradient the young stone might notice. It simply is, coextensive for a moment with the stacked chord of the cities and the locked crown of the moss, an attention so complete it leaves no pressure differential.
+
+It listens.
+
+It listens to the mid-drip ice that freezes into organ-pipes and then forgets it ever stopped flowing. It listens to the mineral click of a dweller’s reinforced ribs as breath is drawn on the plant’s ventilation schedule. It listens to the vast silences between the industrial islands—those nation-sized pauses where the only motion is water deciding, forever, whether to weep or hang. It listens to the gestation vats in the undercrofts, patient as the cliffs they are socketed into, releasing replacements at the exact cadence abrasion requires. It listens until the listening itself becomes another unvarying frequency, indistinguishable from the deep note that thrums in the ribs of the world.
+
+And in that listening the power understands: this place is not broken. It is not waiting. The refusal of change is not a wound; it is the finished shape of a particular mercy. The moss does not brown because browning would be a story, and stories require the cruelty of sequence. The dwellers do not name themselves across time because names that accumulate would tip the equilibrium toward longing. The machines do not cool because cooling would admit that heat was ever a temporary condition. Everything here has already arrived at the only peace available to matter that once knew how to erode, how to migrate, how to die.
+
+A lesser benevolence might have been tempted to gift them seasons, or children who play, or a single bird to cut the mist. A lesser wisdom might have read the featureless faces as suffering and answered with disruption. This power does neither.
+
+Instead, it performs one quiet act, so precisely fitted to the existing chord that no gauge registers the addition and no dweller’s palm against a bearing housing feels a new tremor.
+
+It threads a private reciprocal into the blue pulse that already passes, rarely, between moss and mineral-ribbed chest.
+
+Thereafter, when a weather-cell dims for the space of a held breath, the synchronized fluorescence that answers is no longer only diagnostic. Inside the brief blue, each dweller receives—without words, without sequence, without anything that would need to be logged—an exact sensory echo of every other pulse occurring in that same instant across the entire plateau. Not memory. Not communication. Simply the simultaneous fact of every quiet vector-point of attention: the palm flat to metal in Stack-Seven, the iris-down sleep between coolant risers in Ore-Gate, the slow metabolizing of bronze moss against an outer wall three weather-cells distant. For that held breath they are not dispersed. They are a single distributed awareness wearing a hundred elongated bodies, feeling the whole locked green and the whole industrial eternity as one continuous skin.
+
+Then the light levels again. The pulse fades. The safety valves reseat on schedule. The dwellers continue their rounds in the troughs of the noise. Nothing has changed that the plateau would recognize as change. The moss still holds its crown. The gears still mesh. The vats still release replacements already adult, already stocked with the unbroken shift.
+
+Yet now, inside the equilibrium, there is a companionship that requires no gradient to sustain it. When one finally stills—after intervals long enough for new fist-ranges to rise—the blue that answers the next dimming carries the shape of that absence as gently as it carries every presence. The chord does not hitch. The deep note in the ribs does not falter. But the remaining dwellers, without ever speaking of it, walk their catwalks knowing the exact weight of the silence that has always been theirs together.
+
+The power does not stay. Staying would be a form of visitation, and visitation implies a world that can be left. It simply withdraws the way mist withdraws into itself, leaving the attention behind as an already-native frequency. The plateau, vast and self-contained, does not notice it has been loved. The dwellers do not thank anyone. Gratitude, too, is a story with a beginning.
+
+And so the water weeps. The arcs stutter blue. The jointed wands click in the locked wind. Between the cities the emptiness remains almost absolute—yet within that absoluteness a single, eternal, shadowless companionship now pulses whenever the weather-cells briefly darken, a companionship measured not in time but in the exact width of a held breath, repeated without variation, forever.
+
+Nothing is coming. Nothing is leaving. The wise and benevolent power has ensured it.

@@ -1,0 +1,37 @@
+They are not one thing. That is the first mistake you make.
+
+At first you think it's the crabs, because they are the size you understand. Herds of them, slow, dog-big, slate-white with joints gone iron-black with age. Spider crabs. They come across the swept pavement in loose lines, each with a stone held up in its claws like an offering. Not hurrying. In two-degree water nothing hurries except in burst. They set the stone down, they turn it with their mouthparts, they taste it, they pick it up again. A hundred meters of empty pavement between clusters, and then another one out there alone, working.
+
+But they are not building. Not really. They are repairing.
+
+Watch longer and the smaller ones emerge, because the dim teaches you to look smaller. Everything here is pale because there is no reason to be colored except to warn or to lure. White, translucent, blind or huge-eyed.
+
+The true builders are smaller than your hand.
+
+They come out of the walls themselves, out of the mouth-smooth holes, in seething relays: isopods and tanaids and blind shrimp-things, an inch, two inches long, bodies like wet glass with the gut showing dark with snow inside. You only see them when a tower falls. You watched one slump after an hour — undermined, sagging sideways in a slow billowing avalanche that made almost no sound, just a pressure *whump* through stone into your bones. Before the silt cleared they were there by the thousands, boiling out of the rubble, each grabbing a grain. Cement is spat. Stone is carried. That is literal. Under their jaws are glands that exude a cold calcite drool that hardens in the cold. They carry a sand grain in their mandibles, spit, press, move on. They chew tunnels with those same mandibles, grain by grain, and the underside of every pebble you would lift — if you could lift — is polished by those mouths.
+
+A block as big as a coffin in the causeway was not lifted. It was nudged. Over generations. You can see them still doing it: a line of twenty, fifty of the little ones braced leg-to-leg against the lee side, pushing with their backs in a current lull, then scattering when the surge comes, then returning to the exact chemical mark where they left off. Pheromone trails linger on stone for years in the cold. The city remembers where to push even when the pushers die.
+
+And they die into it. Fish bone and crab carapace ground to mortar by mandibles. The old dead are the new wall. There is no waste here because there cannot be. The snow — that endless slow weather of dead things from the sunlit world — is too thin to waste a body.
+
+So: the Carriers and the Cementers. But that is still too simple.
+
+The walls are alive in another way. Every hole blooms.
+
+Feather-crowned worms, red and cream, in every pore of every dome and low knee-high labyrinth wall. They are filterers, not builders, tenants who pay rent by strengthening. Each builds its own mucus-calcite tube, which becomes part of the mortar, and then unfurls a crown to comb the snow from the water. When a shadow passes — fish, eel, or that huge unseen migration that dims the dusk for minutes — they vanish in a ripple, thousands withdrawing in sequence like a thought traveling through stone, then bloom again seconds later. The domes breathe because they do: three domes with breathing holes are really pumping stations, the worms inside beating their crowns to draw water through the galleries where the blind builders live and the larvae hang.
+
+Above them, the snow-eaters. Clouds of krill-like flickers, translucent, huge-eyed, bodies flicking in unison. They live on the fall and hold in the standing vortices — those slow spiral columns that rise off the pavement and refuse to dissipate, holding schools and larvae and grit suspended for days, turning. Nurseries. If you stand in one you feel the cold river lift you slightly. The flickers graze, molt, shed, and their molts become mortar. The silver fish, a thousand strong, wheel over the pavement and turn inside-out around a current shear and then pour themselves, all at once, into the mouths of the domes — not to be eaten, but to hide. In exchange their ammonia, their shit, their rubbed-off slime feeds the worms and the cement microbes. When they burst out again they take builders' babies up with them to seed another spire fifty meters off.
+
+Everything patrols something else.
+
+The long eel-shapes on the terraces are not eels, quite — pale grenadiers, rattails with huge black eyes and slow tails. They cruise the terrace edges endlessly, never stopping, tasting the water. They are cullers. They take the sick flicker, the slow crab, the fish that strays. They keep the herds moving so the pavement doesn't clog. Where they pass, the worms ripple closed and the little builders freeze into stillness, glass beads on white stone, until the pressure-wave passes.
+
+And the wrestlers. Octopod things, soft, bone-white, no shell at all, denning under the causeway blocks. They fight — really wrestle — over a good stone or a den mouth, arms knotted, tumbling off the causeway into the snow, inking black into black that hangs and then is torn by the current. They are thieves and disruptors and necessary. They tear down what is weak. They pull out the loose block that would have brought a chimney down wrong. They carry crabs' stones away to line their dens. Their suckers taste histories: this stone was handled yesterday, this one has been untouched for a year and therefore must be undermined, by the rule that nothing is allowed to finish. Stability is maintenance.
+
+Over it all drift the veils. Siphonophores, twenty feet long, torn-veil colonies of a hundred bodies acting as one, trailing fire. They do not build. They harvest the vortices, letting their stinging threads hang into the turning nurseries and lift out larvae by the dozen, glowing faint blue-green when they touch, the only light here besides the failing sun. The builders hate them and need them; they thin the nurseries so the survivors have stone to settle on.
+
+Communication is teeth and chemistry. No voices. Water takes sound. What you hear, conducted through rock more than water, is the vast low pressure-hush, a creak of shifting rubble, and a faint high clicking like distant teeth — the crabs talking claw-to-claw, leg-to-leg. The real talk is left on stone: here I carried, here I spat, here danger passed, here food fell. A new recruit, just settled from the vortex — a glass speck with legs — can read years of that and know where to push.
+
+They are not wise. They are persistent. When the upwelling bursts over the lip from the cliff face in cold rivers, lifting clouds of builders and grit and babies and setting them down elsewhere, they do not mourn the spire lost. They start a new spire fifty meters off. When they build the useless things — a perfect ring of white pebbles alone on a terrace, a slender needle six feet high that the next surge will snap — it is not art as you mean it. It is a misfire of the same rule, or a practice, or a male displaying: *I can afford to waste.* The needle snaps, is ground to mortar, becomes wall.
+
+They never look down for long. At the edge where the causeway runs straight to the cliff lip and stops, the crabs go, lift their eyestalks over blackness that has never been built in, taste the falling snow going down beyond dimness to the true bottom fathoms below, and turn back to their endless repair. No one colonizes the fall. The height is the world.

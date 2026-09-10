@@ -1,0 +1,43 @@
+# The People of the Temper
+
+## What the place has made of them
+
+Start with the obvious, because visitors always do: they are lean. Not hungry-lean — the bread is good and costs nothing to bake — but *dissolved*-looking, as if the heat has simmered some excess out of them the way it simmers stress out of a spring. Temper folk are long in the limb and narrow in the foot, and they move through their galleries with a flat-footed grace you don't understand until you've watched a visitor walk the street: the newcomers bob. They walk like people on a bridge. The locals walk like people who have never once been rained on, never stumbled on a root, never had the ground do anything under their feet but stay exactly where it was put. The floor of the Temper has been the same floor for forty years and will be the same floor forever, and something in the ankles believes it.
+
+Their skin tells you where they live. Everyone carries the same faint map on their face and forearms — the gaslight tan, an amber undertone laid down in permanent dusk, so that a Temper native standing in full sun up top looks briefly like a stranger's photograph of themselves. And their hands are marked with the small signature of the town: fine crosshatched scars, thin as hair, from the young glass-bright edges of basalt that has not yet learned to be kind. Every child earns their first one about the same age they learn to read, and there is a saying for it — *the rock takes its toll in pennies* — because the walls tax you in tiny cuts your whole life and you barely notice paying.
+
+## The voice
+
+The rule of low voices makes the people, over a generation, into an instrument. Temper speech is pitched down and slowed, with the consonants kept and the vowels flattened, so that a sentence travels six hundred yards without ever hardening into an echo. Outsiders think the town whispers out of fear. It isn't fear. It is the same instinct that makes a family quiet in a house with thin walls — the Temper *is* one room, acoustically, and six hundred neighbors can hear you clear your throat, so over the decades the whole culture has been tuned like a gutter-spout. Anger here has a specific sound: not shouting but a *flatness*, a voice pressed thin and even, which every local can identify from one gallery away the way a farmer reads weather.
+
+They are, in conversation, patient to a degree that unsettles uplanders. A question asked in the Temper may be answered a full minute later. No one counts the silence. There is no silence to count — the drips are playing their five notes somewhere, the Granny has breathed, the stone has knocked — and the pauses between people are just part of the same music.
+
+## Who they are to each other
+
+They are not, in the strict sense, a village. Nothing here is strict. But the town has the intimacy of a large family that has never been able to leave the dinner table. Everyone knows everyone's cough. Everyone knows who sweats their pipe on the third tier, whose drip-allotment is in arrears, whose ferns are thriving this season, and who is courting whom, because courting in a tube six hundred yards long is conducted entirely in public and yet somehow retains privacy, in the way that everyone politely knows and no one loudly says.
+
+The trades are generations deep and gently territorial. The tinsmiths — the ones who tuned the gutters into that five-note scale decades ago and have handed down the bending-techniques like liturgy — are a clan, compact, quiet, with an authority that has nothing to do with any office. The stove-keeper, who meters the borehole-hours, is the closest thing to a magistrate and spends most of that authority on saying *not tonight* to people who want their glass annealed during a Flare watch. The Granny's engineers are a priesthood without being solemn; they talk about her the way you'd talk about a difficult aunt, with affection and complaint so intermingled you cannot pull them apart.
+
+And there is the oldest woman, who stood at the skylight as a child and watched the glow go out beneath the crust. She is a civic institution precisely because she is the town's only living memory of the place *before* the town — she remembers the fire, which is to say she remembers when the Temper was a god and not a landlord. Children are brought to her. She is asked what it looked like. She always gives the same answer, which everyone can recite along with her and no one wants to hear any other way: *"Like looking down into a held breath."*
+
+## The children
+
+Temper children are raised by an entire street and are the only creatures in town allowed to be loud, which they are, briefly, in the sump rooms, under supervision, where the echo is contained. They learn three things very early and very deep.
+
+They learn the drips — not just to ignore them, but to *read* them, because the scale changes with the weather inside the mountain. A child of six can tell you, blindfolded, whether the mains are sweating heavy or light, and whether the cold snap has reached the surface, just from the tempo of the notes down the tube. This is the town's literacy, learned before letters.
+
+They learn the moss the way other children learn street signs. *"Read the moss and you can map the plumbing"* — so a Temper child, sent on an errand, navigates partly by the bright green threads tracing the condensation gutters, and could find a blocked main in the dark by the absence of a familiar green line, the way a sailor finds a leak by the stars going wrong.
+
+And they learn the *no-animals* wrongness before they have a word for it. Temper children do not fear rats; they fear the idea of them, taught as a kind of catechism at the head house: boots scraped, goods fumigated, nothing alive admitted. They grow up in the cleanest silence a grain-town has ever kept, and if a moth ever did come down the stair, the whole town would know within the hour, and the response would be — there is no other word for it — *liturgical*. Every hand would turn toward it. Not in panic. In total, unanimous attention.
+
+## What they believe
+
+They do not, mostly, say they believe anything. But they keep the rainstick like scripture and consult it like scripture, and they say the rock *below the third seam is still in a bad mood*, which is theology disguised as geology, or geology that has earned the right to be theology.
+
+The deep knocks settle the matter. When the stone knocks — loud enough to stop conversation, up from a seam still settling its debts — no one in the Temper says *fault stress* or *thermal contraction*, though the engineers know exactly what it is. They say, under their breath, *she turned over in her sleep*, and the nearest person answers, *long may she doze*, and the conversation resumes. This exchange is not optional. It is the town's most sacred sentence and it is spoken maybe forty times a year, always quietly, and never analyzed.
+
+Because the true article of faith — held without ever being stated as one — is that the town lives inside a process, not a place. Every Temper native, from the tinsmith clans to the child under the ceiling-seep, carries the same unspoken arithmetic: *the gauge drops a hair every year; we drill a little deeper every decade; the fire is not ours and will not last.* A people who live on a cooling curve do not build for eternity, but neither do they live carelessly — they live *correspondent* to the curve, like a rider keeping seat on a slow horse. This gives the Temper its characteristic expression, the thing visitors misread as melancholy and locals would call, if pressed, *keeping in step*. Nothing here is done in a hurry, nothing is wasted, nothing is presumed. The town treats its own future the way it treats the deep heat: as a commons, borrowed, metered, to be handed on two-thirds full.
+
+## What they are, finally
+
+The Temper's people are the only warm-blooded things in six hundred yards, and the place has quietly returned the compliment by making them a feature of itself. Moss maps the plumbing; the plumbing maps the people; the people tune the gutters; the gutters play the scale that the children learn before words. The town is one organism with visible organs, and the folk are its warm blood, moving through its iron and brick at blood heat, murmuring, metering, keeping low voices over a hearth going out over centuries — patient as a banked fire, attentive as a family during a storm, and, on any given cool-in evening, gathered in the amber dusk under the drip-scale's five slow notes, entirely, stubbornly, *at home*.

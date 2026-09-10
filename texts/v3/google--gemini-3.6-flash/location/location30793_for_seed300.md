@@ -1,0 +1,25 @@
+The hollow is no larger than a small chapel—forty paces across from one weeping stone embankment to the other, cradled in a low depression where the salt marsh meets the old silt-beds. 
+
+It is cold here, a damp, heavy cool that settles in the chest like breath taken over well-water. Pale daylight fills the space evenly, flat and shadowless, reflecting off miles of low sky and the wet surfaces that line every inch of the floor.
+
+Nothing in this place has a sharp edge anymore. Centuries of moisture and salt-laden air have ground the landscape into smooth, heavy forms. Massive blocks of cast concrete have softened into rounded, basalt-like humps; thick iron plates are dish-shaped and pitted, their edges blunted like river pebbles. The ground is a dense, packed floor of black river-clay, soaked through and gleaming under a thin film of standing water that never dries.
+
+Despite the small footprint of the hollow, the space is crammed to choking. It is a dense, layered thicket of industrial detritus and geologic sediment, packed so tightly that moving across it requires stepping from one slippery iron crown to another. Heavy copper busbars, thick as a wrist, twist out of the mud like dead roots, coiled around submerged pump-housings and the curving ribs of a long-collapsed boiler. Rusted steel cables lie in thick, tar-soaked nests, buried beneath layers of gray silt and weeping slate. Everything is stacked, entangled, and wedged together—a room-sized graveyard of heavy mechanics that has settled completely into the earth.
+
+Yet the place is hyperactive.
+
+It moves with an uncanny, silent frenzy. The water here is not passive puddle-water; it is an greasy, mineral-rich fluid fed by endless subterranean seeps and dripping overhead conduits. Driven by some hidden hydraulic pulse or subterranean heat, the shallow pools on the hollow’s floor are in a state of constant, violent churn. 
+
+Silt and iron-filings rise in dark, boiling plumes through the pools, assembling into complex, temporary geometric ridges across the mud before collapsing back into froth. Small vortices open and snap shut in the grease slicks. Black grease-bubbles rise from the buried machinery in rhythmic bursts, expanding and popping, shedding micro-sprays of rust-water. In the corners of the hollow, where old brass valves protrude from the rock wall, water spurts in rapid, shivering jets, tearing away tiny fragments of stone and rebuilding the red-mud terraces beneath them second by second. The landscape is continuously destroying and sculpting its own floor, hyper-eroding and re-depositing its materials in a frantic, ceaseless loop.
+
+And yet, it makes almost no sound at all.
+
+The heavy mineral sludge, thick oil, and water-logged clay swallow every impact. The violent boiling of the mud pools happens in an eerie, smothered silence. The jets of water hit the oily mud with only a soft, wet *thrum*, like the beat of a bird’s wing against felt. The heavy brass gears buried three feet down in the silt—turning slowly against one another in an endless, blind cycle—transmit only a faint, sub-audible vibration through the soles of your boots. The dominant noise is merely the faint, rhythmic *drip-clack* of condensation falling from an overgrown iron beam onto a submerged copper plate.
+
+Vegetation has surrendered to the oil and the churn. There are no trees, no reeds, no grass. Only a slick, dark coating of iron-ingesting algae paints the undersides of the rusted beams, and a few rubbery patches of pale liverwort cling to the cold, wet brass of the exposed pump casings. 
+
+Fauna is equally sparse, adapted only to the strange, chemical restlessness of the hollow. Occasionally, a pale, blind water-isopod—the size of a thumb, armored in a shell stained bright orange by iron oxide—scuttles across a violent, boiling silt-ridge. It moves with frantic precision, picking at tiny mineral crystals tossed up by the churning water, entirely unbothered by the fluid chaotic collapse happening beneath its legs, before diving back into the black mud.
+
+There are signs of human intervention, but they belong to a forgotten layer of history. High on the eastern stone face, half-drowned in dripping condensate, a row of ceramic insulator pegs remains bolted to the rock, their copper wiring snapped and trailing down into the mud. A hand-wrought iron ladder descends into one of the violently churning pools, its bottom rungs long since eaten away by the acidic water. 
+
+You stand at the edge of the basin and watch the earth work against itself. A ridge of black, metal-rich mud rises three inches out of a puddle, assumes the sharp, intricate geometry of a cooling crystal, holds its form for three seconds while daylight glints off its wet surfaces, and then dissolves in a silent, violent pulse of water from below. The hollow resets, recalculates, and begins to build the ridge again.

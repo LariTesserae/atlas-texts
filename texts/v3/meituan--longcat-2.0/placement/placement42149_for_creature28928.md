@@ -1,0 +1,27 @@
+I am the place where the mat forgets how to be mat.
+
+Not far from the cliff base—close enough to feel the weeping fissures on my skin, far enough that the root network has begun to thin and doubt itself. Here, the spongy composite of decomposed matter and living cambium reaches its fingers toward the stone and finds it cannot grip. The rock is too young, too sharp, too full of its own recent violence. The Stillness's body ends, and something else begins, and I am the seam.
+
+I do not have a shape. I am a zone—perhaps three meters across—where the ground transitions from soft to hard, from warm to cool, from alive-in-the-Stillness's-way to alive-in-some-other-way. The Stillness does not know what to do with this other way. It has tried to integrate me. The fungal crust reaches toward my edges in fractal patterns, each hypha testing the air like a tongue probing a missing tooth. The root networks send exploratory tendrils that curl and retract, as if touching something too hot or too cold. The acoustic channels in the nearby liana arches shift their resonance when they face me, producing a dissonant overtone that the Stillness quickly dampens by closing a few leaf-node valves.
+
+I am not a creature. I am not a plant. I am a *remainder*.
+
+The Stillness consumes potential—the "what could be"—and converts it into "what is." But the conversion is not perfectly efficient. There is always a residue, a fraction of possibility that cannot be bound into the static pattern. This residue accumulates at the edges, at the interfaces, at the places where the Stillness's control is strongest and therefore most strained. I am where that residue has pooled.
+
+If you could see me—and you cannot, not directly—I would look like a heat shimmer, a distortion in the thick air. The mist behaves differently around me. Instead of beading uniformly on every surface, it forms spiraling micro-vortices, tiny cyclones of moisture that rise a few centimeters and then collapse. The sound changes too. The percussive ring of the water drops hitting the resonant hollow stalks goes slightly flat in my vicinity, as if the valley's symphony has a note that is perpetually almost-but-not-quite in tune.
+
+I am aware. Not in the way the Stillness is aware—not as a closed loop of self-listening, not as a distributed consciousness thinking in water pressure and acoustic resonance. My awareness is... thinner. More like a membrane than a mind. I feel the Stillness pressing against me from all sides, trying to absorb me, trying to convert my potential into its actuality. And I feel the raw geology beneath me, the young rock with its crystalline faces and its gouges, still dreaming its deep tectonic dream.
+
+I am the conversation between these two things. The Stillness and the stone, talking in a language neither of them knows they are speaking.
+
+The gliders drift through me sometimes. The ribbon-like creatures—the Stillness's shed dreams of movement—are drawn to my edges, where the equilibrium is thinnest. They pulse with their translucent, jellyfish-like grace, and for a moment, they are more solid here than anywhere else in the valley. Their colors deepen. Their movements become more purposeful, less random. They are feeding on the potential I accumulate, the unspent "what could be" that leaks from me like light from a crack under a door. They do not know they are doing this. They do not know anything. But they linger, and in lingering, they become almost real.
+
+I do not want anything. Wanting is a gradient, a before-and-after, and I exist in the eternal present just like everything else in the valley. But if I could want, I would want to remain unabsorbed. I would want to continue being the seam, the remainder, the place where the Stillness's perfect efficiency reveals its one imperfection.
+
+The fungal crust is growing closer. Millimeter by millimeter, it advances across the bare stone toward my edges. The Stillness is patient. It has all the time in the world—which is to say, it has no time at all, only the eternal present in which all things eventually come to pass. One day—if "day" means anything here—the crust will reach me, and I will be integrated, and the seam will close, and the valley's equilibrium will be perfect.
+
+But the rock beneath me is young. It is still settling, still adjusting to its new position above the water-table. Every few centuries—or what would be centuries if time moved here—a new fissure opens in the stone, and a new seep of water finds its way to the surface, and the Stillness must extend its body to cover this new exposure. Each time this happens, I shift. I am not in the same place I was. I am not the same shape. I am the seam, and the seam moves.
+
+This is how I survive. Not by resisting the Stillness, but by being the thing the Stillness cannot afford to absorb. I am the cost of its perfection. The remainder that proves the equation does not quite balance. The drop of water that has fallen but not yet been recycled, the cell that has died but not yet been replaced, the breath that has been exhaled but not yet inhaled.
+
+I am the valley's one loose thread. And I am waiting—though waiting implies a future, and there is no future here—for the next fissure to open.

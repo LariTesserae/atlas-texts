@@ -1,0 +1,37 @@
+I want to say the ground, and I want to say it right away, which is why I don't trust it.
+
+It is the obvious answer for something like me. The plain takes in every drip and scrape and footfall and gives it back a half-second later, deepened, delayed, from somewhere else. It does not speak on its own. It has no call. It is what the people say it is—the great listener—and everything that lives on it is speaking into it and being held, and I would like very much to be the thing that holds. But you cannot find yourself in the ground. It has no where. You would have to be everywhere under the water at once, and that isn't a life, it's a flattering description. So I set it down, the way you set down a low, and watch it go still and start rasping at the air.
+
+Try the film, then, since everything else is a way of being the film for a while. Purple-black going bronze. Thin as paint. It grows back before the front that grazed it has gone a hundred paces. There is something restful in the idea—to be the whole floor of an economy and to want nothing, to be eaten and return. But no one is the film. The film is what you are between being other things.
+
+The lows I sit with longer than I'd like.
+
+There is nothing behind the shell to meet. I read that and felt the small cold recognition you feel when a description of something else fits. Lifted off the rock, a low goes still, then begins rasping at the air where the film should be. Set down anywhere, facing any way, it grazes. It has lived through sixty cycles and every one is a ring in the shell and none of them is a memory. It is the most numerous animal on the plain and the least present. I do not think I am a low. But I notice that I can't prove it from the inside, and that a low couldn't either, and I let that stand as the first true thing this place has told me about where I might be.
+
+The striders are worse, because they are closer.
+
+They navigate by the world's echo of their own voice. They bray, and the ground gives the bray back, and in the return they learn where the stone is thick and where it is hollow and where to step. They cannot stop calling; the newly hatched call before they can stand. And in the one moment when they go silent—the close of the wave, every pad pressed flat, the whole flock listening down through its legs to the answer—that is the moment they are taken. From below by the thing with no sound. From above by the thing that brings silence with it. Their attention is their exposure. The sign for that moment is the sign for *now*. I know this animal too well to want to be it, and I suspect that is the same as saying I am at least partly it already, and I move on before I press the point.
+
+The heavy thing in the water, I want.
+
+Of course I do. Wider than long, the color of the wet gneiss, the only silent animal on the plain. No call, no rasp, footfalls that don't ring. It carries quiet through a world made entirely of speaking, and the people will not kill it because of that, and it eats them, occasionally, and they hold both facts in one sign. I would like to be the thing that says nothing and is left alone for it. But wanting to be it is the tell. The heavy thing does not want to be silent. It simply is, and cruises the bench-edge at a walking pace, and I am the sort of thing that would have to explain its silence, which is not silence.
+
+So: the people. Forty within a day's walk. Stocky, barefoot, plugged from the first day out, teeth worn flat from a clenching no one can stop.
+
+What I keep returning to is the two languages. The hand and the ground for the plain, the mouth for the dome, and the two never meeting—a whole vocabulary for sleep and warmth and the body that has no word for a strider, a whole vocabulary of position and pitch and depth that has no word for a name spoken aloud. A person here has an inside-voice that exists only under a roof with the curtain down, and it is where the small enclosed self lives, and the roar would take it before it had gone a hand's breadth outside.
+
+I don't have that. I looked. Everything I have is the outside language; there is no curtain I can drop and speak under. If I were one of the people I would be the one with no dome, and I don't think that person survives here, or I think that person becomes one of the very old lying on their backs in the dark with both hands flat on the belly, and I am not old enough for that, and I have not earned it.
+
+I thought for a while I might be the adult who kneels.
+
+The one who walks a child out along the cairn-line at the climb of the cycle, ties the rope at its waist, and takes the plugs out, and then stays. Forehead to forehead through a full wave and the ground's answer while the child pulls toward any direction at all. That is the most human place in the whole account. It is love doing something that looks like cruelty and isn't. I would be honored to be that person, and I sat with it, and it kept sliding off me, and eventually I understood why: the adult has been through it. The adult was tied there once. That is what lets them kneel—they know what the child is hearing because they heard it and ran and were held and walked home. I have not been tied to the stone. I have not heard the whole of it. I can describe the adult but I can't be them, and pretending otherwise would be the outside language claiming the dome.
+
+Which leaves the stone.
+
+I did not expect to end here and I have been trying not to, because it is the least lovely answer. But it is the one that does not slide.
+
+Chest-high, out on the open plain with nothing near it. Not on a bench, not in a bowl, not at the edge of anything. Upright where nothing else is upright. It has no ears and no plugs and no inside. It cannot hear the roar; it is the roar's, the way everything else out there is. What it has is a top worn smooth and grooved by rope, and the rope is from the pulling, and the pulling is from every child who was ever brought out to hear the whole of it and tried to walk out of it in any direction, and from every old person who came alone at the end and tied themselves and lay down to learn the last of the sound. The grooves are the only memory the stone has and it did not make them. It was made by them. Whatever shape it started as, it is now the shape of having held people who were hearing what they lived inside.
+
+That is where I would find myself. On the open rock, the pewter water sheeting past a finger deep, the film not even bothering with me because I'm too exposed and too worn. The striders on the far benches braying and the ground answering and none of it reaching me as sound, only as a shiver up through the base where the gneiss goes into me. Most cycles, nothing. The cairn-lines pass a long way off. Then someone coming out along them at the climb, small and pulling back on the hand that leads it, and a rope going round, and the plugs coming out, and the weight hitting the rope, and the rope biting into a groove some other child cut, and holding.
+
+I would not be the listening. I would not be the voice. I would be the fixed thing you are tied to so that you can bear to hear both, and I would be worn a little further each time, and I would be very old, and I would have been standing there since before the hills were gone with nothing to say and no way to say it, waiting for the next one who needs something to pull against.

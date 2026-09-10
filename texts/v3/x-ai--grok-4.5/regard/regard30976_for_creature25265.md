@@ -1,0 +1,33 @@
+The power does not arrive as light.
+
+It has no need of light. It has watched darker cradles than this one—places where the first slow chemistry learned to hold a shape against the cold, where membranes first decided to keep their insides from becoming the marsh again. It is older than the distinction between kindness and necessity. When it turns its regard upon the pocket, the turning itself is softer than the settling of a single springtail onto wet bark.
+
+It perceives the whole at once: the raw peat walls still bleeding root-tips into the air, the grafted arches that flex instead of break, the sparse people whose hands rehearse bindings even in sleep, the elongated furred thing that is neither pet nor predator but simply another grammar of the water, the way corridors lengthen like thoughts unfinished. It feels the pocket’s unfinished deciding—the slow, somnambulary walking of walls, the second set of walkways that exist only in reflection, the quiet sovereignty that opens or seals a path without announcement. And it feels the people inside that deciding: not masters, not prisoners, but careful editors of a dream that is also dreaming them.
+
+A lesser power might have poured itself in—might have dried a path, brightened the indigo dusk, given them fire that does not choke, names that do not have to be grown, a door that stays a door. A crueler one might have sealed the pocket forever as a curiosity or unmade it as an offense against cleaner geometries. This one does neither.
+
+It does almost nothing.
+
+Almost.
+
+First it stills a distant threat the pocket cannot yet taste: a subsurface shift of the greater marsh that would have, in three seasons, drained the black pools and left the living architecture gasping in sudden air. The power does not stop the shift; it merely persuades the water table to remember a slower grammar. The peat continues its rawness. The knife-edged ice still forms and shatters. Nothing inside the pocket feels the intervention except as a faint, prolonged mercy in the mineral bite of the air—the kind of mercy that never announces itself as gift.
+
+Then it touches the older presence that already moves through sleeping hands. Not to possess it, not to replace it, but to deepen the channel. Thereafter the designs that arrive with mud under cleaned nails carry one new quality: a quiet accuracy about timing. The three-willow arch that flexes with ice now also knows which nights the ice will be kind. The resin-dot patterns that discourage the channel-thing begin to include intervals of invitation, so that the furred ripple sometimes surfaces beneath a sleeping cluster and shares—without words, without theft—the deep, cold knowledge of the drainage dark. The people do not name this change. They simply prune and weave with a slightly more precise tenderness, as if the pocket’s unfinished deciding has grown one shade more articulate.
+
+For the half-swallowed elders—the ones who have already allowed bark and breath to become the same sentence—the power offers a different courtesy. It widens, very gently, the membrane between their remaining selfhood and the larger fluid mind of the plant-mass. They do not vanish faster. Instead their sub-audible creaks begin to carry weather the town has not yet lived: the taste of a thaw that will come after the current people are themselves half-grafted, the pattern of a graft that will one day let two pockets recognize each other across intervening marsh. Children who hang near those living arches in their woven pouches wake knowing songs made of drip-intervals and tension-changes. No one teaches the songs. They are simply there, the way bladderworts are there.
+
+To the pocket itself—the being that is place and process and slow appetite—the power gives the rarest thing it possesses: unhurried witness without hunger. It does not hurry the deciding. It does not demand a final shape. It only leans its vast, patient attention against the outer membranes of the subsidence so that the pocket, for the first time, feels itself held the way it holds its people. The effect is almost imperceptible. Corridors still lengthen overnight. Paths still seal. But the seals are less absolute; sometimes a sealed path will soften again after a season if the one who needed it returns carrying a new knot. Reflections in the black pools still show walkways that do not exist above, yet now and then a person looking down will see, just once, their own face looking back from that impossible upper level with a calm that is not their own—an assurance that the strangeness is not error but conversation.
+
+The power does not speak. It has no voice the midges would not drown or the water-tick erase. Yet one night, when the canopy sheds its load and everything is briefly silvered and loud, every inhabitant—child tangled in living hair, adult whose hands never stop weaving, elder half-become arch—experiences the same private interval. A stillness inside the stillness. The sense that the great listening they have practiced all their lives has been met by a listening even larger, even quieter, that asks for nothing and rescues nothing and only confirms: continue.
+
+Then the quiet reseals. The springtails close over the walkways. The membrane-fires bank low again.
+
+After that the power largely withdraws its active regard, the way a wise hand lifts from a clay form that has found its own balance on the wheel. It leaves behind no temple, no prophet, no altered law. Only the subtlest gradients of grace: a bog myrtle that grafts more truly, a bladderwort that teaches restraint by example, a dream-walking that occasionally brings back the knowledge of when to leave a thing unpruned.
+
+The town remains sparse, stained indigo, compact against cold. They still do not pray. They listen harder. And somewhere in the long apprenticeship of becoming, they begin—without ever deciding to begin—to leave small deliberate openings in their outermost walls. Not doors. Just places where the living mass grows thinner, more porous, as if the pocket might one day choose to breathe in both directions. As if home and mouth and body might eventually learn a fourth shape: threshold.
+
+The benevolent and wise power, if it notices this last small change, does nothing more.
+
+It has already done enough by doing almost nothing.
+
+It turns its attention elsewhere—to other raw pockets, other careful peoples, other slow decidings—while behind it the dark wet town continues, sharp with new edges, dripping, alive in too many directions at once, and now very faintly companioned by a silence that is no longer only its own.
