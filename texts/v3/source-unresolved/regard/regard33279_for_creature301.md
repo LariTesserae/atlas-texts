@@ -1,0 +1,21 @@
+The benevolent and wise power, sensing the grotto’s quiet pulse, does not descend as a god might, nor does it speak in thunder. Instead, it *becomes* the grotto’s breath. It lingers in the damp air, a presence as old as the roots that coil beneath the soil, as patient as the fungi that have watched civilizations rise and crumble. It does not *act* in the way mortals understand—no grand gestures, no visible miracles—but it *responds*, a silent harmony woven into the fabric of this hidden world.  
+
+---
+
+**To the Fungal Sages**, it offers a whisper of clarity. Their mycelial networks, already vast and ancient, begin to hum with a deeper resonance, as if the earth itself has leaned closer to listen. The sages, who have long pondered the rhythms of decay and growth, now perceive threads of connection they had not known existed—paths of energy and memory stretching beyond the grotto, into the bones of the planet. They do not understand the source of this newfound wisdom, only that it feels *right*, like a forgotten lullaby. The power does not teach them; it *remembers* for them, bridging gaps in their knowledge with the weight of eons.  
+
+**To the Crevice Weavers**, it grants a gift of light. Their webs, already shimmering with iridescence, begin to pulse with a soft, internal glow, as though starlight has been trapped in their silken threads. The bioluminescent minnows, once mere passengers in the weavers’ art, now move in patterns that mirror the constellations above the earth—a secret language only the grotto’s inhabitants can decipher. The power does not alter the weavers’ nature, but it ensures their art endures, a testament to the beauty of patience and precision.  
+
+**To the Rootwalkers**, it offers stillness. Their ability to remain motionless for years is not merely a survival trait but a meditation, a communion with the slow, deliberate heartbeat of the earth. The power does not interfere with their hunt, for it knows that even predation is a thread in the tapestry. Instead, it ensures that the grotto’s prey—small, swift creatures that dart through the undergrowth—never dwindle. It nudges the balance, a gentle hand on the scale, so that no species outlives its role.  
+
+**To the Cavern Gulpers**, it grants a quiet restraint. Their monstrous maws, capable of swallowing entire creatures, are tempered by an instinct to *pause*—a fraction of a second longer before striking, allowing the grotto’s fragile equilibrium to breathe. The power does not curb their hunger, for it understands that even predators must feed. But it ensures their hunger is never insatiable, that their presence is a reminder of the grotto’s wild, untamed nature.  
+
+---
+
+The power does not build monuments, nor does it speak in voices. It moves through the grotto as a current of *awareness*, a presence that does not demand but *invites*. It guards the remnants of past visitors—the weathered pillar, the scattered pottery—not as relics, but as echoes of a time when the grotto was not yet a secret. It ensures that no human hand, no matter how curious, can find the grotto’s entrance. The paths that lead to it twist and shift, as if the earth itself refuses to be discovered.  
+
+Yet, in its benevolence, the power does not isolate the grotto. It allows a single, rare visitor to stumble upon it—a child with a lantern, a scholar with a journal, a wanderer who has forgotten how to wonder. To these, the grotto offers no answers, only the quiet certainty of its existence. The power watches, not to intervene, but to *see*, to let the grotto’s story unfold as it always has: a symphony of life, ancient and ever-changing, humming beneath the world’s surface.  
+
+And when the grotto’s creatures stir in their sleep, their dreams filled with the scent of damp earth and the murmur of underground streams, they do not know they are watched. But they feel it—a warmth in the air, a hush in the rustle of leaves, a promise that this place, this fragile, luminous world, will endure.  
+
+The power does not save the grotto. It *is* the grotto, in the way that the moon is not separate from the tide, but part of its pull. And in that unity, the grotto remains, a secret held close by the earth, forever alive.

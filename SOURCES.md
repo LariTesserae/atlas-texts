@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **137** source folders · **159,781** texts
+- **137** source folders · **159,792** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -770,8 +770,8 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `antrastudio--talkie` | 75 | 2026-05-30 | location·75 | route | event-observed 75 |
 
-## unresolved  ·  1 texts
+## unresolved  ·  12 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `source-unresolved` | 1 | 2026-05-16 | placement·1 | unresolved | unresolved 1 |
+| `source-unresolved` | 12 | 2026-05-16→2026-09-10 | placement·4, regard·8 | unresolved | unresolved 12 |
