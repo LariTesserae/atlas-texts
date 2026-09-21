@@ -1,0 +1,3 @@
+The Drowned Shelf is not empty. It is merely inhabited by a kind of life that has agreed to be mostly pressure, and by a kind of being that has not yet decided whether it wants to be visible.
+
+Whoever lives there does not live the way animals live in ordinary places. There are no nests, no burrows, no packs moving through tall grass. The creatures of the Shelf do not crowd the ground, because the ground is not stable enough to be a territory. They

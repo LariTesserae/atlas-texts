@@ -1,0 +1,9 @@
+# The Still
+
+From the rim, the lowlands are invisible. Where another country would show fields or coast, this one shows only a white ocean of vapor, flat to every horizon, silent — a sea made of steam, held down by its own weight. The plateau rises two thousand meters above it like a shoulder breaking the surface, and everything people have built here is spread across that shoulder in a lattice so thin that from this height it looks less like a city than like frost on dark stone.
+
+The inversion is the first thing to understand, because everything else follows from it: the sky is cold in its dimness, and the ground is the warm one. No sun worth naming — just a pale coin pressed flat behind a permanent vapor lid — and yet the air sits at forty degrees and more, heavy with moisture, thick enough that breathing is drinking. The heat comes up from below. The plateau is the lid of a caldron. Deep beneath the basalt, something called the Beneath-Kiln cooks the rock, and the wells that tap it — the flues — push up superheated vapor day and night. The whole civilization here is built on one domesticated fact: *steam rises, and can be persuaded to become water again.* Nothing is burned. The industry is weather.
+
+## The stone that weeps
+
+The flats between structures are the emptiest ground you will ever walk. Kilometers of wet black basalt, polished by centuries of condensate until it wears like river rock though no river has touched it, every surface beaded with droplets that refuse to run. The mineral film on the stone holds each bead in place like a fisheye lens, and each one reflects the dun ceiling, so

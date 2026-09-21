@@ -1,0 +1,23 @@
+What lives in the Cloud Kettle is not, at first, a body at all.
+
+It is a way of holding water. The seepage in the hollow is not merely a feature of the place; it is the place’s first claimant. It moves through fissures too small to see, gathers in black pores in the stone, trembles on lips, spreads in thin films across ledges, and returns to the tarn in slow threads of dark. If the Cloud Kettle has an owner, that owner is not a creature with eyes or appetite. It is a habit of moisture, an internal rhythm of gathering and letting go. The bowl is not filled from above so much as it is constantly being made from within. The stone is never finished with water. The water is never finished with the stone.
+
+This would be true even if no animal came, but animals do come, and because they come, the kettle becomes something more than geology.
+
+The oldest residents are not noticed. Lichen is one of them: gray-green continents on the boulders, rusted shores along their lower edges, crusts so thin and slow they seem like stains. Lichen does not live here in the dramatic way a fern might, opening in a morning; it lives in the timescale of frost. It grips the stone with microscopic hairs, drinks condensation, photographs the high sun, and then rests in a kind of suspended patience. To a lichen, the Cloud Kettle is a continent. A single patch may know the wind from all four directions better than any mammal would. Its life is so quiet that it feels mineral, but it is not. It is the kettle’s first skin.
+
+Moss is the next. Cushion mosses do not merely grow in the hollow; they complete it. They fill the spaces between stones with wet spongy tissue that breathes like the place itself. In dry wind, their upper tips go tight and pale; when cloud sinks or droplets fall, they loosen, darken, and expand. They are the kettle’s fur, its liver, its reservoir. They hold water long after rain has stopped, feeding the tiny organisms that live inside them. The moss knows the difference between melt and cloud, between dew and the damp hand of fog. It is the place’s memory made soft.
+
+Then there are the smaller lives, the ones that make the air and ground seem thicker than they look. Midges move in fine drifting threads above the wet edges, not so much flying as being carried by the moisture. They hatch in the thin black waters at the tarn’s edge and the capillary pools between rocks. Their bodies are tiny and almost invisible, but their numbers give the place a kind of vibration. Snails are slower citizens. They crawl across moss in silver paths, feeding on soft growth, their shells like pebbles until they move. Springtails jump in minute arcs from the water’s surface when startled. Mites, nearly dust to the eye, roam through the moss as though through a forest of translucent columns.
+
+These lives are the kettle’s circulation.
+
+The more visible animals are more conditional. Pipits run along the rims, quick and thin-lipped, stopping to call as if the sky itself demanded proof of their presence. They do not live wholly in the bowl; they belong to the open mountain, using its stones as perches and its moss as hunting ground. Small mammals with rounded bodies and quick eyes move through the scattered islands of vegetation: voles, perhaps, or lemming-like things that carry grass and seed in their cheek pouches, opening the moss to air, turning soil, scattering the future into unnoticed places. A hawk may pass above, casting a shadow that sweeps across the kettle like a cold hand, but it is not a resident. It is weather with wings. Even the hawk, for all its dominance in the bright sky, does not own the place. It merely acknowledges it from the air.
+
+The true answer to “who lives here” begins at the edge of the tarn, where the water is black-green and shallow, where the frogs are almost never seen at first because they do not behave like frogs from low valleys.
+
+They live in the Cloud Kettle in the way a small nation lives in high land: dispersed, hardy, patient, and almost invisible until something calls.
+
+The frogs are not a crowd. That is the first thing to understand. There is no dense aggregation of bodies at the water’s edge, no wet heap of backs shining in the sun. Instead, each frog holds a station, a place of its own: a stone shelf just above the tarn, a moss-filled cleft, a hollow cup of rock holding a film of water. Between them are bare stones, damp patches, open air. If one sings, another answers from a different direction. If a third joins, its note comes from farther off, near the old cairn. They are separate in body, but in the hollow’s acoustics they become a single instrument.
+
+They are small, most

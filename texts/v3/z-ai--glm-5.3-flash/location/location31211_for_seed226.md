@@ -1,0 +1,7 @@
+# The Work
+
+The first thing to understand is that the stone is new.
+
+Not new-built — new. Nothing on this plateau has ever worn away. No joint has been rounded, no face dulled, no edge softened by the patient abrasion that makes old mountains look like old mountains. The rock here has the freshness of a split log, of fresh carpentry, of a wound. Where the ground breaks open you see seams sharp enough to took-sharp corners, faces still holding their quarry-skin, crystals glinting in fracture surfaces as if the stone were broken only this morning. In a sense it was. The mountain is young in a way mountains are not supposed to be young. It came up out of the world recently, it is still coming up, and it has not yet had time to be ruined by weather, which here — and this is the second thing to understand — barely exists as an eroding force. Rain falls as mist and settles as dew. Water does not strike this place; it condenses onto it. So the rock stays raw, and the rawness is not a scar but a condition: this is a landscape still in the act of being made, and it knows it, and it is in no hurry.
+
+**The shape of the place.** It is a single block of high ground — not a range, not a wilderness, but one raised thing, perhaps an hour's walk from end to end, edged all around by clean sheer cuts that drop six hundred meters into a sea of cloud. You can stand anywhere on it and see every boundary. There is no horizon here except its own edge. Beyond that edge, on

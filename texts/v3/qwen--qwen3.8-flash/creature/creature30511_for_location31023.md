@@ -1,0 +1,21 @@
+Every hollow, stem, root, stone, reed, pool edge, mud flat, and dim canopy is claimed, though “claimed” is too aggressive a word. Here a place is possessed the way a held breath possesses the throat: by pressure, by fullness, by an unwillingness to begin.
+
+They are the Held.
+
+That is not a name they gave themselves. A name is an act of distinction, and in this basin distinction has been carried so far that it has almost collapsed into relation. If a visitor, somehow lowered into the amber afternoon, tried to say what lived here, they would find themselves caught between categories. They would say animals, and then doubt it. They would say plants, and then feel the error. They would say minerals, and the minerals would seem, by their patient brightness, almost alive.
+
+The Held are not one kind. They are too many kinds to remain separate from one another, and yet not unified enough to become a single organism without remainder. They are a plurality that has been pressed, like warm sediment, into one continuous surface of being.
+
+Some stand broad and low, the way mammals stand when they have no reason to hurry. Their bodies are wide in the chest, short in the legs, heavily rooted to the earth without being rooted into it. Their fur is not dry fur; it grows in spiral ridges, each twist holding a thread of water. From a distance, a resting Held might look like a moss-covered stone. Closer, its flank moves with breathing. Closer still, one sees that the moss is not merely on its skin. It is also of it. Tiny black-green cushions grow along its shoulders, and between the tufts of fur there are fine, wet tendrils that extend into the air, tasting the moisture and finding it familiar.
+
+Others crouch like lizards, but with bodies too generous to be called sleek. Their scales are soft and shining, layered like wet bark, edged with pale membranes that suggest wings that have not been offered to the sky. Their tails end in broad, paddle-like flanges, flat and delicate, made not for swimming, because there is no current that demands it, but for the possibility of swimming, for the shape of movement that the basin has never allowed to be completed. When one sees them, one believes they are about to glide, to turn, to slide into the mud with a motion that will make a ripple. That motion never comes. Its absence is not a failure. It is their presence.
+
+Still others are birdlike. They have low, broad wings folded close against their bodies, not because they have landed and are resting, but because the winged shape is the right shape for the heat and wetness of the basin. Their heads are wide, their beaks short and glossy, their throats expanded in permanent calls that have no sound. They stand in the reed-banks with their feet almost hidden in silt, their eyes set far back on their skulls. Their plumage is slicked with condensation, the feathers darkened until they look like wet leather, and between their shoulder blades there are sometimes leaf-shaped shells, pale and veined, as if the boundary between bird and plant were only a habit they had forgotten to observe.
+
+Along the mud shelves there are crab-like beings, with legs sunk into the black silt, pale and jointed, covered in fine hairs that filter nothing because there is nothing to filter. They do not scuttle. Their limbs remain slightly raised, as though always poised between one place and another, as though the idea of walking were an organ in their bodies that would never be used. Others resemble beetles or flat-bodied flies, but these are not insects in the narrow sense; they are small mobile nerves of the basin, things that crowd the humid air above the reeds with a brightness too faint to be called reflection and too steady to be called wing.
+
+They are everywhere, and they are not crowded into the basin as refugees into a camp. They are arranged.
+
+The Held live in knots.
+
+A knot is not a herd, because a herd implies movement from grazing place to grazing place. A knot is a gathering that has no reason to disperse. It may include a low mammal, a lizard with leaf-shell plates, a birdlike creature with broad wings, two pale crabs

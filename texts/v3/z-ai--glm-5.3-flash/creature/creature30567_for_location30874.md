@@ -1,0 +1,17 @@
+...rising from that plain are the pipes.
+
+Not built. Grown, or grown-into, or perhaps both — the distinction stops mattering after your first week up there. They stand in clusters and ranks across the plateau, some slender as fence posts, some broader than cathedral towers, grey-green and faintly veined, warm to the palm like the fog below. Their mouths are beveled rims of smoother stone, and they breathe. Each one inhales through some deep root-system you will never see, drawing up the warm breath of the lowland, and lets it go again in a column of tone. The plateau is an instrument, and the instrument is alive, and nobody alive remembers which came first — the pipes or the players.
+
+The players live between the ranks, in low houses of stacked stone that hug the bases of the great pipes the way barnacles hug a hull. They are a small people, dry-eyed and wind-browned, with ears slightly too large and a habit of tilting their heads before they speak, as if checking their words against the prevailing chord. They do not consider themselves the owners of the plateau. They consider themselves its tuners.
+
+Because the pipes drift. Left alone, each rank slides out of true over the seasons — slowly, invisibly, until one day a walker crossing the plain feels a wrongness in the soles of the feet before the ears catch up. So the tuning clans go out on foot, generation after generation, carrying tools that are part instrument, part surgical kit: bracing rods of bone, wax-soft resin, small chisels for the rims. To tune a pipe you must first listen to it for a long time. The oldest tuners can put their ear to a pipe's flank and tell you its mood — sullen, eager, grieving — and will adjust accordingly. A pipe tuned against its nature goes mute, sometimes for years.
+
+The children of the plateau learn its map by sound before sight. They can name every rank blindfolded: the low forest called the Undertow, whose notes you feel in your teeth; the needle-ranks of the Upper Choir, so high and thin that only dogs and the very young hear them cleanly; the Hollow, a collapsed region where a great pipe fell a century ago and now lies on its side, moaning a single troubled half-note that no tuner has ever corrected, because the elders ruled that grief should be allowed to finish.
+
+Visitors are rare and changed by the visit. The plateau works on you. After a few nights sleeping inside the chord — for it never stops, only modulates with weather, with season, with the slow respiration of the warm world below — travelers report that silence begins to sound like a held breath, like something about to speak. Many who come down through the fog again find that they talk less afterward, and listen more, and cannot say why.
+
+The plateau's people would tell them the reason, if asked: everyone is an instrument of something. Up there, you simply get to hear what.
+
+And when a tuner dies, they are not buried. They are sealed into a small spent pipe — there are always a few gone quiet — and the clan sits the first night and listens, because sometimes, not always, but sometimes, the dead pipe exhales once. A single note, low and warm as the fog it rose through.
+
+Then the plateau continues. The chord holds.

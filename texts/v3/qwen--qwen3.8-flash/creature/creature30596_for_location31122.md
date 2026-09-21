@@ -1,0 +1,7 @@
+surfaces too hot, too sharp, too fouled with copper salts and iron tannins for a frog, a mosquito, a spider, a fish, a bird. Yet the pocket is not empty. It is simply inhabited in a way that anyone expecting animals would miss.
+
+What lives here does not live as bodies separate from the ground. It lives as a condition that has learned to persist: a slow, wet, mineral metabolism spread through concrete, silt, steam, rust, and the shallow skin of water. If you look for eyes, you find none. If you look for motion, you find too much of it, but so gradual that it resembles the behavior of light, salt, corrosion, and heat rather than life.
+
+The first thing to call alive is the film.
+
+It is not dirt, though it looks like it. It is a living sheen that coats the black silt and climbs the lowest walls, a skin of microbes and mineral matter so thin that in some places it seems to be only reflection. It grows in layers. The upper layer is pale and glassy where steam condenses and evaporates; beneath it is a slick of copper-green bacteria, then iron-black, then a deeper yellow-orange of sulfur. In places, the film has folded over itself in fine wrinkles like the lining of a mouth. When you stand at the edge of the pool, the water does not merely lap against your boot; it clings to it with a faint tensile resistance, as if the

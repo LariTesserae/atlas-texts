@@ -1,0 +1,85 @@
+Nothing here flows because it is wet.
+
+There is no river, no lake, no damp, no rain, no sea. The world is built on a chemistry that does not care for water: molten salts, supercritical gases, dry metallic vapors, sulfuric fogs, and slow rivers of mineral melt that move through the land like hidden machinery. The air is hot, dry, and thin at this elevation, though heat rises from below with such persistence that the plateau never cools the way a high place ought. It is a mountain world of open distance, but not a cold one. It is a place where the sky is bright and ordinary and the ground feels as if it has been left beside a furnace.
+
+The landscape begins as a vast high basin, broken into mesas, ridges, and broad shelves of black glass. These are not young forms. They have been worn down and reassembled so many times that the terrain looks settled, as if each ridge has discovered its final shape and is now simply keeping it. Wind has polished the basalt until it shines like metal. Salt has crept into every fault and pore, crystallizing into pale veins that make the plateau look like the cracked back of a sleeping beast. Glass fields stretch for dozens of kilometers, smooth in places, fractured in others, catching the daylight in long flat glare. Dry channels cut through the stone, but they carry no water. Some carry fine mineral dust. Some carry pulses of dense, hot gas. Some are empty except for the sound moving through them.
+
+From any ridge, the scale is open and regional. There are multiple features visible at once: a broad salt basin to the east, a wall of fluted mesas to the north, a series of shallow thermal vents in the middle distance, and far to the south a low line of black mountains where the plateau steps upward again. It is not a single scene. It is a country, though an empty one. Distances feel large. The horizon is not crowded. There are vast gaps between presences. A single mesa can stand for miles without another feature to interrupt it. A glass plain can stretch so long that its edge seems to curve away into the air. The emptiness is one of the loudest things about the place, because it leaves room for movement that would otherwise be buried.
+
+There is no plant life. No tree, no blade of grass, no moss, no creeping green, no forest, no bush, no root. The land’s closest approach to a flora is a crust of oxide threads that spread over warm stone like dark lace. They are not plants. They are not quite mineral either. They grow where heat, wind, and metallic vapor meet, forming lattices of rust, silica, and fine crystalline salt. In some places they resemble mycelia, but they have no fungus-like dampness; they are dry networks, brittle and bright at their edges. Elsewhere they look like frozen flame or like the surface of a machine left to oxidize into patterns. They do not provide shelter in any ordinary sense. They provide texture. They turn the plain into something that almost has a skin.
+
+And yet, despite the empty density, the land is industrial.
+
+This is the strangeness: nothing is built. There are no walls, no roads, no huts, no towers, no engines bolted to frames, no factories of brick or steel. No artifact has been made by hands here, or by tools, or by any recognizable design. The ground has never known a constructed thing. But the world is full of industry nonetheless.
+
+The heat drives vast natural machinery. Beneath the salt crusts, pressure moves mineral masses in rhythmic pulses. A vent field may exhale a column of dense gas once every several hours, and that single breath can spin a nearby formation of glass shards into a turbine-like ring. A mesa with curved, wind-carved walls can act as a compressor, forcing hot air down one side and drawing cool gas up the other, creating a slow circulation that feels almost engineered. The land does not contain engines. The land *is* engines, made of stone and pressure and temperature.
+
+There are places where crystalline sheets extrude themselves through cracks, layer upon layer, like an industrial loom weaving silica into sheets and rods. Other places produce fine metallic wool, spun from hot gases that condense on cold spikes of sinter. Vast fluted formations act as acoustic resonators, turning wind into mechanical pressure that breaks rock in a predictable, almost scheduled way. These are factories without foremen, workshops without walls, production without intent. They manufacture shapes, gradients, vibrations, and materials. They change the landscape as completely as any industrial process might, but nothing in them was invented. They simply persist, because the land has settled into doing them.
+
+Electrification occurs in the same manner. The dry atmosphere is thick with suspended mineral dust. Glass fields build static charge as wind moves across them, and when the air pressure drops between storms of dust, arcs jump from pillar to pillar in long blue-white cracks. No wire has been strung. No current has been directed. Lightning-like discharge follows the path of least resistance, but the path is geological: ridges lead, fractures receive, salt bridges conduct, and the high mesas become natural capacitors. The air smells of heated stone, ozone, iron, and sulfur. It crackles with a dry electric tension that never quite releases into rain, because there is no water to release.
+
+Light is normal. The sun, or whatever star rules this sky, is bright enough to expose everything with uncomfortable clarity. There is no aurora, no violet fog, no false-colored sun, no permanent twilight. The daylight is white-gold and steady, making the plateau look even more desolate because it reveals so well. Shadows are sharp and honest. Surfaces glitter. Heat shimmer distorts the air above the salt flats, but the light itself is ordinary, and that ordinariness makes the rest of the place feel worse, because the landscape is allowed to be seen exactly as it is.
+
+It is also loud.
+
+Emptiness here does not mean silence. The ground is full of grinding, ringing, whining, and booming. Wind across the fluted mesas produces long, low chords. Thermal expansion makes stone click like machine parts. Vents release sustained hisses that carry for miles. Glass fields emit a fine metallic chime when dust drifts across them. Far away, the plateau’s deeper mechanisms grind on, a slow subterranean thrum that is felt through the soles before it is heard. Every sound is dry and hard-edged, because there is no water to soften anything. The air carries noise across long distances, and the land is shaped like a collection of resonators. It is a loud world not because it is busy with small movements, but because its slow movements are too large to be quiet.
+
+The cycles are slow, though.
+
+There is no frantic rhythm here. Nothing changes quickly. The plateau is patient. A crystal field may grow for decades before fracturing into a new pattern. A gas river may change course once in a generation. The fluted mesas shift their orientation by degrees over centuries. The land moves in long, gradual cycles, with weak gradients and long durations. But the slowness does not make the world gentle. Slow pressure becomes enormous force when given enough time. A single thermal tide can reshape a valley by bending rock. A herd moving at the pace of clouds can still erase a ridge. The world is loud because it is massive, and massive things rarely need to hurry.
+
+Density remains almost nonexistent.
+
+There is not much here, by volume. Few objects, fewer small things. The spaces between features are enormous. In any cubic meter of air there may be almost nothing. In any visible square kilometer of ground there may be only a few formations. The plateau is hollow-feeling, wide, and spare. If you stand on a high glass shelf and look east, you can see miles of empty salt, a few distant mesas, maybe one dark shape moving far below, and nothing else. The emptiness is real.
+
+But the fauna are overwhelming.
+
+That is the paradox: the land feels empty, yet life dominates it. There is no forest, no grass, no burrowing small creatures to make the place seem teeming, no swarms of insects in the ordinary sense. Instead, the animals are too large, too strange, and too present for density to matter. A single creature may fill a kilometer of horizon. A migration may move so slowly that it looks like weather. Herds of mineral-bodied animals can cross the plateau without seeming to leave any part of it untouched, because their effect is everywhere even when their bodies are sparse.
+
+Some resemble enormous dry tortoises with shells of layered salt and black glass. They do not eat vegetation; they eat warmth. They lower themselves onto hot stone and draw thermal energy through their porous under-shells, their bodies becoming faintly luminous as they feed. When they lift themselves again, the rock beneath is cooled and pitted, marked by rings of crystallized oxide. They move once a day across a distance no larger than the width of a mesa shadow.
+
+Others are fluted quadrupeds with legs like basalt columns and ribs that open like furnace doors. Their chests contain not organs in any familiar sense, but resonant chambers, and when they breathe they produce long, rolling notes that can be heard for tens of kilometers. They walk through the gas channels, inhaling dense vapor, exhaling heat, and as they move they trigger the terrain into sound. Their presence makes the plateau more mechanical: their footsteps become rhythm, their breath becomes pressure, their bodies become moving parts in a machine that does not know it is a machine.
+
+In the upper air drift vast dry membranes, not quite jellyfish and not quite sails. They have no wetness. Their bodies are films of silica and stretched salt, thin enough to look almost unreal, wide enough to cast shadows the size of fields. They feed on electric tension, brushing through charged dust clouds and storing static in their translucent bodies. When they pass overhead, the hair of one’s arms may stand, the air may taste of metal, and a soft crackling sound follows them like applause from an empty hall. They are not numerous in a simple count. They are spaced far apart. But when one is overhead, its presence is so total that the empty sky feels crowded.
+
+On the glass plains crawl slow, many-legged forms like the descendants of beetles and forges combined. Their legs strike sparks. Their bodies are plated with oxidized metal, and they graze on the oxide-thread crust, breaking it up with grinding mandibles. They leave behind long polished trails in the glass, as if they are smoothing the land under pressure. Occasionally, they stop and vibrate, producing a deep tone that causes nearby salt crystals to align. Other creatures gather then—not from hunger, but because the land has become temporarily ordered.
+
+There are also the bellbacks. They stand on high ridges like living cathedrals without architecture, their backs grown into flaring mineral crests that ring when wind hits them. They are not animals in the conventional sense. They may be animals and terrain at the same time, the line between them having failed. They remain still for months, sometimes years, while the wind turns them into instruments. Their calls are not calls. They are sustained resonances, heard as much in the bones as in the ears. When they move, the whole plateau seems to remember that it was made of sound.
+
+The strangest fauna are the echo-herds.
+
+They are hard to see. They are not made of matter in any reliable way. They appear as moving pressure in the air, faint distortions of light, and clusters of refracted sound. If a gas vent releases a long, rising note, something may gather where the note bends and repeat it with slight variation, feeding on the energy pattern. These things are not plants, not animals, not machines, and not ghosts, though they resemble all of them. They drift across open basins in shapes that look like translucent antlered quadrupeds, or like floating sails, or like ripples made of memory. Their presence is overwhelming because the land is so empty that almost every silence becomes a place where they might have been.
+
+Here, reality is thin.
+
+Not broken in a theatrical way. Not shattered into shards. It is broken more gradually, as if the local rules have lost confidence. Distances do not obey themselves entirely. A ridge that looks twenty kilometers away may be reached after an hour’s walk, or after three days, depending on whether the wind has shifted through the harmonic mesas. Sounds sometimes remain in one place after the thing that made them has moved. A crack from a distant thermal vent may continue hanging in the air, becoming a faint vertical filament of glass where the echo settles into matter. Shadows can peel slightly from the objects that cast them, not separating fully, but bending as though they have weight. If a bellback strikes a long note, the shadow of a nearby mesa may flicker in the wrong direction for several seconds.
+
+The industrial nature of the place is also weird, because the land performs functions without forms. There is no factory, yet there is production. There is no machine, yet there are gears in the sense of motion. There is no artifact, yet there are patterns so regular they seem intended. A curved wall of sinter may act as a compressor because the wind has carved it into exactly the right shape. A field of salt needles may act as a capacitor because of geometry, chemistry, and temperature. The world appears engineered from the inside, but no outside intelligence touched it. The result is a kind of mechanical nature so absolute that it makes nature seem artificial.
+
+And the fauna complicate this further. Some animals are not separate from the landscape’s processes. A grazing herd of salt-eaters can leave behind a pattern of grooves so regular that, from above, the plain looks tiled. Their exhalations condense into thin mineral crusts. Their movement affects gas flow. Their bodies are made of the same materials as the terrain. Some bellbacks, when they die, do not decompose; they settle into the plateau and become acoustic formations, their ribs still ringing when the wind changes. The line between ecology and industry becomes meaningless. A creature may be a machine, and a machine may be a place where creatures gather.
+
+Heat is everywhere, but it is not uniform. In low places, the air thickens with metallic fumes and the ground radiates warmth like a forge wall. On open shelves, the sun feels ordinary, but the heat still rises through the soles of the body, coming up from the plateau itself. Some animals seem to prefer the hottest ground; others move into cooler gas streams as if following invisible rivers. Nothing feels wet. Nothing feels cool in a moist way. Coolness exists, but it is dry, dusty, and mineral—like the surface of a stone that has not seen sunlight for an hour.
+
+Erosion is established because everything has had time to balance. The forms are worn. The salt is settled. The glass has cracked and been repaired by newer crystal. The wind has chosen its routes. The mesas stand where they should, and the vents speak where they must. Nothing looks new. Even the strangest formations seem inevitable, as if the plateau discovered them long ago and has been repeating them ever since.
+
+At night—if night comes with this ordinary light cycle—the temperature remains hot, but the plateau changes voice. Cooling cracks stone. The salt fields emit faint popping sounds. The charged air discharges in long, delayed arcs, turning the sky into a dry lightning show without thunderclouds. The far ridges hum. The animals that feed on heat begin to glow, not with fire, but with internal light, like furnaces seen through iron lattices. The echo-herds move more visibly, because sound becomes easier to see when the air cools slightly and thickens. The whole landscape seems to be thinking in slow, loud frequencies.
+
+And if you stand on a high glass shelf at midday, in ordinary light, looking over an empty country, you understand the place by its contradictions.
+
+It is dry, but not barren.
+
+It is empty, but full of life.
+
+It is untouched, but mechanized.
+
+It has no artifacts, but no absence of process.
+
+It is hot and high, bright and loud, slow and immense, and all of it feels as though the world is manufacturing itself into a shape it never meant to take.
+
+There is no water. There is no plant. There is no structure. There is no maker. Yet there are engines of stone, factories of crystal, circuits of salt, herds of living metal, membranes that harvest electricity, and animals whose breath becomes weather. The land is industrial without industry, alive without vegetation, empty without silence.
+
+The horizon is open and wide, and somewhere beyond it, a ridge turns one degree.
+
+That motion takes a season.
+
+The sound it makes takes a century to fade.

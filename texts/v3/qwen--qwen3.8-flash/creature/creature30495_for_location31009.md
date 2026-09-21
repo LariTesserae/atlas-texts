@@ -1,0 +1,91 @@
+What lives here are not animals in the soft sense the word usually implies. They are not creatures tucked into a living world, seeking shelter from a hostile one. The world here has no ordinary hostility, because there is nowhere for life to hide from, no green hiding places, no burrows full of roots, no wet hollows where small things multiply unseen. Instead, the inhabitants are processes that have acquired the habit of persisting. They are thermal gradients with a shell, acoustic events with legs, electrostatic charges with membranes, and, in the strangest cases, patterns that have begun to repeat themselves without a body to originate them.
+
+They are rare by number and absolute by effect. A single creature can occupy a place the way a landmark occupies a horizon. A herd may be visible only as a slight darkening across many kilometers of empty basin, yet its passage changes the temperature of the ground, the charge in the air, the orientation of salt crystals, and the tone of the wind for generations. Nothing here lives small. Even the closest thing to a microbial world is a dry, bright, spreading network that makes the land seem as if it has a skin of rust and glass.
+
+The life of this plateau is industrial, but no one built the industries. The animals do not build because their bodies are already tools, their metabolisms are already machines, and their behaviors are already processes. They do not create artifacts because everything they do is simultaneously ecology and manufacturing. A grazing herd may polish a glass plain. A breathing quadruped may start a resonance. A dying bellback may become a hill that sings when the wind changes. The distinction between organism and engine is not poetic here. It is literal.
+
+The smallest “living” presence is not usually noticed until it is understood that it remembers.
+
+---
+
+## The threadlace: the land’s dry nervous system
+
+Across the warm plateaus, especially where metal vapor rises, where static charge accumulates, and where heat pulses from below in slow waves, there grows a network of oxide threads. The description calls them the land’s closest approach to flora, but they are not plants, not fungi, not moss, not even quite mineral in the ordinary sense. They are better described as a spreading chemical memory.
+
+Threadlace begins when heat, wind, and suspended metallic dust meet over stone. A surface of basalt, salt crust, or fractured glass becomes a lattice of oxidation fronts. Fine wires of iron-rich oxide, silica, and crystalline salt extend from pore to pore, branching in geometries too regular to be accidental and too dry to be alive by Earth standards. They do not drink. They do not photosynthesize in the green way. They exploit thermal gradients, electrical charge, and pressure differences. A cool night may cause the threads to shrink slightly; a vent’s heat may cause them to extend in sudden crystalline spikes. When an electrostatic discharge crosses a mesa, the threadlace may record it as a black branching scar that later seeds new growth in the shape of the lightning path.
+
+Many animals feed on these threads, not by chewing them as plants, but by absorbing them. A creature may press itself to a thread-covered stone and draw up the oxide network like a current, taking in the chemical energy stored in its lattice. Where threadlace grows too densely, the stone beneath may become brittle and spark when brushed, as if the surface itself has become loaded with static.
+
+Threadlace is also communication, though not the animals’ communication first. It is the land’s slow transmission of pattern. Because the threads follow heat, charge, and crystal alignment, a disturbance at one place can produce delayed changes at another. A herd of large thermal-feeders moving across a salt flat can leave a trail of cooled, charged, chemically altered stone. The threadlace spreads through that trail later, as if the ground is finishing a sentence the animals began.
+
+It is easy to forget these threads in the grand scale of the landscape, but they are everywhere. They make the emptiness not bare but textured. They give the ground a sense of having been touched and considered. They are the closest thing this world has to a living skin, and like skin, they are not alive in the way the animals are alive. They are alive enough to matter.
+
+---
+
+## Hearthbacks: the animals that eat warmth
+
+The most visible of the plateau’s inhabitants are the creatures resembling enormous tortoises, but “resembling” understates how different they are from any ordinary tortoise. Their shells are layered salt and black glass, thick as walls, built from the mineral deposits of their own bodies. Their underbellies are porous, pale, veined, and faintly luminous when they press themselves to hot stone. These are the hearthbacks.
+
+A hearthback does not eat vegetation. It eats heat.
+
+It lowers itself onto a warm shelf, a vent floor, a slab of sinter, or a field of sun-baked glass where the ground radiates from deep thermal currents. Its under-shell makes contact, and through channels of crystallized salt and glass, it draws thermal energy inward. As it feeds, its shell glows faintly, not like fire, but like a furnace seen behind a grill: a dry, hard, mineral light. The ground beneath it cools. The ground beneath it is changed.
+
+When a hearthback leaves a place, it may leave behind a broad circular pit of altered stone, marked by rings of crystallized oxide. These rings are not scars alone; they are signatures of feeding. Each ring corresponds to a pulse of heat drawn through the animal’s porous underside, and the pattern can be used by other creatures to read recent thermal history. A gas vent that has cooled under a hearthback may begin to behave differently in its next pulse, producing a slightly lower tone, a different mineral concentration, or a new static charge in the dust around it.
+
+Hearthbacks are slow, but they are not idle. A single animal may move only a few meters in a day, yet over centuries its path can carve a valley of cooled ground. From above, a migration of hearthbacks looks less like a herd than like a weather system moving across the land, a cluster of heat-dark shapes crossing the salt basin and leaving a trail of cooler stone.
+
+They do not breed in the way ordinary animals breed. There are no wet eggs, no nests in vegetation, no mothers curling around young. Instead, a hearthback’s reproductive act is a matter of thermal imprinting. When a mature animal has accumulated enough heat and mineral mass, it presses onto a particularly hot crystalline ledge and begins to vibrate its shell against the stone. The vibration is not loud, but it is precise. It shakes micro-crystals loose into a patterned heap. Later, another hearthback may press to that heap and leave behind a thin coat of its own shell-fluid, itself made of molten salt and metallic oxide. When the heap cools, it forms a seed-like mass of layered mineral.
+
+This seed does not hatch quickly. It remains dormant until the ground temperature cycles in a particular way, often after a vent’s rhythm shifts or a distant bellback’s tone has weakened and been replaced by another. The mineral seed absorbs heat slowly, crystallizes further, and eventually, when conditions align, it begins to move. The first movement is barely more than a shift of weight, a settling of its shell against warm stone. After decades, it becomes a juvenile with rings already recorded in its shell like an ancient tree. Its life is measured not in fast growth but in accumulated thermal memory.
+
+Hearthbacks are not social in any visible sense. They do not herd together for protection; there is nothing to be protected from in that ordinary way. They gather loosely because warmth concentrates. Where one feeds, others may later follow, reading the chemical and thermal changes it leaves behind. Their apparent solitude is not loneliness. It is spacing. The land cannot support many, but each one is so large in effect that even a sparse population feels total.
+
+When a hearthback dies, it does not rot. The shell cools, hardens, and fractures into rings. The porous under-body collapses inward, forming a hollow in the stone that may become a small resonant chamber. Over time, threadlace spreads across its remains, and later animals may use its corpse as a feeding platform or a charging surface. The boundary between dead animal and living terrain is not a boundary here at all. It is merely a phase change.
+
+---
+
+## Flutefeet: the quadrupeds that breathe as music
+
+If hearthbacks are thermal machines made animate, the next most obvious inhabitants are the fluted quadrupeds, better known by their effect than by their form. They are vast animals with legs like columns of basalt and ribs that open and close like furnace doors. Their bodies are hard, segmented, resonant, and built for movement through hot mineral channels. They are the land’s moving organs, and their breathing is sound.
+
+The chest cavity of a flutefoot does not contain lungs in the familiar sense. Inside its body are chambers of shaped stone, hollows of sinter, and plates of crystallized salt that vibrate when gas passes through them. The animal inhales dense mineral vapor, supercritical gases, and heated dust. It extracts energy from the chemical and thermal gradients within that intake, then exhales hotter, altered gas through its resonant ribs. The result is a long, rolling note that can carry across the plateau. A single flutefoot walking through a gas channel may sound like a furnace being drawn through a cathedral organ. A herd moving together becomes a chord.
+
+Their legs are not merely for walking. The feet are broad and heavy, shaped to strike the ground in ways that can trigger small acoustic responses in the stone beneath. Each step may ring a nearby crystalline pillar, start a vent breathing slightly differently, or disturb a field of glass shards into a new orientation. A flutefoot does not walk across the landscape so much as play it. Its movement is rhythm, and rhythm is pressure. Its breath is sound, and sound is machine.
+
+Flutefeet are among the clearest examples of how this world’s ecology is also an industry. Their exhalations condense into thin mineral crusts that settle on nearby ridges. Their body heat alters gas flow through the channels they occupy. Their resonant frequencies may cause crystalline sheets to extrude more rapidly through cracks, as if the animals’ breathing is a loom that helps the land weave silica into new shapes. When a herd crosses a mesa, it may leave behind not tracks alone but a sequence of subtly altered acoustic properties in the ground. Months later, the wind will sound different in that region because the animals were there.
+
+They communicate, though “communication” may be too narrow a word for what they do. They recognize one another by harmonic signature: the shape of a tone, the pressure pattern behind it, the way it bends around a ridge, the way it lingers after the body has moved on. Two flutefeet approaching from different sides of a basin may not need to see each other. They can identify kin, rival, or stranger by the way their breaths interact in the intervening air. A mismatched chord may cause them to alter their route. A matching chord may bring them together, not out of affection, but because the resonance produces stable pressure conditions favorable to feeding.
+
+Reproduction in flutefeet depends on acoustic molding. A pair, or sometimes a small group, will stand in a gas channel and breathe in a long, interlocking sequence. Their exhalations heat and condense vapor in a particular way, forming a deposit of metallic wool and salt crystal around a chosen sinter point. The deposit becomes a chamber, and inside it, over many cycles of temperature and sound, a young flutefoot begins to grow. It is not born quickly. It grows by accretion, its body shaped from the outside inward, its resonant chambers tuned by the inherited note-patterns of its parents. The young animal’s first breath may be a fragment of the adult chord that made it. If that fragment fits the surrounding acoustics, it survives. If not, it cools and settles as a mineral echo, a silent chamber that may be colonized by smaller creatures.
+
+Flutefeet are not many. A plateau can be empty of them for decades. Then one crosses a ridge in the distance, a long shadow with legs like stone columns, and the air changes. Its presence is overwhelming because the land responds to it. The vents answer. The mesas hum. Glass fragments shift. The animal is not merely in the environment; it is an operator of the environment.
+
+When they die, their resonant bodies become part of the terrain’s instrument. Their ribs cool into fixed flutes. Their hollow chests become chambers for wind. A dead flutefoot lying across a ridge may ring in a particular note when the wind comes from the east, and other animals may navigate by that note. Death does not remove them from the ecology. It fixes their voice.
+
+---
+
+## Anvillegs: the many-legged forge-grazers
+
+On the glass plains crawl the creatures that seem to have been built by the same logic as the land’s accidental factories: many-legged forms with plates of oxidized metal, broad grinding mandibles, and bodies shaped like moving lathes. They are not beetles in the insect sense, but they carry the beetle-like implication of hard shells, many joints, and patient work. They are the anvillegs.
+
+An anvilleg is plated with layers of dark metal that have condensed from hot vapors, crystallized under pressure, and weathered into a shell that resembles armor forged rather than grown. Its legs strike the glass with sharp, metallic clicks, and when the animal moves at speed or in certain mineral conditions, its feet throw sparks. These sparks are not decorative. They are part of its feeding.
+
+An anvilleg grazes on the oxide-thread crust. It does not simply consume the threads. It scrapes, compresses, heats, and aligns them. Its mandibles break apart the dry lace of rust and salt, grinding it into fine powder. Then, using the frictional heat of its own legs and the thermal energy absorbed from the ground, it fuses the powder into new crystalline structures. In doing so, it polishes the glass beneath it. Long, smooth trails appear wherever anvillegs have passed, as if the land is being sanded by living machines.
+
+This polishing is not accidental grooming of the terrain. It has consequences. A polished glass surface builds static charge differently. It catches wind differently. It refracts light in new patterns. A trail left by an anvilleg may later attract static veils from the upper air, or cause a gas stream to change direction because the smooth surface has altered the boundary layer of hot mineral dust. The anvilleg grazes, and the landscape manufactures.
+
+An anvilleg may pause and vibrate, producing a low tone that passes through the glass. The tone is often enough to cause nearby salt crystals to align in rows. Other anvillegs may appear from considerable distance, not because they have seen one another, but because the land has temporarily become ordered. When many such creatures stop near one another, they may create a lattice of vibration, a slow, grinding chord that causes crystalline extrusions to appear at their feet. This is not a mating dance, not a communal hunt, not a building project. It is a temporary resonance that allows the land to grow a little more efficiently around their bodies.
+
+Their reproduction is mechanical in the dry sense of the word. A female may scrape a channel into warm glass, then release from her joints a mixture of metallic dust, oxide fragments, and fine crystalline wool. The material settles into the channel. The heat from the ground and the friction from the scraping process partially fuse it. If nearby vibrations are compatible, the fused mass begins to crystallize in a form that resembles, at first, a knot of wire and glass. Later it hardens into a larval shell. The young animal emerges as a small plate of metal and salt, then begins the lifelong work of grinding and polishing its way across the plateau.
+
+Anvillegs can be large, though they are less horizon-filling than hearthbacks or flutefeet. A line of them moving across a glass field may leave a trail so regular that from a distance the land looks tiled by intelligent hands. But there are no hands. There is only the slow, patient pressure of bodies that have made grazing into manufacturing.
+
+When an anvilleg dies, its plates may remain fused in a row along a polished trail. Threadlace grows over the carcass, then later crystallizes into dark, brittle seams. Other anvillegs may graze near the remains, breaking the body into smaller plates. The corpse becomes a seedbed for new crystallization. It becomes a node in the network of dry life. It is not waste. Waste implies something discarded, but here nothing is discarded except temporarily.
+
+---
+
+## Static veils: the dry membranes that feed on charge
+
+In the upper air drift the beings that most clearly violate ordinary assumptions about animal life. They are not jellyfish, despite their translucent membranes. They are not birds, despite their presence in the sky. They are not sails, though they cast field-sized shadows. They are static veils: vast films of silica, salt, and stretched crystalline material, thin enough to be almost unreal, large enough to turn the empty sky into something that feels crowded.
+
+A static veil feeds on electric tension. The dry atmosphere is full of suspended mineral dust, and glass fields build static charge as wind moves across them. When charge builds between dust clouds, between mesas, between salt bridges and high pillars, an arc may jump through the air. The veils do not ride the arcs exactly, but they seek the gradients that make arcs possible. They brush through charged clouds and store electrostatic energy in their layered bodies. Their bodies are translucent because they are partly made of the same processes that form glass: fine films, stretched crystals, and dry

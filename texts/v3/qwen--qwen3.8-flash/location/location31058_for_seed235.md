@@ -1,0 +1,5 @@
+## The City of the Held Roar
+
+At an elevation where other mountains stand far below its feet, broken and cloud-wrapped, the place is not cold. It is hot. A wide terrace of high land opens into a basin large enough to hold towns, yet there are no townspeople. The heat is thick and wet, a breathless warmth trapped in an ordinary bright daylight. The light is strong but not strange: yellow-white, steady as a lamp behind glass. It falls across a landscape that appears, at every level, both newly rained upon and ancient beyond repair.
+
+The basin is an open city of water, stone, fungus, and standing noise. It stretches past the immediate horizon in multiple layers: a high rim of rounded cliffs, a middle ring of terraces and salt flats, a broad floor of marsh, root-latticed avenues, and shallow pools so still they look like holes punched through the world. Farther out, separate districts continue over ridges and down into gullies, as if the settlement has grown across a small region without ever being founded. Its scale is regional, valley-sized, town-sized, yet none of it is inhabited by

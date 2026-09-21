@@ -1,0 +1,19 @@
+# The Churning Verge
+
+Come closer — you'll have to shout, or better, don't speak at all. The Verge doesn't welcome words. It swallows them in a wall of sound: water, always water, thousands of voices of it. Not one river but hundreds, maybe thousands, seeping, sheeting, plunging, hissing through the cold dark air. The noise is a physical thing. It presses on your sternum. After an hour you stop hearing it as sound and start hearing it as weather, as geology, as the place's own respiration.
+
+It's cold here — not dead cold, but working cold, the chill of water freshly risen from somewhere deep. Everything is wet. The black rock glistens. Moss grows in cushions so thick and saturated that when you step on them they sigh and emit a small geyser of runoff. Ferns crowd the streambanks in overlapping tiers, three deep, five deep, their fronds trembling constantly under the percussion of spray. Lichen glows faintly where the tech-light falls.
+
+The land is low and young. This is the strange part. Geologically this valley should not exist yet — the channels are raw-edged, the waterfalls still sharpening themselves, the boulders barely rounded. It's as if the whole terrain was upheaved a century ago and the water is only now learning its routes, endlessly revising. Entire streambeds abandon themselves overnight. A pool that was there at dusk is a cascade by morning. The ground is in negotiation with itself.
+
+And threading through all this verdant chaos: the machines. Scattered, mostly — you'll round a mossy spur and find a single structure standing in the ferns, slim and dark, humming at a pitch below hearing, its surface neither metal nor ceramic, condensation crawling on it in deliberate patterns. They're old, or new, or both; no one maintains them because they don't seem to need it. Some lean. Some have vegetation grown over them like a scarf. Occasionally one pulses light into the dark — a soft, cold blue that makes the mist luminous for a hundred meters — and you realize they're doing *something* with all this water. Sampling it. Routing it. Praying to it. Impossible to say.
+
+The fauna is abundant and unbothered. Pale amphibians in the seepages, quick and slick. Birds — if they're birds — that nest in the spray zone itself, their feathers dense as velvet, their calls nearly drowned. Small things rustle in the underlayer constantly; the vegetation is so dense there's always something moving a meter from you that you'll never see.
+
+The dark is near-total except where the machines shine. Your eyes strain and give up, and that's when the landscape changes character: you stop navigating by sight and start navigating by sound and wetness and the temperature of the air against your face. The Verge rewards that. It was built — or grew — for senses you don't quite have.
+
+There's no stillness anywhere. The water table is so high the ground itself seems to breathe, exhaling mist from every fissure, swallowing it again in sinks and whirlpools with soft gulping sounds. Storm-cells form and dissolve within the valley, local rain over one hillside while the next stays dry. Everything is mid-process. Nothing here is finished, and nothing seems interested in finishing.
+
+If you stay long enough — and people do, though why is never clear afterward — you develop the feeling that the valley is young on purpose. That the machines keep it unsettled, keep the terrain fresh and the water loud, for reasons written in an engineering language we've forgotten. Maybe they're growing something. Maybe the churning is the crop.
+
+Walk carefully. The moss will hold you. The water will not.

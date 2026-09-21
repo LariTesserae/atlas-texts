@@ -1,0 +1,31 @@
+# The Dripstead
+
+*Third fork past the kiln spine, the one with the red-flowered elbow* — if you ask for someone by name here, they'll answer with the house instead, because the houses outlive the names and know their own way around.
+
+A few hundred people live on the shelf, and they will tell you, with a straight face, that they live inside a single organism. This is almost true. The root-mat runs under everything, continuous as a floor of the world, and every fence and wall and roof is grafted into its neighbors, so that the settlement is one long argument between families conducted in living wood. Your grandfather planted a hedge; your father grafted it to the neighbor's; you hollowed the join into a doorway; your daughter will widen it into a room. Nobody here has ever *built* anything, and they find the word slightly obscene, the way a farmer might find "manufactured" an insult to a cow. Things are started. Things are tended. Things are used while they finish — which means everything here is permanently half-finished and permanently in use, and has been for longer than the cisterns, and the cisterns are older than anyone's grandmother's oldest story.
+
+The houses themselves began as rings of saplings inside hedge-trunks, fused and hollowed by hand, generation by generation, into rooms. From outside, a house is a swelling in a wall, a knot in the green, a doorway hung with a woven mat that reeds itself shut when the wind comes up — which it does constantly, because the wind comes up constantly, and so nobody in this place has ever slammed a door. There is no such thing as slamming a door here. Children born on the shelf find the concept hilarious when traders describe it.
+
+## The water-people
+
+Everything about them is organized around the fact that they live suspended in water. The springs along the north face are owned — not by families exactly, but by lineages of *tenders*, and the tendership passes down with the moss-beards themselves, which are trimmed like heirloom livestock. The flumes and bamboo flumes and hollow-log chutes that thread the whole shelf are maintained the way other places maintain roads: there are water-wards, there are water-disputes, there is an entire vocabulary of water rights that takes an outsider a season to stop confusing with kinship terms. The fog-screens along the rim — woven fiber combs strung in rows, dripping into troughs in steady percussion — are checked every morning before breakfast, and a torn screen is a matter for the whole street.
+
+Rain arrives like an appointment. Everyone keeps it. Afternoon market empties an hour before the valley breathes its cloud up the slope, and the whole population moves under leaf and eave with the unhurried air of people who are not enduring weather but *conducting* it. Their word for the place is also their verb for what rain does without end. When they are feeling polite they call an outsider's homeland *the place that waits for water*, which is not meant as an insult, but lands like one.
+
+## The upper town
+
+Half of childhood happens in the crowns. Rope-and-plank lanes run tree to tree above the rooftops, and there is a whole population of the very old and the very young who cross the settlement without ever touching ground — which is just as well, because the ground, remember, is not ground. It is bread. It is a finger-thick springy knit of root that every adult will scold a child for trampling, and there are board-walks everywhere, and rules about where you may put your feet that outsiders break within an hour and never hear the end of. The ladders are vines with rungs grafted in, and they are stronger than they look, because the vine has had years to argue with the rungs. The vine usually wins, in the sense that the rungs are now part of the vine and the vine has opinions about weight limits, which the tenders interpret.
+
+Children of the upper town keep pets up there — small things, birds mostly — and race along the lanes, and are forbidden from the rim, and go to the rim. Everyone did. The rim is where the trail runs off the shelf's edge into permanent cloud, and the cloud goes down farther than anyone can say, because nobody here has gone down to check. This is said without bravado. It is simply not a direction. The world has an up, and the up is the mountain, and the down is weather.
+
+## The market in the fog-hollow
+
+Loud, constant, and wet. Fruit, tubers, fish from the terrace ponds, eggs, honey from the stingless bees (kept in hollow logs hung under eaves, and the honey has a smokiness from whatever the bees find in the fog), cordage, dried moss for packing, dyes, feathers, and songs — actual songs, traded like goods, taught in exchange for grafts or recipes, and a good song changes hands more often than a knife. Bargaining is done in a fast overlapping cadence that outsiders mistake for argument, and often is.
+
+Cordage is wealth. A good coil of bark-rope, tight-laid and even, is a bride-price and a burial gift and a loan collateral, and there are rope-lenders and rope-debtors and at least one feud of three generations' standing that began over a coil someone claiming it was seasoned when it was not. Every child learns to lay cord before they learn letters, if there are letters — and there are, of a sort: notches and graft-marks, addresses written in living wood.
+
+## What they are like
+
+Patient, in the way of people whose most important work takes thirty years to mature. A tender will plant a frame of saplings for a grandchild's house and never see it a room. They are gossipy — a few hundred people on a shelf will be — and fierce about their water, and they have an unshakeable conviction that everywhere else is dangerously dry. They measure age in grafts. They measure distance in drips (*two drips down the flume, past the third spring*). They can tell who is coming by footfall on the root-mat, the way you'd know a knock.
+
+And they sing in the afternoons, when the leaf-rain falls even in sunshine, from drip-tips long past the sky's stopping — the whole shelf ticking, hissing, dripping without end, and under it, hundreds of voices, unhurried, wringing the cloud.

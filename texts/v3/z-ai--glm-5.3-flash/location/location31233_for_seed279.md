@@ -1,0 +1,19 @@
+# The Weeping Shelf
+
+You arrive at the edge of a country that is still being born, and you can tell because nothing here has had time to grow old.
+
+The land is low — barely above the water table, which is everywhere. Water presses up through the ground the way blood rises in a bruise. The terrain is a shelf of young rock, barely weathered, its edges still sharp and glassy where it broke through whatever lay beneath. No soil has formed yet. No moss, no lichen, nothing green has found a foothold — or perhaps nothing green has *arrived* here yet, in a world still young enough that life hasn't finished deciding where to live. The rock itself does the work of the living: pale mineral crusts bloom across stone in slow fungal-analogues, rings of crystallized mineral spreading outward from seep points like colonies, feeding on dissolved chemistry in the water. They are the closest thing to a forest this place has. You could call them lichen if lichen didn't mind.
+
+The whole landscape weeps. Every rock face sweats beads that gather and slide; the air itself condenses, so that walking through the low hollows feels like moving through a slow mist that clings to your arms. Streams are rare — instead the water travels silently *within* the ground, surfacing at seams and joints, running a hand's width, then diving back under. Marsh-pockets pool in the shallow basins, dark and mirror-flat, cool as a cellar. The cold here is not biting; it is the cool of wet stone, of a cave in summer, steady and patient.
+
+And it is *loud* — though nothing here moves quickly. The sound is the rock itself: constant dripping from every overhang, a thousand small percussions, and beneath that a deep, resonant humming, as if the shelf of new stone were settling its weight into the earth, groaning at frequencies you feel in your teeth. Where water finds a hollow tube of rock it plays them like organ pipes — long, low tones that sustain for minutes. The country is a slow instrument being played by its own growth.
+
+Density is the other surprise: everything is close together. Seams, springs, mineral blooms, small cascades — the features arrive nearly touching, layered, a saturated geography. There is no room between presences; stand still for a moment and you notice you are surrounded on all sides by water moving in some direction.
+
+Scattered through it: signs of thin, occasional habitation. A few stacked-stone shelters, roofless, their walls furred with the mineral crusts — abandoned or merely dormant, impossible to say. Cisterns carved into bedrock, full to the brim with perfectly clear, cold water. Once, a carved step in a stream bank, worn smooth in a way the young rock elsewhere is not. Whoever came here came for the water. There are no tools, no metal, no marks of anything more than hands. The builders knew this place the way you know a spring — by drinking.
+
+The light is dim and sourceless, the sky a low grey ceiling that seems closer than sky should be, lit from nowhere in particular. Colors are restrained: wet grey, black stone, the faint blue-white of mineral bloom, the occasional startling streak of rust-orange where iron surfaces. Under this light everything looks like dusk at noon.
+
+The rare fauna — if that's the word — are pale soft things you glimpse at the edge of vision: translucent thread-creatures that hang from wet overhangs and filter the dripping water, barely animals, more like living drips. They don't flee you. Nothing here has learned fear; there hasn't been time, or reason.
+
+Everything here is slow, and that is the rule of the world: nothing hurries. The stone rises at the pace of decades. The mineral colonies spread at the pace of seasons. Even the loudest sound — the great organ-note from the deep pipes — swells and fades over a quarter hour. If you stay long enough, you stop listening for events and start hearing *process*: the country thinking itself into existence, one drop at a time.

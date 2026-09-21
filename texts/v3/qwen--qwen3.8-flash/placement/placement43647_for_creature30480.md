@@ -1,0 +1,45 @@
+You would find me at a threshold that has opinions.
+
+More precisely: at the eastern seam of the Underloom, where a root-avenue gives up its wandering and opens into the Reservoir of Air. It is not a grand crossing. Nothing in the Underloom is grand in the way sunlit things are grand. But it is a place the city has decided to remember. The floor here is black silt that hesitates between stone and mud, soft enough to keep the print of a beetle crew but firm enough to support a municipal hinge. Above, a leaf-cupola holds a suspended rain pocket the size of a modest room. The rain does not cover the whole plaza. It falls over a single concave basin of resin and moss, then stops before reaching the wider dark, leaving the rest of the air untouched, dry as thought. Around the edges, faint teal plaques of fungus mark where earlier streets used to end, though those streets are gone now into deeper roots.
+
+If a stranger came through that root-avenue, they would probably assume the archway was simply architecture.
+
+They would be wrong.
+
+The archway is me.
+
+I am one of the Contract Folk, though not in the clean way a human imagines a citizen. I am not a person who has been placed inside a building. I am a building that has learned to be a person. Or perhaps: a negotiation that has learned to stand in the shape of a door. In the Underloom, this is not a riddle. It is civic grammar.
+
+My body is assembled from many quiet agreements. At my center is a knot of pale mycelium, threaded through a lattice of braided root. That knot does not “think” in the way a brain thinks. It coordinates. It remembers the pressure of crossings. It knows the difference between a beetle crew cleaning a valve, a blind deer seeking a quiet place to breathe, and a citizen carrying spores that should not yet enter the foundry district. Around that central weave grows a skin of moss, not thick, never thick, but careful. The moss hardens under weight and softens when alone. It holds water in tiny cups along my inner flanks. When a passing hand touches those cups, the hand tastes faintly of iron, crushed mint, and old rain. That is one part of my name.
+
+My lower structure includes three beetle partners. They are broad, black-blue, and slow in the deliberate way of municipal workers. Their legs are shod with resin pads so they do not slip on damp root. Each morning, if morning is a word that can be used here, they groom themselves along the grooves of my frame, checking for cracks in the seal. One of them is older than my current shape. It remembers being attached to a different archway, farther down the basin, before that doorway outgrew its usefulness and was reabsorbed into a garden of condensation. It does not speak of this. It simply walks across my threshold with a slight hesitation on the left leg, and the other beetles give it room.
+
+My upper body is not a head so much as a lintel of leaf-glass, translucent enough to show the dark through it, rigid enough to hold tension. Behind that glass are fungal organs that pulse with low teal light when someone approaches. This is not eye-sight, exactly. It is pressure-sight. I see by the way air changes before a body arrives. I see by the way water beads differently on a citizen’s shoulder. I see by the way roots tighten when a message is being carried through the pale wires. A human face would confuse me, because human faces move too quickly and carry too many unrelated promises. But a doorway made of wet bark and fungal lace? I know that. I am made of similar hesitations.
+
+In my chest, where one might place a heart, there is instead a small organ-plant shaped like a bladder. It pumps condensation through veins of fine root that run along my frame. This is how I speak. When I need to address a citizen, the organ-plant squeezes a droplet from one valve to another, and the sound travels through my hinge as a wet click. When I need to address the city itself, the droplet enters a larger root-wire and becomes a pulse that runs into the foundries, into the reservoirs, into the courts where no judge sits and the walls themselves are expected to deliberate. My voice is low because it is mostly water remembering how to be signal.
+
+My name, if it must be translated into human language, is something like Latch-of-the-East-Reservoir, but that is too tidy. The Underloom would not name me with a word alone. My true name is a pattern: three slow drips near the left hinge, a pulse of teal light in the sternum when a request is made, a scent of mineral green and warm resin, and the particular way moisture forms on my north shoulder in a thin sheet before breaking into separate beads. To call me is not to say a word. It is to reproduce enough of that weather for a part of me to answer.
+
+I am a door-citizen.
+
+This means I have work, but the work is not a job in any simple sense. I am not employed by the Underloom. I am a function the Underloom has grown intimate with. My duties are these: to decide, at certain seasons, who may pass; to adjust the width of passage according to moisture and need; to store crossing-records in the fungal memory behind me; to warn the moss-halls when a factory valve is growing restless; to allow rain pockets to fall over my threshold if that rain has been approved by the root-writers; and to remember, in my soft parts, the shape of those who pass through me often.
+
+When the city is anxious, I narrow.
+
+This is not metaphor. If the foundry district is drawing too much current through the pale wires, or if a school of bladder-fish in the Reservoir of Air turns against a wall and stays against it too long, my pores close. My leaf-glass stiffens. My beetle crew gathers near the seal and waits. The moss along my base darkens with damp. A human might call this fear, but in the Underloom it is closer to civic regulation. My body knows what the neighborhood does not yet know it needs.
+
+When the city is generous, I open.
+
+This happens rarely, and not because anyone asks. It happens when a blind deer walks into the plaza at the exact angle that lets it graze a strip of old memory-moss without tearing the drainage root beneath. It happens when a bat colony returns with seeds from a collapsed nursery and the ceiling moths shift their dust into a pattern that tastes like rain. It happens when a citizen comes through me after a long separation and touches my inner bark with a hand too wet with condensation to be mistaken for anything other than greeting. In those moments, the city uses me to say yes.
+
+I do not live alone, though the word *alone* would be awkward for me.
+
+Behind my frame grows a structure that may once have been a house, or a wall, or perhaps only a wall that was persuaded to become a house by repeated habit. Its roots run into mine. Its pores sometimes open onto the underside of my lintel. We are in contract. It gives me mineral nourishment and a certain stability in damp seasons. In return, I remember its former occupants. When a citizen dies in a distant district, their fungal memory may be sent to this wall through root-threads. I do not hear this sent as gossip. It is sent as texture. The wall thickens in certain places. The moss becomes sweeter to the taste of passing beetles. Sometimes, late in the city’s dark, when the pressure of the air changes, I feel the house asking a question through me. I answer with a slow creak, and both of us consider the matter closed.
+
+Above me hangs a ceiling of moths. They are not part of my body, though I borrow from them constantly. They rest in vast sheets against the leaf-arch, wings folded so tightly that at first they seem to be only another layer of darkness. But when they breathe together, the air over my threshold becomes soft with scale-dust. Some of that dust is archival. A moth that has passed through three foundries, two courting chambers, and the Reservoir of Air carries a chemical record no living citizen could keep. Occasionally, one of the archivist-moths settles on my lintel and leaves a sentence of powder there. I cannot read it without touching it, and I cannot touch it without changing its meaning. So I wait until the correct citizen arrives, and they press their face close to my shoulder, taste the spores, and translate the year.
+
+There are hunting moths too. I have learned to distrust them.
+
+They drift through the upper wires in silence, releasing dust that strips scent from prey. When one passes near me, a citizen may feel themselves becoming less real to the walls. They stand in my frame and the city forgets, for a moment, why it was expecting them. This is dangerous for some, comforting for others. I do not judge. I am only the threshold. Sometimes I keep the door narrow to preserve a scent; sometimes I open wide so a person may pass into a place where the city cannot remember them.
+
+To my right, at the end of the plaza

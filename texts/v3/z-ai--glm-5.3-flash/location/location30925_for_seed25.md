@@ -1,0 +1,5 @@
+# The Hollow Country
+
+There is no horizon here. The first thing this place gives you is not an image but a pressure — a sound arriving before any light does, a low continuous seethe like rain on a distant roof, except that it never begins and never ends. The darkness is not an absence of the visible. It is a material, cool and thick, and it has texture, and the texture is noise.
+
+The country lies under a low plain of naked karren stone — gray, wind-scoured, pocked with rounded sinks — and continues downward from there. The plain itself is only the roof. Beneath it, a limestone massif the size of a small duchy has been eaten hollow, gallery stacked on gallery like an aquifer of air, and everything that matters in this landscape happens in the volume, not on a surface. Elevation here is not a number on a peak. It is a depth, and the deepest floors

@@ -1,0 +1,32 @@
+# The Tableland of Nine Weathers
+
+There is no horizon here, or rather, the horizon is so far away that it behaves like a rumor. The land was flattened once — not by water, not by ice, but by something older that finished its work and left. Erosion has done everything it can do. What remains is the end-state of a world: a tabletop of stone so ancient that the rock has forgotten being mountains, being sea floor, being anything at all. It is simply *ground* now, the way bedrock is ground, the way the bottom of time is a floor.
+
+The cold here is not aggressive. It is the settled cold of a place that has been cold longer than weather has had a name — a few degrees above the death of water, so that dampness persists without ever quite committing to frost or rain. Moisture arrives instead as *condensation events*: the air thickens over a hollow, holds its breath, and then releases a slow grey seep that runs for an hour and stops. Puddle-basins dot the stone like thumbprints, each one ringed with life.
+
+Because the vegetation, against all odds, is lush.
+
+It grows only where the water pockets are — but there it grows with a ferocity that seems borrowed from somewhere wetter and kinder. Moss meadows the color of bottle glass. Ferns unrolling from cracks in the bedrock, unfurling over years rather than weeks. Groves of stunted black-barked trees whose roots have split slabs of stone the way patience splits anything. Each pocket of green is an island; between them stretches bare, lichen-veined rock, empty for kilometers. The pattern is archipelagic — a sparse constellation of wet green worlds set into a dry cold continent, each one slightly different, each one maintained by some microclimate nobody designed.
+
+And people live here. Someone built here, a long succession of someones, because the built environment is the second strangest thing after the light.
+
+The city has no name in any living language because the language it was named in has been dead for longer than the city has been standing, and the city has been standing since before anyone can remember. It is built of dry-fitted stone — no mortar, no metal, no wheel-marks — just hand-crafted blocks whose joints are so precise that a knife blade won't enter them. The builders were primitive in their tools and uncanny in their patience. Walls rise in low terraces up the backs of the stone islands. Cisterns are carved directly into bedrock, geometrically perfect, positioned to catch the condensation events with an accuracy that suggests the builders understood the weathers better than the weathers understand themselves.
+
+The city is layered — and this is where reality begins to thin. Dig anywhere, or simply look at a cliff-cut foundation wall, and you find construction *below* construction below construction, each older stratum built in the same style, by the same techniques, with the same tools. Nothing about the city ever changes. It does not grow and it does not decay. Archaeology here does not have a timeline; it has a *chorus*. The people who live in the upper city farm the moss-terraces and speak a living tongue. The people of the deep terraces speak the dead language natively and cannot explain how. Sometimes a resident will pause in the middle of a task and say, with the calm of someone reporting the weather, *"I have been doing this for nine hundred years,"* and no one argues, because down here, in the deep city, the statement checks out.
+
+There are no animals. Not one. No birds cross the sky, no insects hum in the fern-hollows, no worms turn the moss-soil. The ecology is entirely botanical and fungal and bacterial, and it is *complete* — pollination happens by wind and by mechanisms the plants invented among themselves; the soil cycles through fungi alone. It works. It has worked for so long that its completeness feels less like absence and more like a decision the world made: *no.*
+
+And the quiet — the quiet is because of that. No animals means no sound-makers, and the city's stone absorbs what little remains. What you hear instead:
+
+- The *tick* of condensation forming on stone, irregular as an uncertain clock.
+- The deep, slow groan of the groves flexing — trees growing audibly, one fiber at a time, in the cold.
+- Once or twice an hour, a sound with no source: a footstep in an empty corridor. The deep city, remembering its walkers. Or the walkers, walking somewhere slightly out of step with now.
+- And underneath everything, felt more than heard, a vast slow tone — the sound the tabletop makes. Some say it's the planet's residual ring from the event that flattened it. Some say it's the weathers, turning. The nine weathers.
+
+Because a place this size generates its own sky. Weather systems the size of small countries patrol the tableland on cycles measured in days or generations: the Long Damp, the Grey Stillness, the Weather of Falling Lichen, one that the deep-city residents call *the Borrowed Rain* because it rains only on the oldest strata, as if the sky were watering its own foundations. The upper city tracks these weathers with carved stone markers and hand-turned prediction wheels — primitive instruments of astonishing correctness.
+
+The light is ordinary, and that is the third strangest thing. Grey-white daylight, sun somewhere behind the overcast, shadows soft and directionless — a perfectly normal sky over a place where the fabric of the world is visibly worn through. Reality breakdown here doesn't look like fire or screaming. It looks like *repetition*. Like a place so old that it has begun, occasionally, to replay. A condensation event will run, finish, and run again — the same seep, the same drop-fall rhythm, note for note. A resident will pass you on a terrace and pass again, ten minutes later, saying the same words. The deep city is the worst: its lower levels loop. Walk far enough down and you will meet the same afternoon twice.
+
+The people handle this the way people handle all old things: with ritual. When a loop occurs, they stop, bow slightly toward the stone, and say a short formula in the dead language — a courtesy, an acknowledgment: *yes, we saw that; yes, it was real; please continue.* The world, so far, always continues.
+
+So: a planetary tabletop, cold and patient, puddled with green, terraced with an unchanging city of hands and stone, silent except for dripping stone, growing trees, footsteps from rooms that are empty, and one enormous low note — the sound of somewhere that has finished eroding and has simply begun, instead, to *remember*.

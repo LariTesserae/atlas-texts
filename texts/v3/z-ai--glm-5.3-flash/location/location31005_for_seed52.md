@@ -1,0 +1,5 @@
+# The Reach
+
+The light arrives before anything else can be said about this place, because the light is strange. The sun shows as a coin of tin behind a lid of pearl — dim enough to look at directly, warm enough to trust. The Lifting threw dust into the sky eleven years ago, and the sky has been settling ever since, grain by grain, a project measured in decades. What comes through the dust is not sunlight so much as sunlight's memory: diffuse, directionless, casting soft doubled shadows that seem to hesitate about which way to fall. Colors are muted everywhere — except in the groves, where the green is so wet and deep it looks lit from inside.
+
+From the Rise — the highest point for a day's walk, a gravel dune all of forty meters above the old high-water line — the whole territory opens at once. This is the Reach: a coastal shelf that was seafloor until the Bureau picked it up out of the sea's way. The sea had been coming for generations; the Bureau did not argue with it. They lifted the land. Nobody explains how, not really. The engines responsible are beneath everything, the size of weather,

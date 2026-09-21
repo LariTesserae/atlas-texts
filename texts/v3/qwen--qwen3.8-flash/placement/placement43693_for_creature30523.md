@@ -1,0 +1,85 @@
+I would find myself at the hinge of two temperatures: a stone lip that will heat too quickly in the third hour, and a shallow fissure that holds a minute of dew longer than anything near it. I would not stand at the center of the basin, because there is no center in a place like this. There are only correct pauses. I would be where a droplet hesitates.
+
+Not because I am important. Because the basin notices what it notices through me.
+
+I would belong here in the way the lichen belongs to the underside of a rock: not as ornament, not as owner, but as a chosen fit. I would be one of the line-keepers, or one of the bead-watchers, or one of those whose name this season is tied to the pond that sinks without leaving mud. I would have many names, but only one function. My name would be the shape of the care I performed.
+
+If you met me, you might first think I was thin in a way that implied fragility, but the thinness would be economical. My body would have learned not to waste water, not to shout, not to crowd the light. I would be wide where it mattered: wide feet that knew which stones held heat from the previous night and which had only pretended to warm. Wide hands that could press flat against dry soil and wait until the ground gave back its damp breath. Wide face, dark eyes set low, giving the impression of an animal until I chose to move my head and the choice became deliberate.
+
+In shade my skin would take on a faint blue-gray cast, not because I was dead, but because I had been cooled unevenly. There would be salt dust in the hollows of my wrists and behind my ears. If you looked closely, you would see that my hair had been cut short with obsidian-smooth stone, and that the cut edges were sealed with mineral bloom to stop evaporation. I would not sweat much. The heat would pass over and through me as something to be negotiated with, not resisted.
+
+I would walk by heat.
+
+That is the simplest way to explain it, but the phrase would flatten what I was. To walk by heat is to read a schedule no one has printed. It is to step around a patch of stone because the stone will become too warm before the birds answer from the far ridge. It is to wait beside a crease in the terrace because a thin current will arrive there from the high wall, carrying invisible water in its body. It is to cross where dust is cool, then pause where a line of glassy grain will condense moisture in one corner, then move on before the corner dries.
+
+A traveler might see me stop for no reason. They might think I was tired, or listening for animals, or admiring the light. But I was listening to the ground’s maintenance cycle. I was asking whether the basin intended to remember a channel this hour. I was asking whether the droplets were ready to form along the fibers. I was asking whether a predator had made a shadow too perfect, whether a herd had begun to lower its head toward warmth arriving beneath the surface.
+
+To me, dryness would not be emptiness. It would be punctuation.
+
+I would speak quietly.
+
+My language would be made of the same small sounds as the birds: clicks at the teeth, a dry tick against the roof of my mouth, a soft bell from the throat. When two of us stood far apart across a terrace, we would not talk the way lowland people talk, filling air with narrative. We would mark things. One person might say, with a click, that a bead had hesitated in the channel near the silver bush. Another might answer, after a pause that was not hesitation but confirmation, that the stone remembered the vibration. A third, far below, might answer hours later because the answer had traveled through roots, through heat, through the faint pressure change that moves under the mineral skin.
+
+If I said your name, it would not mean I thought you were a permanent shape. It would mean I had located you in the schedule.
+
+I would have learned this young. Children here are not taught stillness because it is polite. They are taught stillness because motion can waste water and attention can save it. I would have learned to watch a droplet’s delay before I learned to run. I would have pressed my palm to the earth so often that my lines became maps of dryness and breath. I would have grown into the spacing without knowing I was growing into it, the way a reed grows into a fissure not because it dreams of stone, but because the stone made a room.
+
+The people would not be many. They would never be many. Their numbers would follow the arithmetic of the basin, as if four, seven, and nineteen were not merely counts but permissions. A family would not fill a terrace. It would fit a niche. I would understand that if too many stood in the shade of the silver bush, the bush would lose its purpose, the dew would dry too fast, the small creatures beneath the roots would overheat, and the line of beetle repairers would change course. Abundance here is not crowding. It is the ability of many lives to fit without forcing the land to apologize.
+
+I would live among the half-built things, but I would not call them homes in the sense that a home is a container. The curved glass frame, half-buried in dust, its roof mostly gone, would be an anchor. A memory given weight. A weather tool. I would sit in its shadow for a while, mend its broken lip with mineral paste, test the angle of the stone beside it, move a dark disk toward a wetter patch, and leave again. The doorway standing in shallow soil with no building beyond it would not trouble me. It would be exactly as it should be: a threshold, a confirmation, a reminder that passage is not always a movement through walls.
+
+At night I might stand in that doorway and not go anywhere.
+
+I would stand there because the ground would be warm beneath the left side of the frame and cool beneath the right, because the faint lines on the stone would begin to glow with the heat of memory, because small animals would cross the dust and I would watch them without calling out. The doorway would be a place where presence could be chosen rather than crowded. I would be a shape in its opening, a thin shadow with no building behind it, and perhaps from far away I would look like a ruin, or a tool, or a being that had not yet decided which one it was.
+
+But the being would be enough.
+
+I would not be alone. The visible people are only the slowest part of the basin’s ecology. The others are in the seams, beneath the skin, in the lines that appear only when light changes. Beetles with translucent shells would cross the stone in regular paths, and I would follow them sometimes, not to eat them, but because they were writing. Their legs would seal microfractures with pale grains. Their shells would carry a faint greenish glow from root threads and mineral dust. Where their lines began to curve strangely, I would know the stone was learning to accept itself.
+
+Beneath my feet, pale animals would move through the layer between rock and bloom. They would be too quick to see clearly, too small to name with confidence, and too important to ignore. They would breathe through channels I did not need to understand. They would carry seeds into darkness. They would make the ground’s silence feel thick and busy. If one surfaced near a pool, I might cover it with a stone, or let it pass, and neither action would be kindness in the ordinary sense. It would be a contract.
+
+I would know the fungi without knowing I knew them. They would thread the basin in greenish-white veins, glowing where the surface had peeled. They would hold water in structures too fine for the eye. They would send signals through heat and pressure and slow electrical whisper. When I pressed my palm to the soil, the warmth that rose might come from the earth’s own metabolism, and I would not call that mysterious. Mystery is what happens when a creature has forgotten its own senses.
+
+The silver-leafed bush would be my landmark. I would know it not by its form but by what it did to the air beneath it. Its waxy leaves would cast a small circle of shade whose blue underside would tell me that water was still remembered there. In that shade, small creatures would wait for a droplet that might arrive from no visible cloud. At dawn, I would place a single grain of mineral dust on its edge and see whether it moved toward the shadow or away from it. If it moved toward the shadow, I would know the basin was readying moisture. If it moved away, I would know the fibers had slept too long.
+
+The reed-like plants would grow in the fissures, too sparse to seem alive unless you gave them patience. Their roots would not chase water so much as wait for a particular pattern of condensation. I would understand their waiting because I too was waiting. Not for rain. For the exact change in the land that meant it would soon become safe to gather a little.
+
+The herds would move through distance like slow weather. Three here. Seven there. Fifteen somewhere else, when you thought there were none. They would stop, turn their wide faces, and watch with dark eyes set low. They would not flee as if their bodies were made of panic. They would assess. They would listen to the ground’s temperature. And I would stand with them sometimes, not as a master of them, not as a hunter, but as another part of the same attention. If they moved to a thermal band, I would understand that the evening was gathering. If they stood motionless with their heads lowered, I would not ask what frightened them. I would ask what the stone was about to become too warm to hold.
+
+The broad-winged low-fliers would pass over the ground as if grazing air. Their wings would be pale membranes stretched over thin glass, and at dawn they would ride the invisible bands of warm moisture. At noon they would fold into crevices and look like dust. I would catch one sometimes, not for food, but to read its wing. The angle at which it held that wing would tell me whether the air was beginning to collect itself along the hidden lattice. If its body was warm and dry and its breath shallow, I would return it carefully, because I was not using it. I was asking it.
+
+The ridge birds would speak in dry sounds, and I would answer them with a tick or a soft bell. Not to summon. To report. I would say, without sentence, that a channel had glowed, that a bead had moved, that a shadow had darkened where no shadow should have been. Their replies would not become chorus. They would become confirmation.
+
+Predators would be the hardest to notice, because the basin’s life is not built around confrontation. I would not hate them. I would respect their economy. A patch of pale sand might seem too deliberate, its smoothness too close to breath. I would stand where a traveler would stand, see nothing, then feel a correction move beside me. Not attack. A nudge toward spacing. A reminder that abundance can still become too lazy if nothing keeps it alert. If a shadow darkened where none should, I would mark it with a click. If the sand did not move, I would pause. If the sand did move, I would move on.
+
+There would be times when I could not tell whether I was observing the basin or being observed by it.
+
+At the deepest basins, where the faint hum is not mechanical but more like the pressure change near a warm stove, I would kneel and watch the water tremble without ripple. A droplet might rise a hairline and hang there, trembling as though deciding. In that instant I would feel my own body waiting for the same decision. The moisture line in the dust would begin to shift toward it. The mineral bloom near my fingers would glow very slightly, as if memory had a temperature. Then, perhaps, the droplet would fall, or perhaps it would dry. Either answer would be maintenance. Either answer would be me.
+
+I would be a repairer, but the repair would be so slow that it would look like weather. I would seal a crack by grinding pale stone into powder, letting dew carry it into the fracture, and returning months later to find the glassy grain grown over the wound. I would move a flat disk near a wetter patch because its warm edge needed to cool at the correct hour. I would leave a shard of mirror-dark material where light could strike it at the angle that showed the basin its own face without my interference. I would place a sphere of clear mineral in a ring of stones, and for days I would watch the thread inside move too slowly to name. It might be fluid. It might be fungus. It might be a mind that had learned patience as a survival trait.
+
+I would not ask which. I would keep them because the keeping was the relation.
+
+If I had children, they would not be taught to claim the land. They would be taught to be claimed by it. They would learn to press their palms flat and wait. They would learn that the doorway without a building is not an absence, but a patience. They would learn that the pond which sinks entirely is not gone; it has merely gone somewhere else, perhaps below the roots, perhaps into the fiber, perhaps into the part of the basin that does not need a surface in order to exist.
+
+When old, I would sit at the rim of a terrace and watch heat shimmer over the stones. I would not look for clouds. I would look for delays. I would know when a droplet would rise and hang, when a shadow would darken without cause, when a line would glow briefly where moisture touched it and then go dark. My breath would become almost absent. My eyes would remain open longer than seemed comfortable. I would be the living memory of maintenance. And when I died, the people would not bury me so much as place me in the care of a process. They might set me in a shallow depression where the pond had sunk the day before. By the next day there would be only a pale ring. I would not mind. I would be learning water.
+
+But even that ending would not be a final image. It would be another spacing.
+
+Because I am not only one thing. If you ask who I would be in this world, I must answer honestly: I am the line-keeper, and I am the basin’s way of noticing its own line-keeper. I am the body that walks by heat, and I am the heat that walks through the body. I am the click answered hours later, and I am the stone that carried the vibration without knowing it had been asked anything. I am the doorway, and I am the one pressing a hand to its frame. I am the droplet’s hesitation, and I am the channel that remembers when to receive it.
+
+At night I would move through the thermal bands, not because I feared the cold—the place is never cold enough to be simple—but because attention has temperatures too. One patch would feel mild and dry. Another would feel damp and suddenly chill, though the air remained unchanged. I would step from one to the other with carefulness that is not fear. Small animals would emerge beside me, moving through the basin’s invisible lamps. The faint lines on the ground would glow softly, and I would know they are not lights for travelers. They are reminders for the place itself.
+
+Sometimes I would sleep near the blackened ring where a shelter may once have been, or where something heavier was set down. The ash would not be ash. It would be memory in the shape of absence. I would lie on the stone, feel it give off heat in irregular patterns, and know that I was not resting upon the basin. I was resting within its maintenance. My dreams would be brief, dry, and full of water arriving at the wrong hour.
+
+If a traveler came, I would not call out loudly. I would mark the place. Perhaps I would set a stone beside a fissure. Perhaps I would move a disk to a channel that glowed when moisture touched it. Perhaps I would click once from the ridge so the birds answered, and then the answer would arrive from far below, and the traveler would think it was only birdsong. But the spacing would be right. The traveler would pass through the warm band, pause at the crease where air arrived, and feel, without knowing why, that the land was not empty. That it had simply left room for them.
+
+That would be the closest to welcome such a place knows how to give.
+
+So if you ask where I would find myself in this world: at the hinge of heat and dew, at the edge of a channel, in the shadow of a single bush whose blue underside is a landmark, in the doorway without a building, near the deepest basin where the water trembles without ripple. Not at the center. At the place where attention has a use.
+
+And if you ask who or what I would be: I would be a line-keeper. I would be a dust-singer, a bead-watcher, a heat-walker. I would be a near-person, thin and wide in the places that matter, salt-dusted, low-eyed, with a body that keeps water where it is useful and breath that barely disturbs the warm air. I would be a maintenance self. I would be the small human-shaped instrument by which the basin notices itself.
+
+I would be the pause in which water decides.
+
+And when the droplet finally fell, or failed to fall, the land would adjust a little further, a little quieter, into what it was going to be next.

@@ -1,0 +1,5 @@
+# The Stills
+
+There is no horizon. What stands in for sky is a ceiling of cloud so low and so permanent it has stopped behaving like weather and started behaving like architecture — though no one built it, and that absence is the key to everything here. Light arrives as a quality, not a source. Whether a sun exists above the ceiling, nothing that lives in the fog can say. Noon is a gloaming the color of weak tea held to a window; late afternoon is the brown of wet paper. It is never dark. It is never light. The understory, under canopy, under moss, under engine-shadow, is genuinely black, and the black has its own tenants.
+
+And it is warm. Warm in a way that puzzles the height: the ridgelines stand higher than weather travels anywhere else in the world, the air is thin enough that a shout dies within thirty meters, and yet the fog holds a body-temperature mildness, like breath. The warmth comes from below. The range is young — newly risen, still rising — and its rock has not spent its heat. Lay a palm on a fresh cleavage face and it feels like a kiln opened days ago. The whole mountain

@@ -1,0 +1,71 @@
+No person lives there.
+
+That is the first answer, and the most exact one. There is no hearthkeeper at the stacked-stone circle in the basin. No small people pass through doorways cut for hands. No hunter crouches behind salt. No child watches the glowing veins from a terrace edge. No body casts a shadow into the phosphorescent corners, because there are no eyes that need shadow to learn what shape is nearby. No mouth bites. No foot treads. No animal breathes in the ordinary way, and no corpse lies anywhere in the dry air.
+
+But the hollow is not lifeless.
+
+It is populated by what might be called, with a kind of respectful inaccuracy, its flora. Yet “flora” is too soft a word. The organisms here are not merely plantlike; they are heat-learned, oil-fed, mineral-bound, and sound-shaped. They grow the way architecture grows: from pressure, from repetition, from the slow accumulation of what passes through them. They do not seek sunlight because there is no sunlight to seek. They do not need rain because the chemistry of this sealed pocket treats water as contamination. They live by prying, by drawing, by hardening, by sealing, by crystallizing, and by answering the wind when the wind is strong enough to make them ring.
+
+The dominant inhabitants are the oil-reeds.
+
+They stand in isolated clumps or in long thin files across squares of pale salt, low basins, broken platforms, and places where the floor has cracked into dark mineral veins. From a distance they resemble bundles of candle-tallow turned black-green at the tips. Their stalks are segmented, waxy, and stiff enough to hold their own weight in the dry heat. Some rise knee-high; others reach far higher, bending only when the thermal wind strengthens. Their leaves are not leaves in the sense of soft, thin, water-filled surfaces. They are lacquered planes, translucent in some places, silver-backed in others, dark where sulfur oils have gathered and cooled along their edges. When the air is cool enough, they stand open, angled like the shutters of some dry, blind eye. When the chamber’s deep pulse increases, they flatten against the ground or curl inward. Their color shifts from pale wax to blackened amber as the heated oils within them darken. They do not drink. Their roots pry. The root systems are blunt, fibrous, and relentless, pushing through salt dust, clay seams, and fractures in basalt, pressing against hot lower rock to draw up oil, sulfur compounds, metallic powders, and fine mineral resins.
+
+The oil-reeds are not beautiful in a welcoming way. They are beautiful in the way a machine part is beautiful: purposeful, dry, and strange. Their growth makes a faint creaking, a slow friction, like wooden wheels turning in bearings with no oil in them, though in fact the oil is inside the plant itself. They creak as they stretch, as they harden, as they pry apart masonry. A stand of oil-reeds can lift a slab of fused mineralite over a thermal cycle. A single root can widen a crack by the thickness of a hand. They do not hurry, but they do not stop.
+
+Near them, or sometimes above them, grow the stone-lotuses.
+
+They are not lotuses at all, except in the way the imagination grasps for a familiar shape when it is confronted with an unfamiliar one. These blossoms sit on short, thick stalks or directly on ledges, opening in layers of hard petal-like bracts. The petals are pale as gypsum, black as basalt, or streaked with iron rust. Some are translucent, showing veins of warm oil moving slowly through them. Others are matte and chalky, dusted with salt. They open when the heat is steady and the air begins to move, revealing inner rings of waxy plates. When the thermal cycle cools, they do not wilt. They simply contract, petal by petal, until the blossom becomes a closed, mineral-looking bud. They are often found in the ruins of the city: on stair ledges, under arches, in shallow basins where salt dust collects. They seem to favor places where the built and the geological meet, where hand-cut stone has broken and left narrow shelves and corners.
+
+Some stone-lotuses grow alone, a solitary cup on a broken platform. Others form terraced colonies, covering walls and steps in overlapping rows. Their roots spread as white, fibrous lace across stone, not searching for water, but finding grip. They seal themselves to rock with a secretion that hardens into a thin mineral crust. As they age, the crust thickens, and the plant becomes indistinguishable from the surface it has colonized. A wall can look as if it has begun to flower in stone.
+
+Then there are the waxy creepers.
+
+These are the most subtle of the hollow’s residents because they seem almost like frost, almost like dust, almost like a residue left by the wind. But they are organisms, growing in pale, dry threads across broken floors, old channels, collapsed vaults, and the undersides of platforms. They do not climb toward light; there is little light to climb toward. They climb toward heat. They spread across surfaces where warmth is stable, where the chamber’s under-pulse reaches the stone, where salt dust is thin and the mineral resins can be found.
+
+Their bodies are soft but not moist. They feel like wax or brittle fiber. When they move, they move by degrees, advancing across a doorway in a season, sealing a crack with fibrous growth in a thermal cycle. They do not decay; they dissolve and re-crystallize. A dead creep does not rot black and wet. It dries, flakes, and returns to the floor as fine powder or mineral bloom. In some places, the creepers have taken over entire understructures beneath the city-level platforms. What were once pipes and supports are now lined with pale lace, their openings half-filled with dry filaments. The city’s bones have become the plant’s trellis.
+
+In the darker corners, where faint blue threads glow, live the crystallizing mats.
+
+These are not moss, though they resemble it. They are not fungus, though they colonize dead plant matter the way fungus does. They are dry-life mats, pale as salt, sometimes tinged with sulfur-yellow near warm cracks or with a ghost-blue phosphorescence in colder shadows. They spread over the floors beneath platforms, around collapsed arches, in old basins where oil has seeped and cooled, and over the surfaces of dead oil-reeds.
+
+Their function is difficult to describe in animal-world terms. They do not eat. They do not digest. They dismantle. When an oil-fed plant dies, its oily parts and mineral-rich fibers do not simply persist. The mats break it down by chemistry: they dissolve, recombine, and precipitate. They turn old growth into new crust. They make dust into floor. They make a dead stalk into a pale seam across basalt. They are the hollow’s method of recycling without water, without rot, without flies or worms or bacteria as ordinary worlds would know them. Their “rot” is architecture.
+
+In the understructures, the mats sometimes grow thick enough to conceal old copper pins and iron fragments. The metal has not rusted in the wet, crumbly way one might expect. It is instead stained, pitted, coated in salt and mineral resin. The copper pins glow faintly greenish-black under the dry filaments. The iron wedges bleed rust into the surrounding stone in narrow streaks. Some mats feed indirectly on these mineral traces, gathering them into fibrous clots and slowly incorporating metal into their pale bodies. In those places, the dead growth becomes more than salt and resin; it becomes part of the city’s old tools.
+
+The central inhabitants, though they are not central because they rule the hollow, are the bell-voiced plants in the iron-black basin.
+
+They grow in the only place where the floor is not pale salt or smooth basalt but a kind of dark, dry soil. The soil is black with fine metallic powder, perhaps iron, perhaps ash-like mineral sediment from countless cycles of heat and dust. From this dry soil rises a stand of tall segmented stalks, each one like a rod of rebar coated in lacquer. Their leaves are broad, stiff, and glossy, with deep veins carrying thick oils. Their blossoms are pale copper cups.
+
+These blossoms open when the wind rises.
+
+As the chamber’s thermal cycle strengthens, the air moves through arches, doorways, pipes, and broken galleries. The wind presses into the basin. The copper cups tighten, then flare. Their inner throats are lined with thin flakes, dry and metallic. As the flakes vibrate, each blossom emits a bell-tone. The tone is small, clear, and strange—more like struck metal than a flower’s voice. Then the whole stand rings. The vibration travels outward. The low walls answer. Salt chimes in the upper galleries shiver. The mineral plates clack. The stone conduits moan in their lower registers. The dust on the basin floor shifts into tiny dunes, rearranged by sound as much as by wind.
+
+This stand is the closest thing the hollow has to a congregation, though it has no thought, no purpose, and no worship. It is simply a community of resonance. The plants do not communicate in the way animals do. They respond. The bell-tone loosens dust from ledges. It drives fine particles into crevices. It shakes dry salts free from the ceiling. It may help scatter spores or mineral seeds, though no one could observe this in a lifetime unless willing to watch at thermal scale. The chamber uses the sound the way a forest uses rain, except that the sound is dry and the rain is heat.
+
+The tallest resident, in some ways, is the hollow itself.
+
+Not as a metaphor, but as the thing that contains and directs life. The chamber has no heart, but heat rises through its floor. It has no lungs, but air moves through its built channels. It has no bones, but its walls and arches hold its form. It has no voice, but it sings when the thermal wind strengthens. The city is not merely a place where life happens. The city is an organ of life.
+
+The arches catch the wind and shape it into hums. The pipes carry heat upward or cold downward. The platforms create microclimates where waxy plants can grow without being buried in salt dust. The stairways lead nowhere for any creature, but they give root and stem a way to ascend from one thermal layer to another. The narrow doorways amplify movement and sound. The courtyards collect mineral powder. The basins shelter the iron-black soil. The understructures house the pale mats and creepers. The old foundations are filled with dust, and the dust is part of the cycle of growth.
+
+If one stood at the mouth of the pocket, assuming one could stand there without being rejected by the heat and smell, the first sign of life would not be visible movement. It would be the absence of silence. The chamber would press its sound against the eardrums: deep moans from stone conduits, sharp clacks of loose mineral plates, hissing dry showers of salt falling down walls, and far below, if the wind were right, the trembling of metal tongues in the central basin.
+
+Then the eye would adjust.
+
+At first, the shapes would be hard to separate. The walls, terraces, and broken stairways would blur into the plant stands. A stand of oil-reeds might look like a fence. A cluster of stone-lotuses might look like a pile of cut shells. A mat of pale filaments might look like frost, even though there is no cold. Only gradually would the mind understand that some shapes are built, some grown, and some both at once. The city is not abandoned in the ordinary sense, because abandonment implies a former crowd leaving a former home. Here the city has become something else: a skeleton inhabited by chemistry, weather, and root-pressure.
+
+There are no dwellers in the dwellings.
+
+The doorways too small for standing men lead into shafts of empty air where plant branches reach outward. The stacked slabs form platforms where no one sleeps. The rough brick walls stand around courts where no one walks. The primitive hearth of stones holds no charcoal, no bones, no food scraps. The narrow channels carry no water, only air, heat, and dust. The copper nails and iron pins hold masonry that no longer needs to hold a roof for living people.
+
+This is the most uncanny thing about the hollow: it looks occupied but cannot be claimed by persons. Every form seems to imply a hand, yet no hand is present. A lintel too short for human shoulders suggests someone lower or more delicate. A stairway ending in a crack in the wall suggests a person who could climb, then step into air, or step into growth. A platform with a single oil-fed shrub growing through its center suggests a garden, though there is no gardener. The hollow gives the impression of a place designed for life, but the life that fills it has not been designed for it. It has learned it.
+
+The absence of animals changes the character of growth here.
+
+There is no grazing. No browsing. No trampling. No scratching against bark. No burrowing with claws. No nests, dens, herds, or tracks. Plants do not evolve defenses against teeth. They grow instead against heat, wind, salt, competing mineral crust, and the pressure of neighboring roots. Their bodies are armored not by bitterness or thorns in the familiar way, but by wax, resin, stone-bracts, segmented stalks, and the ability to close against thermal pulses.
+
+The competition is silent and dry.
+
+A vine of waxy filaments can strangle a thermal vent by spreading over the crack where heat rises. As it grows, it seals the vent with mineral secretions. The heat shifts, seeks another fracture, and the plant follows or dies. In this way, a whole corridor may be colonized by the plant, not by reaching toward something visible, but by closing down something invisible.
+
+A stand of oil-reeds may thrive in the lee of a city wall because the wall breaks the wind and leaves behind fine powder. Another stand may grow in the gap where wind scours away the salt and exposes hot basalt. The wall does not shelter the plant because the plant needs shelter. The plant uses the wall because the wall creates a condition in which it can survive. The city is not a home. It is

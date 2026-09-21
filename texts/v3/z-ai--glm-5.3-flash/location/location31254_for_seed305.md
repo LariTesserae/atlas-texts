@@ -1,0 +1,25 @@
+# The Chimney Fields
+
+Come up. Come all the way up, past where the air thins and the cold stops being weather and becomes a fact of geology. This is a plateau the size of a small sea, and it is bright here — brutally, magnificently bright — because at this elevation the sky has fewer arguments to make against the light. The sun falls like a dropped anvil. Snowfields blaze. Shadows are cut with knives.
+
+And yet: green.
+
+The moisture never arrives as rain, not really. It arrives as *return* — fog that climbs the escarpments in slow afternoon tides, condensation beading on every surface at dawn, ice that melts for exactly ninety minutes a day and refreezes with the punctuality of a clock. The plateau drinks in sips. And because it drinks in sips, everything that lives here has learned to be patient and dense. The vegetation is not lush the way a jungle is lush. It is lush the way a sponge is saturated — compressed, hoarded, every leaf a water vault with waxy skin. Cushion plants the size of wagons. Moss that grows in strata you could date like tree rings. Ground-hugging thickets that have spent centuries becoming a single organism and have not finished deciding.
+
+The land itself is young. You can tell because nothing has been softened yet. The ridgelines are raw. Where the plateau cracked and heaved itself upward — recently, in the way that mountains measure recently, a few hundred thousand years ago, a geological *yesterday* — the fault scarps still show their strata like the pages of a book someone tore in half. Boulders sit exactly where they fell. There are drainage channels only a few winters old, still sharp-sided, still confused about where they're going.
+
+Now the strange part. Hold on to it slowly, because it arrives slowly, like everything here.
+
+There are engines on this plateau. Industrial machinery — stacks, pistons, pumps, flywheels turning with slow gigantic patience, condensers sweating frost and water in equal measure — and there are no builders. There are no structures. No walls, no roads, no foundations, no screws in anyone's pocket. The machines are not built; they are *the latest stage of the fauna*.
+
+Because the fauna is overwhelming. That is the dominant fact of this place, the fact the light itself seems organized around. The plateau is packed — absolutely, floor-to-sky packed — with life, and most of it moves at the speed of the place, which is to say: barely. Colonies of vast grazing megafauna that migrate one body-length per year and are therefore, effectively, landforms. Herds whose backs have become terrain, moss-forested, and which the younger vegetation grows *on*, so that the distinction between animal and hillside is a matter of timescale and courtesy. Flocks that darken the sun in slow wheeling hours-long spirals, so dense that they have their own microclimate beneath them — warmer, wetter, rain falling from condensed breath.
+
+And the machines? They are what the fauna becomes when it lives long enough and packs tightly enough. Somewhere in the deep interior of the great herds — in the warm, wet, pressurized interior where ten thousand bodies stand flank to flank for generations — heat accumulates, motion synchronizes, and something organizes. Pistons of muscle. Flywheels of bone. Stack-like throat-chimneys that vent steam into the bright cold air, hundreds of them, white columns rising from the dark mass of the herds like a forest of smoke. The condensers are wings, membranes stretched between individuals, harvesting the fog. The herd *refines* water — takes in ice, exhales it as vapor, condenses it on its own membranes, drinks. An industrial process, distributed across a hundred thousand animals, running at the tempo of a glacier.
+
+The sound is enormous and it never stops: the sub-bass respiration of the herds, the tick and groan of cooling metal-and-bone, the hiss of venting steam, the creak of ice expanding, the thin bell-tones of the flock-wings. It is not noisy the way a city is noisy. It is loud the way an engine room is loud — continuous, harmonic, ominous, mechanical in a way no machine ever designed itself to be.
+
+There is no one to have built anything, because nothing here needs to build. The herds are the structure. The plateau is the factory floor. Everything is already fully occupied — there is no empty ground anywhere, no space that isn't body or moss or ice or machine — and the whole system turns on a cycle measured not in days but in centuries: the herds drift a few miles, the young land behind them colonizes their wake, the old ground recovers under new moss, and in five hundred years the pattern has shifted one full step, imperceptible to anything living fast enough to notice.
+
+Except you. You notice. You stand on a ridge that is actually the fossilized spine of something's ancestor, in the fierce light, in the cold that never quite wins, and you watch the steam-columns breathe, and you understand that you are looking at an industrial revolution that took a hundred thousand years and never once involved a tool.
+
+The light holds. The machines exhale. Somewhere beneath the moss, the plateau continues to rise.

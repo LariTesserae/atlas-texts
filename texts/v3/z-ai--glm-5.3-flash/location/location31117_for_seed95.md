@@ -1,0 +1,5 @@
+# The Finished Land
+
+You come up onto it by a stair of worn slabs, and by afternoon of the second day the ground stops arguing with you. It levels. Not the level of a field or a lake bed — the level of something that has concluded. The whole country lies flat the way a river-worn pebble is flat: not flattened by any single event but finished, the way a long sentence ends. The mountains that must once have stood here fell down so long ago that the falling itself has fallen, and the rubble of them was combed out across hundreds of miles until even the rubble forgot it had been mountains. What is left is the floor of the world.
+
+The height announces itself only sideways. The light is honest lowland gold, but the sky at noon is a shade too dark, and the air has a thin metallic taste even when it's warm, which

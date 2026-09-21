@@ -1,0 +1,17 @@
+# The Undergarden
+
+The door is in the side of the mountain, and it is not a small door, and it does not fit the mountain, and that is the first sign that everything below was decided by people. You walk in out of a cold that already felt like the end of the world, and the cold comes with you — it doesn't change at the threshold. What changes is the sound. The roar reaches you as a feeling first, a pressure in the sternum, in the teeth, and then the ears catch up and realize the sound has been there the whole time, growing through the rock. It is enormous and it does not swell or fade. It is a held note. You will learn that nothing below the mountain changes except slowly, and nothing is loud except the one thing that never changes.
+
+The ramp descends for a long time. Tram rails run beside it under a thin fur of moss, sharp-edged, machine-cut, still showing the striations of the saws that opened this shaft — stone ages slowly in the cold, and the mountain remembers being cut. Fog pours up the ramp past you, going out. Your breath falls as a small cloud at your boots. By the time the walls open out, your eyelashes have begun to rim with frost, and the roar has become the air itself.
+
+Then the valley.
+
+---
+
+It is a valley under a mountain, which should not exist and does. An hour's walk end to end, wide as a town square, the ceiling arching away to a height of ten storeys at the crown and coming down low toward both mouths, where the fans live. Side galleries branch off at intervals, dark tributaries. The main gallery runs on a gentle grade to a low end where the water gathers. From the top of the ramp you can see the whole length of it at once, and what you see is dusk: a long corridor of plum-grey light, lamps strung along it like a street seen through fog, and between the lamps, dark red-brown country.
+
+The dark red-brown country is the felt.
+
+It covers everything. That is the first law here: nothing is bare. The floor of the valley is a continuous living carpet of cold-moss, grey-green where the lamps reach and a deep bruised crimson where they don't, grown over the gravel, over the old foundations, up the cable trays, into the wheels of a tram that has not moved in decades, over a wheelbarrow to its axles, up the legs of the gantries, over the steel racks in slow pale tongues. Underfoot it gives like a mattress, and from it, when you stand still, tiny grey springtails flick away in hops too quick to follow. The felt is the ground now. The stone is beneath it, and the gravel beneath that, and under everything the cut faces of a void that is, geologically speaking, minutes old — a canyon system made within living memory of the rock, its collapse faces still sharp, unrounded, its newest rockfall from two years ago standing in the east reach in clean angular blocks, already furred green along the cracks. Erosion here is an infant. Colonization is quick. Stone is patient. Everything in between is the felt.
+
+The light that falls on all of it comes from panels set low among the terraces, tuned to a bruise — deep red, deep blue, run at a tenth of their rated amperage by engineers who wanted them to still be burning in a century. Under this light, green things read black. Frost reads violet-white. Skin reads grey. The keepers carry small warm-white lanterns for talking to each other, because you never see a whole face in

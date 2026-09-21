@@ -1,0 +1,13 @@
+Who lives here? Not lives — *keeps*. The walker.
+
+You never see them whole, and that may be what they are: a shape that exists only at the edge of your attention. A figure on a ridge, glimpsed against the ember-glow of a fresh fracture, upright, slow, bent slightly under the arithmetic of five stones carried in the crook of an arm. Turn to look fully and there is only the cairn, recently stacked, and no footprints — the grit holds no prints well, though you suspect the absence is a courtesy rather than a property of the ground.
+
+They are patient the way the crystal whiskers are patient: a millimeter a year, oriented toward warmth. They came — or were made, or woke — when the country was younger than it is now, which is not saying much. They do not build shelters beyond the slab-lined hollows. They do not mark territory. They *maintain*. This is the whole of their culture, if culture is the word: the path follows the front, and the front moves, and so they walk a tide-line that redrew itself last night and will redraw it again tonight, and every lurch that topples a stack is met, sooner or later, by someone arriving with an armful of the same stones, setting them right, and moving on.
+
+What are they for? The standing-stone ring suggests an older version, a different hand or a different century, and the cairns a newer one — so maybe there is one of them, and has been for a long time, or maybe there is a lineage, or a habit that survives its holders. No tools. No carving. Only lifting and letting go, which is also, if you think about it, how the Uplift itself makes mountains. They may be the country's mirror: the one way it has of doing something gently.
+
+And the others — the almost-life. The motes in the vent plumes that do not land, the hollows waiting to be dens, the ledges waiting to be nests. The plateau is a stage, and the walker is the only thing on it so far, which makes them both the caretaker and the audience: they keep the seats in order until the rest of the play arrives. Perhaps the crystal tufts are counting up toward animals, a millimeter at a time. Perhaps the walker knows, and keeps the path lit and legible as an invitation — five stones, balanced, the shape of a word in a language the country will learn to speak when it's ready.
+
+If you follow the cairn-path and never catch them, that is correct behavior. You leave your own stone on a stack as you go — everyone does, once they understand the greeting — and somewhere behind you, after a decent interval, the tick of settling rock changes pitch very slightly, and the stack stands a stone taller.
+
+The plateau rises. The stones are picked up. Someone is here.

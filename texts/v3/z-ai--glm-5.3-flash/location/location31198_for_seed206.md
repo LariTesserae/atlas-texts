@@ -1,0 +1,3 @@
+# The Still Engine
+
+The sedge country lies low enough that the horizon is a rumor. Water stands a hand's width beneath everything; press your heel down anywhere and the ground weeps around it. But you do not walk on ground here. Walk long enough and your soles learn what your eyes missed: the turf is not soil with plants in it but plants with no soil left — stems compressed and pleated over centuries into a felt that flexes faintly underfoot, like the flank of a sleeping animal. There is no stone within reach of any root. The green is not in the landscape. The green is the

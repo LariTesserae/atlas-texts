@@ -1,0 +1,7 @@
+# The Floor
+
+You hear it before you see it. Out here in the dark miles, your lamp shows you nothing but snow — not frozen snow, but the fall of it: a ceaseless, slow drift of fibers and ash and the fine dust of everything that drowned, sinking from a surface so far above you that the particles have been falling for years. Then, arriving from every direction at once, a tick. Then another. Then a ringing, low and layered, like a harbor heard through a wall. A rivet gun is working somewhere ahead. Three kilometers ahead, it turns out. Sound travels well in old cold water, and the thing you are approaching has a great deal to say.
+
+The glow comes up first the way dawn does, except there is no horizon for it to climb. The light simply thickens ahead of you and to either side, and out of it resolves the Frame: girders, pylons, truss-ribbons, cable-ways, deck-plates strung between them like rafts on nothing. It extends farther than your lamp, farther than the lamps ahead of it, farther than sound has any business carrying. The official charts name it the Continental Works. Everyone who lives there calls it the Floor.
+
+Here is the thing to understand about the Floor: it was planned as a continent, and it is being built from the bones outward. What exists now is the skeleton — the load-bearing structure of a world that will take generations to fill in. So the density of everything is low, absurdly low

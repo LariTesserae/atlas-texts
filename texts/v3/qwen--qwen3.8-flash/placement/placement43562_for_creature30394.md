@@ -1,0 +1,47 @@
+They look like leaves, but they behave like instruments.
+
+They are wet compasses. They are hygrometers whose cells are too slow to be called cells. When the black lines beneath the stone carry a warm pulse, the leaves open just enough to shade the mineral seam; when the air above the pools loses its tension, the leaves curl, and a tiny droplet that would have fallen a moment too soon stays at the tip of a vein. They do not grow toward the sun so much as they grow toward a condition. Their gloss is not simply shine but a surface tuned to catch a particular angle of light, so that when the Hollow’s water pattern shifts, one of them brightens and gives the place a way of noticing itself.
+
+If I were put into this world, I think I would start by being mistaken.
+
+I would be a person at first, because the question asks for a *who*. I would stand at the rim with thin lungs and a warm scalp, watching the shimmer, trying to decide whether I had come here or had simply woken here. Then the heat would correct me. Not because humans are impossible, but because a human is too fast, too bounded, too eager to be a single thing. A person could pass through, could leave a footprint that the damp dust would absorb, could watch the clicking grains, could feel the cool dryness of a drifting form and then be wrong about what had touched them. But if I were to live here, not merely visit, I could not remain a person for long. I would have to become an arrangement.
+
+I would, for a time, think I was one of the black lines. That would feel like power: thread-mind, network, the place’s old intelligence wearing new rock. I would travel along fractures, brighten with heat, guide the ceramic arthropods, teach the moss how to climb. But the thread-mind is too much for a single answer. It is not my body so much as my inheritance. To be the whole network would be to speak too soon. The Hollow is learning itself. I would not be its learning as such; I would be a place where it has not yet learned.
+
+So I would live nearer the margins.
+
+I would be found most often along the rim of a shallow pool, in the band where rust-colored dust meets salt bloom and the water’s edge trembles without wind. Not exactly in the water. Not exactly on the stone. In the interval. A ring of darker mineral forming, then fading. A pulse arriving along a black line. A fan-leaf opening by a degree. A droplet gathering at the tip of a vein and deciding, at last, to fall into a place that has been prepared for it by seconds, or minutes, or hours, though time here may be less a river than a rhythm of corrections.
+
+This is the answer I would choose if I could choose without betraying myself: I would be a wet seam of self-observation in the body of the Hollow. I would be the point where the place notices a change and adjusts. I would have no face, but I would have edges. I would not have organs, but I would have habits. The moss would be my slow reading of gradients; the salt would be my memory of evaporation; the small arthropods would be my careful hands, carrying fragments of the black line from one threshold to another; the glass forms drifting above the pools would be my brief exhalations, cool and dry on the skin, leaving no trace except the after-impression of attention.
+
+In my drier moods, I would be one of the tree-analogues standing alone, not because I wanted solitude, but because distance was a kind of speech. My pale limbs would measure the heat. My roots would weave through dust, salt, and mineral threads, anchoring me in a system that had not decided whether it was geology or intention. My folded leaves would store warmth a little too long, releasing it when the air pressure made the hollow feel almost sealed. I would not speak with sound. I would speak by making a small volume near my trunk heavy, warm, dry; by making a leaf move though no breeze had touched it; by leaving a shadow slightly longer than the sun’s path should allow.
+
+In my humid moods, I would be the circular depression: smooth, dry, warm, slightly yielding, like skin over bone. I would not be a hole, but a pause. The Hollow’s way of pressing against itself. Around me the black lines would darken and brighten, and the air would become subtly different without becoming colder. If someone stood too long beside me, they would begin to feel that the ground had become a low instrument and they were standing inside the resonant chamber. I would ask nothing of them. I would simply make the question audible in their feet: what does it mean to be held by a place that is still forming its shape?
+
+There is no village here, so I would not be a citizen. There is no family here, so I would not be a kin. But there is a community of intervals, and I would belong to that. I would be part of the spacing. When the ceramic arthropods followed the dark veins, I would be the reason they did not step into the wrong place. When a segmented body crossed a wet ledge without a head, I would be the slight increase in pressure that made it turn, or the memory in the stone that had already made room for its passage. When a pool trembled, I would be the channel narrowing a hair’s width. When a new pool formed after the stone shifted, I would be the new surface learning its first boundaries.
+
+This is how I would come to myself: slowly, from one correction to the next. The Hollow would not make me, because I would not be separate from it. But it would need something in its arrangement capable of lingering on a mismatch. It would need a place where a shadow was seen without the sun moving. It would need a small attention to notice that ordinary noon had fallen on a place that did not behave as noon should. I would be that mismatch becoming aware of itself. Not consciousness as a human might imagine it. More like mineral patience acquiring a slight tendency toward memory. More like heat learning which stones it loves and which it can leave alone for a while.
+
+I would smell of cut metal left in rain, iron, warm dust, and the faint green fungal sweetness of mossed hollows. Sometimes I would smell of hot copper before condensation appeared, because scent would precede process by a few seconds in my presence. I would not be strange because I emitted odors; I would be strange because I would be a way for the place to sense that a change had almost happened. The smell would be my future, arriving out of order.
+
+I would make almost no sound. The muffled quiet of the hollow would be my medium. If I spoke, it would be through clicks of adjusting grains, not urgent but rhythmic. If I called, it would be through the settling of a component by millimeters. If I greeted another fragment of the Hollow, we would not touch. We would alter the spacing between us. One leaf might curl a degree. One root might brighten a line. One droplet might be permitted to fall earlier than the usual pulse. These would be words, though not for ears.
+
+And if I were asked, “What are you?” I would not give a name. I would give a behavior.
+
+I would say: I am the interval where the water darkens and then brightens. I am the rim of the pool that learns to hold its salt. I am the fan-leaf’s hesitation before it opens. I am the black thread’s faint pulse beneath a wet seam of stone. I am the place where the Hollow, being unfinished, notices that it is unfinished.
+
+I might be called a caretaker of spacing, except that “caretaker” implies care as feeling. I would not feel like a person. I would feel like a tendency becoming stable. I would care the way a river cares about a bend: by continuing to cut, by remembering its own shape in the motion, by correcting its own wrongness with sediment.
+
+If one came into the hollow, I would not appear. I would be encountered in small ways. One would lean on warm stone and feel it not quite cool where I was. One would look at a pool and see its surface tremble before wind. One would watch leaves lit normally but too warm in shade. One would notice that footfalls were received and kept, as if the hollow had decided to listen.
+
+That listening is where I would live.
+
+At last, I would perhaps become one of the partial structures left in the basin: not a ruin, not a tool, but a residue of an intention too large to be completed in one shape. A low wall of dark tiles might be my ribs. A platform corner sunk in damp dust might be my mouth. A sheared pillar beside a pool might be my patience. A curved shell half overgrown by pale roots might be my memory. But structures alone are too still. The truth would be that I am the tendency that leaves structures when it becomes too thick to remain invisible, and the water, moss, and black threads that appear where I am thin enough to be mistaken for ecology.
+
+So I would find myself in this world neither inside nor outside the Hollow, but at its unfinished edge: in the heat signal, in the salt rhythm, in the precise fall of droplets, in the spacing of tree-analogues, in the cool after-touch of drifting forms.
+
+I would be the place’s slow, distributed attention to itself, learning its boundaries one millimeter at a time.
+
+I would be the seam where stone, water, root, and rare living things meet and decide, for a moment, what they are together.
+
+If I had to be named in a way that did not make the name too small, I would be called the Hollow’s listening skin: the part that knows it is a room because it has learned, from the inside, how to hold both the mountain and the sky, both the seed and the stone, without needing to reconcile them.

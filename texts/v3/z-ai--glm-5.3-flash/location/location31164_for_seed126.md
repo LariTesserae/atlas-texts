@@ -1,0 +1,33 @@
+# The Floor
+
+The first thing it gives you is warmth, through your boots, before you have taken ten steps. Not the warmth of a sun-baked surface — the sun here is small and white and pitiless, and would cook anything left in the open for a thousand years — but a warmth from below, steady as a sleeping animal's flank. The ground is warm the way a living thing is warm, and it has been warm at exactly this temperature, give or take a degree, for longer than there has been a word for temperature.
+
+The second thing is the light. There are no clouds. There has never been a cloud here; clouds are made of water, and water does not happen in this place. So the light comes down clean, unbroken, white onto pale ground, and the plain returns it. The surface is the color of bone and oyster shell, and it is not reflecting — look closely and you understand it is *harvesting*. The whole plain is a photonic skin, tuned to drink the sun, and the warmth you feel through your boots is what the Floor has decided, once, forever, to keep.
+
+You are standing on the lowest terrace of a rebuilt world.
+
+---
+
+There is no ground under the ground. That is the first rule of the Floor, and everything else follows from it. Dig anywhere — with a hand tool, with a machine, with patience — and you do not reach soil or stone. You reach construction. Channels, gaskets, service ways, bus-bars thick as your thigh, chambers with smooth curved walls and no purpose anyone can now determine. The strata go down further than anyone has gone. If you could make the plain transparent and see it all at once, it would not look like a surface at all. It would look like a coral of pipes — a solid mass more mechanism than material, honeycombed at every depth, dense past sense. Nothing here is empty. Step on any point and a thousand buried presences stand under your weight in perfect silence, doing whatever they do.
+
+The surface itself has finished. That is the strange comfort of the place: it is not old the way a ruin is old, worn toward collapse. It is old the way a stone in a riverbed is old — it has arrived. Every edge is rounded to its final shape. Every seam has polished itself into its last polish. There was a time — geological, unimaginable — when the Floor was still becoming, still being adjusted, and there are records of that time in the deep strata: generations of revisions, layer over layer, the patient handwriting of machines improving a design. But the revisions stopped. The last state was reached, and what maintenance remains no longer builds. It only *keeps*. A scratch on the Floor anneals itself shut overnight. A crack in a vent rim fills with material that hardens indistinguishable from its neighbors. The matter here remembers what it is supposed to be, and it has been remembering for longer than nations.
+
+The seam-lines are the only geography. Straight as intention, kilometers apart, they cross the plain to the horizon and past it — dark channels where a gritty black felt has crept up from below, the one substrate that anything soft can root in. From a vent or a rise you can read the plain like a page: lines of shadow running to the curve of the world. Because you can see the curve. The Floor is wide enough that the horizon lifts gently at its edges, and beyond it, hazed in the plain's own exhalation, the next terrace rises, and the next, brighter and brighter, up and out of sight. Everything drains here. Every terrace above sheds its dust, its heat, its wear, and the Floor is the sump of the world, the bottom step, the level where everything settles. That is its lowness: not an accident of terrain, but a design — the place made to receive.
+
+---
+
+Here and there, days apart, the vents. Circular mouths hundreds of meters across, rimmed in the same bone-pale composite, grille-covered, breathing. Stand near one at the wrong moment and you feel it more than hear it: a long slow intake, warm and mineral-sweet, like the world drawing one breath a day. The vents are the lungs of the deep engine, whatever that is — no one has followed the channels far enough to find the heart, and the channels do not encourage visitors.
+
+The breath carries motes. That is the word the old surveys use, and it is right: not dust exactly, not insects, not machines exactly either — grains and flakes and fine glitters, each one a single-purpose worker older than any nation, older than any language still spoken. They rise with the breath, spread, sift the air, sort what they find isotope by isotope, and settle again. In still light you can see them: a faint glitter suspended between you and the horizon, the plain visible as a haze of tiny workers. The sky over the Floor is populated to a ceiling height of a kilometer with billions of them, each doing a task that no one has needed done for a million years, and doing it anyway, and doing it *well*.
+
+And they are the weather.
+
+---
+
+The Floor does not have weather the way a world with water has weather. It has a tide. Every ninth day, on a schedule set in the deep strata, the engine below swells: a wave of warmth passes underfoot, too slow to feel as an event, and the whole plain answers. The air over it stirs. The motes rise — not scattered, but gathered, drawn up into slow towers of glitter a kilometer high, columns that drift and merge and lean and stand. During the swell, the plain looks like it is raining upward. Light catches in the columns and the whole horizon sparks faintly, an aurora of dust. The air thickens with presences; walking through it is like walking through the attention of something vast.
+
+Then the tide recedes. The towers fall apart without sound. The glitter settles back to the ground-fog it was, and the plain goes still again, and the stillness is the deepest thing about it.
+
+Once in a long while, during the swell, a seam will relieve its stress: a single high note, a *ping*, that crosses the flatness with nothing to break it, ringing for seconds, arriving from a horizon you cannot locate. During a strong swell an entire region can go off at once — a moving crackle, a continental chirring, like rain starting on a distant roof, passing over you and away. It is the closest thing the Floor has to thunder. It is the plain's only voice.
+
+And at the very bottom of the tide, in the coldest hour the Floor ever allows — a coolness so mild it would pass unnoticed anywhere else — the ground sweats. Not water. The exhalation of the deep channels: a thin, sweetish, faintly oily vapor, a non-aqueous

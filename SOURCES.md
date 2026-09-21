@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **137** source folders · **159,792** texts
+- **139** source folders · **160,733** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -353,6 +353,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `z-ai--glm-5.3` | 411 | 2026-09-05 | creature·120, location·173, placement·65, regard·53 | route | event-observed 411 |
+
+## glm-5.3-flash  ·  242 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `z-ai--glm-5.3-flash` | 242 | 2026-09-20→2026-09-21 | creature·47, location·195 | route | event-observed 242 |
 
 ## gpt-3.5-turbo-instruct  ·  1,075 texts
 
@@ -739,6 +745,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `qwen--qwen3.7-max` | 750 | 2026-07-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
+
+## qwen3.8-flash  ·  699 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `qwen--qwen3.8-flash` | 699 | 2026-09-20→2026-09-21 | creature·243, location·249, placement·207 | route | event-observed 699 |
 
 ## qwen3.8-max  ·  1,052 texts
 

@@ -1,0 +1,57 @@
+If a thing can be said to live in this basin, the first answer must be the water.
+
+The black liquid is not a medium through which life moves. It is a living medium. It has no shore because it does not desire one. It has no current because it has no need to transport anything. It is dense, clear, and patient, and it holds the drowned city the way a body holds a thought: not as cargo, not as burden, but as condition. If you lowered your face to the surface, your breath would fog, then disappear into cold stillness. Nothing would splash. Nothing would answer at once. But after some minutes, perhaps longer, you would begin to feel that the water was not merely surrounding you but measuring the spaces in your chest.
+
+The water is the first inhabitant because it is the principle that makes all others possible. It does not drown; it completes. It does not erode; it maintains. It is not a lake with a bottom but a black mirror standing upright, or perhaps a mirror laid flat and then taught to think. Within it, light behaves like a slow substance. The pale blue-green vertical lines beneath the surface are not lamps exactly. Some are windows, yes, and some are seams where the city’s architecture lets a stored brightness breathe. But many are living filaments of illumination, thin as nerve threads, stretched through courtyards and along stepped docks, pulsing with no visible rhythm. They do not shine because they are hot. They shine because they are arranged.
+
+If one insists on calling the city dead, then the city must be considered a kind of life that has already passed beyond death. Its dark ceramic streets are not inert. The smooth matte blue-black metal railings are not merely corrosion-resistant. The columns that flare like calcite deposits are not accidents. The bridges that seem poured and then corrected are not frozen events. They are organs. The terraces are load-bearing tissues. The plazas are open chambers. The low towers are resonating bones. The whole settlement is a body whose bones are buildings, whose blood is water, whose breath is hum.
+
+This is why the water is still. The basin has no waves because the city no longer needs to be disturbed. The hum that rises through the stone rim is not a machine idling. It is maintenance. It is the sound of a system that has learned how to remain exactly as it is.
+
+The second life is the pale network that some mistake for mineral growth and some mistake for plant life.
+
+There is no vegetation, but there are living forms that resemble vegetation from a distance. Thin white filaments hang through the water in long, almost invisible arcs. Lace-like precipitates cling to walls and colonnades, not as decay, but as a kind of slow flowering. Branching crystals spread over staircases and beneath railings, pale as frost, delicate as ferns. They are not ferns. They are not frost. They are not mycelia, though they branch like mycelia, and if one were careless one might say that they grow. But they do not grow toward light or food or moisture. They grow toward correctness.
+
+These filaments are the city’s root system, and also its nervous system. They run from one structure to another in fine geometric webs, crossing open water without bending, settling on streets without covering them, entering the cracks between tiles and emerging at the edges of windows. They connect the plaza where a fan fin hangs motionless to the long wall where a crystalline fan widens out like a frozen wing. They connect the low tower that hums in the chest to the curved retaining wall that does not seem to hold anything back but only holds itself.
+
+Their life is not metabolic in any ordinary sense. They do not eat. They do not breathe. They respond.
+
+If a building’s angle changes by the width of a hair, the filaments along its surface brighten for a fraction of a moment, then dim again. If the water’s pressure becomes too evenly perfect, they ripple not with movement but with recognition. They are not plants, but they are not dead minerals either. They are the part of the place that cannot decide whether it is architecture or anatomy, and has wisely chosen to remain both.
+
+The third life is the fauna, if one can bear to call them that.
+
+They are not rare because they are scarce animals. They are rare because rarity is a kind of permanence. A place where nothing changes cannot contain abundance, because abundance implies becoming, feeding, escaping, waiting, dying, replacing. The basin has none of those things in the ordinary way. Its animals, if they may be called animals, are not populations. They are singularities. They are fixtures that have somehow remained soft. They are instruments that have somehow remained awake.
+
+The first is the slender pale form suspended above a plaza.
+
+It looks like a fish that has been opened by thought. Its body is thin, almost translucent, and its fins are arranged not as flapping membranes but as perfect fans: radial filaments of white and faint blue-green, spread in the still water like the arms of an astrolabe. It hangs above the open square without motion. Its head, if it has a head, is a wedge of pale ceramic-like tissue, smooth and poreless. Its gills do not flutter. The water does not pass over them. The gills are not for breathing. They are for hearing pressure.
+
+This creature is one of the city’s sense organs. It is not above the plaza because it is swimming there. It is there because the plaza requires a watcher. Its fin-filaments touch the water without displacing it. Each ray is angled toward a different structural line: a wall, a step, a bridge, a light, a seam in the basin floor. Through these rays it feels the exact condition of the surrounding stone. If a column becomes too perfect, if a terrace relaxes by a grain, if the hum changes in density, the creature knows. It does not move to act. Its stillness is the action.
+
+If you looked at it long enough, you would begin to suspect that it is not waiting. Waiting requires time to pass through a body. This creature has no time inside itself except as a lattice of positions. It does not age, because aging would require it to be less exact than it already is. It does not feed, because feeding would require something to be missing. It does not flee, because there is nowhere within the basin that would not be part of its body’s awareness.
+
+Occasionally, in the blue glow beneath it, one of its fin rays shifts. The motion is so slight that it may be an optical error, a memory of movement imposed by the eye. But when the ray shifts, somewhere below a pale vertical light changes quality. It brightens, or narrows, or takes on a tone like a bell held underwater. Then the creature is still again. It has not done a thing. It has only been a thing doing its thing for a while.
+
+The second is the broad creature resting on a street.
+
+It looks like a crustacean that has been taught to bear weight. Its shell is low and segmented, not glossy but matte black, patterned with faint geometric veins. Each segment is slightly larger than the last, forming an arc from front to rear, so that the creature resembles a bridge compressed into a body. Its legs are folded beneath it, jointed and long, with tips that do not quite touch the ground. They hover a fraction above the stone, or maybe they touch it without pressing. It is impossible to tell. The street does not crack. The water does not cloud.
+
+This being is a structural animal. It is not sleeping. It is not resting from travel. It is maintaining. Its body is a living keystone. Where it sits, the street below is less likely to shift. Around it, the filaments gather in fine white lace, then release, then gather again. Its antennae extend forward through the water, not searching but reading the angles of the buildings around it. It knows whether the plaza is too open. It knows whether the wall beside it is too vertical. It knows whether the bridge overhead is allowing the correct amount of darkness to fall on the tiles.
+
+It may have been here for centuries, or it may have been placed here in the first moment of the basin’s completion. There is no way to tell, because in this place placement is birth. It does not breed. It does not molt. It does not leave its street. If it left its street, something would become less exact. A retaining wall would begin to feel like a retaining wall. A courtyard would begin to feel like an absence rather than a room. A window would begin to emit light without understanding why.
+
+If a leg were to move, it would not be a step. It would be a correction. The shell would shift by a millimeter, perhaps less. The folded limbs would settle into a new arrangement. The street would accept the change without sound. A bridge would ring once, not because it was struck, but because it had been told the truth. The filaments along the wall would brighten, and the creature would continue its stillness. This would be its life.
+
+The third is the transparent oval near the surface.
+
+It is not a bubble. There are no bubbles here. It is a suspended vessel, clear as glass, faintly lit from within. Its shape is not quite egg, not quite lens, not quite bell. Inside it, structures are visible: thin threads, angular plates, curved lines like the diagram of a machine or the skeleton of a future organism. But none of these structures move. The oval does not drift upward, though it seems close enough to the surface that buoyancy would expect motion. It does not sink, though it appears heavier than water. It occupies a level as if the level had been chosen for it.
+
+This is the most unsettling inhabitant, because it suggests a living thing that has not yet begun, or one that has begun so completely that it no longer needs to continue. It is not an embryo. An embryo implies growth toward a later form. This oval contains a form that is already finished. The threads inside it are not veins. They are not nerves, though they branch as nerves might. They are not gears. They are not bones, though they hold a shape as bones would. They are geometries waiting to be used.
+
+Some have said that the transparent ovals are eggs. Some have said they are hearts removed from bodies. Some have said they are seeds of a city that was never allowed to move. Perhaps the most accurate description is that they are living potential kept in permanent solution. If the basin were to change, one might hatch. If the law of the water were to loosen, one might rise. If the hum faltered, one might beat. But these are not promises. They are warnings, or perhaps lullabies.
+
+There are also smaller presences, less obvious.
+
+The amber pinpricks clustered along low buildings are not simply lights. Some are animals of a kind too integrated to be recognized as individuals. They sit in rows like eyes along a colonnade. They do not blink. They do not focus. They emit a steady color because their bodies have found their optimum frequency of glow. They are not insects, though they might be mistaken for lanterns. They are not fungi, though they might be mistaken for spores. They are the city’s surface flora rendered as light.
+
+The white rectangles are more ambiguous. Most are windows. A few are not windows. A few are faces, or the equivalent of faces, set flat into walls. They do not look outward. They look inward, or perhaps they look at the water from the water’s side. They do not see the mountains above or the sky that does not scatter light. They

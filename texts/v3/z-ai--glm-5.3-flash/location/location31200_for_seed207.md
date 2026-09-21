@@ -1,0 +1,5 @@
+The cold is the first fact, and it is a gentle one. Not the cold that bites — the cold of still air in a closed room, a few degrees above freezing, so still it doesn't move against your skin; you simply agree to it, the way you agree to a handshake. The dark comes second, and it is nearly total: the dark of a place that has never had a window. Then, when your eyes have finished their slow apology, the green.
+
+Because the room is faintly, patchily glowing.
+
+Not glowing everywhere — archipelagos of glow. Cushions of moss throw a light like the last phosphor of an old screen, green-white, barely stronger than the memory of light, and where the moss thins the dark closes back over it. The floor is the coldest part and the darkest; cold pools downward here, and frost silks the corners in fans and feathers — ice growing in the shapes of plants it will never become. Along the ceiling runs a seam that weeps on schedule. Everything here

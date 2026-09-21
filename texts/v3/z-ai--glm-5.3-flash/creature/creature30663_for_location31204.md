@@ -1,0 +1,7 @@
+is the sound of a place talking to itself. Some of it is airborne — a haze of ticks and clicks, like rain that never lands — but most of it travels in the wood and the ground, and it reaches you through the soles of your boots, through your teeth, through the hand you put against a stem at the rim. Lay your palm there and the noise doubles, the way it does when your hand finds the wire a fence has been humming along. Every stem is a wire. The whole basin is strung.
+
+The sound never stops because the work never stops, and the work never stops because it is done in shifts that have been handing off to one another since before the hills around the rim were hills — and they are young hills, you will eventually understand, because the basin made them. They are spoil. The place was dug.
+
+Go down. Under the canopy the light goes green and sourceless, pooled in the corridors, brighter where the rationed clearings open like municipal parks. And the first wrongness is the tidiness. A wild forest is messy the way a city is never messy. Here there is no leaf litter, no deadfall, no moss climbing the stems, no weed elbowing into the corridors, no fallen fruit rotting anywhere in a hundred square miles. Someone is picking up behind the forest, constantly, forever. The paths are polished. Bodies have worn them glossy, like the stone of a cathedral step.
+
+The unbranched stems are the crop. They are pruned that way —

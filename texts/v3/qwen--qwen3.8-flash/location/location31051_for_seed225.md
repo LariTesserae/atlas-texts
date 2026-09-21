@@ -1,0 +1,13 @@
+It is a small hollow below the surface, though it is not dark.
+
+The land above it is warm and thin, cracked in long dry seams, but when the ground dips into this place it does so gently, like a breath held too long. There is no cliff, no dramatic descent. One walks a few paces down a shallow slope of pale grit and finds oneself inside the boundary of the hollow: a rounded bowl of stone and light, no bigger than a grove-room, no more complex than a closed hand. Its walls curve in on themselves in soft, established forms, worn smooth by long ages until nothing looks unfinished or temporary anymore. Every ledge has settled. Every slope has found its angle. The place is not collapsing into something else; it has already become what it will be for a very long time.
+
+The ceiling is the strange part.
+
+It is not solid dark rock. Above the hollow, the surface of the ground is made almost translucent, a thin crust of selenite, calcite, and fused salt lying in long plates and curved lenses. Sunlight does not fall here in a shaft. It bleeds through the ceiling from every direction, diffused and multiplied, so that the room glows with a bright, sourceless whiteness. Shadows are pale and soft. The light feels too even, as if the hollow has been carefully illuminated for observation. At midday, the whole space seems to lose its depth: floor, walls, and ceiling all turn to the same luminous mineral haze. At other times, when clouds pass above the surface, the hollow dims like a lamp turned down in another room.
+
+Despite being below the land, it is warm. Not hot, not feverish, but the stone holds heat gently. The floor radiates a low warmth through the thin soles of any creature that touches it. This warmth is balanced by the moisture that gathers in the coolest corners, in the lower basins, behind the salt shelves, in the cracks where air moves too slowly. There is no river here, no spring that announces itself. Water appears instead as intermittent dampness: a slick of condensation on the walls in the early morning, a faint wetness in a depression that was dry the day before, a shallow puddle left in a natural cup after rare rain has passed through the crust above. The water does not flow so much as wait. It gathers in pockets, breathes itself back into the air, and returns again in long cycles.
+
+The floor of the hollow is mostly empty.
+
+This emptiness is not barren in a harsh sense; it is a settled emptiness

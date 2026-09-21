@@ -1,0 +1,9 @@
+Ask what lives here and the plain answers the way it answers everything: slowly, and by weight. A census taken with eyes would find almost nothing — fog, pavement, fog. But a census is the wrong instrument for this world. Life here is not counted. It is deposited.
+
+Start with the film. Every surface on the plain — every nodule, every seam, every shell — wears a skin of bacteria a few molecules thick, grey-gold, invisible until the lights come on, and then suddenly everywhere: the plain's true ground-cover, growing over the mineral ground-cover, a pasture laid over a quarry. It has no seasons and no patience. It simply accrues, wherever water and stone exchange their slow remarks.
+
+Graze it, and you are one of the seam-folk.
+
+The seams between the nodules are the plain's tenements. In a hand's width of mud there may be a thousand pale comma-shaped amphipods, hunched janitors, each inspecting every grain that settles out of the fog before admitting it to the pavement. Nothing edible passes them; nothing inedible is refused either, only passed downward, which is the plain's form of recycling. They are the reason the fog stays a fog instead of becoming a smother — they keep the sky from burying the world. Thread-thin worms stitch the seams with tubes of mud; chalk-seeded specks creep among them at the speed of chemistry; the lace the water smooths flat is theirs. They do not know the plain. They are the plain, in its mobile fraction.
+
+The mats are the next rank up, and they have subjects. The spiral-shelled grazers move across the bacterial meadows in paths like handwriting in a language with no alphabet

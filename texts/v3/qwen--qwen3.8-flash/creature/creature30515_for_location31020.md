@@ -1,0 +1,7 @@
+like a city that has been made entirely from the memory of passage.
+
+No one lives there, if “no one” means a person sitting in a chair, or a family gathered under a roof, or a market full of voices asking for coins. But no one lives there in that way only. Hollowgrid is populated instead by shapes that have no faces unless faces are useful to them, by beings that have no bodies except as a habit of not being absent, and by a vast civic intelligence grown from the agreement of plants, air, water, insects, frogs, moss, bark, spore, and the slow patience of wear.
+
+The first truth of Hollowgrid is that the town itself is alive. The shallow bowl is not a place containing a settlement; it is the settlement’s body. The fused root-ramparts are ribs and bone. The bark-walls are skin and scar. The moss is memory, because moss remembers every damp thing that touched it and repeats the shape of touch in the form of softness. The leaf-roofs are lips. The arching boughs at the gate are eyelids. The plazas are open palms, or open throats, or open lungs; depending on the hour, they receive, exhale, swallow, or speak. The long void between the walls is not an absence. It is the town’s interior. It is the space the town has learned to keep the way an eye keeps its pupil: dark, round, and full of seeing.
+
+You can understand this if you stand in the center of the Hollowgrid at noon and let the roar separate itself. The sound is

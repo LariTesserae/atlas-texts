@@ -1,0 +1,39 @@
+**Steamglass Fen**
+
+It begins as a wet mouth in the ground.
+
+There is no path into it, only a suggestion of one: a break in a concrete apron, a lip of corroded steel, a shelf of black silt that gives slightly underfoot and releases a warm breath from below. To stand at the rim is to think the place is small, just a drowned corner of a larger marsh, a sinkhole no bigger than a shed. But when you follow the opening inward, it opens into a pocket, a concealed room, a hidden basin held inside the body of an older, abandoned site.
+
+The pocket is low. Everything here lies below the surrounding marsh surface, even though marsh water and rainwater find it constantly. Its floor is a shallow bowl, and around the edges of the bowl are channels carved by recent water—thin, bright seams running through concrete and mineral crust. These channels are not old. Their edges are sharp where the water has split the surface, and where the rock beneath has been exposed, the fractures are glassy and fresh, as if the ground were opened only a short time ago.
+
+The land is wet, but not in the soft, vegetated way of a mature wetland. The water is everywhere, but rarely deep. It collects in films. It beads on iron and copper. It runs along hairline cracks in stone and concrete, then gathers into little mirrors on the floor. The central pool itself is broad but shallow, only enough to cover a shoe’s sole, yet it feels more like a memory of water than a proper pond. Steam rises from it in places where heat from below reaches through the crust. Along the lower walls, stones weep. The rocks are dark and slick, and water does not merely lie on them; it appears to be exuded by them, drawn upward or outward through the material as if the pocket itself were sweating.
+
+The air is hot, but not harsh. It is the heat of a place where vapor is thick, where breath becomes visible on metal, where the skin feels wet even before a droplet falls. Heat does not move through the pocket in sudden gusts. It presses. It hangs near the floor, then rises in slow sheets whenever the machinery somewhere below gives a long sigh.
+
+There is light, though not dramatic light. A broken slab or grating near the ceiling admits ordinary daylight. The beam is pale and diffuse, softened by the suspended humidity. It falls in wide, wet-white patches across the basin. Where it strikes the central pool, it does not glitter so much as tremble. The light is honest, almost domestic, but the place is not. It is a normal-looking pocket of the world that behaves slightly wrong.
+
+The terrain is a mixture of materials: poured concrete cracked and lifted by moisture; black basalt that must have been broken by heat and water; slag, pale green and glassy, scattered across a ledge like spilled candy; rusted iron plates; copper tubing gone blue-green with slow corrosion; white salt crusts forming on ledges where water evaporates. There is no soil, not real soil, only silt, mineral powder, and the thin remains of whatever once tried to grow here. The pocket has a raw, unfinished quality. It is not weathered into soft shapes. Its cuts are recent, its fractures sharp, its edges unrounded. It looks like a wound that has been wetted, cleaned, and kept open.
+
+Within this wound stand the scattered remnants of a small industrial world.
+
+At one side of the pocket is a pump shelter no larger than a shed, its roof half collapsed, its walls buckled. Its frame is iron and concrete, and inside there is a machine that has not fully died. It is not a large factory engine, not a turbine hall, not a great plant. It is a pocket-scale mechanism: a vertical steam pump, its cylinder wrapped with insulation, one panel torn away, its flywheel turning with long, patient slowness. Copper pipes rise from it and disappear into the ceiling. Beside it is a second housing, smaller and rusted, perhaps a transformer enclosure or a control cabinet, now open like a mouth filled with corroded metal tongues.
+
+Near the pool, three concrete piers remain where something larger once stood. A steel grating lies tilted, half sunk into silt. A valve tree stands upright at the edge of the basin, its handles worn to smooth nubs, its pipes split into several directions, each ending in a small mouth that releases steam at intervals. Cable trays run along the wall, but their wires are exposed, green at the ends, thick with oxidation. There are faint marks, too—a bolt pattern, a rail groove, the pale shadow of a painted warning whose letters have flaked away. The place feels abandoned but not silent, ruined but not finished.
+
+It is also loud.
+
+The loudness is not frantic. It is not the clatter of many small things happening quickly. It is the loudness of few large things persisting with enormous patience. The pump makes a deep, wet strike every long interval: a piston slide, a catch of metal, a shudder through the floor, then the answering hiss of steam. Water slaps against pipes in rhythmic pulses. Condensation gathers above and falls in heavy beads, striking the pool with a sharpness out of proportion to its size. Somewhere deeper in the structure, a valve rings and groans as pressure equalizes. A high whistle follows, not shrill but drawn out, bending downward like something tired.
+
+When the wind changes—though no wind is visible—the pocket fills with a chorus of small impacts: drops falling, steam releasing, salt grains ticking across metal, the pool’s surface shivering. Each event is small, but together they are heavy, surrounding. In this humid, enclosed chamber, sound does not die quickly. It accumulates. The air carries the low thud of the machinery and the high hiss of escaping vapor at the same time, a layered pressure that can feel almost physical. It is loud enough to speak over, but the slow cycles of the machines seem to listen through the noise, responding to changes the human ear barely notices.
+
+Yet for all that noise, the landscape changes slowly.
+
+The water level does not surge. It rises over hours, then retreats just as gradually. The central pool deepens by a finger’s width and then thins again. The salt crust spreads outward by degrees. The microbial films crawl across damp stone in patterns visible only after days. The reeds do not tremble constantly. They sway once, slowly, when a larger exhalation disturbs the air, then stand still again. The pocket feels patient, as though it is always in the middle of a single long breath that may take a season to finish.
+
+Vegetation is sparse.
+
+A few pale stalks grow near the northern rim, where water seeps from a crack in the concrete. They are not lush. They look half mineral: thin, rigid stems, no broad leaves, no visible roots beyond black threads anchoring them in silt. They may be reeds, or something that has learned to live in reeds’ place. Around them, the ground is bare—wet, yes, but empty. There is no thick moss, no carpet of grass, no tangle of marsh plants. Instead, there are gaps. The density is low. The place is mostly space, water, and stone, with a few presences scattered through it like objects dropped in a bowl.
+
+The water would, in another place, be full of life. But this is not another place.
+
+No animal has been seen in the pocket. No fish in the pool. No frog at the water’s edge. No mosquito hovering in the steam. No spider threading the shelter. No bird roosting in the broken roof. No larva wiggling in the silt. The marsh outside may have its own hidden tenants, but here the standing water is empty. The wet heat should invite life, and perhaps at one time it did, but the conditions are strange and hostile: water too mineral, surfaces too

@@ -1,0 +1,23 @@
+# The Held
+
+Near the crown of the mountain there is a room.
+
+The mountain itself is enormous beyond the habit of eyes — a young massif that heaved itself up out of the crust within the memory of glaciers that have since melted off older, softer peaks. It is so new that erosion has barely found it. Its flanks are fins and blades, faces of rock that would flash if light ever climbed this high. There are no talus aprons, no rounded shoulders, no patient valleys; frost has only begun picking at the first hand-span of every ledge, and wind has accomplished nothing but a faint roughening, like the first sanding of a blade still being forged. Below it, the ancient ranges look apologetic, worn down, settled. This one still has its edges.
+
+Its crown stands above the layer where weather lives. Air up here has forgotten how to carry warmth. It is a cold that does not bite so much as gradually convince — a hand left out goes wooden, then absent. And the crown wears a hood: a cloud-shelf the mountain combs off the high winds and keeps, so that everything at this altitude happens inside a grey-black that never fully becomes either day or night.
+
+Between two fins on the eastern shoulder, a seam runs up the rock like a knife-cut — a forearm wide, a hundred and some paces long, fresh as the day the two walls parted. Near its top the seam turns, narrows, and then opens.
+
+And there is the room.
+
+It was not carved. Nothing here has been carved; the mountain is too young to have learned hollowing. This is a blister the mountain sealed into itself at its birth — a pocket of gas caught in the uplift, whose walls healed round-bellied and whole. Twelve paces long, nine across, domed to the height of three standing figures: the scale of a chapel, or a generous room, or a throat. In a landscape of kilometer cliffs, it is the size of a held breath. Its walls are glazed with a mineral varnish that the condensation has spent years painting — a thin saline skin, faintly iridescent where the moisture threads run, tasting of iron if you put a tongue to it. The rock beneath is dark and knapped-looking, its fractures sharp as obsidian.
+
+There is one opening: the throat of the seam, climbing away toward the crown. It admits no light worth the name. Twice a season, when a storm discharges somewhere in the hood, a rumor of light crosses the upper walls — milk-grey for the length of a blink — and once, impossibly faintly, a hairline cleft shares what it hears of the outside dark, which is only a *less* dark, a grey-breath, a direction the pickfolk face when they want to remember the sky exists.
+
+Because the room is full.
+
+The swarm that lives here — the pickfolk, in the words their touch-language lends them — numbers five hundred or so, and they are layered on every surface like scales. Pale as wet chalk, built somewhere between a grub and a child, they stand on four climbing legs and work with two pairs of hands, each fingered finely, each finger thick with nerve. They have no eyes in any sense that means seeing; the lens is sunk under the skin of the smooth skull, a buried bead that can find the grey-breath and nothing else. Their skin *is* their face. They read the world by press and vibration, and to them the room is not dark. It is all-touch. Their name for it, rendered as best a hand-language can be rendered, is **the Held** — a room that holds them the way a hand holds water.
+
+Water is the room's whole economy, and it arrives by condensation. The throat is the engine: outside colder, inside warmer, and so the chimney walls sweat forever, threads of moisture running down the glaze in slow silver ropes. From the dome's crown, drops gather and fall — one drop every forty breaths, each one striking the basin below with a knock that rolls around the chamber like a knuckle on wood. The basin is a shallow shell in the floor, the size of two cupped hands, and it has never once been seen empty. And then, on a cycle the pickfolk keep knot-records of, the outside weather pushes vapor down the throat: the *wet visit*. A fog-rain with no wind, slow as pouring, that darkens every surface, fattens every felt, fills every pocket-pool, drips from a hundred points at once for a day and a night. Then weeks of near-drought, and only the single patient drop.
+
+The vegetation that lives on this ration is as sparse as the water allows. Dewmoss — a grey-ivory felt — coats the ledges where the threads touch, crumbly when dry, velvet when wet, growing on mineral dust and thin air. And there are the waxstems: a dozen pale w

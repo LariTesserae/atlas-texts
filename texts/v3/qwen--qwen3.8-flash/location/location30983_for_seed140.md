@@ -1,0 +1,9 @@
+## The Humming Hollow
+
+At first it is only a darkness with edges.
+
+The bowl sits high—high enough that the surrounding land should be wind-scoured, cold, and nearly bare. But this small depression is warm in a way that feels borrowed from somewhere below. The air hangs thick and soft, not heavy but close, as if someone has exhaled across the mouth of a bottle. The darkness is total enough that the eye gives up on it quickly; there is no visible sky, no scattered starlight, no moon, no ambient glow. What the place has instead is sound, wetness, and a kind of living pressure on the skin.
+
+The hollow is not large. From rim to rim it might be crossed in two or three hundred slow paces, though “paces” is a generous idea because the floor is uneven with shallow water and low ridges of moss. It feels like a cathedral that someone has taken to a mountain and then spent geological time sanding down. There are no spires here, no dramatic arches, no clean architecture. Everything that ever had a sharp edge has been rounded, softened, worn away. The stone has been so repeatedly wetted, dried, warmed, cooled, scoured by mineral fog, and polished by life that the surface no longer reads as broken rock. It reads as a single settled thing, near the end of a very old process.
+
+The bowl is mostly empty in the way of volume. The floor opens in wide dark plates of polished rock. Between these plates are pools no deeper than the length of a hand. Between the pools are soft belts of black moisture. Between the soft belts are ridges of spongy growth. And between all of these, across the whole small area, there are gaps: spaces where nothing seems to stand, where the wet air moves unobstructed, where one could lie down and feel the entire bowl leaning inward around them. The density is sparse, but not sterile. It is the sparseness of a vast, quiet room where every object has been placed far from every other object, and then allowed to age until

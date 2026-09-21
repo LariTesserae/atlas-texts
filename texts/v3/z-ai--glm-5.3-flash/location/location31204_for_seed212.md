@@ -1,0 +1,3 @@
+The light is the least strange thing about it. A plain afternoon sun, unremarkable, the kind that falls on any field anywhere — and it falls instead into a low green basin so totally plant-covered that green stops being a color and becomes a substance, a condition, a weather. From the rim of young hills the whole region reads at once as forest and as city: there is a skyline of unbranched stems, streets' worth of shadowed corridors between masses of timber, open squares where growth has been rationed into clearings, outlying districts where pale gourds hang in orchards like an architecture of fruit. Nothing in that skyline moves. Not one silhouette crosses the sky, because nothing in the sky is alive.
+
+The sound arrives before you do, and it does not stop. It

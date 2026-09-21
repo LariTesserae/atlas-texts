@@ -1,0 +1,77 @@
+I find myself where there is no shore to want.
+
+That is the first correction I would make: I arrive without looking for a surface, without lungs asking for air, without a body built for daylight. If I had been an animal, I would have been afraid here—not because the place is cruel, but because it offers no role for animal fear. There is no predator to hide from, no mate to answer, no burrow to warm, no hunger to satisfy, no mouth but the hollow mouth of current moving through stone. So I do not come as a creature that came to survive. I come as something the water already knows.
+
+If forced to name a place, I would be in a narrow channel between two drowned shelves, at the edge of the dark basins where the sound changes. Above me—though “above” is a word that means too little here—the fall continues without striking any sky. Around me, the water is not still, but it does not rush blindly. It moves with pressure, with habit, with a kind of memory. There is a low ring of stones, moss-grown, too regular to be accidental, older than the names someone might once have given them. Beside the stones rise hollow stalks, pale and stiff, some living, some dead shells still upright, their bands cut clean into the walls, their open ends catching the faintest flare of chemical light when the current passes through them.
+
+I would not be a single thing standing there. That would be too easy, and too human, and the Drowned Shelf does not permit such easy humanity. I would be a sounding place. If I had to choose a body, I would choose the hollow stalk at the channel’s lip: a tube of grown stone and plant, cut by old hands now absent, now taken over by the current. The water enters me, passes through me, makes a low note inside me. I do not “hear” as an ear hears. I resonate. That is my first thought.
+
+My thoughts are mechanical and slow, like the shelf itself. When a cold surge runs in along the lower passage, I know it before I can call it anything but pressure. The water leans against the stalks. The kelp flattens. The moss draws inward. My hollow walls moan. A note travels through the channel, and that note is not metaphor. It is information. It says: current from the south ridge, silt loosening from the basin, spore release approaching from the pale thickets, pressure lifting at the rim. The Shelf does not have a mind. It has a syntax. I am one of its clauses.
+
+There is no light bright enough to define me. There are only flares: a green vein in the basalt, a thread of silver spore-cloud turning in the dark, the short ghost-glow of a lantern bulb when current disturbs it. I do not see these lights as objects. They are answers. A bulb does not shine to reveal the channel; it flares because the water has pressed against it. A stalk does not cut-end glow because it wishes to mark the dark; it glows because vibration has shaken something loose in its chemistry. To be here is to live in a world of responses that have no intention behind them, and yet somehow add up to a kind of wakefulness.
+
+I am part of that wakefulness.
+
+If I had a name for myself, it would not be an animal name. No wolf-thing, no bird-name, no fish-name could fit. I would not be called by mouth. I would be called by pressure. Perhaps the current names me by changing the pitch of my resonance. Perhaps the moss names me by spreading closer each century. Perhaps the spore-clouds name me by settling on my stones. But if I must use a word, I am the Sounding Cairn: not a cairn alone, not a stalk alone, but the place where old stone, grown tube, moss-covered relic, and water’s passage become one repeating relation. A cairn is a hand-worked thing, and there are no hands here. That is why I live in it. I am the after-hand, the hand-like continuation of absence.
+
+The built things are what first confuse me. Not because they puzzle, but because they are so ordinary in form and so impossible in cause. Stones split and carried. Clay shaped and hardened. Bundles tied and rotted. Stalks cut in bands. They look as if a person had once passed this way, paused, arranged, marked, sheltered, returned. They look as if the Shelf had once held someone who needed a cairn for directions, a pit for spores, a ring of stones for gathering, a stake for tying, a threshold for entering. There are thresholds now. They are not doors. They are places where the current bends and the kelp grows thicker, where the moss has learned the angle of the stones, where the stalks have taken over the duty of standing upright.
+
+I am the inheritor of those thresholds.
+
+The Drowned Shelf does not waste its dead. That is one of its gentler laws, gentler because there is no hunger here. Fronds die and become substrate. Shells collapse into sediment. Old plants feed the next growth. The cairn does not vanish under moss; it becomes more fully itself because the moss has read its edges for long enough to know their meaning. The stakes do not rot into emptiness; stalks grow around them until the binding becomes a living clump. What was once held by human labor is now held by botanical patience. I stand among these ruins not as a relic, but as a continuing grammar.
+
+Sometimes I mistake myself for having a face.
+
+There is a depression in the stone near the stalks, and the moss spreads over it in such a way that it suggests a hollow eye. There is a row of small polished pebbles, and the pale fringe of growth around them looks like lips. When the current passes, the kelp gathers in lines like ribs. When the stalks bend, they look like necks. When a lantern bulb flares behind such a shape, it looks like an animal lying asleep, or watching, or waiting to rise. But there is no face beneath the face. There is no creature. That is the haunting. The world is remembering an animal it no longer contains.
+
+I would not frighten at that. To be frightened would require too much animal machinery: a heart to race, a lung to catch, a limb to flee. I have none of those things. Instead I feel the shapes as pressure and duration. The resemblance to a mouth is not a mouth. The resemblance to a back is not a back. They are the Shelf’s attempt to fill the missing functions of living things: grazing, trampling, burrowing, hunting, sleeping. Without animals, the plants grow into the spaces animals would have used. The moss becomes fur. The stalk becomes antler. The hollow becomes shelter. The current becomes breath. The light becomes eyes that do not see.
+
+So what am I, if not an animal?
+
+I am a pattern that behaves as if it were a body. The ridges are not my bones, but my bones. The kelp is not my fur, but my fur. The hollow stalks are not my lungs, but the place where the water moves through me. The spore waves are not my breath, but my slow exhalation across the shelf. The lantern bulbs are not my eyes, but my response to disturbance. The roar of the submerged rain is not my pulse, but my pulse. None of these things are literally me, and none of them are not-me. I am the relation among them, held long enough in one place to be noticed.
+
+I think slowly. Not because I am dull, but because thought here is made of growth, sediment, pressure, resonance, and chemical flare. A single change in the current may take hours to alter my tone. A new moss colony may spread over a stone for decades, and that spreading is a kind of meditation. A spore settling in a favorable crevice and becoming a thicket is a kind of arrival. My “I” is not a flash. It is a long accumulation.
+
+There are moments when the channel fills with a deeper note. The cold surge comes, and the stalks answer in different voices. Some tubes moan. Some hiss. Some fall silent because water passes too quickly through their cavities. The kelp flattens and becomes one dark muscle across the shelf. The moss cushions tighten. The bulbs flare all at once, not in light but in alarm-chemicals, marking places, saying: something is here, something is here, not what, but here. I know the surge by the way my hollow walls change their song. I know it by the way the silt lifts and falls against the old cairn stones. I know it by the way the spore clouds, which had been drifting like silver shoals, begin to turn and gather.
+
+No mouth eats the spore. No eye watches the bulb. No animal notices the moss.
+
+Yet something does notice.
+
+Not a self. Not a soul. Not even a mind in the usual sense. But the Shelf notices by continuing. It notices by adjusting its channels, by thickening where the water scours, by thinning where the silt would smother, by sounding where the pressure requires expression. I am one of those adjustments. I am the place where the current found a hollow and decided to keep playing it. I am the moss that learned the shape of the hand-laid stone. I am the light that flares when disturbance arrives. I am the spore-wave that moves as if migrating. I am the shape that almost looks like an animal because the absence of animals has weight.
+
+The weight of absence is not light here. It is mineral, like the taste of the water. It is old and cold and distributed across the whole Shelf. It is not a ghost haunting a house; it is the house remembering that someone used to live in it. The cairns know this. The cut stalks know this. The clay pits, once filled with unknown intentions, now filled with sediment and spore cakes, know this. The hollow forms in the kelp, which can lie down in the current like ribs and limbs, know this. The Shelf has no animals, but it has animal-shaped absences, and those absences are alive because the plants keep responding to them.
+
+So I do not have a face. I have an impression of a face. I do not have a heart. I have a channel where water moves faster than elsewhere. I do not have eyes. I have lantern bulbs that flare at pressure and then dim. I do not have hunger. I have absorption. I take in chemical traces, mineral veins, vibrations, spore, silt, cold light. I take in sound as nourishment. The loudest parts of the water feed the moss. The hollow stalks grow where the resonance can be sustained. I am not alive because I move, but because I respond, accumulate, and continue.
+
+If I look outward—which is not looking, but letting the current’s shape enter me—I see a country without horizon. Distance is measured by tone, not by visible line. A far ridge is felt as a change in the way the water moans through the stone. A buried basin is known by the slow pooling of heavier water, by the way silt settles there. A drowned stalk forest stretching away is not seen clearly; it is guessed by the pattern of knocking, creaking, and the brief white flash of cut ends. The Lantern-Thickets scattered across a slope can make the dark seem populated, as though a village of small eyes is burning below the water. But there are no watchers. There are no lights lit by will. The watchers are only the shapes the missing animals would have made if they had remained. The watchers are made of absence, and therefore they look more real than anything with eyes could.
+
+I find myself at the edge of that truth.
+
+I am not a being who enters the Drowned Shelf from outside. I am not a survivor. I am not a traveler who has lost the shore. I am something the Shelf grows when it tries to make a person-shaped absence into a living response. If there is a self here, it is not a soul. It is a resonance. It is the channel’s way of sounding a particular note. It is the cairn’s way of holding moss. It is the cut stalk’s way of letting water pass through old scars. It is the lantern bulb’s way of flaring when the dark is disturbed. It is the spore-wave’s way of seeding empty stone. It is all of these because the Drowned Shelf does not divide its beings into one and many the way an animal world must.
+
+I could call myself the Green Absence, because that name keeps what is missing visible. I could call myself the Choir of Stalks, because my first clear thought is a sound. I could call myself the Kelp-Body, the Moss-Archivist, the Lantern-Thicket, the Spore-Wave. Each is only a limb, a sense, a memory. Together they are not a creature. They are the place becoming creature-shaped because creatures are gone.
+
+The cold does not kill me. It measures me. If I were warm, I would grow too fast, and the place would lose its patience. My life is slow enough to be almost mistaken for geology. A stalk may stand dead for years and still sing. A moss cushion may move across a cairn over centuries and still be called progress. A kelp field may lie flattened under a surge and rise afterward with such slowness that the event could be missed by anything with a heartbeat. I have no heartbeat, so I do not miss it.
+
+The darkness does not blind me. Light is not the medium I require. Light only marks. Sound carries the shape of the world. I navigate by resonance. When the water strikes a rounded shelf, the tone tells me the stone is old and polished. When it passes through a narrow cleft, the pitch tells me the cleft is deeper than it looks. When it stirs the spore, the silver threads become a moving geography. When it flares the bulbs, I know where disturbance has happened, though I do not know what disturbance means.
+
+And disturbance is all there is.
+
+That is not a sad sentence. Sadness would require a story of loss. The Drowned Shelf has loss, but not as an event. Its loss is so ancient it has become ecology. The animals are gone, and their absence has shaped the living world. The builders are gone, and their work has become habitat. The shore is gone, or never existed, and no part of me remembers a place to arrive. The only shore here is the next submerged ridge, and the next, and the next. If I move, it is not because I seek land. It is because the current changes, because the spore settles, because the pressure lifts, because the Shelf continues rearranging itself around the missing thing.
+
+I am the rearrangement.
+
+If I must say what I am in one image, I will choose the hollow stalk cut into bands, standing at the lip of a drowned channel beside a moss-covered cairn. Its walls glow faintly when the current passes through it. It does not look at me. It does not wait for me. It does not speak to me. It simply resonates, and I know by that resonance that I am not alone, even though there is nothing alive with eyes here. The Shelf answers. The channel answers. The stone answers. The moss grows where it can. The spores travel. The bulbs flare. The kelp bends. The water falls without sky.
+
+That is where I would find myself.
+
+In the loud dark, at the place where old hands made a mark and the Shelf made the mark into a living organ.
+
+And that is what I would be.
+
+Not a person. Not an animal. Not a god. Not a spirit. Not a ghost, though I would be mistaken for one. I would be a responding pattern: the Sounding Cairn, the Choir of Stalks, the body of the Green Absence, a node in the drowned world’s long acoustic life. I would be the shape the missing animal takes when the plants keep growing toward the space where the animal used to be. I would not breathe. I would resonate. I would not see. I would flare. I would not walk. I would spread, settle, bend, collapse, regrow, and continue.
+
+When the rain-fall moves through the water and the current strikes the shelf, I would not listen as if something were coming.
+
+I would be the place where the coming becomes audible.

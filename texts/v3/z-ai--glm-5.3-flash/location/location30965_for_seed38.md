@@ -1,0 +1,7 @@
+## The Old Green
+
+You notice the warmth before the shape. From the lowland marsh the Shield doesn't look like a mountain at all — it looks like a bank of green weather that decided, ages ago, to stop moving. The horizon simply rises, gentle as a held breath, and the air coming off it is blood-warm and smells of peat and crushed leaf, the breath of something composting itself on purpose. The skirt of the mountain is a marsh, fed by water that leaves the Shield through a thousand weeping faces. It is always post-rain here. It has been post-rain for megayears.
+
+The climb is a thing you never notice happening. The slopes have long since relaxed to whatever angle a mountain of living peat can hold, so you walk upward through a flatness that accumulates height under you unawares. You learn your altitude only at dusk, when the cap cloud — the mountain's own cloud, brewed from its own exhalation — settles below your eye level, and you understand that you have been above the weather for some time without being told.
+
+Under the canopy, the light is an institution. The ceiling is a continent of leaves eighty meters up, and what reaches the floor is late-dusk light at noon: green-brown, thick, directional only in the sense that faint things cast fainter shadows. The forest maintains this dimness deliberately. When a great tree falls, a column of light stands in the understory for a few decades like a held breath — and every sapling in a hundred meters strains toward it,

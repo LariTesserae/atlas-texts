@@ -1,0 +1,17 @@
+# The Works
+
+There is no one who built them. That is the first thing you learn here, and the last thing you stop wondering about.
+
+The plateau runs for hundreds of kilometers — a vast high tableland, warm even in the permanent dark, its air holding a thick animal warmth like the inside of a lung. Above it, sky. Below it, an atmosphere of its own making: the machines exhale, the plateau breathes. Weather happens here that belongs to no regional system. A slow front of condensation gathers over the machinery basins at what might be midday — there is no sun to say — and releases as a brief, heavy, drumming rain that falls on iron and hide alike, then stops. The water never pools. It runs into the ground, or into the machines, which is possibly the same thing.
+
+The machines came with the plateau, or the plateau came with the machines; the erosion tells you which came first, and it is careful, ambiguous. Everything here is weathered in the way of a thing that has been itself for an unimaginably long time. The engines are worn smooth at their edges. Their towers stand spaced far apart — this is a sparse country, mostly emptiness, and a single exhaust stack will hold a horizon by itself for an hour of walking. Between them: dark, warm stone, faintly damp, smelling of oil and rain and something biological underneath.
+
+Because the fauna is the surprise, always. The animals did not flee the engines. They *use* them. Warmth radiating from transformer housings is a nursery; condensation channels are watering holes; the cooling fans, turning slow and vast, have entire roosting ecologies in their housings — things with soft wing-membranes that ride the thermals rising off the stacks, generations deep. Grazers move between the machines in long scattered lines, licking mineral deposit from pipe joints. Predators hunt in the dark between towers, and you hear them the way you hear everything here: faintly. Mostly quiet. A low sub-audible thrum from somewhere is the baseline, the plateau's single held note. Over it: rain-drums, wingbeats, the click and tick of cooling metal, an occasional far-off hydraulic sigh like a whale surfacing.
+
+There is no one to maintain the works, and no rust to demand it. The tech sustains itself in a way that suggests the maintenance is ecological — perhaps the fauna groom the machines, perhaps the machines farm the fauna. From a ridge you can see for a hundred kilometers: scattered constellations of faint indicator lights, red and amber, winking in the blackness like a city seen from very far above, or like bioluminescence on the floor of a deep sea. Both comparisons feel right. Neither is.
+
+The vegetation is thin and patient — dark-leaved, waxy things that drink condensation off the machinery's flanks, growing in the shadow-lines where the exhaust keeps the air humid. Sparse, but tenacious, and older-looking than anything has a right to be.
+
+It is warm, dark, vast, mostly empty, and completely inhabited. Nothing here is abandoned. Nothing here is finished. The plateau and its works have reached their settled state long ago, and their settled state is: still running.
+
+If there was ever a purpose, it has weathered off, like the markings on the towers. The animals don't wonder about it. You learn to stop, too, eventually. The thrum helps.

@@ -1,0 +1,5 @@
+The sharp edges remain sharp because they were made, and because the act that made them has been converted into an organ.
+
+What lives here is not a hidden animal. It has no lair, no young, no trail, no scent, no burrow in the black composite shelf. It is not crouched behind a salt ridge, nor does it wait in the dark beneath the bolted plates. If you searched for it as a body, you would fail. If you stopped searching and let the room enter you, you would feel that the entire pocket is alive by a single continuous pulse. It is not a chamber that contains a creature. It is a creature whose body is the chamber, whose mind is its geometry, and whose breath is the sound without motion.
+
+Call it, if a name is needed, the Keep. The Keep is the interior mountain, made manifest as a place that refuses to become anything else. It is the alloy-cliff valley, the dry salt chemistry, the precise drift of mineral dust, the standing roar, the bolted floor, the channels that never carried a flash of water,

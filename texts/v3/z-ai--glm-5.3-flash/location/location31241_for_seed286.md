@@ -1,0 +1,17 @@
+# The Machine-Gardens of Thalassa Verdis
+
+There is no surface here. That is the first thing to understand. You do not arrive at this place — you are *absorbed* into it, the way a raindrop is absorbed into a leaf.
+
+The ocean is a plant. Not an ocean with plants in it, not kelp forests or drifting algal mats — the water itself is the tissue of a single organism of continental extent, perhaps planetary, a green-black medium thick as gel and warm-cool to the touch, breathing in slow tidal contractions you feel in your chest rather than hear. Call it the Bloom. Call it the Deep Canopy. It has had four hundred million years to become what it is, and what it is, is *finished*.
+
+**The frozen engine.** Nothing here changes. That is the second thing. The place is loud — deafeningly, industrially loud — but the loudness never varies. Machinery thrums somewhere in the vegetal dark, a rhythmic industrial pounding like press-works and turbine halls, but the machines have no builders and make nothing. They are grown. Great pods of lignified cellulose, valve-like fronds that open and close in perfect four-second cycles, pumping the green water through vascular channels the width of rivers. The whole ocean is a factory in perfect equilibrium — every output consumed by some other process, every gradient balanced, every cycle closed. The engines run eternally and produce *stillness*.
+
+**The great heights.** Elevation is strange in a drowned world, but there are heights here: the Bloom grows upward in places into colossal buoyant towers — siphonophore-trees, miles of connected pneumatophore rising through the water column toward a light that filters down in long normal-day rhythms. Climb one (there are handholds; the plant seems to offer them) and you pass through thermal layers, through shoals of silver grazers parting around you like exploded mirrors, up to the high canopy-zone where the water thins to something almost like air and the light comes down whole and unbroken.
+
+**The sparse wide places.** For all its totality, the Bloom is not crowded. Between the great structures — the pump-cathedrals, the filter-massifs, the slow-cycling respiratory beds — lie enormous open plains of clear, faintly green water, empty for hours of swimming. Things are scattered deliberately, the way organs are scattered in a body. The emptiness is part of the design.
+
+**Fauna.** Abundant and unbothered. Grazer-swarms that flow like weather. Long translucent eels that thread the vascular ducts, functionaries of the circulation. Flat blind laborers on the seafloor, hull-sized, chewing sediment and excreting it in neat ordered ridges — they have done this forever and will do it forever. Nothing hunts. Why would it? Everything is fed. Everything is employed.
+
+**The strangeness.** You will notice, eventually, that the machines are *waiting for something to be made*. The factory is complete, powered, loud, eternal — and idle. Some theorists among the eels (if eels theorize) say the product was finished long ago, and this is the maintenance phase, and maintenance, in a place without time, simply *is*. The pounding continues. The valves cycle. Nothing is built, nothing has ever been built here by any hand — and nothing more will be.
+
+Stay as long as you like. You will not age here. You will not be the same when the tide remembers to move.

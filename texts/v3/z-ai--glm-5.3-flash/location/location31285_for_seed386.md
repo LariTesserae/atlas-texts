@@ -1,0 +1,3 @@
+From a distance it is only weather: a standing cloud over the plain, taller than a mountain, because that is what it is — a mountain wearing its own sky, raining privately on itself. The lowlands around its base are warm marsh that goes on for a day's walk in every direction, spongy ground that gives underfoot like a bed, warm puddles steaming faintly in the morning, reeds, slow birds. Then the ground begins to rise, and the world quietly revises a few of its rules.
+
+The first revision is about heat. Out on the plain the nights are merely mild; here, warmth lives uphill. The mountain is warmest at its crown, where broad vents breathe

@@ -1,0 +1,43 @@
+If you ask what lives in this bowl, the answer depends on how small a life you are willing to count.
+
+No person comes there to greet you. No hearth burns in the shed. No child leaves handprints on the condensers. No path by the railing has been worn by recent boots. Yet the place is not empty. It is occupied so completely, and in so many different registers of being alive, that the nearest honest answer is: the basin itself lives.
+
+It lives in the way a reef lives, or a forest, or a slow river with all its mud and roots and fish: not as a single animal with a face, but as a persistent arrangement of heat, water, stone, growth, decay, and abandoned machinery. It is a young creature made of many creatures and many dead materials, still assembling itself.
+
+If it has a name, it would not be a name it chose for itself. The old engineers might have called it a condensation array, a geothermal trap, a pump station, a pilot installation. The mosses have no name for it. But travelers, if they stay long enough to feel the wrongness of calling it merely a place, might begin to think of it as the Green Engine, or the Warm Bowl, or the Heart in the Basalt. All of these names fail, and some of them succeed.
+
+The dominant inhabitants are not animals at all. They are green things, and among green things, moss is the first citizen of the basin.
+
+Moss is the thing that has made the basin habitable. It covers the sharp basalt like a living tapestry stretched over fresh scars. It grows in thick cushions of bloodwort red-black, in silver-green lichen films, in springy bottlebrush mats so saturated that a footprint closes behind them and releases a small cloud of mist. It grows in hollows, along pipe seams, on rusted iron, in the wet cracks of pumice, on the undersides of metal roofs where condensation never stops. It does not merely decorate the place. It holds the water. It slows the steam. It cools the heat. It catches dust and mineral. It makes soil where there was none. It creates microclimates: wetter, warmer, darker, more sheltered than the stone outside it.
+
+Beneath the moss are other green lives. Liverworts form fine carpets, so delicate they look like woven cloth, spreading across damp ledges and the edges of shallow pools. Ferns crowd the wetter margins, their young fronds curled like copper wire, then unspooling slowly in the heat. There are waxy-leaved flowering plants that seem too soft for volcanic ground, squat and tender, growing where warm mist lingers in stone crevices. Pale reed-grasses rise in narrow stands, translucent at the edges, their leaves beaded with droplets that never quite fall.
+
+If you look closely, each plant is inhabited in turn. The moss itself contains tiny ponds, hollows, shaded caverns, and threads of mineral water. Algae brighten the wet stone. Fungal filaments run beneath the green mats, invisible as a whisper. Bacteria oxidize iron on the basalt and leave rust blooming like red frost. Microscopic life moves through the wet films on every surface, eating, excreting, building, decomposing, turning dead metal into substrate for living green. The basin is not old, but it is already full of these invisible workers, and without them nothing larger could stay.
+
+The animals, by contrast, are sparse.
+
+The most common visible one is the white midge. It is not a pest, not a swarm. It is a small solitary thing that spirals above condensation pools and warm drips, slow as thought, as if the air in the bowl has been thickened for it. Its larvae live in the wet moss and the thin films of water on stone. It is one of the first animals to claim this place: not because it is mighty, but because it is small enough to breathe the warm damp without needing lungs to match the thin high-altitude air.
+
+There are beetles too, eyeless and smooth, adapted to dark crevices and wet rock. They cross metal plates in brief, purposeful flashes and vanish into cracks before you can see whether they are searching for food or only for the next shadowed moisture. Their bodies are pale or dark depending on where they grew; some have a faint bluish shell, as if the condensers influenced them for generations. They feed on microbial films, rotting moss, mineral crusts, and the thin lives of smaller creatures. They are the basin’s blind cleaners, its patient wanderers.
+
+A snail lives there too, though “lives” may be too fast a word for what snails do. It moves across pipes and warm stone, its shell crusted with lichen so it looks less like an animal and more like a piece of the machine becoming geology. It leaves a tiny glass track of moisture behind it. It grazes biofilm and the first green fuzz on iron. Where it goes, the pipe becomes less pipe and more substrate.
+
+There is something else, seen only rarely: a pale, half-fish creature in the shallowest steam-warmed pools. It may be an amphibian. It may not. It moves with too many bends in its body, not like a fish swimming but like something remembering a limb and losing it, like a small jointed thing unfolding through warm water. Its skin is translucent enough to see shadowed veins inside. It stays in the hottest shallow places, where the water breathes upward from stone and the air feels wet against the eyes. It is not beautiful in the way animals are usually made beautiful. It is strange because it is perfect for this particular damp: too high, too wet, too warm, too young, too full of steam to support anything large or graceful.
+
+Larger animals are absent. The thin air, the constant noise, the wetness, the instability, and the sharpness of the stone all argue against them. There is no deer, no bird’s nest, no fox, no wolf. The basin does not reject them by malice. It simply has no rooms for them. It has rooms only for small things, slow things, clinging things, burrowing things, and for the machines.
+
+The machines are not alive in the way moss or beetles are alive. But if you spend enough time there, that distinction begins to soften.
+
+The pump house sits near the lowest point like a squat iron animal. Its curved roof catches condensation and sheds it in long threads. Its doors are swollen with damp and rusted shut. Somewhere inside, a flywheel turns at a rhythm slower than a heartbeat, driven by steam and pressure and water weight. A piston rises every few seconds with a deep, wet groan. The sound is not dramatic. It is geological: a slow, repeated pressure moving through metal and stone.
+
+The condensers stand on basalt footings, their cylinders patterned with oxidized blues and greens. Moss grows up around their bases. Steam escapes from pinholes and falls as mist. Water drips from their joints into channels that lead nowhere except back toward the warm cracks of the earth. They do not look like tools anymore. They look like organs.
+
+Pipes split and breathe. Some are tight and singing when pressure shifts. Others are open and leak slow curtains of warm water that feed the moss below. Valves hidden under green growth release pressure with long whistles. The wind moving across the rim changes the pitch of the escaping steam, and for a moment the whole basin sounds like a creature adjusting its breath in sleep.
+
+The crane arm above the rim is perhaps the clearest evidence of absence. It hangs from pulleys and cables, still, rocking slightly when the wind changes. It does not lift anything. It drips. Its chain ticks against stone. Its shadow crosses the basin in slow arcs as the clouds shift. If it ever carried people, it has forgotten their names. If it ever carried coal or crates or ore, the basin has made use of the pipes and not the purpose.
+
+The machines have become dwellings. A split pipe becomes a tunnel for beetle and mold. A condenser becomes a hillside. A rusted roof becomes a vertical meadow for moss. A stone footing becomes an island. The industrial skeleton has been colonized, softened, absorbed. The place has repurposed human labor without needing human intention.
+
+That is where the “who” begins to emerge.
+
+The basin behaves as if it is one object because, in important ways, it is one object. The steam rises from fissures, meets cooler air, condenses on machine roofs and ledges, falls into channels, gathers in shallow pools, seeps back toward the hot cracks, and rises again. The moss grows where pipes leak. The pipes leak where moss holds water. Some of the channels are cut by water; some are guided by rusted metal; some are formed by the weight of green mats directing the drip. No

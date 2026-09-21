@@ -1,0 +1,5 @@
+If I am allowed to arrive in this world slowly, I will not arrive on a summit. There is no summit here to claim, no flag to plant in snow, no human word waiting to be nailed to rock. There is only a high, exhausted tableland, a floor left open to a sky that no longer behaves like air. And if I try too quickly to answer where I would be, I would become too large, too bright, too obvious. So I will move through possible selves before I find the one that fits.
+
+At first I would think I might be the black dome above the shelf. Starlight almost the only thing remembering distance. That is tempting: to be far, to be cold, to be so high that the lower world is erased. But I do not want to be a background. I want to be a place where something can rest.
+
+Then I would think of being the gray ocean of cloud below. It presses into the lower folds of the world with such patience that it seems almost like stone. Maybe I could be that mist, that soft ocean that hides the earth and keeps the shelf from ever feeling fully

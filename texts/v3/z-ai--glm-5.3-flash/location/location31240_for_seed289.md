@@ -1,0 +1,19 @@
+# The Seed Vault of the Under-Sun
+
+You find it by accident, because it cannot be found any other way: a hollow no larger than a chapel, tucked beneath the skin of the world, reachable through a crack in a dry hillside that exhales cool, wet air like a held breath released.
+
+Inside, everything is bright. Not sunlit — there is no sun here — but *luminous from within*. The walls glow with a pale, pearly light that has no source and casts no shadows, and because it casts no shadows, nothing in this place has ever known darkness. The light does not flicker. Nothing here flickers. Nothing here *changes*.
+
+The chamber is packed — that is the first thing your body understands. Not cluttered, but *full*, the way a fist is full. Every surface is occupied. The walls are a dense weave of pale root-like filaments and moist mineral crust, layered so tightly that there is no gap between one thing and the next, no seam, no silence of empty stone. It is like standing inside something's lung, or its heart, or a fruit that has ripened inward instead of out.
+
+The geology here is embryonic. The stone looks unfinished — soft-edged, glistening, like wax that has only just decided to be rock. Ridges run along the walls in the patterns of first-attempts: half-formed strata, crystals caught mid-vocabulary, mineral sentences that never reached their verbs. The floor is a thick, damp sponge of calcium and moss-analogue, warm-cool underfoot, giving slightly, weeping faintly. Water is scarce in the world above, but here it exists only as *dampness* — condensation beading on everything, the air itself thick with moisture that never falls as rain, never pools, never dries. A perfect, suspended wetness.
+
+And the life — the life is loud. Sparse by count, perhaps a dozen species in the whole chamber, but each one *vociferous*. Pale tube-worms that sing through their skins, a low choral hum like wet fingers on glass. Fat white grubs the size of thumbs that click and purr as they glide along the walls, grazing on the glowing crust. Something like a moss-shrimp, translucent, that drums its tail against the stone in rhythms that sync with the worms until the whole chamber resonates — a constant, layered drone, a chord held forever. The sound never varies. You realize after a while that the grubs are repeating the same phrases, the same exact phrases, in the same exact order, forever.
+
+Because that is the deepest strangeness of this place: **it is in equilibrium. Absolute equilibrium.** Not slowly changing, not cycling — *stopped*. The chamber is a portrait of an ecosystem painted at the moment of its birth and never allowed to dry. The worms sing the same note. The condensation beads are the same size they have always been. The faint built things — and there are a few — confirm it: a low arch of fitted stones, moss-covered, that someone made once. A niche carved with three deliberate marks. A clay cup, half-sunk in the sponge floor, holding a puddle that has neither evaporated nor overflowed. Whoever built them finished them a long time ago, and then — time did. Time stopped doing anything else here.
+
+The fauna do not fear you, but they do not change for you either. They perform their small eternities around your ankles. When you leave — and you must, the crack exhales you back into the dry ordinary world — you will carry the drone with you for days, a held chord that will not resolve.
+
+And you will wonder, standing in the wind, whether the chamber is a place where time never began, or a place where time, having just barely begun, was told: *enough. Stay like this. This is good.*
+
+This, exactly this, forever.

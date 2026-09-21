@@ -1,0 +1,5 @@
+A chimney of firebrick, cracked but standing, has become a wet throat, its flue narrowed by reeds, its inner lip dark with mineral sweat. Small bead-makers pass through it at dusk, carrying condensation in cupped forelegs, and their clicking is one source of the place’s hum. This is the first thing to understand: whatever lives in the Sump-Cathedral does not arrive as an audience. It arrives as repair.
+
+Who lives there? The answer depends on how small one is willing to look, and then how strange one is willing to become when looking closely.
+
+The first inhabitants are barely separate from the water. They are the bead-makers, thumbnail-sized crustaceans with flattened backs like pitted coins and legs ringed with stiff root hairs. They move in patient lines across iron gratings, old rails, brick faces, and the broad shelves of leaf where condensation gathers. They do not drink in the way one imagines an animal drinking. They gather drops into the hollows of their thoraxes, mix them with dust

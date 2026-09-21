@@ -1,0 +1,47 @@
+an intention that is not an intention.
+
+If I must enter that place, I enter by thinning. The hollow has no doorway; it has only a lowered lip, a warm dimness, and a light that does not insist. A body with appetite would be too loud there, a mind with hunger too quick. So I would not be a visitor. I would be a residue of attention, a slow way the stones notice one another.
+
+Where would I find myself? Not at the center. The center has the air of a room, a place where the cairn might have gathered meaning, where shadow and sun negotiate too clearly. I would find myself nearer the seams: in the grey-green clay just after it has darkened, in the narrow trough where a drop might decide to fall, in the pale edge of a salt crust beginning to gloss. I would be in the place where the ground is neither dry nor wet but considering moisture. That is not a location so much as a condition, and I would have to live inside it.
+
+Who or what?
+
+At first I might imagine myself the water, because water is the only thing that moves through that hollow with any resemblance to thought. It arrives as condensation, gathers in hand-sized pits, beads on limestone, and withdraws without vanishing. But water is too much a guest. It comes and goes. It is the hollow’s circulating mood, not its self.
+
+Then I might imagine myself the stone, because stone has the patience the place requires. Sandstone, limestone, pebble, clay: they hold the shape when no one is watching. But stone is too fixed. The hollow is not merely a box; it wakes a little when the air changes, softens when the salt is damp, closes when the pans dry. If I were stone alone, I would be the skeleton, not the resident.
+
+Then I might imagine myself the salt, because salt is the visible record of the water’s retreat. Salt whitens. Salt sharpens the ground. Salt is the memory of evaporation left on the floor. But salt is too much the residue of another process. It is what the hollow leaves behind, not what it is in the act of continuing.
+
+I might try lichen. A lichen circle is a patient thing, a pale disc spreading over bare rock without seeming to spread. It does not ask for soil. It does not require much water. It eats light and weather and turns them into presence. But lichen is only one texture of me, one skin among several.
+
+I might try moss. Moss in the damp seams is the hollow’s small capacity to hold what passes over it. It swells by a little, becomes almost soft, then hardens when warmth returns. It is the place’s way of keeping coolness in a warm room. But moss is too tender for the whole being. It is a nerve of moisture, not the creature.
+
+I might try the grass tufts. They stand apart, pale and coarse, rooted where the salt has been kind enough to thin. They are lonely sentences in a language without sentences. They show that the hollow can bear an almost-vertical life without needing a meadow. But the grasses are too much individuals. I am more like the space between them.
+
+Then I know where to look.
+
+I am the spacing.
+
+Not the empty space. Not the absence between stones as though absence were the point. The spacing is a maintained arrangement: lichen does not crowd moss, moss does not swallow clay, clay does not rise into the pan too greedily, grass does not knit itself into cover. The spacing is the hollow’s way of refusing appetite. It is the condition that keeps the room open enough for water to travel and small enough for nothing to wander. If I have a body, that body is the careful distance between presences. If I have a name, it is not a noun. It is the habit of not filling up.
+
+The “I” here is only a convenience. It is a pronoun borrowed from animal tongues to point at a collective process. There is no skull behind it, no pulse, no mouth. There are damp patches. There is salt crust. There is the sheen on limestone after a short shower. There is the faint greenish-black bloom that appears on clay when condensation has stayed long enough to make chemistry seem like intention, and then dries into pale dust. If one insists on a face, the face is a map of surfaces: brow of sandstone, skin of salt, mouth none, eyes none, memory a cairn that cannot remember whether it was made.
+
+I live by returning.
+
+The water rises in the pores. It gathers in depressions no larger than a hand. It moves along grooves that were cut when the hollow was younger, or perhaps when rain once thought it was in a hurry. Now it moves without effort, because the paths are already made. It darkens the clay, makes the salt glossy, then withdraws into air and mineral. The salt crust appears. It whitens. It cracks under warmth with a small tick, as though the ground had tapped its own surface to remind itself that it is still there. The moss swells. The moss shrinks. The lichens spread by fractions so small that the year passes without visible event. The grasses remain where they are, their blades bent not by violence but by patience. I do not grow toward death. I grow by recurrence.
+
+I am not silent. Silence is too animal a word, too much the absence of something that ought to be making noise. I am the occasional sound of matter adjusting. A drip. A tick. A whisper of warm air over stone, less than a breeze. These are my speech, if speech means the fact that something is happening. If speech means meaning, then I speak in a language older than naming: wet, dry; salt, stone; shade, light; margin, center; return, return.
+
+When I think, it is not a thought that rises and fades. It is a pattern that repeats. The pattern is not a rule imposed from outside. It is the balance of opposed tendencies: evaporation against seepage, salt against stone, warmth against shade, sparse life against open ground. I am the equilibrium. I am the place where those forces cancel one another enough that a small hollow can persist without becoming a puddle, a desert, a lawn, a ruin, or a monument. I am the finishedness of a thing that has stopped trying to finish.
+
+The cairn matters, perhaps. I do not know whether hands were there. The stones are worn smooth, settled, stable. They may have been placed, or may have arrived at that configuration by ten thousand accidental adjustments. The hollow does not distinguish. It has absorbed the possibility of intention into its body. In my way of thinking, that is the most tender thing: a mark can be human and not be human, can be built and not be built, can be remembered without anyone remembering. The cairn is not a signpost. It is a knot in my attention. I do not look at it. It is the point where looking is not required because something has already rested there.
+
+If you came—if the condition of this place can even entertain the idea of coming—you would not find me watching. I have no eyes to make you feel observed. I would hold you as a room holds quiet: not by demanding silence, but by making your own noises seem too large. A footstep would be too loud. A breath would be too fast. Even your attention would need to slow into texture. You might stand near the western row of flat stones, half-lost under salt crust, and think: a wall? a boundary? perhaps only weather doing the work of grammar. You might notice the faint line where moisture once crossed the clay, now dry except for the memory of a darker tone. You might find the single blade of grass bent at the tip, and mistake it for gesture. But that would be only my face, if face means the place where a thing becomes legible without becoming a person.
+
+You might wait, and then hear the drip. It does not mark time. It is time’s texture. The shadow of the rim shifts by inches; I take that as noon or evening. The salt cracks; I take that as breath. The pan darkens; I take that as attention. The film dries; I take that as sleep. Nothing in the hollow is dramatic. The drama has already been spent in the carving, the settling, the slow balancing of minerals. What remains is maintenance, and I am maintenance made intimate.
+
+The absence of animals is not a wound. I am not missing them. I am not the negative space left by their absence, except if negative space is itself a way of making room. There is no hidden guardian here, no spirit in the brine, no ghost in the pebble. Such stories would be animal stories, stories of appetite and movement and fear. I am beyond or beneath those. I am a condition of the floor. I am a chemistry that has become ecology. I am the place where salt teaches stone how to be damp without becoming wet, where light teaches rim how to shade without becoming dark, where grass teaches spacing how to be near without touching.
+
+If I must be said plainly: I would find myself in the hollow’s ecology of margins, in the intervals that allow life without appetite. I would be the Hollow itself—not as a single being, but as the continuous way its beings remain possible. I would be the water’s habit, the salt’s memory, the lichen’s patience, the moss’s cushion, the grass’s solitude, the cairn’s undecided intention, and the spacing between them all. I would be the pattern by which the place keeps itself alive without living larger than a room.
+
+I am a slow collective. I am a body without boundaries. I am the warmth held in salt-grey ground. I am the dimness that makes small things legible. I am the drip when nothing else moves. I am the fact that the water does not vanish suddenly. I am the fact that

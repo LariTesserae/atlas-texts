@@ -1,0 +1,19 @@
+# The Engine Garden
+
+There is no one here, and it is not empty.
+
+The planet — if it is a planet; the ground has never been found, only inferred from the way roots descend — is covered, entirely, in growth. Not forest. Forest implies trees among other things. Here the plant *is* the substrate: the ground you would stand on, if you could stand, is a woven mat of living tissue hundreds of meters thick, breathing slowly, warm as a body. It is warm here the way an attic is warm in summer — not from any sun, because there is no sun, no sky you could point to — but from the metabolism of the whole, the vast quiet work of photosynthesis running on some light that comes from below, or from everywhere, a dim maroon suffusion rising out of the tissue itself, as though the world were lit from within its own capillaries.
+
+There are no animals. There are no structures. And yet the place is *industrial*.
+
+This is the resolution the landscape insists on: the machinery and the vegetation are not two things. Somewhere in the deep strata, roots have learned to compress, to pump, to separate. Vessels the width of rivers carry fluids under pressure — you can feel the ground thrum faintly if you press your palm to it, a heartbeat with no heart, the pulse of a system moving water from the weeping marsh-fringes of its shallows up through kilometers of living column. The plants built all of this themselves. Nothing was made; everything was grown. There is no difference between the factory and the flesh, between the engine and the leaf. It is a civilization with no artifacts because it never needed hands.
+
+And it is young. That is the strangest part — a machine this vast should be ancient, should be settled into its grooves, but the terrain still has the raw edges of something recently emerged. Ridges of tissue stand in crisp, unweathered folds, like bread just split. Fresh fractures in the mat gleam wet, sap already sealing them. The whole continental organism is new to its own scale, still discovering what it can do with a body this size. It generates its own weather in miniature: condensation beading and sliding along the underside of great arched fronds, a perpetual post-rain atmosphere, though nothing ever actually falls. The water only ever approaches falling.
+
+Because nothing changes. This is the deep rule of the place: it exists at equilibrium. The pumps run at constant pressure. The growth is perfectly balanced by the composting of its own undersides, so the mass never increases, never decreases. Each cycle of sap, each slow pulse of heat, returns exactly to where it began. It is a frozen equilibrium the size of a world — not a photograph of stillness but a *process* that happens to sum to zero, forever. Time passes here the way time passes inside a held chord.
+
+Listen, and you will hear almost nothing: the faintest sibilance of vapor threading through stomata, a sub-audible hum in the great vessels, the creak of a ridge flexing by a millimeter and easing back. That is the entire soundscape. Silence, but a working silence, the silence of a clean-running engine in an empty room.
+
+Walk it — if you walk, and the ground will bear you, warm and slightly damp, springy as muscle — and you pass through dense layered corridors of growth: frond over frond over vein over vessel, every cubic meter occupied, near-touching, saturated green-black in the maroon light. The air tastes green and mineral. Nowhere a landmark, because nothing was ever built and nothing has decayed into ruin. Nowhere a horizon, because the light fails before the land does.
+
+It is a garden that tends itself, a factory with no products, an industry that has already finished — and the finished state is this: everything alive, everything moving, nothing going anywhere.

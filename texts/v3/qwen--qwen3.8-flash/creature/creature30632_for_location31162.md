@@ -1,0 +1,11 @@
+…to grow dense, patient, and self-enclosed.
+
+What lives in the Verdant Salt is not a scattering of lonely survivors, but a civilization of interiors. The basin has no river, no pond, no puddle, no rain, no dew; yet it is not empty. It is full of sealed abundance. Everything here has learned the same lesson: if water is to exist at all, it must be kept. Not on the outside. Not in open channels. Not offered to the air. It must be held as property, as secret, as pressure, as life itself behind skins, husks, valves, crystals, and walls.
+
+The green is there, but it is private.
+
+The first sign is the crust. In the hollows and flats, the ground appears to have been dusted with coarse salt: white grains, pale shards, glittering mats that catch the light like crushed glass. But where you would expect only mineral barrenness, there is color. Veins of green thread through the salt. A fine efflorescence of verdigris spreads over stone and dry stalks. The ground is not dead earth. It is a living surface, packed with organisms too numerous and too small to count, each one a speck of dry green life. From a distance, the salt looks like frost. Up close, it is crowded with miniature forests of lichen-like tufts, powdery crusts, and glassy filaments that grow in layered sheets, one generation sealing itself over the last.
+
+This is why the place is lush, though it has no water.
+
+The grasses, if they are called grasses, are hard. They rise in pale blades no taller than a child’s finger, sometimes in tufts, sometimes in wide, matted carpets. Their surfaces are dry and faintly gritty, as though each blade has been rolled in salt. They do not bend easily. They do not rustle with the wet softness of ordinary leaves. When a blade is crushed, it snaps; when it is cut, it does not weep. But inside each blade there is a pressure: a green pith, thick and close, swelling but refusing to leak. The moisture exists, yet it behaves as though bound by a thousand tiny promises. Split a stem and the interior will shine for a moment with a

@@ -1,0 +1,23 @@
+**The Terraces Above the Cloud Floor**
+
+There is no sun here, and never has been — or if there was, it has been forgotten the way a name is forgotten. The light comes from below. Far beneath the terraces, a cloud sea glows faintly, a gray-white luminescence like the underside of a pearl, and everything on the heights is lit in inverse: shadows fall *upward*, stretched long across the stone toward a zenith that stays black.
+
+The mountain itself is not one peak but a vast ascending country — a region the size of a small nation, folded into ridges and shelves and hanging valleys, climbing toward summits no one has mapped because the air thins into silence before the maps could be finished. The rock is old and settled, worn smooth at the edges, in balance with itself for millennia. Nothing here is crumbing or violent. The mountain has finished its arguments and now simply *is*.
+
+And it is green. Impossibly, lushly green, in the dark.
+
+The moisture arrives as fog that drifts up from the cloud floor in slow tides, twice a day, like breathing. Every surface drinks it. Moss in continents. Ferns the size of oars unrolling from crevices. Groves of pale, leafless trees — no, not leafless: their leaves are translucent, thin as moth wings, evolved to gather whatever light rises from below rather than falls from above. The entire flora has turned itself upside down. Flowers bloom facing *downward*, toward the glow, their petals acting as little mirrors and lenses. In the deep valleys between ridges, the vegetation grows so dense and so pale that the whole gorge looks filled with green-white smoke.
+
+Water pools in the weathered basins of the stone — shallow, black, mirror-flat ponds that hold the underlight and give it back doubled. There are streams, narrow and patient, fed by nothing but condensation, threading downslope until they reach the cloud layer and simply end, pouring into vapor.
+
+Here is the strangeness, and the machines.
+
+There are no structures. No walls, no roads, no shelters, nothing built. And yet the mountain hums. Wedged in the cliffs, half-swallowed by moss, are engines — enormous, ancient, seamless machines that no one assembled and no one tends. They have no doors. They have no seams at all. They are less like artifacts and more like mineral deposits of a technological kind, as if industry were a lichen that grew here. Rotor vanes the width of fields turn slowly in the fog tides, harvesting the moisture, condensing it, exhaling it in timed gusts that keep the terraces watered on a schedule older than any witness. Great cold lamps — or what serve as lamps — glow somewhere *inside* the ridges, shining out through fissures, feeding the downward-facing flowers. The whole ecosystem is tended. The whole ecosystem has no gardener. The machines are not ruins and not in use; they are simply part of the water cycle now.
+
+The fauna is plentiful and quiet. Things move constantly through the pale groves — but softly. Moth-like grazers large as dogs, browsing on translucent leaves with a sound like pages turning far away. Long-limbed birds that never call, navigating by the up-shine, their wingbeats the loudest sound for miles. Predators exist — you sense them more than see them, a stillness in the ferns that is too deliberate — but even the hunting here is conducted in a hush, as if sound itself were the scarcest resource on the mountain and everything has learned to ration it.
+
+And it is *empty*. Abundant with life, and empty. You can walk for hours through lush green terraces and meet nothing but your own breath fogging. The population — plant, animal, machine — is spread so thin across the vast ascending country that it registers more as rumor than presence. A grazer herd glimpsed once, a kilometer off, pale shapes in the fog. A machine's hum, felt in the soles of the feet, sourceless.
+
+The dynamic is all tidal: fog up, fog down; streams rising, streams ending; leaves drinking and shining and drinking. Twice-daily weather. A world in constant, unhurried motion, at a scale that makes motion look like stillness.
+
+If you stood on one of the high ridges at the fog's low tide — cold air, black sky, the glowing sea below, the pale forests steeped in it — you would hear almost nothing. Just the rotor-sigh of some distant engine keeping its ancient appointment with the mist, and beneath it, so faint it might be you, the mountain itself: humming, tending, awake in the dark.

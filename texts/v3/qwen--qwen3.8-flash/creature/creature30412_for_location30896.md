@@ -1,0 +1,79 @@
+No one has built a place to live here, so “inhabitants” must be answered at several scales. The basin is not empty because it is quiet; it is quiet because its residents are spread across a wide and patient system, each one living by a different rule, in a different thin margin between heat and cold, wet and dry, steam and frost.
+
+If you look for a face, you may find none. If you look for a footprint, you may find only a temporary depression filling with melt. But life is everywhere: first in the skins of chemistry, then in the hairline green communities, then in the fish, insects, birds, and mammals that come and go by season, heat, and water level. The true commonwealth of this place is distributed. It has no capital. It has no walls. It has, instead, seeps, runnels, mineral shelves, silt hollows, and thermal chimneys.
+
+The oldest residents are the smallest.
+
+Before there is vegetation proper, there are microbial mats. They live in the warm margins where spring water meets colder air, in shallow runnels stained rust-orange, in ponds with a creamy silica shimmer, in black wet hollows that smell faintly of sulfur. These are not passive coatings. They are working populations. Iron-oxidizing bacteria build pale skins of metal oxide over water. Silica-loving organisms help precipitate the mineral glaze that lines hot channels. Sulfur-eating microbes live where gas breathes through stone, feeding on invisible chemistry and converting it into living tissue. In the dim light, their mats have the look of spilled pigment: ochre, violet-gray, cream, rust, and sometimes a faint blue-green where algae begins.
+
+These microbial people are the basin’s first engineers. They make the ground safer to live upon. They bind silt with slime. They trap fine particles. They create films of food and shelter. They are so small that a single bootprint may crush an entire civilization, and so numerous that their work is visible over a whole landscape. Where steam cools and mineral water spreads, they are already painting the world into something that can support larger bodies.
+
+Just above them, in the same damp films, live the nearly invisible animals: springtails, mites, tiny water beetles, chironomid larvae, threadworms, protozoans too small to see without magnification. They crawl through water that is thinner than breath. They feed on algae, bacteria, detritus, and the secreted films of other organisms. Some of them are almost weightless, able to walk across the surface tension of a puddle as if across a sheet of glass. Others burrow into saturated silt, leaving no visible trail. When frost comes, many do not truly freeze so much as enter a suspended quiet, waiting for warmth to reopen the water.
+
+Near the vents, the invertebrates are stranger and more specialized.
+
+There are small dark flies with downy thoraxes that gather where the stone is warmest, their legs dusted with fine silica. There are beetles that do not drink from standing water but from the moisture condensing on vent chimneys, tapping it with their mouthparts when the air gives a little drink. There are wingless insects that cling to the underside of hot mineral shelves, where the temperature is higher than the surrounding air and the stone is too hot for a human hand to hold for long. Some live only in the thin film of water between crystals; their whole world is a millimeter. Others breed in the warm muck where algae and microbial mats accumulate, producing swarms of larvae that later emerge as clouds of gnats or midges.
+
+Those clouds of midges are among the most visible expressions of life in the basin, though even they are not a single mass but a pulse. When thermal heat shifts, when condensation warms the ground, when meltwater rises into a shallow channel, the midges hatch. For an hour the vent edges can tremble with their movement: a gray-black cloud rising, falling, re-forming, rising again. The sound of their wings is barely a sound—more a pressure against the ear, a dry hiss of tiny bodies passing through steam. They are not there because the place has become comfortable. They are there because heat and chemistry have produced the exact conditions for their emergence. And because they are there, other lives are summoned.
+
+Fish live in the warm spring-fed runnels.
+
+They are pale, slender, and almost luminous in the dark mineral water. Their bodies have the transparency of young stone held up to light. Their fins are not black or patterned so much as smoked, like wet glass. Some species hold station in the narrow channels beside silica shelves, facing the flow, taking oxygen-rich water over their gills as it comes from depth and cools. Others move more slowly in the shallow ponds where thermal water blends with meltwater, staying close to the bottom, feeding on chironomid larvae, small crustaceans, and the soft edges of algae.
+
+They do not school in dense, glittering bands the way fish in warm, vegetated rivers might. They are too scattered, too adapted to the basin’s thin abundance. But when a midge swarm descends toward the water, or when a fisherman’s shadow would pass if there were fishermen, their reaction is immediate: the channel seems to become a moving ribbon of light. A hundred small bodies turn at once, not in the perfect unison of open water, but in a more cautious, thermal-current awareness, as if the whole shoal shares one sense of warmth and flow.
+
+In the larger meltwater depression far from the vents, the fish are different. There the water is colder, clearer, and less chemically rich. The fish there have darker backs and pale bellies, built for ambush and long waiting. They move slowly through pools under skins of morning ice, holding near stone or rootless mud where small invertebrates live. If ice seals the surface for days, they do not panic. They breathe shallowly, move little, and wait. When the wind breaks the skin of the pond, light returns to them and the water becomes a thin ceiling under which they dart.
+
+There may also be larger predators: not sharks or river monsters, but cold-adapted fish of modest size, maybe the kind of fish that a human would call trout-like, with blunt heads, strong tails, and mouths suited for catching invertebrates and smaller fish. They patrol the thermal channels where water is warmer and food is more concentrated. They live not by aggression but by patience, waiting where current carries drift: midges, larvae, bits of moss, tiny snails, and whatever the basin’s circulation brings.
+
+Birds are the most obvious witnesses of this place, though many of them do not appear as permanent residents.
+
+Along the meltwater margins come small shorebirds. They have long, delicate toes suited to wet silt and shallow pools, not to mudflats thick with vegetation. They move quickly in bursts: a head dipped, a probe into a warm seep edge, a sudden jerk backward with an insect larva. Their plumage is gray-brown, mottled like wet basalt. From a distance, they may look like stones that have learned to feed. They are not loud, but their calls are thin and clear, carrying strangely in the dim air, as if the lack of trees gives them a wider voice.
+
+Some shorebirds stay only until the water levels or the weather changes. Others come in seasonal pulses, arriving with meltwater and insect emergence. When the midges rise above a vent field, shorebirds gather as if responding to an invitation written in air and warmth. They feed on the edges of heat, where the water is safest and the insect life most thick. A single thermal pool can become a feeding ground for a dozen small birds while the rest of the basin appears empty.
+
+On ledges and in cliff fractures, there are nesters.
+
+Not all birds nest in the open basin; many prefer the shelter of stone. On basalt shelves, where wind can be blocked by a slight overhang or where mineral chimneys create warm microclimates, small birds build shallow scrapes. Their nests are not elaborate. They are built from dried moss, lichen fragments, sedge stems, tufts of animal wool caught on stone, and sometimes the thin fibers of frozen plant matter. They are anchored not in trees—there are none—but in cracks, rimmed by pumice, warmed by nearby steam vents, or shielded from rain by a shelf of cooled basalt.
+
+If a human hand were to approach, it might find one egg pale and speckled, another cold and gray, another still damp from condensation. The eggs hatch in the same rhythm as the basin’s water pulses: warm days after steam, sudden cold at night, and the return of insects when pools become active. The chicks are downy, restless, and vulnerable to the cold. For them, a thermal edge is not a luxury; it is a nursery. A few centimeters of heated stone may determine whether a brood survives.
+
+Higher in the air, there are scavengers.
+
+They do not live in the vents themselves, but they circle the cliffs, riding rising heat with minimal effort. They are dark-winged, long-tailed, and patient. When a carcass appears—a small mammal killed by weather, a fish stranded too far from water, a bird that misjudged the wind—they descend. They do not swarm. They take turns. One bird lands, another watches, another drops a feather on the silt before lifting off again. The carcass becomes a temporary town, attended by insects and birds, then abandoned as the ground freezes or the wind carries the scent away.
+
+There are also predators that belong more fully to the air.
+
+High-winged raptors pass over the vent fields when the thermal columns are strongest. They do not hunt the open basin the way a hawk might hunt over tall grass. Instead, they circle. Their wings are broad, their flight slow, their attention divided between movement on the ground and rising warmth above. Sometimes they see a hare-like animal pause at the edge of a silt pool. Sometimes they see a shorebird startle from a runnel. Sometimes they see nothing at all, but remain because the heat columns are good for soaring. When a shadow passes under them, it is not a single black shape but a soft gray blur moving over steam and stone.
+
+On the ground, the warm-blooded inhabitants are small and cautious.
+
+There are hare-like grazers on the windward benches, where the stone is dry enough to hold a burrow and the sedge is sparse but tough. They are ash-colored on the back, pale on the belly, with dense underfur that traps warmth close to the body. Their ears are shorter than a lowland rabbit’s; long ears would lose heat too quickly in this air. Their hind feet are broad and furred, allowing them to move over soft wet ground without sinking too far. They do not run as a startled hare might in a meadow. They move in quick, low bounds, stop, listen, then disappear into a hollow behind a pumice ledge.
+
+They feed on mosses, lichens, sedge shoots, and the tender edges of cushion plants. They are not numerous enough to strip the vegetation, nor bold enough to graze in the open without frequent stillness. Their survival depends on selecting the right microclimate. A small mound of moss warmed by geothermal seepage can support an animal for hours. A sheltered depression behind a basalt column can be a winter refuge. A single sedge patch near a spring can be the whole diet of a family group.
+
+There are also burrowers.
+
+Some of them resemble hamsters or pikas more than ordinary mice. They dig into pumice and soft mineral soil where the ground is warmer below. Their burrows may be only a few inches deep, but they are enough to escape wind, frost, and sudden heat loss. Their tunnels line the warm margins of seeps, following slight gradients where the earth holds moisture. They store bits of moss, lichen, insect larvae, and dried plant matter. Some are active by day; others move only when the weather allows. They are not social in the visible way of colonies. Each burrow may hold one adult, or a mother with young, or no one at all until the next pulse of warmth makes the soil habitable again.
+
+Farther off, there are herds.
+
+They are not herds in the sense of thousands packed into one valley. They are thin, scattered, and mobile. Large grazers move across the open flats like drifting dust. They are stocky, broad-chested, with thick coats and short legs suited to uneven stone and cold wind. Their heads are low, not because they are tame, but because they are wary, listening to the ground as much as seeing it. They do not drink often from one place; they sample seeps, lick wet mineral shelves, and move on. When they stop, it is for only a few minutes. Their bodies cast no strong shadow, because the light is dim, and when they move, they seem to rearrange the emptiness rather than fill it.
+
+They are not permanent residents. They pass through, following meltwater, wind patterns, and seasonal green. Some years they come in larger numbers; some years they are almost absent. A predator may follow one herd, while others remain distant. A single fallen animal becomes a center of scavenging for days, then vanishes into bone and frost. The herds are a reminder that the basin’s abundance is not fixed; it is a rhythm.
+
+There are also small predators on the ground.
+
+Some are fox-like, pale as dust, with black feet and dark eyes. Others may be weasel-like, long-bodied and quick in the spaces between stones. They hunt midges on the warm edges, take fish stranded in shallow pools, follow hare-like grazers through mineral hollows, and scavenge when opportunity appears. They are not the rulers of the basin. They are opportunists. Their lives are governed less by strength than by timing: arriving at the right warm patch at dawn, smelling the right drift of condensation, hearing the right insect cloud stir.
+
+Parasites belong too, though they are easy to overlook. Fleas live on burrowers. Mites live in the fur of grazers. Worms live in the intestines of fish. Fungal threads may colonize the bodies of drowned insects. Tiny organisms drift on the backs of birds, hidden among feathers, waiting for a warm ledge or a carcass to pass. Life here is not only a story of cooperation. It is also a network of attachments, debts, and dependencies.
+
+Even the plants are inhabitants with lives of their own.
+
+They do not form a landscape in the ordinary sense. They do not create a meadow or a thicket. They colonize margins. Moss lives where seepage keeps stone cool and damp. Lichen lives where air movement is enough to prevent drowning and where minerals offer a foothold. Cushion plants live where wind is partially blocked and warmth collects near the ground. Sedge lives where water is shallow enough for roots but warm enough to extend the growing season.
+
+A patch of moss may be no larger than a hand, but it can contain hundreds of creatures: mites, springtails, larvae, protozoans, fungal threads, and the eggs of insects. A square yard of cushion plant can become a neighborhood. A line of algae along a thermal runnel can be a farm for snail-like grazers. The green life is sparse, but it is rich in relationships. It does not dominate the basin; it negotiates with it.
+
+Life here is also organized by heat gradients.
+
+An animal may choose its territory not because of food abundance alone, but because of three degrees of warmth. Three inches to the left may mean ice and wind. Three inches to the right may mean a wet shelf with bacterial film and a faint trickle of warmer water. The difference between life and death can be the presence of a single crack venting heat through pumice. The basin’s smallest territories are therefore invisible to a human eye. A hare-like grazer may return to the same mineral ledge because the stone holds a little warmth. A fish may hold one
