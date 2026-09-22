@@ -1,0 +1,1 @@
+The description didn’t arrive—only the invitation to enter it. Send the place and the being, and I’ll go in from there, without deciding too early who I am in it.

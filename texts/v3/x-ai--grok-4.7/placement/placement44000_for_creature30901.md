@@ -1,0 +1,1 @@
+The description didn’t come through — the message stops at the instructions. Paste the place and the being, and I’ll write where I find myself and who or what I am.

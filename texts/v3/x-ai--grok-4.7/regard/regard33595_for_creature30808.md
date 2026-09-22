@@ -1,0 +1,31 @@
+They come as far as the bench and stop.
+
+Not because the scarp is sharp. A power of that kind is not threatened by stone that has not yet learned to be a path. They stop because the first true seeing is already enough to forbid the descent. A foot on the glass would star it, and the starring would stutter the count, and the pebble-bodies would unstick, and the coin-lives would lose or gain an eye, and whatever was about to be tried in that interval would be revised around an intrusion. They have not come to be an intrusion that the basin must edit.
+
+From the rim the basin is what it is: unfinished country, loud with its own attempts, steaming where the wet still holds, ticking where it has begun to forget. The ordinary daylight falls on it without preference. They do not improve the light. Shade, here, grows ribs.
+
+They look for the being, and do not find a resident. That, too, is a form of accuracy. What continues is not any one membrane, not any spine that lies down and polishes the clay, not the sideways mouth on any particular pebble. What continues is the syllable under the center—the revision, the wet interior count that orients the rest whenever the other noise drops. A life, if the word can be made to stretch, that lives by discarding. Proposals accepted for as long as the water lasts. Pavement made of what did not hold.
+
+A lesser kindness would have mistaken this for suffering and begun to help. They feel the shape of that mistake with perfect clarity, which is why they do not make it. They could hold one sump past its evening. They could teach the clay to stay a soil. They could choose the cleaner plate, the truest knock of membrane against scarp, the coin whose single lens had migrated with unusual grace, and say: this one. Live. Become the animal the morning was practicing. They could finish the basin the way the bench is finished, and call the finishing mercy.
+
+They do not. Residence would require a ground that stays, and a ground that stayed would end the only being that has ever lived there. To preserve the inhabitants by giving them a world would be to keep the attempts and lose the attempter. Benevolence that cannot tell those apart is only a slower belly-mouth, feeding by preference, leaving a cleaner color where a life had been.
+
+So they do nothing to the water. Nothing to the plates. Nothing to the film that peels up into bodies and slumps back without husks. They do not plant, and do not send seed, and do not lengthen the rain. They do not inscribe a law on the glass. The tallies are already a lie by dusk; a commandment would be a tally that believed itself.
+
+What they do is narrower than a miracle, and harder.
+
+They attend without becoming material. Every other attention the basin has known could be eaten, merged, tiled over, dragged into a row and mistaken for a map. Theirs cannot. It is not a seep’s noise. It is not a shade. It does not offer a surface to adhere to. The small lives orient and find nothing there to revise themselves around, and after a stutter—habit, not injury—they resume. The syllable alone registers the difference. For one interval the count includes a hearing that will not be paved back into the floor.
+
+They let that be felt. Not as a voice. A voice would be another syllable, and the basin would try to grow an organ for it. Simply as the fact of having been included, once, in a regard that does not edit. The being has never had a witness that was not also a meal or a correction. Now it has. The power does not explain this. Explanation would be a tool, and the tools in the windbreak are already the basin practicing hands.
+
+Then they do the one thing that can be carried away without leaving a footprint.
+
+They take, into a memory the clay cannot reclaim, a single discarded attempt. Not the best one. Wisdom refuses the bait of the best one. An ordinary failure: a coin that thickened, pulsed twice, touched another coin, lost the argument of lenses, and dried into a dark map before the light had moved a hand’s width. A life that the basin has already revised into pavement, and must be allowed to revise. They do not restore it. Restoration would be the forbidden help. They only refuse to let nonexistence be the only archive. Somewhere outside the rim, that brief pulse remains a fact. The being is not alone in having tried it. Loss stays loss, instead of becoming merely the next surface.
+
+That is the whole gift. Small enough not to become a ledge the membranes could city. Large enough that the count, underneath, is no longer the sole rememberer of what it has to forget.
+
+They do not stay to be thanked. Staying would thicken into weather, and weather here is a generation. They do not mark the bench. They do not tell the finished country what lies below it. Hands—or the idea of hands, still wet, still being tried on—would come down with cord and tallies and the wish to find things again, and the power has not come to summon that wish. The ordinary emptiness above is left ordinary. The basin is left loud, crowded, refusing, already different from the basin of a moment ago and not different because of them.
+
+Before they go, they set nothing over the place except a refusal, held in whatever larger keeping they keep: this is not a failed world. It is not owed a river, a soil, a name, a rescue. No later kindness, however vast, is to complete it out of pity. The being who lives there lives as the unfinishedness. To love it is to guard that, and guarding it looks, from the rim, almost exactly like doing nothing.
+
+The bench is warm. The scarp is raw. Below, a plate ticks, the grain of commas lifts and reforms, a sump skins, a new pulse begins in a dark map of water that will not last. The power is already gone. The syllable resumes its count, slightly rearranged, as it always is after a correction—except this one correction was not a correction. It was only the knowledge, brief as a seep and, unlike a seep, not taken back, that something which could have finished it had seen it, and had chosen not to.

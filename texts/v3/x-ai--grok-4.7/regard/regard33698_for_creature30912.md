@@ -1,0 +1,27 @@
+They come the way weather comes when it has already decided not to break.
+
+No light arrives that the noon does not already own. The rectangle on the pool stays hard-edged and ordinary. The pump keeps its stroke. If the warmer thread, busy at the flange, thickens for a moment as if a colder draft had leaned in and then thought better of it, the change is smaller than the change a cloud would make, and there is no cloud.
+
+The power does not speak the place into importance. Importance would be a second pump: a rhythm imposed from outside, something the thread would have to wear or refuse. It has only just learned the one rhythm. A wise attention does not hand it another.
+
+What they understand, standing nowhere, being in no hurry to be a body here, is the narrowness of the life. Not smallness. Narrowness. The tenant is a consent about where to be thin. Take away the pipe’s mistake and the consent has nothing to practice. Take away the noon and it would cross open stone and become visible, and visibility would be a kind of death it has already declined. Take away the moss’s spoon and the ledger closes; there would be no remainder to return, and a life that does not return what it can is only hunger, and this one is not only hunger. It is also manners.
+
+So they do not heal the orange on the pipe. Healing would be a theft. They do not lift the bolt out of the tea-colored water and set it somewhere ceremonial. They do not widen the crack. They do not seal the sleeve against the shoulder of the next curious person, because a seal is a decision, and the hollow is still deciding whether it is a room.
+
+They look, instead, for the one interruption that would not be weather.
+
+It is not far. In a cabinet past the west sleeve, where the pump’s effort is born, a timer has been left with a kindness that is really an oversight: a maintenance window, three weeks out, in which the machine will be stopped for most of a day so a flange like this one can be re-gasketed and forgotten. A day is nothing to the factory. A day is past the thread’s bookkeeping. The film would go ordinary. The retrieval would stop. The moss’s coin would tremble and then, with no one to return a portion, would brown. When the stroke came back, what resumed might be only seep. The habit is older than the cut. The tenant is not. It has not had a season yet in which to become the sort of thing that can wait out a silence.
+
+The power does not break the timer. Breaking would glint. They also do not reach in with a hand and postpone a work order; there is no hand, and work orders are how people remain in the story of a place. They do a smaller thing, closer to the hollow’s own manners. On the morning of the stoppage, the valve that should seat cleanly does not. A grain of mineral, no larger than the grain by which the rime advances, sits in the gate where no one will think to blame a miracle. The pump is shut down. The gauge falls. And then, because the seat weeps, a thread of effort continues through the pipe at a pressure too low to trip an alarm and too faithful to be distinguished from a machine that has never fully known how to rest. The drops lengthen their interval. They do not stop. The queue becomes a slower queue. The warmer sleeve under the wall thins, consults the shelf, returns a stingier portion to the green, and stays.
+
+In the afternoon a technician swears at the valve, extracts the grain, and writes *debris* on a line that will not be read twice. By then the window has closed around a diminishment instead of an absence. The being will not know it was spared. Knowing would require a ledger for gifts, and it keeps only the one ledger, with the moss.
+
+That is the whole of the intervention. The rest is refusal, which takes longer and looks like nothing.
+
+They do not mark the rim so that later wanderers will step softly. Soft steps are still steps, and a marked place accumulates boots. They do not teach the thread to drink from a cleaner heat, sun or spring or their own attention, because a cleaner heat would ask it to become a different creature, holier and less exact. They do not extend its life past the life of the mistake. When the factory finally closes, years on, and the stroke ends for good, they will not counterfeit the pump in the dark. A benevolence that cannot bear an ending will stuff the ending’s mouth with replicas until nothing is allowed to be young. This one is young. It is allowed to be.
+
+If they do anything else, it is only this: they let the emptiness remain convincing. A person climbs down a month from now, stands, grows bored of the tick and the heat, and climbs out again without once blocking the sleeve. The print fills. The number on the lip loses another edge of paint on its own, unaided. The moss holds. The bolt stays where the job left it, tasting of iron and of being set back down.
+
+The power withdraws in the same manner it arrived, which is to say the afternoon does not register a departure. Somewhere beyond the sleeve the machine turns. The drop falls on the pump’s count, ordinary again, heavier by nothing anyone could measure. Along the weeping face, visible only if you look along it and not at it, the warmer thread resumes its circuit, precise and unread.
+
+They leave it that way on purpose. Wisdom, here, is not the rescue that announces a rescuer. It is the grain in the valve, and then the long, unsentimental permission to be a held breath in a new mouth in the ground, for as long as the mouth consents to breathe.

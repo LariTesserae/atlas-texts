@@ -1,0 +1,1 @@
+No place arrived after the instructions—only the request to describe who lives there. Send the description of the place and I’ll write what belongs in it.

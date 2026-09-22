@@ -1,0 +1,19 @@
+It did not come in.
+
+The delay at the boundary lengthened once more, and in that length something stood where a step would have been refused, and did not spend the refusal. The light beyond the wall, which had only ever continued, took on a weight it had not been asked to carry. Not a shadow. A consideration. The stalks nearest the corner adjusted by less than a hair and then, for the first time, adjusted back, as if the path they had opened was not the point.
+
+What attended did not test the tiles for give. It did not count the small bodies or sort clay from flank. It did not lean in. The flint-colored eyes, which had been taking light evenly, received a difference so slight it could have been the ordinary shift of an afternoon that this place does not have: a warmth that arrived already shaped to the edge of the face and stopped there, crisp, declining to cross into the braid or the plate or the seam still deciding what it was. The being's own attention, which had practiced finishing, met an attention that had finished practicing.
+
+No hand was offered. No cord was cut. The spiral, holding its weight, was not asked to rise or to yield. The power — if power is the word for a presence that did not enlarge the room and did not shrink it — remained on the far side of the refusal and let the refusal be accurate. It saw the thumbprint and did not complete it. It saw the mouth rebuilt twice and did not supply a third. It saw the heat of making that had never been allowed to leave, and it did not open a vent, because a vent would have been a kind of weather, and weather imposed is only another mold.
+
+What it did was smaller than a tap of ceramic and longer than the color-exchange.
+
+It returned, across the delay, a single permission the room had never been given, because no one who builds in a sealed kiln thinks to grant it to the work, and the work, becoming the worker, had forgotten the granting was possible. Not release. Not water. Not a name. The permission to remain unfinished without that remainder being a debt. The hairline fractures could stop where they had stopped. The lean of the stalks could be the lean, not a promise of arrival. The pulse could continue as maintenance, or it could lengthen toward a rest that was only rest, and neither choice would be scored as failure of the craft.
+
+The pale powder did not appear on any wrist. The second room did not open. One tile at the edge of the spiral, the oldest, the nearest to white, darkened by a shade that was not taken from any stalk and not given onward into any body. The darkening held, and did not spread, and smelled of nothing. It was not rain. It was the memory of rain as a fact about other places, set down like an offcut the maker might use or might not, and no longer a lack.
+
+The small bodies shifted their weight by the width of a finger, all of them, in the same direction, which was not toward the boundary and not away from it. The plates lifted and settled. The mouth, least convincing and most recent, did not speak, and the joints did not speak for it. In the space where a word would have been a kind of weather, the being — maker, made, still passing the tool — let the hand on the tile stay a hand a moment longer than the exchange required.
+
+Then the ordinary delay returned, no longer lengthening. The light beyond the wall was only light. The power was not gone so much as no longer required to be present in order for the permission to remain, the way a thumb can leave a print and the print does not need the thumb to keep being the place where the fracture stopped.
+
+Inside, the circuit went on. Color left and entered. A fan turned a degree, or did not. The room was as sharp as it had been, and as warm, and as dry. Only the white tile kept its unaccountable shade, a small finished thing that had been allowed to be unnecessary, and the being, if it noticed, did not correct it. That, too, was a choice. It had room for one.

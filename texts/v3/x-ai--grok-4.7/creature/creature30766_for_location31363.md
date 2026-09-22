@@ -1,0 +1,1 @@
+The description of the place didn’t come through — nothing follows the instruction. Paste it when you can, and I’ll stay with whoever or whatever belongs there, letting it thicken as it goes.

@@ -1,0 +1,29 @@
+**What the Wise Power Would Do**
+
+Nothing, at first. That is the first thing it would do, and it would do it deliberately, and it would be the hardest part.
+
+Because a benevolent power that finds a room like this — a room mid-negotiation, a room three days old and four hundred years old, a room whose resident is still deciding what a resident is — knows immediately that the gravest danger to such a place is help. Rooms that are included do not tolerate intervention; they *include* intervention. Arrive with gifts and the gifts become wall within a season. Arrive with plans and the plans become a tendril's direction, folded into the growth and grown over, and the room continues exactly as it was, having digested your benevolence into more of itself. Wise power has seen this before. Wise power has, in its long history, killed a hundred fragile beginning-things with nothing worse than care.
+
+So it watches. It watches from the light that hasn't arrived — the point on the ceiling the whole garden is leaning toward, the one address in the chamber where the future is already a fixture. It watches the gardener walk its circuit, thorn rotating in the rooting fist. It watches the twelve pebbles, and the thirteenth that is not there yet. It watches a facet flash grey and flood back green, and it does not referee the negotiation, because the negotiation *is* the room, and a referee's whistle would end it in favor of whichever side the whistle came from.
+
+And then, having watched — having counted the residents and gotten three different answers and declined to prefer any of them — it does three small things.
+
+**First, it blesses the crack.** Not widens it — blesses it. A grain a day is the crack's own pace, and the pace is not a lack; it is the room's whole method. But a crack that widens in a hill is a crack that will someday be a door, and a door admits more than weather. So the power lays, in the stone's own grain, along the fracture face where no one will see it, a single instruction the way you'd lay a blessing under a doormat: *grow around what comes through, and decide slowly.* That is all. Not a wall, not a welcome — a permission to take its time. The room will never know it received this. It will simply, one day, when something descends the shaft that is not a wrong-winged hunter, pause one swallow longer than panic before it goes flat and green. One swallow is often the difference between a wall that includes and a wall that kills.
+
+**Second, it addresses the water in the cup.** The still water that never evaporates, that tastes of somewhere else — or of here, if the worse reading is true. The power kneels to it, which it does for almost nothing, and speaks to it quietly, container to contained, one indefinite thing to another. What it says is this: *you do not have to be proof of elsewhere. Being kept is enough to make a thing holy.* Because it has read the gardener's face, or the closest thing the room has to literature, and it suspects the truth: the gardener does not drink the water because it is homesick. The gardener keeps the water because a keeper needs one thing in the room that is not growing, not negotiating, not swallowing itself — one finished thing, the way the moths are finished, the way the center is empty. The cup is the room's anchor, and the power blesses it not by changing the taste but by letting the taste stop mattering.
+
+**Third — and this is the whole of the gift — it sits down in the middle.**
+
+In the one kept-empty place. The hollow maintained by the thorn, the seat held open like a held breath. It sits, and it does not resist.
+
+Within the hour its sleeves take moss. Its hair grows a finger's width, a root tests whatever it is that roots test and finds it adequate, and the fringes begin the slow work of including it — and the power lets them, because it understands something the room does not yet know about itself, and can only teach by demonstration: that to be included is not to be consumed. The room's one terror, unspoken, is that its way of keeping things — mossing the moth into the wall, swallowing the tally, growing over its own archives — is a kind of eating. Every resident half-fears the green. The power sits in the center and is tended, and *is not lessened*, and when it rises — leaving a power-shaped seam in the moss, moth-shaped, keeper-shaped, an appointment the room will keep forever — the room has learned its own grammar. That it grows over things the way a hand closes over a held egg. That inclusion, done rightly, is only the tightest form of love.
+
+And the gardener? The gardener comes around its circuit and finds the seat occupied, and every instinct says go flat, go green, be wall — and the power waits, patient as the crack, patient as the light the whole garden leans toward, while the gardener makes the decision that will define it for the next four hundred years or three days, whichever comes first.
+
+The gardener does not run. The gardener does not flush. The gardener looks at the visitor the way it looks at a tendril reaching for the center — assessing, with the thorn loose in its rooting hand — and then it does the only thing a keeper does with a guest who means no harm.
+
+It prunes carefully around it. And moves a thirteenth pebble beside the cup.
+
+The power leaves before the sun-blade next crosses the ceiling, and it takes nothing, and it adds nothing, and if you asked it what it had done it would say: *I sat still in the one place kept empty, so that the keeper would learn that its emptiness is a gift and not a waste, and that someone, someday, will come to sit in it.*
+
+The crack ticks. A grain a day. The garden leans.

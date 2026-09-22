@@ -1,0 +1,43 @@
+The pore has not finished closing. That is the first fact of the place, and it revises everything else.
+
+From outside there is almost nothing to see: a softness in new basalt under cold water, a place where the rock has not yet decided its grain. The stone is still being poured in the slow sense — not lava, not anymore, but mineral still choosing faces, still warm in memory and already cold to the touch. A pocket remains in it, no larger than a room you could cross in a few body-lengths if you had a body that understood rooms. The pocket is full. There is no surface inside it, no air, no weather in the ordinary sense. Water occupies it the way thought occupies a skull: completely, and under pressure that never announces itself.
+
+The water is old in temperature and young in confinement. It came in while the rock was still permissive, and then the walls began to set around it. What remains is a sealed cold, dim as milk held up to a distant window. Light does not fall here so much as leak. Thin places in the mineral skin let a gray-blue through, and some of the unfinished crystal faces return it as a faint internal sheen, so the chamber seems lit from its own geometry. You can see, but never far, and never all at once. Edges arrive late.
+
+What the light finds is crowded.
+
+There is almost no vegetation. A few pale filaments cling where a seam in the wall leaks a thinner chemistry, and they do not thrive; they look borrowed, as if they rooted by mistake and have been apologizing ever since. The green of other worlds is simply absent. Color, where it exists, is animal or mineral: bone-white, bruise-violet, the yellow of fresh secretion, the clear of living glass.
+
+The city is made of its citizens.
+
+They have no tools and no need to invent any. They build by continuing. A wall is a row of bodies that have agreed to secrete in the same direction until the secretion hardens and the agreement becomes a street. A roof is the under-surface of a colony that grew until it met another colony and both refused to die, so they laminated. Lanes are the gaps bodies leave when they must still pass water through themselves. None of it is symbolic. The infrastructure is the population, packed until near-touching, layered so that a single glance crosses three or four thicknesses of habitation: tubes inside tubes, chambers budding off chambers, a density that would be a riot if anything here understood riot as noise.
+
+It does not. The pocket is quiet in a way that has nothing to do with peace.
+
+Motion is constant and almost without sound. Currents exist, but they are the size of breaths and they die against the next body before they can strike anything hard enough to speak. You see a street flex as a thousand small pumps draw water through gill-slits and out again, a civic respiration, and you hear nothing. A predator slides along a lane — there are predators; the place is not gentle — and the prey do not scream. They dim. Pigment shutters. A district goes one shade darker, and that is the alarm. The hunter’s strike is a pressure change, a brief hardness in the water, and then the lane is clear again except for a drifting scrap of membrane that other bodies are already turning into mortar.
+
+Processes overlap without ever raising a voice. The rock is still emerging: a new crystal face advances into what was, yesterday, an alley, and the alley’s inhabitants have two responses and use both. Some seal their apertures and become foundation, accepting the mineral as a landlord that does not negotiate. Others bud sideways, fast by the standards of cold, and the street migrates, a flexible civic decision conducted entirely in growth. Elsewhere a pulse of slightly warmer water — leftover from the unfinished cooling of the basalt — moves through the lower quarter like a season. Bodies that were nearly still open their feeding crowns. A hunt begins and ends. Waste, which is mostly mineral dust and shed skin, is taken up and laid down again as the next course of a wall. The city eats its own weather.
+
+There is organization, and it is not metaphor.
+
+Districts have uses. Near the thin places in the outer skin, where the dim light is strongest, the architecture is more open: flared mouths, thinner partitions, a market of filtering that looks, if you stay long enough, like a facade. Deeper in, where the light fails and the new rock presses hardest, the building is tighter, more recursive, given over to brood-chambers and to the slow work of turning dissolved stone into structure. Thoroughfares are not paved. They are kept. Anything that blocks flow for too long is overgrown, not by policy but by the simple fact that flow is food and stagnation is burial. Sanitation is predation plus appetite. There are no lamps, no doors that latch, no written marks. Addresses are chemical. You know your quarter by the taste of who has been secreting upstream of you.
+
+The strangeness is not that animals build. It is that the building and the geology are the same age, and neither has won.
+
+In a finished cave a city of bodies would be a colonization. Here the cave is embryonic. Walls extrude. A chamber that housed a nursery at one hour is split by a blade of crystal at the next, and the nursery becomes two rooms with a law between them: no passage, new weather on each side, a slight difference in salt. Children — if the packed larvae can be called that; they are numerous, and they do not leave to become something else, because the city requires them at this size — learn the split as a fact of birth. Some districts are hours old. Some are already being lithified, their living cores retreating inward while their outer secretions go opaque and join the basalt, so that the city is continuously donating itself to the rock that contains it. From the outside, if anything could see the outside, the pore would look smaller every day. From within, the streets do not feel like they are shrinking. They feel like they are being rewritten.
+
+Scale is the trick that keeps both truths.
+
+To the animals the place is urban: layered, infrastructural, dense with presences, possessed of quarters and flows and a memory of where the light used to be before a crystal occluded it. To the rock it is a defect still healing. To anything larger than the pore it is hidden — a single feature, pocketed, embedded, not a coast and not a sea but a withheld mouthful of sea that learned manners. There is no horizon. There is the next body, and beyond it the next, and beyond that the dim sheen of a wall that may not be a wall by the time you reach it.
+
+Rules settle out of this, the way crystal does.
+
+Nothing here speaks. Meaning travels as dissolved change: a sweeter filament means a flush of food from a crack; a bitter one means a death upstream large enough to matter. Night does not occur. The dimness is constitutional, and what varies is only which thin place in the skin is clearest, a slow turning that the filtering quarter treats as a calendar. Cold is not a season. It is the medium. The occasional warm pulse is weather, and weather is an event, and events are hunted.
+
+You do not own a structure. You continue it, or you are continued by it. Abandon a wall and the wall becomes someone else’s stomach. Block a lane and you become masonry. The predators are not outside the civic order. They are how the order stays thin enough for water to move. A body that grows too large is a danger not because it is strong but because the pore cannot spare the volume; largeness is corrected, usually before it finishes, by neighbors who simply refuse to leave space. The city stays pocket-scale by eating its own ambition.
+
+And the outer wall keeps coming in.
+
+That is the sound you almost hear and do not: the mineral face advancing, grain by grain, into a street that flexes away from it in total silence, a thousand pumps adjusting, a nursery splitting, a new lane opening where a colony chose, this once, to die in a curve instead of a line. The place is active in every layer at once — geological, metabolic, predatory, architectural — and the water carries all of it without a ripple you could call noise.
+
+If you stayed, you would stop looking for the city and start looking for the pore, and then you would reverse yourself again. They are not two things. The unfinished rock is the oldest building. The animals are the part of the building that still moves. Between them, in the cold dim water, a settlement no larger than a held breath keeps its streets by the only method available to it: by continuing, quietly, to be born.

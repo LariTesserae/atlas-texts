@@ -1,0 +1,19 @@
+They come the way weather comes, without a threshold.
+
+No shadow lengthens that was not already the cloud’s. No voice inserts itself under the stacked noise. What arrives is a change in the quality of attention—the basin, for a span of breaths no clock here could keep, is known all the way through: every seep, every filament under load, every blunt young turning in the current, every low body already leaving a bar that has not failed yet. The knowing does not sort them into worthy and otherwise. It does not lift any of them out.
+
+A lesser kindness would try to finish the valley. Pin the bars. Silence the cutbanks. Teach the ground to be a fact. That would be a second upheaval wearing a gentler name, and the lives braided through the revision would starve of the only grammar they have. A lesser wisdom would admire and depart, leaving the machines to keep winning and losing on their old terms—the pylons righteous, the stone indifferent, the animals merely quick.
+
+What they do is smaller than either, and it takes everything they are.
+
+They lean into the works—not as a hand on a lever, but as a correction to the correction. The filaments were built to hold. They are allowed, now, to hold only long enough. A tone that used to drop like a verdict drops like a warning a creature can already hear: not *this bank is saved*, but *this bank has a minute, and the minute is honest*. The disks keep their clearing pulse, but the cloud is no longer a punishment for the clear; it is the other half of feeding. The needles stay where the nests have trusted them, and nowhere else are they asked to be mountains.
+
+Where a willow mat is about to tear with young still on it, the current is not stopped. It is given one more snag—a rib that was going to slump at dusk slumps at dusk plus the time it takes a broad foot to find the next gravel. No one is carried to safety. Safety is not on offer. What is on offer is the same indifferent arithmetic, with the interval between failure and failure opened by a heartbeat where a heartbeat can be spent.
+
+They do not speak to the low-bodied things, and the things do not gather. One of them, passing upwind of a place that is suddenly more known than the rain, pauses the way it pauses for a new stone: possible footing, unlikely to last. It puts its weight down. The footing holds for that step and not for the next century. That is the whole covenant.
+
+Then the attention thins back into weather. The flocks go up because the flocks go up. A cutbank brightens and lets go, and another, farther on, holds past its old habit and then fails cleanly, without the crack of a machine taking a shock it was never meant to own. The tone under the noise is lower, less proud. The basin is still winning. It was always going to. The difference is that the winning has been given seams—places a life can cross without being asked to believe the ground will repeat itself tomorrow.
+
+They leave no shrine and no scar you could trust in this light. If anything remains, it is a habit in the works: to ease before they break, to warn before they save, to save only the minute in which choosing is still possible. The beings do not thank them. Thanks would require an owner. The water revises its bed. Something blunt and slick is retrieved, or is not. The pelt of shrubs knits over the newest gravel as if gravel had always been the plan.
+
+By morning—if morning is the slight lessening of the bruise—the way through the reach means something else again, and the power is already nowhere you could point, having done the one thing that did not require the rumor to become a promise.

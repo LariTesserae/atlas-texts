@@ -1,0 +1,29 @@
+They would come the way weather comes, without a door.
+
+Not as a voice in the cloud and not as a hand rearranging the terraces. A wise power does not love a place by improving its sky. They would stand a long time where the rim road gives onto the basin, in the used gray light, and they would not be in a hurry to be seen. Seeing would be the first work. They would learn the note of the channels the way the night crew learns it, by walking until the sound is no longer background. They would learn which joint holds water and which joint has been left to weep because a fern is doing the repair better than the last crew did. They would not call that neglect. They would call it a decision, and they would want the name of the person who made it.
+
+They would not lift the cloud.
+
+That would be the obvious mercy, and it would be the wrong one. The people have already spent their eyes on gray. Their cloth, their gait, their kettle-steam, their children’s sleep, the way a newcomer stops waiting for the sun: all of that is a life fitted to a lid. A benevolent power who tore the lid off would be kind the way a flood is thorough. Color would arrive as an accusation. Glasshouses tuned to a few degrees of difference would scorch or sour. The wet that keeps the concrete honest would fail, and the concrete would dust, and the paths that were poured to the width of one body would become ovens with walls. The being who lives here — not one hero, the moving part the valley cannot spare — would squint, and then would have to become someone else before noon, and would not have been asked.
+
+So they would leave the sky as it is. Wisdom is often the refusal of a gift that only looks like one from above.
+
+What they would do is smaller, and it would not announce itself as power.
+
+They would find the one drain that fails when it should not. Not the drain everyone knows and cuts the dock back from before evening. The other one: the third joint, the north row, the place where water sheets into a doorway because the grade was poured a finger wrong forty years ago and every fix since has been a conversation with that mistake. They would ease the grade by the width of that finger. No one would see a hand. In the morning the path would be merely dry where it had always been wet, and the woman whose boots had learned that particular slickness would pause, and would not know why she felt lighter, and would still cut the dock, because the plant does not care about miracles and the doorway still matters.
+
+They would sit, once, where the kettle steam is, and take the cup they were handed without making the room holy. They would not preach the meaning of labor. The people already know it more accurately than any power who has not had wet cuffs. If they spoke it would be to ask which gauge lies, and they would listen to the answer, and the lying gauge would begin, quietly, to tell the truth. That is the sort of wonder they would allow themselves. Instruments that stop betraying the people who have to walk out and look.
+
+They would not empty the basin of work. Continuous correction is not a curse here. It is how the water stays in the channels and the wages stay in the rooms and the children keep a sound to sleep by. A power that granted rest as an ending would be granting a death with better lighting. They might, on the night shift, thicken one person’s sleep by an hour when the channels are truly steady, and arrange that the person wakes already knowing the note has not changed. Mercy as accuracy, not as escape.
+
+They would look at the scarce animals and not restock the valley with a spectacle of birds. The absence is structural. To correct it would be to unbuild the ground. If they did anything, it would be to keep the moths at the practical lamps and the one bird on the vent from being the last of their kind for no reason. Continuance, not abundance. They understand the difference.
+
+And the being — the one the paths were poured around, collar up, already the color of the walls — they would not exalt. Exaltation is a lonely thing to do to someone who belongs by the width of a recess. They would not lift that person onto the rim and show them the far stacks as a destiny. They would walk with them as far as the next niche, and step aside at the right moment, and be the reason the cart does not have to wait an extra breath. The person would think, later, that a stranger had had good manners. That would be enough. A wise power is not diminished by going unrecognized. Recognition is often a tax.
+
+They might leave one thing that is not useful. A pale flower where no crew planned it, in a joint that does not threaten a drain, allowed to be accidental. Not a sign. Not a covenant. Just a reminder that not every living thing in the basin has to justify its water. Someone would see it on the way to a gate and would not report it. That, too, would be the power’s work: one unassigned beauty small enough not to become infrastructure.
+
+Then they would go, if going is the right word for something that was never quite present as a body. The pumps would keep their note. The glasshouse lamps would fog over. A shift would rethread itself on the connecting walk. Nothing in the valley would be saved, because the valley was not asking to be saved. It was asking, without knowing it was asking, not to be misunderstood.
+
+They would have understood it.
+
+That is what they would do, if anything: refuse the spectacular kindness, correct one old lie in the grade and one old lie in a gauge, guard an hour of true sleep, leave a flower that does not earn its keep, and let the people remain the size they have chosen to be in a place that fits their shoulders. Benevolence, practiced by the wise, is so often a matter of not reaching. The hand that can move a mountain and does not, because the mountain has become a home, is already doing the work.

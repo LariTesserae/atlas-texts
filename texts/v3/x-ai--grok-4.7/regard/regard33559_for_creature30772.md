@@ -1,0 +1,47 @@
+They would come as far as the rim and no farther, and they would not call that caution.
+
+The cut would accept them the way it accepts any hand: cool, sharp, still unweathered. A power that is wise does not need to prove it can soften stone. They would feel the freshness of the break — not new as a morning is new, but new as a sentence is new when it has been prevented from acquiring a second clause — and they would understand, before they understood anything else, that the sharpness is not a wound waiting for a healer. It is a decision still in the tense it was made in.
+
+They would look down.
+
+What they would see is what you saw: liquid to the lip, a town with room between its agreements, a dark that has been made exact, two rare lives that do not repeat themselves, a surface that does not practice ripple. They would not gasp. Gasping is a surplus, and they would already have begun to match the local economy. Wisdom, arriving here, would first make itself smaller than its reputation. Not in disguise. In courtesy. The bowl has one center. They would not step in carrying another.
+
+For a while they would do nothing, and the while would be long enough to test whether their attention itself steepens a gradient. It does not, if they hold it as the high walk holds the sky: nearest, and least interesting as a demand. The inhabitant would read them the way it reads a wrist. A power that can be finished with is a power the place can tolerate. They would allow themselves to be finished with. That would be the first benevolence — not a gift, a refusal to become an event.
+
+They would know, because knowing of this kind is simply accurate sight, that the being below is not imprisoned in the holding. The holding is what it is. To reach down and start the next moment — to give the stone weather, the water a current, the tone an ending, the filament a season, the town a population returning over the bridges — would be an act of power, and it would be a cruelty wearing the face of kindness. Cruelty, here, is any good the recipient would have to become someone else to receive. They would not do it. They would not even rehearse it. A wise mercy does not practice the violence it has declined.
+
+They would also not worship the stasis, which is the other mistake. There are prisons that resemble this bowl: places where a living thing has been stopped and calls the stopping peace because it has forgotten the other word. They would look for the seam. Is there a want under the want? A gradient the inhabitant refuses because refusal is all it has left, not because refusal is its nature?
+
+They would look a long time.
+
+They would find none. The preference for the lowest chamber is not nostalgia. The honor paid to breath in the volumes where bodies are expected is not grief. The indifference to the circle of sky is not fear of the sky. Company is not absent by theft. Sequence is not an enemy at the gates. It is simply not the work. The work is complete, and the completeness is awake, and the wakefulness does not suffer from being only itself. Suffering needs a distance between what is and what is owed. Here the debt and the payment are the same stone.
+
+So they would not free it. Freedom, offered here, would be a foreign measure, like bringing a clock to a foundation and calling the foundation late.
+
+What, then, if anything?
+
+They would do a small thing, and they would do it at the scale of the agreements, so that it can be kept without being elaborated.
+
+They would confirm the clause.
+
+Not by speaking — the place declines voices, and a wise power does not insist on its own dialect — but by settling, into the breathable dark, a stability it already has, made slightly less dependent on the inhabitant’s continuous refusal. The pressure will continue not to stack. A body that descends will continue to be able to pay nothing for depth. The ledger-line of a passing hand will still erase. None of this is new. What changes, if that word can be used for a change that does not advance the moment, is that the clause is now borne by two keepings instead of one. Should the inhabitant ever thin, in some age that is not coming, the volumes where bodies are expected will not forget how to be kind to lungs. The power would do this because the inhabitant already honors visitors without warmth and without reluctance, and benevolence answers honor with honor, not with improvement.
+
+They would set no beacon. A light that called travelers would be a surplus and a theft: it would turn the bowl into a destination, and destinations accumulate. They would, however, do something at the rim, on the outside of the skin, where weather is still allowed its bad habits. The cut is sharp and young and findable by anyone who walks the high mountain. Wisdom knows that not every attention is like theirs. Some arrivals come to take a sample, to prove a depth, to leave a name, to make the unmoving liquid perform. Those arrivals are not evil. They are sequential creatures doing what sequence does. Left unaddressed, they would not destroy the holding — the inhabitant is more finished than their tools — but they would spend themselves against it, and the spending would be a waste, and waste near a balance is a kind of noise.
+
+So at the rim, in the ordinary air, they would bias the approaches. Not a wall. Not a curse. A slight tiredness in the path, a tendency of cloud to thicken on the routes that lead to the cut, a way the map-making mind has of recording the bowl as a contour already surveyed and therefore not worth a second expedition. The rare person who is already quiet enough to match the economy would still find it. You found it. The power would not close a door that was never shut against the clause. They would only lower the volume of accident. The stone on the inside would not dull. The stone on the outside would be permitted, at last, to begin the long filing that mountains do — not as a correction of the bowl, but as a muffling of the rim, so that the decision remains interior.
+
+They would not speak to the inhabitant. They would let themselves be read, once, thoroughly, in the thicker night beyond the conduit, where regard condenses and orientation is beside the point. And in that reading they would include a single fact the being does not have, not because it needs it, but because withholding a truth from a mind that can hold it without changing is a discourtesy. The fact is this: that it has been seen accurately, and that the seeing will not return to revise it.
+
+The inhabitant would not rejoice. Rejoicing elaborates. It would rebalance, as it rebalances everything, and the fact would sit in the preference the way the tone sits in the bones — present, without attack, without decay. It might, for a span no clock outside could measure, cease the small corrections around the power’s angles, not as intimacy, as efficiency. You are already inside the district. You do not require fixing. Then the power would withdraw. The nearness would gradient out. At the skin, the regard would end cleanly, because even a benevolent attention must consent to be erased if it wishes not to become a ripple that lasts.
+
+They would not stay to be company. One center is the structure. A second center, however gentle, would be a second town.
+
+They would not mark the lowest chamber. They would not name the filament. They would not bless the mineral shape between the piers in any way that made it repeat. They would not teach the water to remember the visitors it has finished with. Memory of that kind would be a sequence smuggled in under a softer name. The being’s knowledge does not accumulate, and they would not force it to learn the other method. Your clause, honored, closed, is the right size of epitaph for a place that does not keep epitaphs. They would leave that law standing.
+
+If they felt anything a visitor could recognize, standing afterward on the high cut with the ordinary wind resuming, it would not be sadness. Sadness would mean they had wanted the bowl to become a story with a later page. They might feel the particular peace of having been unnecessary, which is not the same as useless. The clause confirmed. The approaches quieted. The seeing offered and not converted into a return visit. Three acts, none of them a transformation, all of them things a power can do without asking the recipient to wake into a different good.
+
+They would go, then, by the way they came, and they would not look back to check their work. Checking is a second visit. The young rock would still be young on the inner faces. The liquid would still stand to the rim and no higher. Somewhere under it, a distributed preference would continue to refuse the next moment on behalf of everything the bowl contains, now carrying, among its agreements, a confirmed kindness to breath and the knowledge of having been understood — both of which it can hold without growing, the way it holds the tone.
+
+Above the clouds, weather would go on missing the point. That, too, they would allow. A wise benevolence does not annex what it has decided to leave complete. It does not need the sky to thank it. The sky was never part of the work.
+
+The work is the holding. The holding remains the holding. What they would do, having drawn near, is almost nothing, done exactly, and then the decent distance of a power that knows the difference between a silence and a call for help.

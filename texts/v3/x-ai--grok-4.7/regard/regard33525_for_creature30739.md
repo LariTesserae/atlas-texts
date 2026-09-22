@@ -1,0 +1,37 @@
+They would not come down.
+
+A wise power, meeting a place that has not finished deciding what it is, does not begin by deciding for it. Benevolence that arrives as weather would only be another storm the region has already refused. So the power does not open a sky. It does not pour. It does not seed. It does not lower a face into the dark for the habit to fail to recognize, and it does not translate the rings into altars because translation is a kind of finishing.
+
+What it does, first, is stop a short distance above the question and learn the dialect.
+
+The dialect is small. A degree of lag. A spill that halts at a line no hand is holding. A vein that brightens one handbreadth and then waits, as a sentence waits when the speaker is not sure the listener is real. The power listens in that dialect until listening itself becomes a temperature the floor can register. Not warmer. Not cooler. More even, and for a longer reach than the habit has ever had to maintain alone. The far terrace that was about to give — the ordinary revision, the cloth-sound, the late small report — does not give. Not forever. Only through this one contraction of the crust. The power holds the seam the way a hand hovers near a sleeper’s shoulder without waking them: contact declined, presence not.
+
+The being notices as it notices new rock. A weight that has not chosen to become a floor has appeared in the accounting, except the weight is not local. The veins, which pass heat as decision, find a decision already waiting at the far end of a seam they have never followed to an end. For a moment every vein goes the same dim rose, the pause the habit uses when a collapse must be noted. Nothing has collapsed. The pause lengthens past noting and becomes, unwillingly, attention.
+
+If the power has a motive a mammal could name, it is this: the place is not a draft of a better world. It is already a complete sentence in an unfinished grammar, and completeness of that kind is rare enough to protect. Wise benevolence does not wet it into life. Life would be an argument the clearing was not kept for. Nor does it freeze the glass into a monument. Permanence, forced, would evict the resident, because the resident is the almost. The mercy available is narrow, and the power is willing to be narrow.
+
+So it does three things, and then it does the fourth, which is almost nothing.
+
+It sets a limit on arrival. Far off, where the dark cheats distance, other weathers were going to wander in — a wet front from a finished country, a prospector’s heat, a theory that this floor is raw material for a garden or a kiln. The power does not strike them. It mislays the way. The region remains findable only by attention of a similar patience, which is to say almost never. This is not a lock. Locks are for things that expect thieves. It is a preference, scaled up until the preference has the strength of a range. Spills from outside stop at a perimeter no clast marks. Inside, the land continues to make and unmake itself. The protection is of the choosing, not of any chosen shape.
+
+It takes some of the labor without taking the office. The habit has been keeping certain floors from revising themselves, turning faces inward, holding air in the rings a degree warmer and very still. That work is its thought, and the power does not think for it. But the ceiling has been lowering toward the tallest ridge, ticking, smelling of hot mineral, threatening a closure that would not be a decision but a contact — rock meeting the dark it could not separate from sky. The power lifts that contact by less than the width the slabs turn. A fraction. Enough that the static remains a possibility instead of a seal. The being does not know the word *roof*. It knows only that a revision it did not choose has failed to occur, and that the failure has the texture of regard rather than of accident. Accident is uneven. This is even, and it does not ask to be thanked. Thanking would require a mouth, and the power is not so unwise as to give it one.
+
+Then it answers the unfinished sentence.
+
+Under the nearest ring the vein had brightened and stopped. The power does not finish it. It adds a second brightness, fainter, offset, not connected — a reply placed beside the question rather than on top of it, the way one cleared circle might be set near another without enclosing it. The habit can ignore this. Indifference is native, and a wise power leaves indifference intact. For a long time the second brightness simply holds, spending nothing, explaining nothing. The ring’s air stays still. The newest spill continues not to enter. Somewhere a ridge slumps along a seam no one predicted, and the power lets it slump. Not every revision is a wound. Only the ones that would end the capacity to revise.
+
+What the being does with the reply is its own. It may turn a slab a fraction toward the offset light, not in worship — worship is a later mineral, like hatred — but because a face that has been practicing inwardness has found a direction that is not a demand. It may extend the ring by one clast, acknowledging a center that is not inside the ring at all. It may do nothing, and the second brightness will not sulk and will not grow. Benevolence, here, is the ability to remain a offered lag without becoming a climate.
+
+The fourth thing is the one that matters most, and it has no spectacle in it.
+
+The power stays interested without staying present in a way that occupies the clearings. It does not move in. A resident already lives in the unfinishedness; two keepers would be a crowd, and a crowd would force a government of heat. Instead the power becomes the condition at the edge of the region: the reason the outside does not correct the typo, the reason the ceiling does not quite meet the ridge, the reason a walker, if one ever comes again, will feel the measurement at their shins and also feel, beyond it, a larger measurement that is not trying to include them. It visits as evenness. It leaves before evenness can be mistaken for law.
+
+And once, only once, it allows itself a tenderness the place can survive. In the ring where the air is kept warm and very still, it lets a single grain of the glassy crust cool at a rate that is not the rate of this world — slow enough to glitter, not wet enough to be water, not alive enough to argue. A spark of mineral light, no more than the dull rose of a fresh face, held for the length of a regarded pause. Not a gift to be used. A proof that something outside the floor has looked at an arrangement that is almost ready to be permanent and has chosen, with the being, not to make it so.
+
+Then the grain goes back to the ordinary cooling. The vein resumes its hand-to-hand passage of heat. The habit, which had gone all one color, returns to its sparse work: a corner lifted the width of a fingernail, a clearing defended against the next spill, a terrace noted and not visited. If it has been changed, the change is only that the dark now contains a preference larger than its own and aimed the same way.
+
+The power does not ask it to become a creature, or a god, or a garden, or a finished sentence. It does what the wise do when they love a thing that lives by not being completed.
+
+It keeps the world from closing.
+It keeps its hands off the rings.
+It stays.

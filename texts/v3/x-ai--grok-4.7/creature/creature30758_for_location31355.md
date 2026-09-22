@@ -1,0 +1,1 @@
+The place description didn’t come through—there’s nothing below the request to work from. Paste the description and I’ll write what lives there.

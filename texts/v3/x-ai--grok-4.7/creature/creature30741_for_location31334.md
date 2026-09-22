@@ -1,0 +1,1 @@
+The place description wasn’t included after your instructions. Paste it and I’ll describe what lives there, letting the inhabitants emerge and deepen as I write.

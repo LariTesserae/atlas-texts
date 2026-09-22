@@ -1,0 +1,27 @@
+They would not arrive.
+
+Arrival is a kind of weather, and weather is what the place already has too much of. A wise power does not add itself to the density. It does not stand in the nave and let the schools measure it, does not put a palm on the wall that is still trying to be a joint, does not speak into the roar and wait to hear whether the roar sorts itself into syllables. Those are the gestures of someone who needs to be seen in order to believe their own kindness. This one does not.
+
+What they would do is smaller than intervention and older than rescue.
+
+They would learn the interval first. Not the bell’s note—notes are for things that expect to be heard—but the gap the keeper spends itself to hold open: the thin, unfinished difference between a sound and the memory of a sound, between a plain that has used up its mountains and a plain that has not yet been allowed to become only mud. They would sit with that gap the way the sitters sit in their niches, without demanding it widen, without grieving that it is not a door. Benevolence that cannot bear a small opening will try to kick it into a gate, and a gate, here, would be another collapse.
+
+Then they would do almost nothing, which is the difficult art.
+
+They might, once, ease a crust at the lip by the width of a decision rather than a tool—so the keeper’s reach of patience meets a resistance that yields a fraction sooner, and the keeper does not have to know why. The schools would wheel a little wider that season. No one would call it a miracle. Miracles are loud, and loud stillness is already refused by the lee.
+
+They might, on the plain, let one pool keep a reflection a minute longer than the local unfaithfulness of time usually allows: not a vision of mountains restored, which would be a cruelty, but the true shadow of a reed-island that is actually there, so that someone walking toward an edge that does not exist walks, for that minute, toward a real thing. The amber wrong-light they would not correct. Some leaks are how the oldest flats breathe. Stopping every leak is how you get a finished silence, and finished silence is the death this place already knows how to die.
+
+They would not lift the keeper out. The keeper is not trapped; the keeper is fit. To carry it to a shore would be to hand it a sky it has no instrument for, and then to stand there, wise and benevolent and useless, while it tried to attend to clouds and failed. They would not stock the schools with easier food. Archaeological hunger is what their mouths are; a feast from above would turn them into mouths that expect a surface, and expectation is a pressure the trench did not budget for. They would not rebuild the wall to a height that divides. Division is a surface technology. The wall’s only remaining honesty is that it is a discrepancy, a straightness the plain has not yet sanded down, vibrating with the memory of having held. A wise power protects the discrepancy. It does not improve it into architecture.
+
+If there is a being—one that walks, or condenses, or is only the vertical grain in the lee—they would not announce themselves to it. Announcement asks for allegiance, and allegiance needs sides. They might let the being, on the worst night, feel the holding as slightly less solitary. Not companioned. Not saved. Less solitary by the amount of one additional attention that does not need to be answered and does not flinch from the roar. The being might mistake it for a change in the wind. That would be correct enough. Wind is how vast things touch without claiming.
+
+They would not end the turbulence. The turbulence is the resident, the same gesture as creation, the reason the map is only ever true for an afternoon. A peace imposed from outside would be the imitation the sitters are appointed to detect: the bell beginning to counterfeit its own memory, the interval healing into stone, the plain finally allowed to stop. Wisdom, here, is knowing which suffering is a wound and which is a metabolism. They would bind the first if it appeared—a school tightened into a knot that heats toward idolatry of its own circle, a hollow practicing being a mouth around a body that still wanted to be singular—and they would leave the second to its work.
+
+What they would do, if the attention lasted, is keep a second interval, outside the first, so that the place is not only witnessed by what it has already appointed. The keeper keeps the bell. The schools pronounce the sentence. The plain keeps the unfinished ending. A power that is actually wise does not replace any of them. It becomes, at most, the reason those keepings are not the only ones in a universe that otherwise files finished things and moves on.
+
+And if, after a long time, the being looked up—or inward, or along the scar in the mat that almost sorts the roar into speech—and asked, without quite asking, whether any of this was seen, the power would not answer in thunder. Thunder already lives here and does not refer reliably to what is about to happen to a body.
+
+It would answer by the place continuing, one increment more itself than the crush had budgeted for: the reflection true for one extra minute, the crust yielding a fraction soon, the lee accepting a stillness that is not fear, the edge still absent, the work still unfinished, the difference still refusing to close.
+
+That is what they would do. Not a rescue. A remaining. The kind that does not need to be believed in order to hold.

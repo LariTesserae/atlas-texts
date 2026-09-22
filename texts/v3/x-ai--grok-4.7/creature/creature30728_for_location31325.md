@@ -1,0 +1,1 @@
+The place description didn’t come through — the message ends before it. Paste it and I’ll write who or what lives there.

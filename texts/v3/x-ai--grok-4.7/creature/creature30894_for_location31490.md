@@ -1,0 +1,1 @@
+The place description didn’t come through—only the note that one would follow. Paste it when you’re ready and I’ll describe who or what lives there, taking the time the writing needs.

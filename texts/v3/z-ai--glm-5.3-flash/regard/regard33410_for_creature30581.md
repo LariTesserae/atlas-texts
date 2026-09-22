@@ -1,0 +1,43 @@
+## The Margin
+
+...the seethe does not cover. Go down past the grazers' calligraphy, past the chimes and the liar's patient fraud, past the last gallery where drips still arrive with news of green, and the census begins to fail. Not the way a drought thins it — structurally, the way a language fails at a border. The interfolded small noisings come apart into separable sounds, then fewer, then one, then none. Below the noise is the sump: still black water, warm as blood, miles deep. It has no sound of its own. It has weight.
+
+At the margin between the last of the seethe and the first of the sump lives one tenant who is a neighbor of nothing. Long, pale, nearly motionless — a swimmer in boundary water, the only animal in the country that dwells in silence rather than despite it. It does not hunt; nothing down there is worth the address of hunting. What it does is harder to say. It listens to the deep water.
+
+Because the sump is not silent. Everything the country is arrives there eventually. Every drip in every gallery, every rasp, every interception, every counterfeit, every footfall — all of it conducted down through wet rock as pressure, and the sump holds it all, not stored but ringing. Every sound the Hollow Country has ever made is still in that water, folded past the edge of audibility. The swimmer floats at the margin and reads the whole. It is the only creature here that knows the country's shape — not as a map but as a score. It knows which galleries are full and which have gone quiet. It knows the liar as a small recurring syncopation in one specific chamber, and has known it — the same trick, the same chamber — longer than grazer memory runs. If the Hollow Country has a memory of itself, a self-regard, it is this: one pale animal at the floor of the dark, feeling the entire census of its world as pressure along its flanks.
+
+And it has measured something no one else could. The seethe is thinning. Not this generation — but the herds are fewer per gallery, the trails wider spaced, the drips slightly fewer. The causes are surface-sized and it will never know them: sinks silting, throats closing, the sky changing its mind. It knows only what it means for everything that lives inside the sound — that the bubbles are shrinking, that the droughts are lengthening, that the country is contracting toward the condition of its own deepest floor. And it can do nothing. Attention is its one capacity, and attention does not carry water. So it does the only thing attention can do. It does not look away. In a country made of sound, that refusal is the closest thing that exists to love.
+
+## What the Power Did
+
+A benevolent and wise power would begin by refusing almost everything.
+
+It would not descend as a voice. In a country where noise is address, announcement is the loudest possible act — an invasion. It would not bring light; light here is not a missing gift but a rejected one, and to restore it would unmake three hundred million years of finished apprenticeship. It would not even bring water — or rather, it would, but only through the country's own door. A power that understood this place would know the deepest fact about it: the dwellers have spent their whole history choosing what to give up, and a gift that bypasses those choices is not rescue but erasure.
+
+So it becomes a drip.
+
+It enters the surface year, is taken by the rain, goes down through a karren throat, and falls the long fall — passing the chimes, tasting the walls, being exactly what a drip is. It carries nothing a drip does not carry except one thing more, dissolved beyond any organ's reading but present to every dweller as a faint sweetness in one season's water. Not a message. A tone. The taste of being noticed by something vast. The old animals will test it as they test every spring — and it will pass, because the power has chosen the country's honesty as its own grammar: it does not counterfeit the water-table. It joins it. It accepts the fall, the filtering, the slowness, the whole economy of arrival, as the price of being welcome. Its mercy arrives as climate.
+
+And then it goes down — past the last seethe, to the margin — because the power's reasoning, if a power reasons, would have found the center of the country's need, and the center is not water. The center is the swimmer.
+
+Here is what the power sees that benevolence alone would miss: the country's crisis is a crisis of contraction, and the one being who hears the whole contraction is alone with it. The swimmer holds the country's entire sound in its attention, has held it longer than strata, and cannot share what it knows — sharing is sound, sound is address, and at its depth there is nothing to address. It is the country's ear, and an ear cannot hear itself. The power does not come to fix the swimmer, or save it, or even comfort it in any way the swimmer could name. It comes to listen back.
+
+It takes no shape. It adds its patience to the boundary water. The swimmer feels — the only way I can say it — that its vigil has been attended. That the diminishing it measured so carefully is known, and grieved, and accompanied. Nothing else changes in that chamber, and everything does.
+
+Then the power does its one measurable work, and it is almost nothing. It does not reopen the throats — that would make the surface a landlord, would teach the deep economy the idea that the world can be other than it is, an idea that here would be a kind of violence. It does not add sound; in this country, sound is intrusion. It does something smaller than either: it slows, here and there, the rate at which stone swallows sound. It makes the wet rock, by a fraction no instrument will ever measure, a slightly better conductor of vibration. It widens the bubbles.
+
+Not much. A percent. Less than a percent. But this country is built out of overlap — single small nothings interfolded into a world — and a percent more of reach means a percent more of neighbors heard in every drought. Each generation will simply be born into a slightly wider horizon and will experience the widening as the country's own character, the way they experience warmth and drip-rhythm. No one will ever know it was arranged. That is the point. The right size for mercy, in a world made of attention, is the smallest thing that changes everything: one more neighbor audible than despair requires.
+
+And at the margin, the power leaves one chamber of overlap that never fails. however thin the seethe above grows, in that one place the far percussion of the drip-lines remains faintly reachable — a reliquary of the census, a guarantee against the terminal silence. The swimmer's vigil, which was solitary, becomes shared.
+
+## And Then It Leaves
+
+Nothing in the Hollow Country will ever know. The grazers go on writing their unauthored calligraphy. The herds go on farming the fall with a competence older than mountains. The liar goes on manufacturing honest drops, and the old animals go on counting them. The drips go on carrying the sky's news one dissolved letter at a time, and the droughts come as they must, teaching stillness, teaching privacy, teaching the small sacred trick of slowing the pulse.
+
+And beneath all of it, at the floor of the map, one pale animal goes on listening — but no longer alone, and in a country whose hearing is, by a fraction no one will measure, wider than it was. The swimmer never learns what sat beside it. It only knows that once, at the very bottom of the sound, it felt the country's whole diminishing being held by something patient — and that this was enough to keep it listening, which was, all along, the one work that mattered.
+
+If you could ask the power why so little, I think it would answer in the country's own grammar — in the idiom of the census, where no single voice is anything and the whole is everything:
+
+Because they chose the dark, and their choosing made them, and I will not unmake what I have come to love. Because in a place where stillness is privacy, mercy must arrive as climate — as water, as sweetness, as wider world. Because the country did not need saving; it needed witness, and it had already appointed its own witness, and the witness needed not help but company.
+
+And because the deepest thing in that country is not the sump. It is the fact that everything in it, from the grazer to the liar to the swimmer, lives by listening — and the only worship that has any meaning, for a power like me, is to become faintly audible to the ones who listen, and worth listening to.

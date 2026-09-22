@@ -1,0 +1,1 @@
+The place description wasn't included after your instructions. Share it whenever you're ready, and I'll take the time to let whatever lives there become itself on the page.

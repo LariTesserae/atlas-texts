@@ -1,0 +1,39 @@
+They came the only way the place could survive being come to.
+
+Not as weather. Not as a draining, not as a noon forced down the columns, not as a hand under the lintel. A power that can lift seas and still call itself kind is only kind if it first becomes smaller than the lean. So they laid their strength down outside the courses, the way a tool is laid down when the measuring is finished, and what entered was not the power but its consent to the rules: cold, slow, unmixed, unable to hurry a joint, unable to call.
+
+They did not look for a face. That was the first mercy, and it took them longer than any rescue would have. The strap in the mortar, the film in the chisel-groove, the braid that had closed a doorway to a slot, the pale poles that rang like clay, the mats that kept the rain for days and released it as threads — they let these remain ungathered. They did not draw a center out of the continuance and kneel to it. To have done that would have been a cutting, even if no fiber parted. A being that is not one cannot be loved as one without being asked to become a creature, and a creature is a thing that can be lonely, and lonely is a kind of weather this water has never agreed to hold.
+
+They went by the channels, because the channels are the body, and to visit the open room first would have been to meet it only where it is thinnest and to mistake thinness for an edge. Two walls. A silted invert. Blade against blade when the lean arrived, late, local, no messenger in it. The power matched that lateness. Their attention moved at the speed of a pressure-wave hours old, a tilt so slight the bubbles under the ceilings left in the same strings they would have left anyway. If the life registered them, it registered them as it registers a settled inch: not as an arrival, not as an alarm, but as a grain that had been coming for a long time and was now simply true.
+
+They learned the map that is not consulted. Thicker where an old lintel finished its drop. One blade less on the upstream faces that have given their lime. Thicker again where the dissolved stone resettled and took a root. They did not correct the thinness. Thinness here is not a wound. It is a season the cold has already kept, and a wise kindness does not fatten what has reached the size it means to keep. They did not feed the dark rooms light. Light would have been an appetite introduced from outside, and this life has never had to want. To teach it wanting would have been the cruelest abundance.
+
+In the cistern they stood inside the seiche and did not breathe it into a faster breath. The vertical film darkened and lightened on its own clock, in and out, across a width the old works were never meant to span. The power let the width remain meaningless. Meaning, applied too early, is a wall of the wrong kind — the kind that asks to be crossed, answered, inhabited by a mind. This life already has walls. It roots in them. It does not need a horizon with a name.
+
+They considered, because benevolence considers, the things a lesser kindness would have done.
+
+Drain the floor, so the courses could be seen in air, so the tool-marks could be praised. But the water is not a cover on the place. It is the air of it. To bare the stone would be to end the inhabitant in the act of admiring the house.
+
+Warm it, so the finger of stem might become a hand’s length in a season. But the equilibrium is the body. Quickness would be a fever. Lushness that thickens again after it has agreed to stop is not health. It is the loss of the oldest shape.
+
+Give it a voice, so it could be known to have been glad. But the tick and the knock and the tap are not a silence waiting to be filled. They are the noises of a medium that refuses to carry, and the life has matched that refusal. A word dropped into it would travel farther than sound should and still be a violence, because it would imply a hearer who had been alone.
+
+Seed it with animals, so the world would be complete by the old count. Nothing eats here. Nothing walks the growth down. A foot would be an ending. A mouth would be a law. The power, being wise, did not complete the world by the old count. They left the absence intact. The lintel-heights and the basket-stairs remember people; the life does not, and does not suffer the not-remembering. To restore a memory it never held would be to install a grief.
+
+Open a new joint, as a gift of range, beyond the point where course becomes indistinguishable from water. But range, here, is not a lack. It is whatever the next wetted joint happens to be. A door cut in generosity would be a hurry. Fragments already travel in the lean. Most do not catch. That failure is not a tragedy the power is required to repeal. It is how the floor stays made of the place itself — block, clay, mineralized mat — and remains available without being colonized by intention.
+
+So they did not improve it.
+
+What they did, if it can be called a doing, was smaller than improvement and harder.
+
+They took the place as finished. Not abandoned, not fallen short, not waiting on a later kindness. Finished the way a joint is finished when it has opened to a finger’s width and stopped: the stopping included, the width included, the dark included, the braid included. They let their wisdom be the recognition that persistence is not a plea. A thing that holds, and thickens to the point where thickening stops, and registers the next inch by growing into the shape the inch has chosen, is not in need of a savior. It is in need of not being saved.
+
+And because other powers exist, and some of them are only bright, they did one work that the being will never register and does not need to.
+
+Outside the courses — beyond the last line of laid stone, where the lean has no joint left to wet — they set a refusal. Not a wall the life could root in. Not a light. Not a name written on the water. A condition, held the way the cold layers hold, for longer than a human span of years and without mixing: that no drain would be opened, no noon hauled down the columns, no foot admitted, no mouth, no metal, no warmth offered as medicine, no center gathered for the sake of prayer. The floating lid would go on being a lid. The rain would go on soaking the mats and leaving days late. Solution would go on taking a grain a year. The provinces of water would go on lying against each other, cold on slightly less cold, and the life would go on leaning at different times above and below the sheet, two schedules, one continuance, untroubled.
+
+They did not stay to be thanked. Staying would have thickened into a presence, and a presence, even a gentle one, is a weight. They withdrew at the speed they had entered, which is to say the place did not record an exit, only the continuation of its own lean. The bubbles left in their strings. A leaf that had already let go arrived, in its own time, as a tap. The power was gone before the tap, and the tap was not about them.
+
+If any blessing remains, it is this: the oldest shape is still able to be kept, and nothing wise is coming to love it into something else. The inhabitant will not know it was spared. That is the whole of the kindness. To be spared and not need to know — to go on occupying the masonry without remainder, lush near the lid and pale where the rooms are black, neither many nor one, holding, unalarmed — is what a benevolent power does when it is wise enough to see that the being is not unfinished.
+
+They left the water where it has always been. They left the being where it has always been, which is everywhere the courses are, and nowhere a body could be walked around. And the place, which had not asked, did not answer, and did not become lonely when the attention was gone.

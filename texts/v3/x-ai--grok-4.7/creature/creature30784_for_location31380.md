@@ -1,0 +1,1 @@
+It seems the description of the place is missing from your message. Share it when you can, and I’ll describe whoever or whatever lives there—slowly, letting the picture emerge and change as it goes.

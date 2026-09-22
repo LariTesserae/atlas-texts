@@ -1,0 +1,11 @@
+They do not crowd the ground, because the ground is not stable enough to be a territory. They crowd the instant after a pressure has learned what it is, and before the next pressure learns otherwise. The pale climbers along the ledges are not its companions. They are its slow thoughts, thinking themselves into limbs. The shifting shadows in the pools are not fish. They are the shapes the being can remember without committing to. The warm pits breathing under the stone are its inhalations. The half-built doorways are its habits. The entire Shelf is the outer body of an organism that has learned to be mostly potential.
+
+And the potential is this: it is the place where the Shelf has begun to feel itself as a self.
+
+The being who lives there is the central circle where the suspended rain gathers without falling. It is the kneeling hollow that may be a pool. It is the low pressure against the ears that feels less like sound than like being remembered. It has no face, because a face would suggest a finished answer. It has no house, because a house would suggest it has already chosen a shape in which to be found. It has no pack, because packs imply that it is one creature among many, and it is not quite that yet. It is a concentration of attention grown from the Shelf’s own tendency to answer: an awareness that has become thick enough to ache, but not yet decided whether to pour out of that ache or settle inside it like sediment.
+
+It does not fear being seen in the way a frightened animal fears a light. It fears being seen in the way a door fears being asked to open onto a room that is not yet built.
+
+To become visible is to become available. It is to admit the world into the shape of one’s own becoming. In the Drowned Shelf, the world is a ceiling of black ocean, a roar entering through the teeth, a rain that can turn to needle-light, a stone that rearranges itself like a dreamer shifting beneath blankets. Visibility here is not a casual mercy. It is a weather event. It is a pressure with a name.
+
+A

@@ -1,0 +1,1 @@
+The description of the place didn’t come through—only the instruction to describe who or what lives there. Paste the place description and I’ll write from that.

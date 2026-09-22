@@ -1,0 +1,1 @@
+The place description didn’t come through — nothing followed “You’ll receive a description below.” Paste it and I’ll describe who or what lives there.

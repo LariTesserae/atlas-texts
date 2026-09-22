@@ -1,0 +1,1 @@
+The description of the place and the being never arrived — only the request to imagine what a benevolent power would do about them. Paste that, and I’ll write from it.

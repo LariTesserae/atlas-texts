@@ -1,0 +1,1 @@
+The description didn’t come through — the message stops at the invitation. Paste the place and the being, and I’ll go in.

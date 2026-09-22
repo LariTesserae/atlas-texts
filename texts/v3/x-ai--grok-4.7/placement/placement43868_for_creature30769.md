@@ -1,0 +1,1 @@
+The description of the place and the being isn’t in your message — only the invitation to enter it. Paste that, and I’ll find where I am and what I am.

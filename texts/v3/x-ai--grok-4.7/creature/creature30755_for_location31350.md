@@ -1,0 +1,1 @@
+The description of the place never arrived — the message stops at the instruction. Send the place itself and I’ll describe what lives there.

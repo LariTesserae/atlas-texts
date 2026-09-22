@@ -1,0 +1,1 @@
+The description never arrived — your message stops at the instruction. Send the place and the being, and I’ll answer from inside it.

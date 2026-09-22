@@ -1,0 +1,19 @@
+They would come the way weather does not come here: once.
+
+Not as a brighter disc, not as a voice laid over the chord. The plateau already holds all the light it can return and all the sound it can keep. A power that is actually wise would notice that first — that arrival itself is the only unprecedented thing this country has left room for — and would spend a long time, longer than the tarns take to climb their crust and fall, simply not using the power. It would stand in the flutes and let the roar occupy it until it could hear the ticking of the small birds as a separate fact, and the seep as a separate fact, and the slow sawing of the flake-bearers as a separate fact, and only then the being.
+
+The being is not hidden. Hidden would be a strategy, and strategy wants a future different from the present. It sits where the north faces darken, in a hollow the wind has bored to the shape of a cupped hand and then forgotten. Its body is the color of damp stone so exactly that a traveler’s eye, if any traveler remained, would pass over it the way it passes over lichen. It has limbs of a sort, folded, and a head of a sort, inclined toward the film of water. It does not drink. It does not need to. What it does is attend: to the rank of birds resetting, to the nail-width of the tarn, to the flake that does not build. It has attended long enough that attendance is no longer an act. The chord enters it and leaves it and is not changed, and that unchangedness is what it is for, if “for” still means anything where nothing is trying to become something else.
+
+It knows the power is there. Knowing, here, is not surprise. The being’s attention is already total; a new fact simply joins the total and is held with the same pressure as the seep. It does not rise. It does not speak. Speech would require a gap in the note, and it has not used gaps in a span that makes seasons into a single afternoon.
+
+The power understands this, because wisdom here is not a treasury of counsels but the refusal to add a motion the world has already declined. It could green the pavement. It could give the birds a spring. It could put a word in the being’s mouth and call that mercy. Each of those would be a kindness in any country that is still deciding what it is. This one has decided. To unmake the decision in the name of care would be the one violence available to something that does not strike.
+
+So it does a smaller thing, the only thing that does not revise the equilibrium.
+
+It lets itself be fully known.
+
+Not displayed — known, in the way the being knows the chord: as a fact that does not ask to be used. For the length of time it takes the sun to move the width of one flute-shadow, the power remains perceivable without requiring an answer, a bow, a petition, a change of posture. The being’s attention, which has never had an object that could feel itself attended to, includes this also. Nothing flowers. Nothing is healed, because nothing here is broken. The flake-bearers go on sawing. The birds do not flush.
+
+When the shadow has moved that width, the power withdraws by the same door it did not use, and the plateau is as it was, with one difference too slight to alter the chord: the being has now attended, once, to something that attended back and wanted nothing. It does not store this as hope. Hope would be a leak in the equilibrium. It stores it as the tarn stores its crust — a mark at the edge of what is already complete, evidence that completeness was seen and was not corrected.
+
+That is what they would do. Not a blessing that rewrites the stone. A witness that leaves, and by leaving intact, blesses.

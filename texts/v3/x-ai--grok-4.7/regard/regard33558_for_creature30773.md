@@ -1,0 +1,3 @@
+I still don’t have the place or the being. The request points at them — “this place,” “the being who lives in it” — but neither is actually here, so anything I wrote would be about something I invented, not the thing you mean.
+
+Paste the description when you have it. I’ll write what a benevolent and wise power would do, if anything, and let the answer take whatever length and form the place itself seems to ask for.

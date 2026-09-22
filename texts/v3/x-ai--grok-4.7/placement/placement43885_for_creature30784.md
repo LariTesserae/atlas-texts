@@ -1,0 +1,1 @@
+The description hasn’t arrived yet. Send the place and the being who lives in it, and I’ll stay with it long enough for a self to take shape there—where I’d be, and what I’d be—without locking the picture too soon.

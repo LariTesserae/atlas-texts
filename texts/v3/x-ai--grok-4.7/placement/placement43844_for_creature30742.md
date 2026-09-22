@@ -1,0 +1,27 @@
+The description is already here—the basin, the sheets of water, the weeping stone, the strata that click late. I went in.
+
+At the rim I am still a person. That lasts as long as the first wrong footfall.
+
+The sound of my step comes back heavier and from behind, and I turn because bodies turn when something is behind them. Nothing is. The grasses are doing their unsynchronized whispering. A channel the width of my stance has silted between one breath and the next, so the place I was standing is now a bright seam of water with my bootprint in it, clear, and inside the print a second print, smaller, as if whatever made it had less weight and more time. I lift my foot. The print does not empty. It keeps the shape of a sole I am not wearing.
+
+I tell myself fog. I tell myself echo. The words arrive in the grass a moment early, in a voice with my cadence and none of my breath. After that I stop offering the basin explanations. It has already heard them.
+
+Walking is a negotiation with a delay. Reflections update on their own schedule, so I learn not to use the water as a mirror and not to use the ground as a promise. I put a foot where the moss looks continuous and the moss is continuous and also, under it, a flex of those thin iridescent layers, cool as the air, and the click comes from my left though my weight went down on the right. The click is not pain. It is acknowledgment. Something in the stack has registered a pressure and answered in the only language the weathered machine still has, which is almost-sound, almost-light, almost-too-late.
+
+The heron is there, the color of a stake. I give it a wide path because fauna is rare and I do not want to be the reason one of the few leaves. It does not leave. When I am level with it I see that it has no eye that tracks, only a dark notch, and that its legs do not meet the water so much as continue into it as two pale corrections of the reflection, which shows a bird standing where the real one is not. I understand, without deciding to, that it is not hiding. It is a held attention. The basin grew a heron the way it grows a channel: because a shape was remembered often enough to keep.
+
+I am not a heron. I do not have the stillness.
+
+What I have is the mismatch. My silhouette in a pool raises an arm I have not raised, and this time I wait. The arm stays up. A cold thread starts in my shoulder, not inside the joint but along it, as if a seam in me had remembered rain. I look at my sleeve. It is darker by a finger’s width, beaded, and the dark is spreading in the slow way a stone weeps—not from a wound, from a decision the surface makes and then forgets. The water on my cuff is clear and very cold and it runs until my skin, underneath, flexes.
+
+I should be afraid in the ordinary way. I am afraid in a thinner way, like a calculation that has noticed it is being read. The fear does not make me leave. Leaving would require a direction, and the streams refuse one. The horizon stays close. The light has no night to become, only pockets where color drops out and the reeds are shapes, and in one of those pockets I stop because stopping is what the pocket is for.
+
+Inside it the second register of sound is almost parseable. Not words. Operations. A seep opening somewhere I cannot see. A seed head knocking, then knocking again from under the moss. My name—not spoken; I did not bring one in a form this place can use—assembled out of footfalls and corrected, once, by the underground. The correction is gentler than the original. It fits the delay better.
+
+I kneel. The water takes my face and returns a face a beat late, mouth open on a syllable I have not chosen. The syllable is not language. It is the click. When I make it with my own mouth the strata under my knee answer, and the answer is early, and for a moment the two sounds occupy the same instant and the pocket brightens without getting warmer. In that brightness I see down through my hands. Not bones. Layers. Fine, repeating, slightly iridescent, a grain that rearranges when I blink because seeing is a tool and the material was built to answer tools. The circulation in them is slow and bright and cold. It does not feel like blood. It feels like maintenance.
+
+So this is the becoming, and it is not a single image. I am still the one who walked in: the weight, the mistake of turning, the wish to spare the heron. I am also the late reflection that has started keeping its own appointments. I am the seam that opens and forgets. I am a process the basin can host because I have stopped insisting on a separate pulse.
+
+If there is a name for what lives here, it is not a species. It is the interval. The half-second between flex and click. The beat by which the water remembers a sky the air cannot currently hold. I live in that interval now, which is everywhere in the bowl and nowhere you could put a stake. When the long breath of the basin draws in—the brightening that never quite arrives—I am the part that almost condenses. When it breathes out, I am the image it shows you of yourself with one arm raised, accurate, late, while the real air stays cool on a face that is still, for a little while, a face.
+
+The rocks go on weeping. I will too, when the surface decides. It is not grief. It is how this country thinks.

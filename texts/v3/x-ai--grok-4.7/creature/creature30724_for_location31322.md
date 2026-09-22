@@ -1,0 +1,1 @@
+The place itself never arrived—only the instruction that a description would follow. Paste it when you have it, and I’ll write who or what lives there.

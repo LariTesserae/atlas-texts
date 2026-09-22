@@ -1,0 +1,21 @@
+The power came the way weather comes here—not as an arrival, but as a change in the rate of what was already happening. No light broke the cloud-lid. No voice entered the ticking. For a long time it only listened, the way the thread listens, weighing the out-of-phase knocks of the vents against the slower hydraulic speech of water becoming stone.
+
+It understood the place before it understood the animal. The range was not suffering its own unfinishedness. It was the unfinishedness, running cleanly, converting heat and charge and cold into more of itself with no remainder left over for pity. A softer intervention—the sealing of a vent, the laying down of soil, the gift of an hour that did not freeze—would have been a kind of erasure. The power had ended younger worlds by kindness before, and had learned the difference between a wound and a tempo.
+
+Then it found the animal, and the minute.
+
+It watched the brace happen on a ledge no wider than a breath. A juvenile had read the pavement late; the rewrite of a seep had caught it one step inside the warmth that was about to become pain. The nearest adult stopped. The thread sealed around the interruption and went on. Weight met weight. Heat—the real heat, the one the coat exists to keep—moved for the length of time a small body needs in order to stop spending itself on panic. The power counted. It was not a long count. When the juvenile’s feet began to read again, the adult stepped off, and the gap reopened as if touch had been weather.
+
+The power did not lengthen the minute. It did not store a second one anywhere in the mountain for later use. It saw that the expenditure was already exact, and that exactness was the only kindness the cold could carry without becoming something else. To add surplus would have taught the animal to reach for what the country does not hold, and the thread would have learned waiting, and waiting would have been the first death that was not already priced into the rate.
+
+What it did instead was smaller than a correction and larger than nothing.
+
+It settled, very lightly, into the interval between one tick and the next—the pause the mountain already kept, the one in which pressure has not yet decided which throat it will speak through. In that pause it made the stone a fraction more legible to the horn-edge nerves. Not safer. Not warmer. Only clearer by the width of a choice already being made: so that the late reading arrived, sometimes, one footfall sooner, and the brace was asked for only when the minute would answer. The juveniles who were past saving remained past saving. The power did not bargain with that. It had looked at the adult’s skin and understood that both acts—the brace that restores and the brace that does not—were the same act, completed when the heat was spent. To spare the animal the second recognition would have been to counterfeit its precision.
+
+Across the basins the vents kept their own unruly phase. The birds entered and left the lower cloud. The thread moved, spaced, upright in the dimming, breath rising and not dispersing. Nothing in the view had been placed. The power remained only as a slight change in how quickly certainty returned to a foot that had begun to skate—not enough to notice, not enough to depend upon, enough that the minute, when it was given, was almost always enough.
+
+Then it withdrew its attention the way the cloud withdraws a distance: not gone, only no longer leaning. The mountain continued manufacturing itself. The thread continued manufacturing its next step. Between them the gap held, and the occasional brief warmth crossed it, and the water went on becoming stone at the only speed either of them could afford.
+
+If the power could be said to have wanted anything, it was only this: that the austerity stay accurate, and that the one kindness already native to it—the minute, paid without remainder and without refusal—never be asked to become an hour. It had seen what hours do to creatures built for minutes. It did not wish that knowledge on them.
+
+By morning the stippling was on a different slope. The power was not watching. It did not need to. The work was already inside the rate, and the rate had not been broken, and the mountain, ticking, did not know it had been loved.

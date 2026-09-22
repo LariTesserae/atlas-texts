@@ -1,0 +1,5 @@
+The first citizens of the Underhalls are too small to frighten you and too many to count.
+
+Begin there, with the films: sheets of life thinner than a breath, painting every surface the glow touches, drinking the mineral seeps molecule by molecule. Their exhale is light. The blue-green radiance of this world is not decoration — it is metabolism made visible, the smallest inhabitants spending the stone's slow energy in their trillions and giving off the only daylight there is. The sky of the Underhalls is made of waste products. It is the gentlest possible way to build a sun, and it has been burning for ten thousand millennia, and no one has ever needed to tend it.
+
+Above the films, the skitterers. Small pale things in the ferns, quick by the standards of the Underhalls and unhurried by any other standard anywhere. They read the world through their feet; they browse the undersides of fronds and the velvet

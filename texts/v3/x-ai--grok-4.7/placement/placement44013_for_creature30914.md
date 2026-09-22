@@ -1,0 +1,1 @@
+The description never arrived—the message ends at the invitation. Paste the place and the being, and I’ll go from there.

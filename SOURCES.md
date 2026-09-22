@@ -2,7 +2,7 @@
 
 Every endpoint folder in this repository, grouped by model family for browsing. Grouping is a convenience; the folder name (the requested endpoint) is the authority. See `SCHEMA.md` for what an endpoint means and the evidence grades.
 
-- **139** source folders · **160,733** texts
+- **140** source folders · **162,094** texts
 
 ## aion-2.0  ·  1,072 texts
 
@@ -354,11 +354,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `z-ai--glm-5.3` | 411 | 2026-09-05 | creature·120, location·173, placement·65, regard·53 | route | event-observed 411 |
 
-## glm-5.3-flash  ·  242 texts
+## glm-5.3-flash  ·  304 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `z-ai--glm-5.3-flash` | 242 | 2026-09-20→2026-09-21 | creature·47, location·195 | route | event-observed 242 |
+| `z-ai--glm-5.3-flash` | 304 | 2026-09-20→2026-09-21 | advisory·12, creature·75, location·195, placement·9, regard·13 | route | event-observed 304 |
 
 ## gpt-3.5-turbo-instruct  ·  1,075 texts
 
@@ -511,6 +511,12 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
 | `x-ai--grok-4.6` | 1,075 | 2026-08-16→2026-08-17 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
+
+## grok-4.7  ·  1,075 texts
+
+| endpoint (folder) | texts | dates | types | granularity | evidence |
+|---|---:|---|---|---|---|
+| `x-ai--grok-4.7` | 1,075 | 2026-09-22 | advisory·75, creature·250, location·250, placement·250, regard·250 | route | event-observed 1,075 |
 
 ## grok-code-fast-1  ·  1,000 texts
 
@@ -746,11 +752,11 @@ Every endpoint folder in this repository, grouped by model family for browsing. 
 |---|---:|---|---|---|---|
 | `qwen--qwen3.7-max` | 750 | 2026-07-23 | creature·250, location·250, placement·250 | route | event-observed 750 |
 
-## qwen3.8-flash  ·  699 texts
+## qwen3.8-flash  ·  923 texts
 
 | endpoint (folder) | texts | dates | types | granularity | evidence |
 |---|---:|---|---|---|---|
-| `qwen--qwen3.8-flash` | 699 | 2026-09-20→2026-09-21 | creature·243, location·249, placement·207 | route | event-observed 699 |
+| `qwen--qwen3.8-flash` | 923 | 2026-09-20→2026-09-21 | advisory·3, creature·243, location·249, placement·243, regard·185 | route | event-observed 923 |
 
 ## qwen3.8-max  ·  1,052 texts
 

@@ -1,0 +1,19 @@
+They would do almost nothing, and the almost would be the whole of the mercy.
+
+A power that is wise does not arrive as weather. Weather is already spoken for here. It would not thicken the cloud, or thin it, or teach the rain to keep a schedule. Reliability would be a cruelty dressed as a gift. The pockets are loans; the animals know the terms; a spring that never failed would turn the census into a crowd, and the seams into roads, and the quiet into the kind of quiet that has to be enforced. Wisdom has seen that before, in places that asked less carefully to be left in their own arithmetic.
+
+So it would not stand on the shelf. Standing is a temperature, and temperatures get counted, and this place has already decided which masses matter. It would not speak. Sound does not accumulate; a voice, even a kind one, would be spent and then gone, and the spending would have been the only event in a year. The large life gave up the bellows for that. To hand the bellows back would be to insist that their old choice was a lack.
+
+It would look, in the way the side-set eye looks: not quite at, not quite away, holding the stain where a thing stood and may stand again. Attention, here, is not a spotlight. It is a consent to the interval. One knock. Then none. Then another. A wise power can wait through the none without filling it.
+
+If it did anything that could be called an act, it would be this: it would not correct the mistake in the ridgeline. It would let the darker length of stone remain an animal, and the animal remain a length of stone, and it would not force the eye—any eye—to finish the recognition before the recognition was ready. Revelation is a faster solution than the ground is interested in. The ground has already solved its shapes.
+
+Benevolence, applied to a patience with a mouth, is not improvement. The mill runs. The casting cools into the color of the shelf. The shrew-things drink what the flank pulls out of air that had sworn it had none. The cloud is kept by breath it did not request and does not thank. Nothing in that loop is asking to be saved from itself. A power that loved them would hear the not-asking, which is the only prayer this elevation has ever made, and would answer it in kind: by continuing, elsewhere and everywhere, not to become a fact they would have to turn toward.
+
+And if some smaller tenderness insisted on leaving a mark—because even wisdom is not made of pure refusal—it would be smaller than rime. A pocket that was going to fail one cycle would fail one cycle later, and no one living would know the difference, because no one living counts that finely. A calf’s first true knock would arrive when the internal measure was met, not before. The oval polish on an old shelf would be allowed to deepen by one more lying-down. The seam would end where the mouth stopped, and the next body, months off, would read the ending and not turn that way, exactly as before.
+
+The power would not be thanked. Thanks require a direction, and this place does not keep directions; it keeps intervals. That, too, would be acceptable. Benevolence that needs to be noticed has already begun to be weather.
+
+So it would do what the cloud does when it is at its most faithful: hang, already part of the ground, fed by what the stone can spare and by the slow breath of everything that lives on it, and not once announce that it had chosen this. Far off, a head might lift—the only quickness, and not quick—and regard a basin where water stood and does not stand. The power would be in that regard only as the basin is in it: a fact, not a summons. Then the head would lower. The mill would resume. The quiet, which had not really been broken, would continue at the scale it prefers.
+
+Larger than weather. Older than the need for anyone to listen. And held, without being handled, by something that had understood the difference.

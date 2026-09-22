@@ -1,0 +1,17 @@
+The power does not arrive. Arrival would be weather, and the table has weather enough.
+
+It attends. Attention, for such a power, is not a gaze from outside the light. It is a slight change in how fully a thing is allowed to be what it already is. The plateau does not grow quieter. The joints do not stop their ticking. No peak is restored, no river assigned a permanent bed, no thicket fixed in place so a traveler’s scratch might keep meaning. The wise do not edit a finished sentence for the comfort of readers who have not yet learned its scale.
+
+What it does is smaller than the wind and longer than a season.
+
+In the gaps between gusts—those brief, dishonest silences the ear invents—it learns the breath of the large thing that will not come out of the thicket. Not to summon it. Not to name it. Only so that when the breath comes again, the pocket of air around it holds a fraction longer, the way a stone ring holds a fraction of hush: enough that the animal, whatever it is, can finish the inhale it has always been owed by the noise. The power does not show itself. Showing would be a second weather, and the creature has already declined spectacle.
+
+It keeps the shy water honest to its own habits. Where a basin’s wet line has been abandoning a mat of roots too quickly for the sidling green to follow, one pressure-cell, on one afternoon, shears a little less cleanly. Ten extra minutes of film. Not a flood. Not a miracle a person could found a story on. The drops still chase the old stains. The grove still appears, over days, to lean. Only the lean is given time to arrive before the crisp pale edge sets in. The land-form remains finished. The life on it is not asked to agree faster than it can.
+
+The scattered human marks it leaves exactly as they are. The knee-high cairns, the pecked bowls, the three-course wall already accepting the flattening—these are not failures to be completed. They are the right weight of presence for a country that will not hold a village. A wise power does not build a road where feet have already chosen a slightly less-gritty line, and does not erase the line so the country can pretend it was never walked. Cord-marks stay. The ring of stones keeps its imperfect acoustics. Inside it, a pulse can still be heard and still be hated; that honesty is a shelter too.
+
+If the power has a kindness that could be mistaken for an action, it is this: on certain mornings, when the light is ordinary and the western density has not yet stacked itself into a wall, it lets one long-winged shadow cross more slowly than the wind would prefer. Not hunting. Not messaging. Simply using the plateau as the road it already is, between countries that still have peaks, and not being torn out of the air before the shape can be believed. The armored things do not look up. They navigate by the tick of stone, as they should.
+
+Then the power withdraws its difference. The roar resumes its office as first citizen. Dust lifts and is slammed down. A grove bows, springs, rains on itself under a clear sky. Speech remains a rumor. Nothing in the late gold light admits that anything wise has passed through, because nothing needed to remain except the permission—already native here—for a last, open, nearly level country to keep being shouted by the air that crosses it, alive at the only scale that fits.
+
+It would do that. And then, wisely, nothing more.

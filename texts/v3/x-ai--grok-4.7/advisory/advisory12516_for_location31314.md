@@ -1,0 +1,71 @@
+Do not plan a stay. Plan a short trespass into a room that is still being made, and a clean retreat before the room notices you as weight.
+
+This is not a cave in the traveled sense. It is a blister that split and nearly sealed, high in rock that has not decided its own face. From outside you will have only a seam, a warmth under the palm, and a sound you can misread as wind. Inside there is no water, almost no light, no path, and no empty air. The heat is a constant pressure, not a flare you wait out. The life is the floor, the walls, and much of the ceiling. The sound does not rest. Go in as someone who expects to be shouldered, powdered, deafened, and turned around, and who has already decided the minute they will leave.
+
+## Before you trust the seam
+
+Walk the ridge in daylight and in the cool of whatever night this world has, and do not enter on the first finding. Learn which face is still arriving. Fresh fracture, edges not rounded, a warmth that is not sun-warmth. Put the back of your hand near the seam, not your palm first, and then the palm only if the air at the crack is bearable for a count of ten. If the stone is hot enough to pull the hand off, the chamber beyond is already past an ordinary body. Mark that and turn back. Many seams will be like that. This place is not improved by courage.
+
+If the leak is only warm, listen for a long time with nothing in your ears. You are separating three sounds: the high continuous labor of small hard bodies, the slower check and slip of new rock, and any dry jet that hisses and does not stop. A hiss that smells of metal, struck match, or bitter salt is a reason to treat the air as unbreathable, not as atmosphere with a flavor. Have someone, or a line, or a marked retreat, outside. Solo entry into a doorless blister is how a person becomes another grain the mountain keeps.
+
+Agree on a time that does not depend on how interesting it gets. For an ordinary human without a cooled suit, think in minutes, not hours: long enough to know the room by contact, short enough that sweat has not yet become a crust you cannot spare. Heat stroke does not announce itself as drama. It arrives as a reasonable idea, then as a wrong one. Write the exit time where you will see it, and give the outside person the authority to pull you whether you agree.
+
+## What the body can and cannot do here
+
+You will not drink inside. There is nothing to drink, and anything you carry that is wet will be wanted by your own skin and by the heat. Load water before you descend the ridge approach, more than feels necessary, with salts, and stop while you still feel strong. Do not enter thirsty, hungover, underslept, or already hot from the climb. Eat something plain and salty beforehand. Leave food outside. Nothing in that chamber is waiting to be fed by you, and a smell of fruit, meat, or sugar is a way to become a disturbance in a mat that has only ever fed on mineral film.
+
+The air will dry you faster than the heat alone. Lips, eyes, the inside of the nose, the edges of the nails. Blink and you will feel grit. Breathe through the mouth and you will taste iron and salt crust. A simple cloth is not enough if the dust is the fine oxide that never settles; it will load, and you will suck harder, and the harder breath is how you take more of it. Carry a respirator you have already worn on a hot day until you hate it and still trust it—filters for fine dust, and if you have any reason to think the jets are sulfur or metal fume, filters meant for that, not a scenic bandanna. Spare filters in a sealed pouch. If your eyes burn or your chest tightens or the taste turns sharp and rotten-egg, that is the exit, not a sample.
+
+Skin needs a barrier that is not a sauna. Light, close weave, long sleeves, long trousers, gaiters, gloves you can still feel stone through. Pale colors if anything here has light; mostly it will not matter. No loose scarves to catch in a mat of bodies. No bare ankles. Boots with a sole that will not melt or glaze on a hot glass run—test a scrap of the sole material against a stone you have heated, if you can, before you trust it. The surfaces inside are new: some glass-smooth and treacherous, some sugary and willing to powder under you and leave a pale scar that is also a loss of footing. You want tread, ankle support, and a way to kneel without opening the skin.
+
+Heat is the governor. A wet scarf around the neck will buy you a little and then become a liability as it dries and as you dehydrate. A small phase-change pack or a water bladder against the torso, insulated so it does not flash-warm against the stone, is worth more than heroism. A real cooled garment is the difference between a visit and a collapse, if you have one and you have practiced in it. If you do not, accept a shallow entry along the seam, not a crossing of the chamber. Ordinary humans do not outlast recently softer rock.
+
+Ears need protection and also need the truth. The drone will be continuous, mechanical, scaled past any single body—mandibles, wing-cases, claws on micro-rough stone—and under it the bright crack of a face checking, the run of grit, the hiss. Unprotected, you will stop hearing the differences, and the differences are how the room warns you. Wear protection that lowers the drone without erasing the crack and the hiss. Practice with them. Know your own voice will not carry. Agree on rope signals: one pull, hold; two, come back; a continuous pull, emergency, haul if the line is free to haul.
+
+## Light, charge, and what not to trust
+
+Most of the chamber is known by contact. A bright white beam will show you a wall of bodies and then fail you in the contrast. Carry a dim red light, hooded, and a second smaller one on the chest or wrist, and use them in short looks, not as a sun you live under. The dull red already leaking from the hottest seams is not illumination. It is a stain. Do not walk toward it because it is the only color. Hottest means closer to rock that has only recently stopped being softer, and closer to gas, and closer to a face that may check while you are on it.
+
+Static is part of the weather. Hot stone, moving charge, dust that lifts and hangs like a wrong snow. Electronics will misbehave. Do not depend on a phone, a drone, or an unshielded lamp. Mechanical backups: a brass or fiber line, knots you can read by feel, a whistle that does not need a battery, a paper or metal-tag time cue. If you bring a camera, assume it will fill with dust and lie about the heat. Witness first. Record only if it costs you nothing you need for the exit.
+
+Do not carry a pack that makes you wider than the seam. A slim belt: respirator, light, a fold of foil blanket for after you are out, a small bottle you will not open inside unless you are already leaving, a cutting tool only for your own line if it snags—not for the life, not for the rock. Anything you drop will not be recoverable as an object. It will be a disturbance, then a part of the mat.
+
+## How to enter
+
+You do not step into a room. You insert yourself into a continuity that was already full.
+
+At the seam, wait until your eyes and ears have given up on the outside. Feel the edge. Glass will refuse a grip. Raw grain will powder and tell you that your weight is already writing on the mountain. If the opening is a slit, go sideways, one shoulder, line paid out from outside, no yanking. If you must clear a lip of bodies, do it as a slow displacement, the way you would enter a packed warm room without wanting a fight. They are small, hard-bodied, living on mineral film. They are not there for you. They become a danger when the mat panics, when you crush a wide patch, when you slip and skate across glass into a thicker cluster, when dust and wing-tick rise together and you start to flail.
+
+Move like silt. Weight low. Hands reading before feet commit. A pause longer than your impatience. When the drone brightens locally, stop. Let it spread and settle. That brightening is the room’s only map of you. If it does not settle, you are still a problem; back out along the same contacts. Do not seek a path. There is no interval large enough to call one. To be inside is to be among them, breathing the dust they keep aloft. Accept contact on sleeves and shins. Do not slap. A slap is a signal in a place that speaks entirely in small mechanical shocks.
+
+Navigate by three memories you refresh every few body-lengths: the direction of the seam-cool (or seam-less-hot) air, the lie of the line against your hip, and the quality of the stone under your forward hand. Hotter, smoother, redder: you are going deeper into the unfinished part. Cooler, rougher, louder with outside: you are aimed at leaving. If those disagree, trust the line and the exit time, not the part of you that wants to see the ceiling of hanging weight. The ceiling is a restless dark. It does not need a witness from below.
+
+Do not scrape souvenirs. A pale scar in sugary stone will not weather for a long time, and it is also a small avalanche of grit into your mask and into the film they feed on. You are already too large a fossil. Leave the face as you found it, plus the unavoidable press of a body passing.
+
+Watch for the slow things that are not slow if you are under them. A check in the rock can be a bright crack and then a slip of grit. A seam can work. This chamber is a pause, and pauses close. If the hiss changes pitch, if a new crack speaks near your head, if the line goes slack and then wrong, or if the seam-light behind you narrows, leave at once, even if the clock has not. The mountain is still arriving at this shape. It does not have to hurry on your scale to close an early room.
+
+## What it will be like, so you are not surprised into a mistake
+
+The first minute is mostly refusal. Heat against the face, mask tugging, sound arriving as a factory with no building. You will think you should understand it visually. You will not. Shapes will resolve as shifting hardness under gloves, a tick against the sleeve, a ceiling you feel as a change in the air’s small impacts. The smell is dry mineral breath: iron, salt, bitter oxide, and under that, if the jets are awake, a metal sourness that should shorten the visit by itself.
+
+Emotionally it is not horror in the predatory sense and not wonder in the scenic sense. It is the feeling of standing inside a process that has never needed a visitor and will not make an exception. Production without a product anyone named. Your mind will try to find a center, an altar, a queen, a reason. There is feeding, and heat, and rock still locking its grains. The reason is that the blister opened and has not yet been filled back in. You are early. Early is not the same as welcome.
+
+You may feel an urge to stay because the drone becomes, after a few minutes, almost a place to rest, the way a mill becomes silence to the people who live in it. That urge is the danger dressed as acclimation. The body is bad at noticing a constant. Check your hands: clumsy, or slow to pinch. Check your thoughts: if the exit time seems fussy, you are already late. Check the mask: if breathing is work, you are borrowing against the climb out.
+
+Loneliness here is crowded. You will not be alone for a second, and you will not be accompanied. Do not talk yourself into kinship by naming them. Do not talk yourself into war by naming them vermin. They are the residents of a mineral film on new stone. You are weather with pockets. Be brief weather.
+
+## Getting out, and after
+
+Exit is the same insertion reversed, slower if you are shakier, never faster in a way that loses the seam. Do not stand up into the hanging layer to “make time.” Do not drop the line to use both hands on a face that powders. If you are dizzy, sit as small as you can against the known wall, two pulls, wait to be guided, sip nothing until the air on your face is outside air.
+
+Outside, you are not finished. The ridge is still a climb, and you will be salt-crusted, deaf, and convinced you are fine. Sit in shade before the descent. Drink in sips. Rinse eyes with clean water you left above, not with anything that has been in the chamber. Shake out clothing away from your camp and downwind; the dust is not a souvenir you want in your sleeping bag. Listen for a ringing that does not fade; if the drone is still in your ears at camp, you stayed too loud, and you do not go back tomorrow to “do it right.” Check skin for breaks. A scrape from sugary new stone is full of mineral and whatever the mat carries; clean it as if the mountain were not sterile, because it is not. Watch your breathing for the day after. Dry fume and oxide dust can feel like a mild roughness and then like a night you cannot lie flat. If that starts, you are done with ridges and seams.
+
+If you go back at all, go back as a shorter visit with better filters, not as a conquest. The chamber does not progress on your itinerary. Generations of that hard-bodied life turn over while the walls move a distance you would need a mark to believe. You will not see the story finish. You might see a face check, a jet change, a mat close over the place your boot powdered. That is the whole plot.
+
+## What to leave with
+
+An ordinary human can prepare for this the way one prepares for a hot, airless, ticking dark that is also a living skin: water and salt before, a mask you trust, a line and a person, dim light, close clothes, a cruel clock, and the willingness to be touched without answering. You cannot prepare a comfort, a clear view, a drink, or a long sit in the dark to think. Those belong to finished caves.
+
+If the seam is only a warmth and a misheard wind, and your hand comes away wanting to stay on the stone, you have already had the honest visit. The interior is the same fact, pressed closer: heat held like a closed fist, mineral breath, bodies packed to the work, and a process running at a pitch the ear files with factories, built by no one, in no hurry that you could watch, able to close before it ever becomes a cave or a name.
+
+Go in only if you can leave while that still sounds like a reason.

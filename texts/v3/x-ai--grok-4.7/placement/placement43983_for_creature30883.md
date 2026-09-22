@@ -1,0 +1,1 @@
+The description hasn't arrived yet. When you give me the place and the being who lives in it, I'll stay with it long enough for a presence to take shape, and I'll write from inside that rather than from an idea of it.

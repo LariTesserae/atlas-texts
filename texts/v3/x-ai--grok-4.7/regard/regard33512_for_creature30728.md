@@ -1,0 +1,1 @@
+The place and the being never arrived — the message stops at the invitation. Paste the description (and who lives there), and I’ll write what a benevolent, wise power would do, if anything.

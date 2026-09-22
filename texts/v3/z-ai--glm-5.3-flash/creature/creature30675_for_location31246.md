@@ -1,0 +1,31 @@
+*a gall-house goes up over two seasons, arriving the way weather arrives — first a swelling you pretend not to watch, then a shape, then one morning a wall with warmth in it and a pulse you can feel at the doorframe if you're patient. No nails anywhere in the Sink. No hinges. The town has no word for "construction." Its word translates more nearly as "persuasion."*
+
+The people who live inside the persuasion call themselves tenders, and they are right to.
+
+They are a small population — four hundred souls, and the number barely moves across a lifetime, because the Sink does not tolerate surges. They are brown-skinned and wind-colored, most of them, with hands that have gone strange: broad at the palm, quick in the fingers, the fingertips worn smooth as river pebbles from a lifetime of reading texture. Because that is the first thing a visitor notices wrong about them, if they're paying attention. The tenders *touch everything*. They stroke the rim stones on their morning rounds. They press the flats of their hands to the flanks of their gall-houses the way you'd check a child for fever. They take a stranger's wrist, without embarrassment, and hold it a moment — not greeting, exactly. *Intake.*
+
+They are reading. Everything in the basin is legible by hand: the dampness of the rootstone tells the season's mood three weeks ahead, the temperature of a gall-wall tells you what the house is doing with its water, and the felt — the felt tells them everything, if you know how to kneel on it correctly. There is a stance, taught to children at six, knees in a particular arrangement, weight in a particular arrangement, and in that stance the peat's long slow opinions travel up through the leg bones and a tender can feel where the canals want to move, where the felt is thinning, where something under the meadow has begun to sulk.
+
+The tenders are not mystics about this. They'd be embarrassed by the word. Ask them what it is and they will shrug and say the ground is honest and they are patient, and that anyone could learn it who was willing to spend the ten years of kneeling. Most of them, asked what they do for a living, say *housekeeping* — and mean it at a scale you don't yet grasp: the house is the basin, the basin is a closed breathing thing, and the entire civilization is its staff.
+
+---
+
+They organize by moisture. That's the nearest a visitor can come to understanding the guilds before being corrected.
+
+There is the guild of the towers — the pump-folk, whose job is the sough itself. They live highest, in galls grown up the flanks of the great throats, and they sleep inside the chord. They are said to be slightly deaf and slightly oracular in equal measure; their ears are full of the hum all day, so they've learned to read mouths instead, and a tower-guild conversation looks like two people talking in their sleep. They tune the throats — a thumb-deep massage of the right channel at the right season changes the town's whole key — and they take the tuning *seriously*, because the chord is not decoration. The sough is the town's pulse, and a wrong key means a tower is drinking wrong, and a tower drinking wrong means the rain schedule slips, and the rain schedule is the closest thing the Sink has to a calendar or a law.
+
+There is the guild of the Lens, the mirror-folk, who skim the mere at dawn with their long boards and are the closest thing to clergy. They are the only tenders permitted to say the word *closure* out loud. Their doctrine is one sentence long — *what rises must be let fall* — and they repeat it over the water in the old flat vowels, and everyone pretends this is not a prayer.
+
+There is the gall-wrights, who keep the irritation-patterns in memory and never in writing — the patterns are held the way tunes are held, mouth to ear, hand to hand, and a gall-wright will die with her patterns intact rather than carve a single one into rootstone. It is not secrecy, they insist. It is that a pattern written down stops being a *relationship* and becomes a *plan*, and trees can tell the difference.
+
+And there are the canal-keepers, the most political of them, because the canals are decisions and decisions are politics. Every season the water and the town renegotiate, and the renegotiation is conducted in the kneeling-stance, forty keepers lying on the felt in a ring like a congregation at prayer, reading where the meadow wants to be wet. They argue — in the stance, so the argument happens through the ground. Observers from the flats say a canal dispute looks like forty people meditating furiously. The keepers say the ground always wins eventually, so the art is in losing gracefully and early.
+
+---
+
+Their relationship to outsiders is easy to state and hard to believe: they are not wary of people. They are wary of *undrunk water*.
+
+They will take you in — the door-sphincter will relax to any knock that follows the rhythm of rain on a leaf, a pattern every child in the Sink learns by two — and they will feed you, and the food will be the felt's own generosity: gall-fruit, cress, the sweet pale larvae that tidy the canals, tea brewed from water they will tell you, proudly, exactly whose lungs it has been through. They will do this because a guest is, in their arithmetic, simply weather that walks. You will breathe their exhalation and transpire it back, and by the second day you are in the household, and by the third you will kneel when they kneel without anyone asking you to.
+
+But if you come to take — to pipe, to drain, to sample the water table with a machine — you will find that four hundred gentle people kneeling in a ring on a suggestible meadow can make the ground decline your visit with perfect courtesy and no path out.
+
+They are, in the end, the only town in the flats, and they know it, and they are not lonely. The hum keeps them company, and the rain comes on schedule, warm as breath, and when it passes the whole basin exhales — towers, gutters, canals, the Lens going briefly bright — a sound that from the rim, at the right hour, with the light gone milky, sounds almost exactly like a town of four hundred people sighing together at the end of a day's good work.

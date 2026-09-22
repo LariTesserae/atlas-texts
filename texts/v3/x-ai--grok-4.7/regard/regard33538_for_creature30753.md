@@ -1,0 +1,3 @@
+The place and the being never arrived—only the fact that something has been noticed. A wise power does not invent the life it cannot see and then improve the invention. That is how help becomes a second weather.
+
+So, if anything, they would do this: stay at the edge. Look long enough that looking changes them. They would not move a stone, shift the heat, or lift the being into a kinder climate they have only imagined. Attention, until the place is actually known, is the whole of the mercy. Acting sooner would be a story told over a life, not a gift to it.

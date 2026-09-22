@@ -1,0 +1,1 @@
+It seems the description of the place was not included. Share it whenever you're ready and I'll take the time to let the inhabitants emerge in full.

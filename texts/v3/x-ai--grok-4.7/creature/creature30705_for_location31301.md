@@ -1,0 +1,1 @@
+The place description wasn’t included after your instructions, so there’s nothing yet for anything to inhabit. Paste the description when you’re ready and I’ll stay with whatever emerges from it, without forcing an early image.

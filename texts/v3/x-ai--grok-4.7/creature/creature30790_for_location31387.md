@@ -1,0 +1,1 @@
+The place description wasn't included after your prompt. Paste it and I'll write the inhabitants from there.

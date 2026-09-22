@@ -1,0 +1,57 @@
+It is the empty ground between them, which is not empty at all, but a carefully maintained spacing, an essential punctuation: the pause that gives each mark its weight, the interval that lets each presence remain itself while still being part of the Hollow.
+
+If a benevolent and wise power drew its attention here, it would first notice how easily need is misread. A heart inclined to rescue looks for something broken. It expects scarcity, neglect, a creature in pain, a ruin that should be made whole. The Hollow gives it none of these satisfactions. There is no orphan to adopt, no famine to end, no broken wall to restore, no silence waiting to be filled with birds. There is only a condition already complete in its own terms, a small room of mineral patience where water has learned restraint and life has learned to be almost invisible.
+
+The power would not come with light. It would not speak. It would not set a hand to the stones, because that would be an animal hand, and this place has made its peace without animals. It would not send an eagle to circle overhead, or a fox to make a den in the rim, or a child to scatter pebbles and turn the sparse order into a memory game. To do so would be to misunderstand the Hollow as a prison of emptiness rather than as a freedom from appetites that move.
+
+If it did nothing, that would be wise. If it did something, that would be benevolent. The power would see that these are not opposed. In a place like this, doing nothing can be the highest form of care: not indifference, but refusal to impose a richer ecology of motion and desire on a life that has already found its margin. It would keep its own strength from the Hollow the way a strong hand keeps the lid of a jar from being turned by haste.
+
+Yet having looked, the power would not leave it quite unguarded. It would give it the protection of dullness.
+
+It would make the Hollow seem uninteresting.
+
+To a surveyor walking near the edge, it would look like a shallow, salty depression, too small for anything, too uneven for a road, too unsheltered for a camp. The cairn would not read as a shrine. It would read as weathered rock. The line of flat stones would not read as a foundation. It would read as sandstone fallen. The platform would not read as a terrace. It would read as sediment. The power would arrange these impressions without drama: a slight glare at noon, a small salt bloom near the center, a dry wind off the plain that carried dust into the rim’s shadow and gave the whole hollow the aspect of something not worth marking. It would make people pass by with the quick relief of finding nothing unusual. That relief would become the Hollow’s quiet shield.
+
+If someone came closer, the power would not frighten them. Fear draws attention. It would simply make their interest fail. A foot would slip on a smooth stone and they would decide to look more carefully another day; another day would never be arranged by their will. A notebook page would tear in the faint air; a water bottle would feel empty; a name they intended to write would become vague in the hand. The power would not break them. It would let the world’s small inconveniences gather in the hollow’s favor.
+
+If the threat were larger—a road planned too near, a well to be sunk, a fence to cross the rim—the power would act in the language of systems, not in the language of miracles. It would keep the water table a little too salty for irrigation. It would make the clay under a proposed foundation swell with one season’s rain and crack with another. It would let a survey drone see a faint mineral stain and read it as contamination, enough to delay, enough to forget. It would cause the hollow to disappear from one map and never appear on the next. It would not fight the machines. It would make them pass by, not because the machines were destroyed, but because the place was unprofitable.
+
+If a scientist came with permission to look, the power would allow observation. It would not conceal lichens, moss, salt, or microbial films. It might even give them clear data: moisture retention curves, salt concentrations, lichen growth rates, fungal hyphae in the dry seams. What it would protect is the interpretation. Let the scientist find no mystery, no hidden guardian, no lost civilization, no miracle. Let them publish a small paper titled something modest: “Mineral and biological films in a shallow salt-stained depression near an arid plain.” Let it be cited rarely. Let it be filed. Let it become one more piece of evidence that the place is not empty, but that it is not ready to be used by larger imaginations.
+
+This is how benevolence behaves when it understands scale: it does not raise the small thing into the large. It lets the small thing remain the thing it is.
+
+But a wise power would notice also that the Hollow, though complete, is not beyond change. It is complete as a balance, not as an eternity. If the climate shifts too far, if the aquifer drains, if a dam upholds or diverts water, if the salt crust is swept clean, if too many leaves and branches accumulate, if animals find cover, if a shrine grows where there was only a cairn, then the Hollow would lose its own shape. The power would feel the pull to restore it, but it would ask: should the Hollow be restored as it was, or allowed to become what it must become? A benevolent and wise power would not make a museum of the place. It would care first for the pattern, not the current configuration. If the water must go, let the salt dry. If the moss must vanish, let the limestone become bare. If new conditions make the room unsuitable, let it close. But while it could continue, it would be held in its continuance.
+
+If anything needed a small kindness, the power would give it not abundance but proportion. It would send one cloud in the dry season, just enough to darken the clay for a day. It would cool a night, so the condensation forms in the low pits. It would keep the shallow pans from becoming deep enough to hatch insects. It would allow the biofilm to bloom faintly after dew, then dry to pale dust. It would let the grasses stand apart. It would let the lichens creep by years, not centuries. It would ensure the cairn does not fall, or perhaps that when it falls, it falls into another cairn-like configuration so gradual that no one would see the change. It would keep the hollow’s grammar intact: stone, dampness, salt, spacing, silence.
+
+The power would not bless the Hollow by naming it. Names attract hands. A named being can be prayed to, harvested, protected, destroyed. The Hollow does not need a name. It already has a description, which is better: plates, seams, crusts, films, tufts, drops. If a human ever whispered “spirit of the stones” near it, the power would let the whisper die in the air without becoming a tradition.
+
+The power would not add a guardian animal. A dog, a crane, a fox, a lizard, even a beetle would bring appetite, movement, heat, story. The Hollow’s being is made of not moving. Its life is measured in wetting and drying. To insert a spine into it would be to turn a completed room into a house. The power would resist that kindness. True benevolence does not always give more life as we understand it; sometimes it guards a life that cannot survive our generosity.
+
+If the power wanted to touch it, it would touch it the way a ceiling of shade touches afternoon light: indirectly, by altering angle, not substance. It might cause one small drop to fall from the rim into a pan at a moment when no sound could be expected. The tick of that drop would not mean the place had been chosen. It would mean only that the balance had adjusted. If someone happened to hear it, they would think they heard a stone settling, or a bead of dew, or their own attention. The power would leave no sign of authorship.
+
+This, perhaps, is what they would do if anything: the power would make the Hollow more fully itself.
+
+It would strengthen not the visible things but the relationships among them. It would keep the spacing between presences. It would protect the absence. It would guard the water from becoming too much, the salt from becoming too little, the warmth from becoming too fierce, the shade from becoming too complete, the lichen from spreading into uniformity, the moss from flourishing into lushness, the grass from forming cover. It would defend the place from the temptation to become a habitat in the ordinary sense. It would preserve the ecology of margins as a margin.
+
+And if that preservation eventually failed—because no wise power, however kind, could make stone eternal, or salt patient forever, or a hollow immune to the larger plain—the power would do a final, difficult thing. It would let the Hollow become other things. It would not mourn it as an individual. It would see that the pattern had already been held for as long as the pattern could. The water would return elsewhere; the salt would dry; the clay would hold another kind of film; the stones would scatter into another shape. The power would move on, not unkindly, but with the same gentleness it had shown at the beginning: an attention without grasping.
+
+If there is a gift such a power would give, it would be the gift of not needing to be saved.
+
+It would look at the Hollow, at its slow collective being, at its room-sized completeness, at its refusal of animals, at its faint marks that are already becoming geology, and it would understand that this place is not a question. It is an answer in a language without words.
+
+So, if it did anything, it would do the smallest possible: it would leave.
+
+But its leaving would be shaped. It would be a leaving that removes future hands, dulls future eyes, keeps the plain around it slightly less hospitable to attention. It would be a leaving that lets the hollow continue to be what it has become. And if one returned years later, nothing would seem to have happened. The stones would lie where they lay. The salt would darken and whiten. The grasses would stand apart. The rim would shade one side at the same shallow angle. The cairn would remain at the center, neither remembered nor forgotten.
+
+Perhaps only one detail would have changed, so slightly that no one would be certain: a pan that had been dry for seven days might hold one more drop than it could have held without any kindness at all. A lichen disc might be no larger, but its edge might have resisted the last frost a little longer. A crack in the clay might have kept its pattern instead of widening. A stone might not have shifted.
+
+That would be enough.
+
+The benevolent and wise power would not announce itself. It would not ask to be worshipped. It would not turn the Hollow into a sacred site. It would make sacredness impossible by making the place ordinary enough to survive. It would guard it with uninterest. It would bless it with continuity. It would show it the respect of leaving its own rules intact.
+
+And if the Hollow had a response to such attention—not a response as animals understand response, but as balance understands balance—it would be this: the next evening, as the warm air softened and the rim cast its low shade across the floor, a little moisture would gather on a limestone plate. The salt would become glossy. A single drop would fall into a shallow pan. The sound would be so small it would not belong to the power, nor to the Hollow, but to the meeting of water, stone, and air.
+
+Then the surface would dry.
+
+The Hollow would remain.

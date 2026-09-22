@@ -1,0 +1,9 @@
+A nursery yard is not a garden in the ordinary sense. It is a laboratory of slow futures, a courtroom where pressure argues with patience, a hospital where rooms are made to grow into their own use. It is a place where a door may germinate, a stair may learn to lean, and a wall may decide after many seasons whether it wishes to be trusted with a shelf.
+
+In one such nursery lived the being.
+
+If one must be named, it was called Mira, though the Dry-born are rarely named by only one sound. Mira was a rootwright’s apprentice, a mirror-setter’s child, a dust-reader by necessity, and a person who had once been born into a house that did not yet have a roof. Her first breath was the smell of chalk and oil and the faint copper sweetness of new root. Her first lullaby was the creak of a trained tree deciding what load it would bear. She was human enough to be unsettling, Dry-born enough to be at home in a place that rejected water as a rumor, and small enough to be forgotten by powers that preferred large, wet, shining miracles.
+
+She had the resinous sheen of her people along forearms and neck, the chalked lips, the mineral cool of skin that did not weep with sweat. Her eyes were pale as polished salt. When a mirror-column trembled, a translucent lid flicked across them before she even noticed. She bled dark amber from small cuts. She did not cry water. Grief produced only a dry burn behind the eyes and, sometimes, a crust at the corner that would fall like dust onto a sleeve. She knew her city the way a child knows a hand: by pressure, texture, temperature, and the particular way it chooses not to crush.
+
+Mira worked at the edge of a lower bowl, where the Hollow was still trying to become itself. There the root-mat was young and pale, and the raw stone under it sometimes sang in dry pulses when cold air moved through new cracks. Here the buildings had not yet decided to be buildings. Stones lay in

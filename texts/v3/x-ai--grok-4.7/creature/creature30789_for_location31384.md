@@ -1,0 +1,1 @@
+The description of the place didn’t come through—there’s nothing below the invitation to work from. Paste it when you can, and I’ll stay with whoever or whatever belongs there until it has a shape of its own.

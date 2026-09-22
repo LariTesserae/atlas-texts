@@ -1,0 +1,1 @@
+I don't yet have the description of the place or the being. Share it when you're ready, and I'll stay with whatever emerges.

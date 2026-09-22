@@ -1,0 +1,7 @@
+# Preparation Notes for the Voiced Chamber
+
+First, understand what kind of visit this is, because it is not the kind most travelers assume. This is not an exploration. There is nothing to explore — the room is forty steps across and every inch of it is known, finished, complete. It is not a conquest, not a research site, not a wonder to be harvested for your journal. It is a *vigil*. The chamber has one request, and it has been making that request at enormous volume since before your species learned fire: *be still, and be part of the sound.* Your preparation is therefore not about enabling action. It is about removing every possible reason for you to move, speak, fidget, or leave. Pack like a person going to sit with a dying friend — except the friend is immortal, and you are the one who will be changed.
+
+## Before you go
+
+**Get the approach notes from someone who has been.** This is non-negotiable. The seam in the cliff "doesn't look like an entrance until you're already inside it," which means from the plain it is invisible by design. You need bearings: which face of the cliff, what height, the shape of the crack, the last two landmarks before it. Memorize the final approach rather than carrying a written map, because you will also need this information in reverse — the single most common failure inside the chamber is a visitor who, after twenty minutes of saturation, cannot confidently remember what the exit

@@ -1,0 +1,15 @@
+They do not enter.
+
+The power remains beyond the lip, where the world has already stopped, and does not test the discontinuity the grain refuse. Weight that is not salt or shell would only cake what must stay dry; a voice would arrive as another rattle and be climbed until it thinned into grit. So it withholds both. It watches the ordinary light lay the same soft shadows it has always laid, and it does not improve them.
+
+What it understands, because it is willing to stay through many pale bands and many dark ones, is that the basin is not a failure waiting to be corrected. The floor has already arrived at the shape it will keep. The company has already learned how to be several ages at once. Hunger here is a position, not a wound; the still ones take only what has already slowed past climbing; the meetings at the pipe trade dust and then continue, even after the taste of cut metal has been forgotten. Moisture would glue a generation to the stone. A seed would be a confusion of mouths. A larger sky would be only another rim.
+
+Benevolence, then, is the refusal to rescue what is not asking. Wisdom is the further refusal to congratulate itself for the refusal.
+
+It does one small thing, and only once. Where a still one has roofed itself under a housing that no longer answers, the power lets a single flake fall into the seam—not water, not green, not any metal the wheel still remembers, but a grain of the attention itself, cool and dry as everything else, carrying no instruction. The still one takes it because that is what still ones do. It does not wake. It does not change its timing. For the length of one pale ring the lift and settle of its disguise includes a faint warmth that is not oxide, and the grain that walk it do not notice the difference, and the rattle does not gain a new pitch so much as lose, briefly, its sense of being unheard.
+
+Then the power lets the flake be worn away with the rest. It does not renew it. To linger would turn witnessing into a dependency, and a dependency would be a kind of wall where there had been only floor. It keeps the sealed edge sealed, and the light ordinary, and the dry continuous, because those are the conditions the mouths are shaped to, and shaping them otherwise would be a domination dressed as kindness.
+
+After that it does nothing. The machines continue to shrink into rumors of shape. The oldest grain are plated over and become housing. The company flows, rearranges, locks plate to plate, and calls the wearing-down a day. Somewhere in a shell that will later be cracked by no one, a pale band records that the rattle was, for a season no longer than itself, accompanied. The band is eaten in its turn. The floor remains crowded, loud, and sufficient.
+
+The power does not return. Some attentions are complete when they have been allowed to become grit.

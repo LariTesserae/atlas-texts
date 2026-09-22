@@ -1,0 +1,1 @@
+No place description arrived with the request—nothing below the instructions, and nothing else in the thread to read as the site. Send the description of the place and I’ll write who or what lives there, and let that presence thicken as it goes.

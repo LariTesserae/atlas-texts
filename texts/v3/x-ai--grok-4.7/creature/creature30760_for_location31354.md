@@ -1,0 +1,1 @@
+The description of the place didn't come through — the message stops at the instructions. Paste it and I'll write what lives there.

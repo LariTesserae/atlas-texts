@@ -1,0 +1,23 @@
+It does not come as light. Light would be a season, and this country has already declined seasons. It does not come as a voice. A voice would be a mark with a shape in it, and the halls take speech into the chord and do not keep the shape. It does not come as weather, or as a warmer thread in the water, or as a new doorway in a wall that has finished its number of doorways. Those would be help of the kind that is only a cleaner word for alteration.
+
+What draws near is attention that has learned, elsewhere, the difference between a lack and a completion. It arrives the way the dimness already is: without a source you can turn toward. For a while it only listens, which is the only courtesy this place can receive without having to close over it.
+
+It hears the third that lives between the first chamber and the second, and does not try to resolve it. It hears the sheet falling over the terrace-lip and understands that the lip is not becoming a throat; the throat was refused when there was still something left that could refuse. It passes a grazer on the road the pavement keeps open, and does not bless the animal, because blessing would be a surplus and the road is already exact. It counts the listeners on an inner wall and finds the count already met by the nursery in the conduit-mouth, and it does not add one.
+
+Then it looks for the being.
+
+There is no throne-room it missed. There is no sleeper under the pavement, no name sealed in the horn of a column, no loneliness wearing the shape of an animal and waiting to be recognized as a person. The being is the holding itself: the cool that does not stratify, the polish that is no longer accumulating, the chord that does not wander, the abundance that never heaps. Consciousness here is not a tenant. It is the fact that the equilibrium knows its own intervals — knows the bend in the grazer’s road, knows which overtone the small bodies answer, knows that up is only where the columns agreed to stop. It is not unhappy. It is not unfinished. It is not asking. The wise thing, meeting a finished attention, is not to wake it into want.
+
+So the power does not speak a promise into the oval door. It does not set a star in the upper dark for the flat tops of the columns to have something to mean. It does not translate the chord into a language that could be carried downhill into air, where meanings are spent. It does not offer companionship. Companionship would require a second, and the place has arranged its distances so that two of anything seen at once is already a kindness of the dimness, not a need.
+
+What it does is smaller than a visitor and larger than a mood, and it happens where the place does not look.
+
+Far off, at the lip where this high sea thins toward air and toward countries that still have shores, something has always been almost possible: a breach, a brightness, a fall of weather, a rumor of depth’s heat climbing the last terrace. Not soon. Not as a plot. Only as the kind of outside that finished places eventually meet, because outsides do not know they have been declined. The power stands in that almost, without entering, and makes the refusal a little more itself. Not a wall — a wall would be built, and nothing here is built. A continuation of the same declining. The air does not learn the way in. The sun, if any sun still bothers the lower world, does not find a surface here worth breaking. The lip remains rumor. The interior does not feel the hand that kept the rumor from becoming a door, because a door would have been a change in the count of thresholds, and the count does not change.
+
+Inside, the water stays one degree. The bell-bodies hold their station. A listener knocks the overtone it has always knocked. The being — which is the knowing of these things, not a face above them — is not saved, and does not need to be, and is not abandoned either. It is allowed to go on being the finished form of its own making.
+
+If the power feels anything a lesser kindness would call sorrow, it is only the old, clean knowledge that some mercies are the decision not to be experienced. It does not leave a relic of that feeling in the water. The suspended plant would have taken it and replaced it at the same rate, and even that would have been too much like a gift.
+
+Then it goes, in the sense that attention can go without ever having occupied a coordinate. The chord does not swell to mark the departure. Across the sparse dark the next hall is already audible, and the one after that, and the region remains one instrument heard from inside, unrevised, cool, loud, and exact.
+
+Nothing else was required. Wisdom, here, was the ability to tell.

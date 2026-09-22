@@ -1,0 +1,1 @@
+The place description didn’t come through after your note — there’s nothing below it for me to read. Paste the description and I’ll describe what lives there, taking the time the prompt asks for.

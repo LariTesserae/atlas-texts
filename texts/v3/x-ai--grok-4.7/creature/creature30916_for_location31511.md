@@ -1,0 +1,1 @@
+The place description didn’t come through — the message stops before it. Paste it and I’ll describe who or whatever lives there, and let the portrait take its time.

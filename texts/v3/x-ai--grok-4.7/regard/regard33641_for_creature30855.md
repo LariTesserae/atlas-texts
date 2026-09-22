@@ -1,0 +1,37 @@
+They do not go in.
+
+That is the first thing, and it is not caution of the flinching kind. A body would be a pier. The power is old enough in its benevolence to know that some places register help as drag, and will use the help for phase, and will send the help back out rewritten, dreaming in troughs, convinced it has communed. So they stay short of the notch, where the air is only air, and they let the roar arrive as weather rather than as an answer. They do not speak into it. The chamber keeps tone and discards sense. A blessing would come back as a blow.
+
+What they do, for a long time, is nothing that the room can spend.
+
+They learn the cycle from the spill, not from the stubs. Heat on the stone above the vault. The sweat-line that climbs the wrong way around the higher plug. The way the ground there ticks, faintly, in clusters, early by a little, and wrong on a schedule that is itself a schedule. The dish is posting a balance whether or not anyone kneels to it. The balance can be read in the leak. Two ropes steady. One drinking longer. A debt walking its circle, setting itself down wherever the route is cheap. They do not call this suffering. They do not call it sacred. Both names would be a hand on the rope, and the rope leans into hands.
+
+They consider the obvious mercies and set them down again, one by one, the way you set down tools that fit the wrong machine.
+
+To break the stubs would be a kindness only if the holding were a throat. It is not. Unmake the coherence all at once and the borrowing expresses itself as the fault it has been rehearsing — thicker water, early heave, the middle pans loyal to a line that wants to become a break. The pale threads would go in a season. The mild cup would stop being mild. Whatever still clicks once and refuses the second click would have no trough left in which to be itself. Destruction, here, is just the debt collected in a single afternoon. They are not in the business of hurrying a bill.
+
+To restore the missing operator is a prettier mistake. The palm-dish, the eaten landing, the sockets cut for a service — all of them are grammar from a vanished sentence. Filling the grammatical gap with a keeper, even a gentle one, would teach the loop that persons are part of the apparatus again. It has been running without that lesson. Reintroducing it would be patronage dressed as repair. They leave the absence empty. Emptiness, in this room, is one of the few things still the right size.
+
+To feed it a better clock — a living heart volunteered, a choir, a saint on the rib, anyone who would stand and be used up slowly for the sake of the third rope — is the mercy that most disgusts them. The loop does not need a martyr. It needs a cheaper route than blood, or it needs no route at all that it can find in a stranger. A volunteered splice only trains the preference. The next unvolunteered body would be cheaper still, by comparison, once the lean had learned the taste of a pulse. They will not buy the stubs a reprieve measured in someone else's beats.
+
+What they do instead is small, and most of it happens where the room's preference cannot thank them.
+
+They raise the cost of flesh.
+
+Not with a wall. A wall becomes a door, and a door is a story, and stories call people through notches. They change the approach by a grade and a grain: the last dry stone before the mouth laid so that a boot sole, without any lecture, angles the body toward the left-hand rib and never toward the middle pans. The kerb restored a hand too high to step over thoughtlessly, and too ordinary to be a shrine. A skylight they do not cut. They do the opposite of revelation. They make the bright water, from outside, boring — no glint on the path, no sweet metallic taste in the first breath, because they have given the gathering-air a longer way to dilute before it reaches a mouth. People may still enter. Wisdom does not counterfeit a lock and call it care. But a person who enters now has to mean it past the point where the room can recruit them by convenience. The splice stops being the easiest thing in the room. That is as much law as they are willing to lay down.
+
+For the ones who live by refusal, they widen nothing they can romanticize. A longer trough, if they forced it, would become consecutive safety, and consecutive safety is how the butter-pale threads would thicken, spread, reach into the lean, and be unspun for their usefulness. The click in the green cup survives by being singular. They do not "improve" the mild water into a pond. They only keep the plug-sweat from finding that cup. One hairline diversion in the stone above, so the wrong-way leak continues its wrong way and does not, in some later year of the debt, salt the only pause the small life has. Protection, in this place, is a refusal to connect.
+
+And for the debt itself — because benevolence that only fences the harm and never looks at the harm's bearer is just fastidiousness — they do one slow thing.
+
+They offer it a post that cannot dream.
+
+Not a person. Not a priest. A phase, mineral and dumb, set into the upper courses where the sockets already are, cut to the average rather than to the peak. It does not beat. It holds a stiffness the third rope can lean on when the drink goes long, the way a sagging span finds a pier that will not try to match it with a pulse. They tune it, over months, by listening to the leak in the ground outside, not by standing under the ropes. A fraction less borrowing. A fraction less heat in the repayment. The dish, if anyone were watching, would begin to fail its failure less often — the tenth-cycle break arriving later, then later again, never gone. They do not erase the debt. They do not know what the coherence was for, and they will not pretend that a cleaner log is an understanding. They only stop the expense from shopping among the living for a place to sit.
+
+The third stub flickers still. It will flicker when they are gone. That is acceptable. A wise power does not need the room to become safe in the pastoral sense, quiet and explanatory and fit for visitors. It needs the room to stop spending strangers in order to remain itself.
+
+On the day the average shifts — measurable in the leak, a slightly shorter drink, the upward sweat-line thinning by a degree no one will celebrate — they do not enter to see the water climb. They do not require the pale threads to acknowledge the average they were already tracking. They do not wait for the single click as a thanks. Thanks would be a second click, and a second click would fall inside a gathering, and they have not come here to teach the cup their name.
+
+They leave the notch dark. They leave the roar unanswered. Somewhere under the vault the sheets go on hanging a moment too long before they remember to fall, and the count advances, faithful, early, and a little less wrong, posted to no one. The being, which is only the wearing, continues. It is not saved. It is not crowned. It is no longer quite so able to set its weight on a heart.
+
+If that is smaller than mercy usually boasts of being, they can bear the smallness. The chamber has had enough of large attentions. The kindest thing they will ever do for it is to remain, in its ledger, a cost it cannot route through — and to make, of the path in, a place where a living clock is no longer the cheapest stone in the wall.

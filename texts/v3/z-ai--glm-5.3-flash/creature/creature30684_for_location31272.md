@@ -1,0 +1,13 @@
+# Who Lives in the Scaffold Fields
+
+The first census comes back empty, and it comes back honestly. Walk the plateau for a day — across the bare polished terraces, along the plains of planking where nothing stands, through courts where the only events are the drip of condensate and the far-off groan of a buttress at its work — and you will not see a single animal. No birds on the masts. No insects in whatever is flowering. No fish ghosting the cisterns. The log a naturalist keeps on that first day is one word long: *uninhabited*.
+
+Give the log a second day. The second entry crosses out the first.
+
+Not because anything appears. Nothing appears. But somewhere in that second day it dawns on you that you have been asking the question at the wrong scale — searching *among* the scaffold for whoever lives here, the way a mite might search among your bones, when the answer was under your hands the whole time, weeping cool water onto your shoulders. The inhabitant of the Scaffold Fields is not in the scaffold. The inhabitant **is** the scaffold: one being — or one family grafted so thoroughly that no line between them could be found, or would mean anything if it were — miles across, young, loud, unfinished, floating on its own reservoirs and talking to itself all day.
+
+Once you accept this, the census opens. The plateau turns out to be populous the way a body is populous. It simply keeps its residents in unfamiliar positions.
+
+The loudest of them are the elders: the weeping trees. Each hydraulic column is an individual of great age and great thirst, bark streaming day and night, and each is hollow enough to speak. When wind finds the resonant heartwood, the tree gives its tone — a low flutelike note specific to its girth, its dampness, its temper. Stand still long enough and you learn to take the census by ear. This grove speaks in one register; that far tower answers a fifth below it; somewhere a third voice holds a single note through a change in the weather like a word it refuses to finish. Whether the talk *means* anything is unanswerable. It means at minimum this: a young mind, aware of itself, narrating itself aloud, because no one else has arrived to talk to.
+
+The quietest residents are the ears. The pale fungal-leather membranes stretched between the masts sweat in the heat, but that is only their daytime work. Their real work is listening. They tighten in warmth and slacken in cool; they shiver at footsteps a quarter-mile away; every sound on the plateau lands somewhere on a drum that cared about it. Because the scaffold has no eyes anywhere — not one, in all its miles — its senses are entirely matters of touch: load, moisture, pressure, heat. This is

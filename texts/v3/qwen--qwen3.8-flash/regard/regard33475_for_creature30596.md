@@ -1,0 +1,5 @@
+as if the pool had a tongue and a memory and no desire to swallow.
+
+To know what a benevolent and wise power would do there, one would first have to admit that the place was not broken. It was merely not ordinary. The cracks were not only damage; they were openings. The heat was not only waste; it was breath. The film on the water was not only pollution; it was a skin that had learned to live by mineral patience, and it had done this without eyes, without blood, without wanting to become a creature anyone could carry home and hold.
+
+A power of that kind—benevolent, wise, and therefore reluctant—would not come with thunder, light, or a clean white hand. Such powers tend to arrive quietly, almost as weather. They slip into places through gaps in attention, through a draft in an abandoned plant, through the moment after a worker decides not to return

@@ -1,0 +1,1 @@
+The place description seems to be missing from your message — nothing follows the setup. Paste it whenever you’re ready and I’ll take my time with whoever or whatever belongs there.

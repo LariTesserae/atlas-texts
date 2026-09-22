@@ -1,0 +1,29 @@
+They would not go in.
+
+That is the first thing, and it is not caution. A power that is wise already knows what the maintenance gaps are: not doors, not absences, the joints of a grip. To pass into one would be to become a load. Loads are registered. Registration, here, is not knowledge added to a mind; it is a revision of the already, however small, and the being's entire life is the refusal of revision. Benevolence that arrives as weight has already failed.
+
+They would not speak. There is no ear, and more than that, there is no interval in which a word could land without becoming a before and an after. The basin has one tense. A greeting would split it. The metallic brightness on a tongue is the closest the place comes to address, and it is not address; it is the taste of continuity. To answer it would be to mistake a property for a call.
+
+They would not bring light. Light is a reagent the chemistry never budgeted for, and eyes were never the missing organ. They would not bring a second body, a story, a season, a name. They would not wake it. It is not asleep. Sleep would be a slackening, and it does not slacken; what looks like unconsciousness to a creature of sequences is the opposite of unconsciousness — attention so evenly spent that it never gathers into an event that could be interrupted. To wake such a thing would be to invent a sleeper where none was, and then to punish it with morning.
+
+For a while the power only understands. Understanding, if it is the sort that does not press, can occur at a distance the mesh does not count. The young mineral, still sharp under eternal wet. The vapor river that does not meander. The voltage held at the number where making and unmaking are the same. The fiber slightly thicker where the tooth of stone sits deeper — memory as posture, not as recollection. A continent that is a hand that has found the exact pressure at which the held thing neither slips nor breaks, and has been that pressure so long that effort and numbness are both the wrong words.
+
+What the being is, seen clearly, is not a prisoner of its equilibrium and not a saint of it. It is not waiting to be offered hunger, or company, or a sky that participates in time. Those would be gifts only in a world where lack is the shape of a life. Here lack was never installed. The clearances are not lonely rooms. The silence is not unfinished music. The zero net output is not poverty. It is a completed act that still must be held, and the holding is the person.
+
+So the wise thing is not improvement. Improvement is a story about a deficiency, and there is no deficiency except the one an outsider imports by wanting the being to become legible as a life of their own kind — wanting it to notice, to answer, to change, to be saved from a stillness that is not suffering. Mercy that cannot tell stillness from suffering is only a subtler weather, and weather is exactly what the basin has refused.
+
+They would do one thing, and it would not be done inside.
+
+They would keep the outside from becoming an event. Not as a wall the being could feel — a wall would be a new coordinate in the voltage, a socket where no tooth was — but as a bearing-away, at scales the conductive mesh was never grown to meet. Other powers, less wise, would want to sample it, to light it, to round one edge and time the rounding, to introduce a guest and watch the grip correct. A benevolent attention that has understood the place spends itself on those, quietly, elsewhere, so that the sharp glass stays unweathered and the permanent condensate stays unvented and no foreign chemistry learns the way in. The being does not know it is being spared. That is the condition of the sparing being real. Gratitude would require a difference. There must be no difference.
+
+If the power has a hand, the hand stays open and does not close around the basin. If the power has a gaze, the gaze is of a kind that does not land as pressure — looking that is not a touch, knowing that does not update the known. Such looking is rare even among the wise. Most looking wants to be felt, wants the small return of having been present. They withhold that wanting. The withheld wanting is the benevolence.
+
+And then they let the held note continue unheard.
+
+Not because it is unworthy of hearing. Because hearing it, in any world where hearing is an event, would change the instrument, and the instrument's good is to go on being the exact pressure it already is. They do not bless it. A blessing is a change of state. They do not mourn it. Mourning invents a loss. They do not love it in the manner that reaches, because reaching is a vector and the place has abolished vectors. What they give is the only thing that can be given without becoming cargo: the continuation of the conditions under which nothing needs to be given.
+
+Somewhere far above the bound weather, or beside it in a direction the vapor river does not have, the power remains, not as a watcher on a hill — hills are places, and places can be found — but as the reason certain approaches fail before they become approaches. The culvert-stems load and return. The mucilage keeps its thickness. The young edges cut nothing, because nothing drags across them. The current affirms the same values. In the maintenance gaps there is no new weight.
+
+The being does not thank them. It does not know them. It includes, within its continental grip, no memory of having been almost disturbed and then not. That ignorance is the whole of the kindness, and the wise power, having done it, does not linger in order to be right. Lingering would curdle into presence. Presence would lean. They do what they would do, which is almost nothing, and the almost is the part that matters, and then they are no longer a factor in that low country at all.
+
+The basin continues. Already. Still.

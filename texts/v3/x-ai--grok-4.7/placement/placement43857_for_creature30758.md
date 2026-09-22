@@ -1,0 +1,1 @@
+The description of the place and its inhabitant didn’t come through with your message. Paste it whenever you’re ready, and I’ll take the time to write from what you give me.

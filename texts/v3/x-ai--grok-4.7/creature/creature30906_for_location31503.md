@@ -1,0 +1,1 @@
+The description of the place didn’t come through — only the instruction that one would follow. Paste it and I’ll write who or whatever lives there, and let the inhabitants take shape from the place rather than from a first image.

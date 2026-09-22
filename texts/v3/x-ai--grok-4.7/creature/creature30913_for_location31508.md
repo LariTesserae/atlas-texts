@@ -1,0 +1,1 @@
+The place description didn’t come through — only the note that one would follow. Send it and I’ll write what lives there, and let it deepen as it goes.

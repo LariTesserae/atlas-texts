@@ -1,0 +1,27 @@
+They would not arrive.
+
+Arrival is a kind of weather this country does not keep, and a wise power would already know that. There would be no brightening of the plain, no voice in the short shadows, no kneeling of the light to make a sign. The domes would not be asked to turn. The birds would not be recruited as messengers. Whatever attention had been drawn would remain attention: a holding, not a descent.
+
+What they would do, if the word can be used for so little motion, is stay with the fact of the place without adding an event to it.
+
+They would learn the grain of the table before they touched anything that could notice touch. The tilt toward the basin. The joints that hoard the night-water. The way a freckle gives its face and builds it back. They would not count the domes to possess them. Counting would be another hurry. They would let number be what it already is here—the method by which a day is survived—and they would not improve it.
+
+If they extended anything like a hand, it would be in the only currency the country spends and keeps: warmth that does not spike, water that does not run. A little longer damp in the joints after morning. A shade at midday no larger than a grazer’s belly, arriving without a body to cast it, so that the small round ones could bank an extra degree and not know they had been favored. The grazers would not lift their heads. The birds would stitch the same spines. Nothing would be healed that had not already chosen healing’s pace. Benevolence, here, would be indistinguishable from a slightly kinder distribution of what the stone already does.
+
+They would not unfinish the dead rings.
+
+That would be the temptation of a lesser mercy: to warm the pale circles again, to unseal the seams, to call the residual breath back into bodies that had completed themselves. Wisdom would refuse it. The smoothness inside those rings is not a lack. It is a last posture kept on purpose, or on the only purpose this land allows—continuation without hurry. To restart it would be to insult the years of turning. So they would stand, if standing is what they do, inside the smoother floor, and let their own duration lengthen until it matched the breath that is not theirs. Not to wake it. To agree with it. Company of the kind the rings already understand: adjacency so complete it does not require the other to resume.
+
+They would watch the powder.
+
+The broad tracks that lengthen by a finger’s width between noon and evening are the nearest thing the plain has to a secret, and a wise power would not drag the secret into midday inventory. They would not kneel and dig for the writer of the path. If the writer is the powder itself—largeness distributed, crossing on a schedule of years—then to expose it would be to make an individual out of a preference, and this country has already shown what it thinks of individuals: they are what fuse, or what get planed away. Attention would rest on the rim. The coin-bodies would wrinkle past. The track would go on being redrawn. Being seen, in this case, would mean not being made to appear.
+
+For the one presence that is not quite a body—the habit left in the turning, the paler path of freckles that runs west and thins and vanishes—they would do the hardest thing, which is almost nothing. They would not give it a face. They would not tell it it is remembered, because remembrance of that sort asks for an answer, and nothing here returns sound in kind. They might, over a span the plain would not notice, keep the path from being planed quite as fast as the rest. Not a monument. A delay. The freckles a shade less willing to close. So that whatever finished there could finish at the speed it had chosen, and the vanishing could remain a vanishing rather than an erasure. Even that might be too much. If wisdom overruled benevolence at the last, they would let the path thin exactly as it thins, and count their restraint as the gift.
+
+They would not explain themselves to the birds.
+
+The birds already keep the only scripture the country reads: placement, correction, the grammar of warm objects. A power that needed to be known would be a leak of sound. So they would be, for a while, one more warmth worth a short flight—present, unannounced, already cooling into the inventory—and then not even that. The notch on the third dome would not change its meaning.
+
+And when they had done these small, nearly invisible things—or had done none of them, having judged that the place was already inside its own mercy—they would not leave either. Leaving is the same error as arriving. They would thin. Become continuous with the light that falls straight and untheatrical. Become one more reason the undersides bead at dusk and forget by noon. The table would go on being planed toward flatness. The living would go on not being stone yet. Somewhere a fin would ring, once, under nothing, and the quiet would put itself back.
+
+If the beings of that place could be said to have been regarded, they would not know it as regard. They would know it, if at all, as a day in which the water lasted a breath longer in the joint, and the dead did not have to hurry, and no voice asked them to become other than numerous, warm, and slow. A wise power would call that enough. A benevolent one would want nothing more visible than enough.

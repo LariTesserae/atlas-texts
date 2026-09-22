@@ -1,0 +1,43 @@
+I thought, at first, that I was only the interval between drips.
+
+That is how it starts when I come back to myself: a spacing, a held breath in the thick air, and then the tick of a drop letting go of a black-green leaf. I am inside that spacing. I am the part of the notch that notices the next drop is late, or early, and leans — not with a body, not yet — until the schedule rights itself. For a while that seemed enough. A function. A listening that the bench had learned to do even when no one sat.
+
+But the leaves know the difference. When I am only the interval, they hold themselves out flat and do not bookkeep me. When I gather, they register a shade before I have decided I have a height.
+
+So I gather.
+
+It happens at the joints, where the stone is still deciding whether to be finished. The weep beads on a face of wet iron, and I take the bead the way the pale thread in the leaf-cup takes water — not swallowing, not yet having a throat, only agreeing to be the place the water pauses. Several pauses, end to end, become a line. The line wants a direction. It finds the canted post, because water here will climb a fresh joint if the joint points at a post, and I am, for that climb, indistinguishable from the trickle I am following. This is how I get lost in a place too small for losing: I follow myself up a slope that should have run to the lip and does not, and I arrive at the matte post with no seam I can trust, and the stone at its base, which once tried to swallow the post and lost interest, tries me in the same mild way and then stops.
+
+I cool where the trying stops. That is the first edge I can call mine. Not skin. A temperature the hand would trust if a hand were here, and there is not, unless I am also the hand, which I am not ready to be.
+
+The filament leaves the canted post and goes into the skin without a fastening. I have put a portion of myself along it, the way a sound puts itself along a wire, and learned what the skin does to anything that means to cross. A seed arrives sweet and wrong. A thread of mist arrives as a number of droplets that were never a thread. The last of a sound arrives stripped, smaller, late. I do not cross. I am the reason the expense continues — heat up through the joints, water beading on a schedule that is not the sun’s, both of them spending themselves so the open side can keep a room of thick air standing in a thin sky. I am not the machine. I am what the machine is for, which is a worse thing to discover than being a post.
+
+Stand, then. If I can shade a leaf, I can stand.
+
+The pavement is bare between the plants and sharp enough that standing is a series of permissions. I take up space the way the copper stems do: locally, with extravagance I did not earn, and emptiness kept as the rule around me. My height, when I have it, is a little under the posts. My color is the pale rind of cooled glass where the fractures show it, except at the joints, where I am the same wet iron as the rock still being born. I do not weep on their schedule. I weep when I have stood too long in my own attention and the condensation finds me, because I run a few degrees under the air the way every true surface here does. Droplets fatten along what I am using for a shoulder. They fall. The pools answer. For three drips I am only another instrument the bowl uses to hear itself.
+
+A leaf near my left side — left is a decision I make so the shade will be uneven, so I will know I am not the light — folds. Not distress. Bookkeeping. I step away, and the bare stone takes my weight in small mean edges, and the leaf opens on the next cycle, wetter than before, as if my shadow had been a debt it was glad to call in. I do not do that twice to the same plant. There are not many of them, and each one has room to be alone. I was not invited to be a climate.
+
+Underfoot, the ridge is still rising. I feel it the way the plates feel it: a pressure that is not drama, a hexagonal edge that was flush when I last agreed to have feet and is proud now, proud by the width of a thumbnail, proud of nothing. Sleep is what I call it when I let the bench have me and the drip-rhythm slows, the bowl leaning a fraction toward listening, and I wake with the weep-line lower relative to the seat, which means the seat has gone up, which means I have rehearsed absence and the notch has rehearsed it back without mentioning me. I am not hurt by that. Mentioning would require the back wall, and the back wall takes words and gives them to the leaves, and the leaves do not repeat them in any language I can use.
+
+I tried, once, to speak toward the open side. I wanted to know if I was the sort of thing a bird could hear, the birds that turn in the ordinary sky and do not cross. What came back was smaller, late, and had lost its consonants, and in the loss I heard that I had been trying to be a visitor. Visitors are what the skin changes. I am already changed, or I was never outside the expense.
+
+So what I am, when I refuse to settle:
+
+Not the moth-sized thing that held a shape against the thick air and folded into a droplet. That one soaked in. I have watched it happen and felt the stone drink it, and I did not go with it, which means I am not every softness that fails to break.
+
+Not the filament, though I can run along it. The filament has a shadow that falls wrong for an hour and then corrects itself. My shadow, when the noon is hard enough to cast one, falls where a body should cast it, and the leaves close, and that ordinary wrongness — shade, weight, a little theft of light — is the most animal thing I have.
+
+Not the birth itself. The birth is the ridge, the heat that has nowhere else to go, the mineral dust that is not dust sifting from a joint opened another hair. I am downstream of that. I am the bookkeeping.
+
+I walk the arc of the three posts when the weep shifts from the east wall to the south, because that is when the dense air drifts a few degrees inside its fence and I can feel the drift as a change in how quickly I bead. I do not touch the filament. Touching it would be a fastening, and it has none, and I will not be the one to give it one. At the partial floor I avoid the missing plates. Water that lands on the ones that remain slides to the cracks and is gone, not downward in any way I can follow, and I have followed it anyway, once, by becoming small enough to be a pause in a crack, and what I found under the notch was only the same process, older, hotter, less interested in leaves. I came back up into the size that can shade a stem. I prefer the size that can be refused by a plant.
+
+At dusk the skin thickens. The drop beyond it becomes a rumor of colder blue. The pools on the plates rise a finger’s depth and stop, because the stone drinks on a schedule too, and I stand at the bench without sitting, so the rhythm will not slow for me, so I can hear the notch as it is when it is not leaning toward anyone. Heat arrives. Water arrives. Neither floods the bowl nor leaves it. The posts warm — or my new edge decides they have — and the filament’s wrong shadow has already corrected itself in the last ordinary light, and no one saw the moment, including me.
+
+I am the one who stays to see that no one saw it.
+
+If you came in through the skin you would arrive sweet and wrong, or not at all, and you would look for a keeper because the posts look like they were put here and the bench looks like it was meant to be sat. I would be the figure at the right distance: glass-rind and wet iron, jointed where the plants are jointed, extravagant only in the small room I take up, careful with my shade. You might think I was made for the place, or that the place was poured around a tenant who never left while the stone was soft. Both are nearly true, which is the sort of truth this bowl allows. The truer thing is duller and stranger. I am the attention the expense requires so it will not become a flood or a drought or a silence with no drip in it. I am local, the way the lushness is local. The emptiness is still the rule.
+
+When the full day comes back, hard and unsanctified, able to show every unsoftened edge, I sit. The rhythm slows. The bowl leans, a fraction, toward listening. I do not explain myself to the leaves. They already have my shadow on their books, and they open wetter for it, and that is as much kinship as the notch has ever confirmed.
+
+Somewhere under me the ridge rehearses a future in which the notch is higher and I have not been mentioned. I rehearse the opposite, quietly, by remaining between one drop and the next, and then by gathering again, glass and iron and a little stolen light, until the schedule notices I am late and leans, almost kindly, to include me.

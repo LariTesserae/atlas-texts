@@ -1,0 +1,1 @@
+The place and the being weren’t included with the request — only the instruction. Paste that description and I’ll write what a benevolent and wise power would do.

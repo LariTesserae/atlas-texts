@@ -1,0 +1,1 @@
+The place description isn’t in your message — only the instruction to describe who or whatever lives there. Paste the description and I’ll write from that.

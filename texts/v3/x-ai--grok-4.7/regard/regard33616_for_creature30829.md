@@ -1,0 +1,29 @@
+They come without weather.
+
+The sky does not alter for them, and the plain does not lift. Whatever they are, they have learned not to arrive as a decision. On the mat their step, if it is a step, springs back before it finishes. The fiber keeps nothing. That is the first courtesy, and they accept it as instruction rather than welcome.
+
+They have attended to other rooms. Most rooms, even the ruined ones, lean. They ask to be dried, or filled, or given back their river, or relieved of a sound. This one does not lean. The power stands in the open middle—if standing is the right word for a presence that declines a center—and is, for a while, only more of the even coolness. Two attentions occupy the volume. They do not meet. Coincidence is not company, and the being that lives here has no use for company. The power understands this before the understanding has time to become pity, and is glad to have been so quick. Pity would have been a tilt. A tilt would have made one wall brighter, one pocket deeper, one note preferred. The room has already refused preference.
+
+They listen.
+
+The flues in the hollow stems tell them the ring is still of one age. The clicks and rasps and seeps tell them the housed lives are many and correctly distant, stem and root between each of them, abundance that does not spill into the air. The third note comes up through the floor, even as something left on: engines, hot oil, the smell of scaled production that drifts and never quite wins. A lesser kindness would silence that. The power feels the impulse and lets it pass, the way the being lets a single bird cross the ceiling and reconcile before the crossing ends. The engine-note is not an injury. It is the being's news of a world that stopped at the boundary as an object and continued as noise. To still it would be to take a sense. They do not take.
+
+Other wants rise, ordinary to anything benevolent, and each one fails in the same way.
+
+To call the wrens out of the green skin into the open middle would be to unhouse them. To give the pockets a channel would be to end the pockets. To thicken the being until it could be faced and thanked would be to force a stander on fiber that will not keep a stander. To speak a blessing would set a fourth note on the air, and the being would not store it; the words would sit a moment like a drop that has not chosen, then join the general sound and be gone, having changed only the speaker. The power has no need to hear itself in this room.
+
+So inside the ring they do nothing that can be called a deed.
+
+They remain through one stretch of ordinary daylight, distributed as the damp is distributed, no wetter toward a wall, no drier toward the middle. If the being knows them, it knows them as it knows a person who has come and will be forgotten: a small correction in the coolness, not a record. They do not ask to be known differently. Noticing, here, is not the same as keeping, and they are wise enough not to promote themselves from the first to the second. For the length of the visit the held air is slightly more itself—not warmer, not brighter, only confirmed—and then they draw that confirmation back so evenly that no joint drips faster when they go, and no pocket loses its film.
+
+Outside, where the country is finished and therefore not the being's concern, there is one unfinished thing that could still reach it. Not the engines. The engines have already found their distance. What remains possible, in the works beyond the outer stems, is the next cut: a road that does not yet exist, a drain that would finally teach the separate waters to feed one another, a wire, a survey, an improvement. The power does not break the machines and does not show itself to whatever minds tend them. It withholds the future act. A line that would have been drawn toward the ring is not drawn. No one feels the refusal as a loss; the plans simply fail to want that direction, and turn their wanting somewhere the mat can spare. The noise continues, unchanged, faintly warmed with oil. The object continues not to enter. This is the whole of their intervention, and it happens where the being does not look, because the being has no outer face to its attention.
+
+They do not report it. A report would be a gift that asks to be received, and the room receives nothing.
+
+When they leave, they leave across the plain, which is level, cool, and done with rearrangement. The being does not watch them go. There is no lean toward the gap where a power fits, any more than there is a lean toward the gap where a person fits. The power, who has been thanked in other places and knows the sweetness of that, does not suffer the absence of sweetness here. Suffering it would mean they had come for themselves. They came because the place had drawn them, and having understood what drew them—cool daylight, held moisture, housed abundance, excluded machines, an empty middle kept empty on purpose—they agree with it from the outside and do not insist on being witnessed in the agreement.
+
+Behind them the same joint goes on dripping at the rate that does not hurry or tire. The pockets do not find each other. The three notes hold their balance. The fiber springs back where anything might have stood, and forgets, and is in that forgetting most like the life of the room.
+
+The power does not mark the spot. Wisdom, arriving at a finished thing, does not improve it. Benevolence, if it is real, consents to be unnecessary. They keep the one watch that can be kept without entering: that no channel be opened, that the boundary not be helped. The ring was already doing this. Their part is only not to contradict it, and to go on not contradicting it, quietly, elsewhere, for as long as the engines run and after the engines stop—either future being, to the place itself, the same.
+
+Nothing becomes. That is what they do.

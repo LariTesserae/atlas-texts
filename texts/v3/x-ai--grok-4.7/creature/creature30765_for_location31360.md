@@ -1,0 +1,1 @@
+The place description didn’t come through after your note — only the instructions did. Paste it when you’re ready and I’ll describe whoever or whatever lives there.

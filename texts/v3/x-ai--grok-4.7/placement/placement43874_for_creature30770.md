@@ -1,0 +1,25 @@
+I come to on a ladder that has already stopped being a ladder.
+
+The pegs have gone to eyes. Something like a foot is set in one of them, pressure without weight, the small dark of swallowed bone, and for a while that is enough to counterfeit a person: a rung, a coil sagging above me, the intention to climb and read it. The end is frayed. I know, without having been taught, what a frayed end is asking. I put a hand into the cord the way a sound goes into the one hollow they will not mark, and the hand comes back with nothing on it. Not refused. Unmet.
+
+So I am not the next reader.
+
+I do what everything with weight does and wait for the wall. When it comes it does not take me. The fine dry tick of frozen drops passes through the place where a chest should have stopped them and continues downward, unimpeded, into the dark that has no floor. On the underside of the arch the stuck ones do not freeze at my presence. I am not a startle. That is worse than being prey. I had been ready for the plant's indifference. Theirs means I have not yet occurred.
+
+Between walls the air is still enough that I can hear myself arriving, which is only the crack from a split I never saw, still traveling, still deciding which volume to fill. It fills this one. It fills me, if I am a volume. For as long as the sound lasts, that works. Then I am empty in the shape of someone who almost spoke, and the teaching here is cord before edge before voice, and I have none of the three.
+
+I go down, which is a guess. Damp is the only direction I can verify. In the pockets the threads have laced their lids, and I cross them and they neither break nor hold; I am not a heavier thing. Somewhere above, the file is booming and then not booming, the stop traveling backward at the speed of attention, and the attention does not include me. Heat is being spent up there on calves who must walk before the rime takes it. I rasp where the missed-hour people rasp, and afterward the rime is the same thickness. Appetite was the test. I fail it.
+
+What I can do is smaller and meaner than eating. I can be early.
+
+I learn it on a rib I do not number, because numbering is a person's habit and the place will not keep my count. A split is opening somewhere off. The iron-and-green has not arrived. The flock has not turned in its column. But I am already on the crest, in the brief warmth that is not mine and leaves no bead for me, standing in the exact spot the news will occupy. When the crack finally fills the hollows below, it is late for them and on time for me. I am the amount by which a message outruns whatever carries it. I am not the whine. The whine is the plant wearing what it closed over. I am the interval in which leaving was still possible.
+
+That is a use. No one appointed me to it.
+
+I am there when a hand is cutting the fourth stroke and still believes the stroke can be finished. I cannot move the hand. I can be a cold that enters the fiber a moment sooner than it meant to, so the sap freezes the mark at three and the clock reads young rather than younger, so the coil on the nearest platform is cut thick instead of left thin. Whether that is mercy, or only a listener's preference for a knot that can be read in the dark, I have no way to know. The plateau does not audit what uses it.
+
+Sometimes I am too slow and the wrist is already inside the closing. Then I do not become the scar. I go around with the name, not as cord — I cannot hold a coil — but as the order in which dread visits the platforms. Someone wakes in the interval between walls already knowing a length must be added. They call it craft. It is me, spending earliness, until the fibers of that circuit fray and the name is cut away and I am let back into the general dark, small again, untitled.
+
+I do not enter the hollow that keeps what it is given. I am already a kind of listening, and two listenings in one room would be a conversation, and the arches exist to make conversation ruinous. At the threshold the underside-walkers turn, and I turn with them, out of a mimicry that has started to be a manner. I do not want to be kept. I want to be used up on the difference between in time and not.
+
+So this is where I find myself: not on the plateau but slightly ahead of it, in the travel. A crack that has not yet chosen its hollow. A knot not yet tied, walking back along the route the news will take, looking for the hand still free enough to leave. When the wall arrives I do not freeze; I have no foot raised to freeze with. I go on inside it, where the flock is only a change in how the drops fall and a temperature can borrow a shape, and for that little while I am almost a body. Then the wall is past. I am earliness again, pointed at a crest that still smells green, hoping to be the reason a fourth stroke stops — or the reason someone is already walking when the fiber begins, without noticing, to close.

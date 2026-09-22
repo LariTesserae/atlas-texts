@@ -1,0 +1,1 @@
+translucency is not wasted. It is only unused by anything that might call it beautiful. It is not an organ for seeing

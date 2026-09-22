@@ -1,0 +1,7 @@
+Ask who lives in the Molt Fields and the truest answer starts a meter below the noise: everyone who ever has. The living crowd is only the topmost layer of the resident population. Beneath it, pressed into ivory shale, are all the others — the tenants of previous eras, in strata, down to bedrock. Residence here is a phase of matter. First you are the colony; then you are the ground it stands on. Nothing leaves. The promotion from one to the other is gradual, unceremonious, and, from what can be told, unwelcome to no one.
+
+So begin by refusing both easy answers. They are not insects, plural, scurrying. And they are not one animal, singular, a hive with a hidden queen. Within any one kind you cannot tell two apart — not by eye, not after years of watching. An individual, here, is a place where the crowd bends. And yet the carpet is not a single body either; watch longer and it separates into castes, into offices, into what the ledger's writer — there were two of them, initials in the front of the book, gone now — called, in a tally that reaches sixty-one species before the counting gives up, *spp. and I have stopped trusting my categories. the same kind does three jobs and I have counted it three times.*
+
+That failure of taxonomy is the first honest fact about them. The body is not the unit. The job is.
+
+Consider the turners, since the sound of the chamber is mostly theirs. Thumb-length, amber-pale, the forelimbs ending in a hooked denticle that fits a crank

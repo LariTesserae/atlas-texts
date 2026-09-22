@@ -1,0 +1,1 @@
+The description of the place and its inhabitant never arrived—only the invitation to stand inside it. Send that, and I’ll find where I am and what I am, and let it keep becoming itself.

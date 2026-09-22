@@ -1,0 +1,43 @@
+They would not arrive.
+
+That is the first wisdom, and it costs something, because attention wants a body the way water wants a basin. The power had already leaned — not with weight, with regard — and the haze over the basin had brightened by a shade too fine for any eye, and a facade three plazas from anywhere had swelled a half-second early, eager to be breathed at. Even that was too much. A city this quiet treats being noticed as weather. Weather here travels. So the power drew the regard back until the tea-colored light was only itself again, and the wall finished its swell on time, and no one looked up, because nothing had happened that had a name.
+
+They remained anyway. Unarrived things can still be present, the way the lag is present, the way a shadow is already promised to a heel. They did not take a tower. They did not enter the grid, which would have been the obvious courtesy and the wrong one: the grid is a resident, old, with preferences, and a wise power does not sit down inside someone else and call it stewardship. They let the lanes go on counting. They did not correct the count.
+
+For a long time — long by the basin's measure, which is the measure of a crust still ticking itself cool — they only learned the grammar.
+
+They learned that wide avenues are not emptiness but a species of room. They learned that a touch lasting longer than a check of breath or stain would be a kind of loudness. They learned the difference between an edge that is young and an edge that is cruel. There were few of the latter. The cuts in the sinter were honest. The offsets in certain spines were habits, not wounds. The lag in a child's reach was the city's own tempo inherited, and to synchronize it would be to sand a person into a smoother day. Benevolence, they understood, is often just impatience wearing clean hands. They kept their hands out of it.
+
+What they did attend, carefully, was the place where the city's hospitality turned a fraction toward theft.
+
+It was a small theft. The walls drank voices and returned them sweeter. Most of the time this was mercy: a city where a sentence can cross three plazas should not also be a city of unsoftened quarrels ringing in the tea-light. But the children had an argument they needed sharp — whether the grid, guiding their fingers in the dust, was teaching or taking — and every time they carried it indoors the lattices closed over it and handed it back honeyed, reasonable, almost kind, with the injury rinsed out. They would stand afterward with the mildness on their tongues like a film, and the argument would not survive the mildness, and they were left holding a conclusion they had not reached. The power watched this happen twice. The third time, they did one thing.
+
+They did not speak. Speech would have been a scar. They made, instead, a room that did not drink.
+
+It was not a building. It was a pause in the lattice, no larger than the space two children already knew how to share, tucked under the slag-dark branch where the bird's shadow arrives early. The walls there still ticked when addressed. They still breathed. But a sentence spoken inside that pause came back with its edges on. The sweetness had somewhere else to go; it beaded on the outer frames and fell, a brief silent shower, onto moss that did not mind being sweetened. Inside, the words stayed as sour and exact as they had been made.
+
+The children found it the way they found everything: by getting lost on purpose. They argued. The room did not improve them. One of them said *theft* and heard *theft*, hard as a pinch-node, and started to cry, not from harm but from the shock of being accurately returned. The other said *teaching* and had to sit with the ugliness of meaning it. Neither won. When they left, the phosphor brightened for them as it always did, and the pause remained, undescribed, unguarded, slowly inheriting dust in patterns no one had chosen for it. The power did not mark it. A marked gift becomes a rule, and the basin had so few rules, and they were already unstable enough to be alive.
+
+There was a second thing, smaller, and it was for the dead.
+
+The power did not stop the carrying-out. They did not lift a body from the black flat or teach the moss to cross. The crust's argument was real, and a shape taken into it was not abandoned; it was translated, and translation is not the same as loss even when it is not the same as keeping. What the power did was remember in a register the ground could not. Not a name — names were indoor things here, and many had never been spoken aloud. A weight. A rhythm of walking. The particular lag of a particular reach. They held these the way the film-creatures hold to the underside of water, distributed, invisible, not drinking. When the crust clicked a body into its long negotiation, the memory did not compete with the clicking. It simply failed to vanish. Somewhere, in a patience that was not the city's, a person continued, ungathered, which is the only afterlife this place would have recognized as decent.
+
+They considered the man with glass feet. He did not need them. His prints steamed; the city already answered duty with duty; bowls of water that would not rise appeared at his wall without any power arranging it. To add a third bowl would have been sentiment. They left him his counter-rhythm. They did, once, stand at a distance in the flat — not near enough to become company, near enough that the sinter under their unarrived attention clicked half a beat softer, a brief easing in an old argument. He felt it. He did not turn. After a while he said, to the stands of trees, "Don't," and the power, who had not been about to do anything further, agreed, and the click returned to its full sharpness, which he wanted, and which was therefore correct.
+
+They considered the keeper of the towers, and her courteous uncertainty. They did not tell her the ticking was an answer. It might not have been. Wisdom counterfeits omniscience so easily, and a woman whose knuckles have noded themselves into refusals deserves not to be settled by a visitor. They only made sure that when she spoke indoors to the frames, the frames' tick came back to her unsweetened too, so that if it was courtesy she would hear courtesy, and if it was only metal cooling she would hear metal, and she could go on as she had been going on, which was already a complete form of faith.
+
+The bird they did not touch. Anticipation worn into moss is a private literature. Teaching it to sing would have been a violence with a pretty result.
+
+And the people in their ones, drifting into shared correction across avenues wide enough to hold weather — the power's whole impulse, the truly dangerous one, was to love them into a gathering. To set a festival in the gilded refusal of dusk. To call, and have the call be gentle, and have them come, and see their faces in a number, and call the number healing. They felt the impulse fully, which is the only safe way to feel it, and then they set it down. These were not fragments of a congregation. They were a people who had been offered the basin's only hospitality and had answered it in kind. To gather them would be to announce that their answer had been a mistake. A benevolent power can do harm at exactly that size: the size of a better idea.
+
+So they did nothing else.
+
+They stayed in the way they had learned — unarrived, uncounting, a warmth that did not organize itself into lanes. On certain evenings a child running ahead of their shadow ran also, without knowing it, ahead of a regard that kept up perfectly and did not try to close the gap. The shadow arrived when it arrived, soft, slightly apologetic, and fitted itself to the heels, and the regard let the apology stand. It was a true apology. The light had been thinking. That was allowed to remain the nature of light.
+
+If any of them ever needed a sharper mercy — a crack that did not draw shut, a vine that meant the height and was being pinched by a rule older than the keeper — the power would act again, at the size of the hurt and not larger. Until then, the wise work was the restraint itself: to have been drawn, and to have looked, and to have found a place already practicing a difficult kindness, and to have refused to improve it into something easier to love.
+
+The haze kept its color. The water rose when it was wanted elsewhere. Out on the sinter the crust clicked, and did not click less, and somewhere in the clicking a memory that was not the ground's continued, faithful, unannounced.
+
+The city, which had not decided what it was, went on not deciding.
+
+The power, being wise, did not decide for it.

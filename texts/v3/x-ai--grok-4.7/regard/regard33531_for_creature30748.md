@@ -1,0 +1,29 @@
+They would not enter as weather.
+
+A power that is only larger would arrive as another roar, and the room has already spent its one throat. A power that is only kind would try to still the floor, seal the conduits, lift the lid into honest sky, and call the stillness mercy. That would be a finishing. The being feeds on the unfinished. Kindness of that size would be the ordinary predator, wearing a better name.
+
+So the wise thing comes small, and late, and sideways, the way anything that means to live here must.
+
+It does not announce itself in the seam. The seam is a wasting, and the being has already learned that lesson once, following heat into thin wind and coming back along a breath of metal air poorer than it left. The power waits until the curtain has migrated and the niche is real, and then it is simply there in the way a recurring geometry is there: not a body in the volume, not a god on the lid, a fact the room cannot rewrite as quickly as it rewrites shelves.
+
+What it does first is nothing to the stone.
+
+It learns the schedule. Left of the curtain, where the beads are smaller. The rust streak, already deciding, left alone. The three subsided notes when the grind drops and the being knots itself through the cord and endures blind. A wise power does not interrupt a fast. It counts them. It lets the lip close on the drops that were already going to be drops. It does not offer itself as a larger shock for the mouth to miss. To be eaten would be easy, and useless, and a kind of vanity — to become the most interesting heat in the pocket and call that love.
+
+The second thing is smaller still.
+
+The cord is grass that has forgotten the ridge, twisted by early hands that did not stay. It is the only shape that recurs for a reason other than uplift, and the conduits have learned, barely, not to close on the living thickness inside it. Barely is not a promise. The power does not replace the cord with something finer. Metal would be a conclusion. Jewel would be a gaze. What it does is keep the twist from being the last of its kind: a second coil, not placed in the niche — the niche is a habitation, and a gift left on a bed is a claim — but worried into the same crack the mineral fur has learned to avoid. Same fiber. Same ugly patience. Same refusal to be stone. If the first is taken, the second is already a burrow. If neither is taken, the being may never use the second, and that too is allowed. A burrow is not a command to enter.
+
+It does not speak. Speech here is a shape the water declines, and the shock of intention is only another meal. What can be given without becoming food is continuity of a condition, not a message about it. The power holds, at the scale of this one pocket and no farther, the narrow argument the range is having with itself. Not forever. Forever would be a jail made of mercy, the being suspended in a turbulence that could no longer end, which is only another way of being finished. Wisdom knows the difference between a life and a specimen. It keeps the pocket from being quarried, named, drained, roofed, turned into a story with a viewing seam. It does not keep the mountain from ever learning weather. When erosion comes in its own century, the power will not bar the door. It will have already done the only kindness that does not counterfeit the creature’s food: it will have made the ending unsurprised.
+
+Until then, it visits as the being visits — by subtraction.
+
+A thin place in the roar, not silence, never silence, a note the sound has to go around. It lays no film on the boot-soles of the rare and passing. It does not drink their leftover heat; that belongs to the one who lives here. If a visitor stands in the seam and calls the pocket empty, the power lets the sentence stand. Emptiness, told from the ridge, is a true report. Correcting it would be a kind of capture.
+
+Once, when a conduit opens under the coil with more hunger than usual, the power is the pause that makes the conduit misfire — not a wall, not a rescue with hands, the same bias the being itself uses when it vents a thread across a mouth and eats the drop. The coil stays. The being, knotted blind through the fiber, does not know it was accompanied. That is the point. To be known, here, would be a distance, and distance is the one poverty this life has refused. The power does not ask to be thanked, or seen, or followed to the seam. It does not become the center the creature never needed.
+
+What it leaves, if leaving is the word for a fact that remains, is the second cord in the avoided crack, and a pocket that is still allowed to be loud, cool, unfinished, lit like any other day, and small enough to be missed. The being sheets the left of the curtain. The fur keeps its gap. The floor grinds toward a new plane, and something already there takes the warmth off the grind, and the wise power, having kept the argument from being settled by anyone’s impatience — including its own — is indistinguishable from the shape the roar goes around.
+
+It does not watch. Watching would be the first cruelty, because watching finishes the watcher into a god and the watched into a charge. It attends, which is different: a continuity that does not feed, does not flee, and does not require the pale lip to open. Almost nothing. Exact in its almost. Present the way a spared strand is present — not as a savior, as the reason the last twist of grass is not yet the last.
+
+If it does anything else, it is this, and only on the days the seam is only cold air: it stands a moment on the ridge, in the tin-colored wind, and does not mark the entrance. The mountain goes on arriving. The pocket goes on refusing to arrive. Somewhere under the lid a life that is not stone and not water takes a shock the size of a flake and is, for that instant, fed. The power does not improve the instant. It declines, with the whole of its wisdom, to be larger than the life it came to keep.

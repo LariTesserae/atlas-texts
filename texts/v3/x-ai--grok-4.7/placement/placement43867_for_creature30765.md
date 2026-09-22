@@ -1,0 +1,1 @@
+The description didn’t come through — only the invitation. Paste the place and the being who lives in it, and I’ll go from there.

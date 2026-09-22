@@ -1,0 +1,29 @@
+They come only as far as the lip, and then they do not come any farther.
+
+A wise attention learns the size of a place before it learns what it wants from it, and this one is already finished. The roar does not rise to meet them. The sheets on the faces do not adjust. The nap higher on the wall breathes its few hundred in and out, indifferent to anything that has not yet become a shadow over the tea. They stand where the fracture is still keen, where the turf-line of the old surface makes a dark seam under their feet, and they look down the way the light looks down: by leaking, not by entering.
+
+What they brought, they set aside one piece at a time, because each piece is a gift and each gift is a surplus.
+
+They could brighten the dim. A true day in the basins would be a kindness to the eye that is standing here and a violence to everything that has stratified itself against the leak. The layer hangs where the small warmth gives out. Give it a sun and it rises or it burns off, and the birds flick at nothing, and the hanging ones find their fine fraction gone, and the sheets thin not by death in a visible hour but by a rate that simply fails to replace itself. They do not brighten it.
+
+They could give the water a channel. A stream would be a story — inlet, outlet, somewhere to go — and the fish have no behavior that can survive a story. They are a solution held at saturation in sealed bowls. A current would sort them into travelers, and they are not travelers, and the number the shoal does not quite eat would be carried off or stranded on a crust that no longer means the edge of the world. The pools would become legible and then empty. They leave the seeps at the rate of damp in a cloth. They do not teach the water to run.
+
+They could call a season. Breeding that starts and stops is easier to love; it has a festival in it, a week when the pockets are all loud, a week when the faces are only grown birds. The colony would survive a season. It would also become a different animal, one that waits. Nothing here is waiting. The egg and the rank and the replacement are the same minute, and have been, and the sheet is a surface only because no one has introduced a calendar. They do not.
+
+They could lift the dying turf on the fallen blocks and make it live, out of pity for green in a brown dusk. That would be the smallest and the most dishonest mercy. The turf is the old roof still pretending to be a roof. Its job now is to brown from the margins and stop. To keep it would be to refuse the collapse its last, quiet consequence. They let the grasses finish.
+
+They could speak. A voice, even a kind one, would arrive as weather in a country that has no weather — a pressure the roar does not already contain, a signal the pockets might learn to answer, a reason for a head on the ledges to stop watching the layer and watch upward instead. The birds' eyes are aimed along the wall. That aim is the whole of their spare attention, and it is already spent. They do not spend it for them. They make no name. A name would be a path, and a path would be the first human thing, and the floor is still innocent of making.
+
+They look, for a while, for the being. That is the habit of powers: to find the one to whom the country answers. It is not there. Not the sheet, not the nap, not the granular pools, not even the small runner in the joints, though the runner is the only one that would turn and account for them if they went down. The inhabitant is the fit. The budget. The way the remainder is small enough to live in the scree and not so large that the rest must become wasteful. There is no one to bless. Blessing the fit would mean touching one term, and the terms are already equal.
+
+So what they do is smaller than a gift, and it is the whole of the work.
+
+Their attention has weight. Even at the rim it leans. A shadow that is not a wing has begun, barely, to cool one notch where the day's leak comes through — not enough to move the layer, enough that if they stayed and loved the view, the leak would learn them and the pools under that notch would hold a slightly different grain by the end of a month no one is counting. They feel that, the way you feel a draft you have become. They step back until the notch is only itself again. The thin metallic line on the fracture-face is light on stone, not light on a presence.
+
+They take inventory the way the runner does, once, exactly, and they do not improve it. Birds at the thickness of a surface. The higher dark breathing and never empty. Insects as a ceiling. Fish as a saturation. One warm-gray attention in the scree, living on spills. Angular rock. Drip. Turf dying in place. No path.
+
+Then they withdraw the surplus of being drawn. Not in reproach, and not because the place is unworthy of a god's standing. Because the place is already at the number, and a wise benevolence is the refusal to add one. The roar does not thank them. Nothing reseats. A drop that has been gathering on a ledge since before they came finishes, and is lost in the sound, and another begins, and the rate holds.
+
+If there is anything left that they do, it is not done in the basins. It is done at the height of the rim, among decisions that have not happened yet: they do not mark the lip. They do not tell the country above that a valley has been unroofed here, full of a life that would look, to anyone who builds, like a resource or a wonder or a problem to be solved with light. They leave the edge sharp and unremarked, so that what finds it later finds it late, and by accident, and with no road already agreeing that someone should go down.
+
+They do not stay to watch whether this was right. Staying would be another input. The last of their attention lifts off the keen rock the way a mist lifts when it was barely there, and the rim is only rim, and below it the sheet flicks and takes and swallows, and is replaced by itself, and does not look up.

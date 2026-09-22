@@ -1,0 +1,19 @@
+They would not arrive.
+
+A power that is both benevolent and wise does not need to cross the dark to be present in it. Presence, for such a power, is attention sustained without displacement, and attention is already a form of heat. The plateau would register the difference the way a walker’s pits register a belly that has begun its work: not as an intruder, not as weather, but as a slight excess that does not move and does not fade. The ridges would hold their charge a little longer. The basins would lose their water a little more slowly. No one would name the cause.
+
+They would do nothing that required an answer.
+
+The files would continue their spacing. The tenders would continue their ticking harvest of skins. The predators would continue their brief tax. A wise benevolence understands that a system which has already solved the problem of its own continuance—by folding its failures back into crust, by sealing its mills against drought, by refusing to cluster—does not require rescue, and that rescue would be the most intimate form of harm. To brighten the dark would blind the pits that read by temperature alone. To thicken the rain would drown the arithmetic that keeps calves on the inside of the file and millers on the outside. To hurry the drapes would teach them a greed the wind cannot pay. The power would therefore withhold every gift that could be perceived as improvement.
+
+What they would offer instead is continuance of the conditions the place has already chosen.
+
+The deep heat under the crust—the old, sunless engines—would be steadied against the slow cooling that even a continent eventually suffers. Not increased. Steadied. A walker’s gut would still be the only kiln. A discharge along the ridges would still be rare, silent, and useful exactly to the degree the crusts have learned to use it. The power would stand, if standing is the word, between the plateau and any sky that might one day thin enough to let a true sun through, or any neighboring dark that might roll over it and bury the basins under dust too heavy to sort. Protection, here, would look exactly like the absence of change. The beings would never know they had been spared, because the thing they were spared would never occur. That is the courtesy.
+
+If the power felt—and a benevolent power would feel—the particular beauty of a calf learning the wake of information without being told, or of a sealed swimmer waiting as a grain among grains, they would not translate that feeling into intervention. They would let it remain feeling. Wisdom knows the difference between love and management. The plateau’s industry is already a kind of love: each station feeding the next, each death a deposit, each distance a necessary silence. To manage it would be to confess that the power had not actually seen it.
+
+So they would watch, for a span of time that to the walkers would be indistinguishable from the ordinary continuance of the dark. They would learn the schedule the way the schedule learns itself: by the late answers, by the piles left where fog will find them, by the way a failed nodule becomes, without commentary, the richest terrace on the flat. And when the watching had become complete—when the power could have predicted every transfer and still chose not to—they would withdraw the excess of their attention so gently that the ridges would not even discharge.
+
+The place would be as it was. The being, whether one walker mid-file or the entire unspeaking factory of them, would continue. Somewhere a call would go out, low and late. Somewhere an answer would come, thinned by distance into the sound of stone keeping its treaty with itself. The power would be gone, and the work would be exactly as abundant, exactly as quiet, and exactly as unimproved as it had been before anyone wise enough to love it had noticed it was there.
+
+That would be what they would do.

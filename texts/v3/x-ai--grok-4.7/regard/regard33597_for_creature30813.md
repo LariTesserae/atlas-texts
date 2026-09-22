@@ -1,0 +1,25 @@
+They would not enter.
+
+A power of that kind does not need the throat of water, or a body to lower through it, or the coolness on a skin it does not have. Attention, for it, is already a form of being present, and it can be present to the whole chamber at once: the column of ordinary daylight, the thumbsmooth ledge, the tilted slab, the iron blush, the low note that has joined the silence, the film no thicker than a damp fingerprint holding its green only where green is not a waste. It would take all of that in without disturbing a mote. Disturbance is a cost. It does not spend costs it does not need to spend.
+
+The first thing it would understand is that nothing here is unfinished.
+
+That is the correction most powers fail to make. They arrive full of kindness and read sparseness as hunger, stillness as pause, a life without episodes as a life that has not yet been given its story. This one would not. It would see the film for what the water has already negotiated with it: a thickness justified by the ration, a color spent only where the light pays for it, a refusal of the darker floor that is not fear and not ignorance but accounting. It would see that birth and restraint are the same gesture here, and that to multiply the gesture — to seed the silt, to warm a lens of water, to sweeten the chemistry until fish could turn in the column — would not be mercy. It would be a contradiction of the only permission the resident has ever used.
+
+So it would not stock the chamber. It would not teach the film to want. It would not lift the green into a creature with an interior, on the theory that interiors are gifts. An interior, here, would be a room the rations cannot furnish. The being has no future it is trying to reach. To hand it one would be to hand it a lack.
+
+It would look, longer than a kindness usually looks, at the works outside.
+
+Not to admire them. To see what they are actually doing, which is not worship and not design aimed at the film, but a patient deciding of level, coolness, and chemistry, repeated so evenly that the decision has become a property of the place. The power would notice that this patience is the whole condition of the life inside. A stronger current peels the film back to dust and shreds. A warmer season splits it into two things, and it has spent itself on being one. If the engines faltered, or were improved by someone who thought improvement meant more force, or were shut off in the name of returning the hollow to weather, the chamber would become interesting, and then it would become dead in the ordinary way, and the interesting interval would be paid for by the resident.
+
+That, then, is the act, and it is almost not an act.
+
+The power would set its attention on the continuance of the continuance. Not a miracle laid over the pumps, not a new law spoken into the stone. A holding. Where a bearing is a year from wear, the wear does not arrive. Where a hand, someday, reaches for a valve out of boredom or thrift or a plan to make the water useful to something with gills, the hand hesitates, forgets why it came, and goes to do some other reasonable thing. The low note stays at the edge of hearing and does not rise. The surface above stays flat. No one is compelled. No one is punished. The world simply fails, at a few small hinges, to revise what has already found its form.
+
+It would not announce this. The film cannot hear an announcement, and would not spend thickness on gratitude if it could. Gratitude wants a future in which the gift might be absent. The power is wise enough not to create that future for the sake of being thanked inside it.
+
+It might, because even wisdom has a tenderness it does not entirely govern, do one thing more, so slight it would not show on any instrument crueler than attention itself. In the place where the column loosens against the western wall, the ration of light is a fraction more faithful than the season above quite supplies — not brighter, not longer, only less willing to be interrupted by a cloud the film will never know occurred. The green there does not deepen. Deepening is not what was offered. What was offered was an evenness matching the evenness the resident already is.
+
+Then the power would withdraw its want, which was the only thing it brought that did not belong, and leave the chamber as found: cool, clear enough, unoccupied except for the skin of mineral and pigment that has finished becoming itself. It would not watch afterward in the way that watching becomes a pressure. It would remember, the way deep water remembers a temperature, and that remembering would be enough to keep the hinges from turning.
+
+Nothing in the room would mark the visit. A year later the arrangement would still convict you of misremembering rather than of the place having moved. That is the signature. Benevolence, when it is also wise, signs with what it refused to touch.
